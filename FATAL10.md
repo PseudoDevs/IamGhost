@@ -1,2 +1,2 @@
-Last updated: 2024-04-02 19:37:22
-Random Quote: Beginning today, treat everyone you meet as if they were going to be dead by midnight. Extend to them all the care, kindness and understanding you can muster, and do it with no thought of any reward. Your life will never be the same again. - Og Mandino
+Last updated: 2024-04-02 19:37:55
+Random Quote: Let my skin and sinews and bones dry up, together with all the flesh and blood of my body! I welcome it! But I will not move from this spot until I have attained the supreme and final wisdom. - The Buddha
