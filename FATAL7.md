@@ -1,2 +1,2 @@
-Last updated: 2024-04-02 15:25:01
-Random Quote: If I am not for myself, who will be for me? If I am not for others, what am I? And if not now, when? - Rabbi Hillel
+Last updated: 2024-04-02 15:26:05
+Random Quote: Through meditation and by giving full attention to one thing at a time, we can learn to direct attention where we choose. - Eknath Easwaran
