@@ -1,2 +1,2 @@
-Last updated: 2024-04-02 18:08:15
-Random Quote: The greatest obstacle to connecting with our joy is resentment. - Pema Chödrön
+Last updated: 2024-04-02 18:08:48
+Random Quote: He who controls others may be powerful, but he who has mastered himself is mightier still. - Laozi
