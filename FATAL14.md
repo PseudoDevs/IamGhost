@@ -1,2 +1,2 @@
-Last updated: 2024-04-02 17:11:48
-Random Quote: You can't let praise or criticism get to you. It's a weakness to get caught up in either one. - John Wooden
+Last updated: 2024-04-02 17:12:21
+Random Quote: We are stuck with technology when what we really want is just stuff that works. - Douglas Adams
