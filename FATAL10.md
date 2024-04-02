@@ -1,2 +1,2 @@
-Last updated: 2024-04-02 17:24:24
-Random Quote: Sometimes it is better to lose and do the right thing than to win and do the wrong thing. - Tony Blair
+Last updated: 2024-04-02 17:24:59
+Random Quote: Knowing your own darkness is the best method for dealing with the darkness of other people. - Carl Jung
