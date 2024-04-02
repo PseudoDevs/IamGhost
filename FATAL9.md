@@ -1,2 +1,2 @@
-Last updated: 2024-04-02 11:34:01
-Random Quote: We come to love not by finding a perfect person, but by learning to see an imperfect person perfectly. - Sam Keen
+Last updated: 2024-04-02 11:36:05
+Random Quote: Experts on romance say for a happy marriage there has to be more than a passionate love. For a lasting union, they insist, there must be a genuine liking for each other. Which, in my book, is a good definition for friendship. - Marilyn Monroe
