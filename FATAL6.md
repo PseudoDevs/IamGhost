@@ -1,2 +1,2 @@
-Last updated: 2024-04-02 18:15:33
-Random Quote: Your worst enemy cannot harm you as much as your own unguarded thoughts. - The Buddha
+Last updated: 2024-04-02 18:16:07
+Random Quote: I hope we shall crush in its birth the aristocracy of our monied corporations which dare already to challenge our government to a trial by strength, and bid defiance to the laws of our country. - Thomas Jefferson
