@@ -1,2 +1,2 @@
-Last updated: 2024-04-02 16:51:07
-Random Quote: Chaos and Order are not enemies, only opposites. - Richard Garriott
+Last updated: 2024-04-02 16:51:41
+Random Quote: Myths which are believed in tend to become true. - George Orwell
