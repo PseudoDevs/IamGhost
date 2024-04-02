@@ -1,2 +1,2 @@
-Last updated: 2024-04-02 19:51:26
-Random Quote: I am not the first Buddha who came upon Earth, nor shall I be the last. In due time, another Buddha will arise in the world - a Holy One, a supremely enlightened One, endowed with wisdom in conduct, auspicious, knowing the universe, an incomparable leader of men, a master of angels and mortals. - The Buddha
+Last updated: 2024-04-02 19:52:00
+Random Quote: The person who makes a success of living is the one who see his goal steadily and aims for it unswervingly. That is dedication. - Cecil B. DeMille
