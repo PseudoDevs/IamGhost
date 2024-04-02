@@ -1,2 +1,2 @@
-Last updated: 2024-04-02 20:08:19
-Random Quote: By living deeply in the present moment we can understand the past better and we can prepare for a better future. - Thích Nhất Hạnh
+Last updated: 2024-04-02 20:08:53
+Random Quote: Twenty years from now you will be more disappointed by the things that you didn't do than by the ones you did do. - Mark Twain
