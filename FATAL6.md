@@ -1,2 +1,2 @@
-Last updated: 2024-04-02 18:02:45
-Random Quote: You can only learn so much from books. You can only learn so much from education. Ultimately, it is the wisdom of God that will carry you through in the toughest situations of life. - Ravi Zacharias
+Last updated: 2024-04-02 18:03:19
+Random Quote: Half the lies they tell about me aren't true. - Yogi Berra
