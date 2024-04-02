@@ -1,2 +1,2 @@
-Last updated: 2024-04-02 15:22:27
-Random Quote: Never tell people how to do things. Tell them what to do and they will surprise you with their ingenuity. - George S. Patton
+Last updated: 2024-04-02 15:23:39
+Random Quote: Do I speak at the right time, or not? Do I speak of facts, or not? Do I speak gently or harshly? Do I speak profitable words or not? Do I speak with a kindly heart, or inwardly malicious? - The Buddha
