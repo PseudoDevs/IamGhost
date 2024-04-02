@@ -1,2 +1,2 @@
-Last updated: 2024-04-02 19:40:48
-Random Quote: Beware lest you lose the substance by grasping at the shadow. - Aesop
+Last updated: 2024-04-02 19:41:22
+Random Quote: Technology is the campfire around which we tell our stories. - Laurie Anderson
