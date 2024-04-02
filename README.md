@@ -1,2 +1,2 @@
-Last updated: 2024-04-02 13:48:40
-Random Quote: When it is obvious that the goals cannot be reached, don't adjust the goals, adjust the action steps. - Confucius
+Last updated: 2024-04-02 13:50:43
+Random Quote: Knowledge is going to make you stronger. Knowledge is going to let you control your life. Knowledge is going to give you the wisdom to teach their children. Knowledge is the thing that makes you smile in the face of disaster. - Avery Brooks
