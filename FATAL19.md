@@ -1,2 +1,2 @@
-Last updated: 2024-04-02 17:23:06
-Random Quote: He who is taught to live upon little owes more to his father's wisdom than he who has a great deal left him does to his father's care. - William C. Menninger
+Last updated: 2024-04-02 17:23:39
+Random Quote: Take things as they are. Punch when you have to punch. Kick when you have to kick. - Bruce Lee
