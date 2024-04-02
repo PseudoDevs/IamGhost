@@ -1,2 +1,2 @@
-Last updated: 2024-04-02 12:05:33
-Random Quote: The secret of success is constancy to purpose. - Benjamin Disraeli
+Last updated: 2024-04-02 12:07:36
+Random Quote: I decided that it was not wisdom that enabled poets to write their poetry, but a kind of instinct or inspiration, such as you find in seers and prophets who deliver all their sublime messages without knowing in the least what they mean. - Isocrates
