@@ -1,2 +1,2 @@
-Last updated: 2024-04-02 20:16:14
-Random Quote: A garden is always a series of losses set against a few triumphs, like life itself. - May Sarton
+Last updated: 2024-04-02 20:16:48
+Random Quote: Through pride we are ever deceiving ourselves. But deep down below the surface of the average conscience a still, small voice says to us, something is out of tune. - Carl Jung

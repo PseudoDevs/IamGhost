@@ -1,2 +1,2 @@
-Last updated: 2024-04-02 20:16:14
-Random Quote: One of the most beautiful qualities of true friendship is to understand and to be understood. - Seneca the Younger
+Last updated: 2024-04-02 20:16:48
+Random Quote: The key to wisdom is this - constant and frequent questioning, for by doubting we are led to question and by questioning we arrive at the truth. - Peter Abelard
