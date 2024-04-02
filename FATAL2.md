@@ -1,2 +1,2 @@
-Last updated: 2024-04-02 16:49:01
-Random Quote: To do all that one is able to do, is to be a man; to do all that one would like to do, is to be a god. - Napoleon
+Last updated: 2024-04-02 16:49:34
+Random Quote: It is fatal to enter any war without the will to win it. - Douglas MacArthur
