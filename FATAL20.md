@@ -1,2 +1,2 @@
-Last updated: 2024-04-02 18:53:01
-Random Quote: Never find fault with the absent. - Alexander Pope
+Last updated: 2024-04-02 18:53:34
+Random Quote: Conflict is the gadfly of thought. It stirs us to observation and memory. It instigates to invention. It shocks us out of sheeplike passivity, and sets us at noting and contriving. - John Dewey
