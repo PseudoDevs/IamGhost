@@ -1,2 +1,2 @@
-Last updated: 2024-04-02 20:13:23
-Random Quote: I think that novels that leave out technology misrepresent life as badly as Victorians misrepresented life by leaving out sex. - Kurt Vonnegut
+Last updated: 2024-04-02 20:15:06
+Random Quote: It is better to have enough ideas for some of them to be wrong, than to be always right by having no ideas at all. - Edward de Bono
