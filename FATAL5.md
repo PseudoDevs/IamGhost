@@ -1,2 +1,2 @@
-Last updated: 2024-04-02 18:19:59
-Random Quote: Before you can inspire with emotion, you must be swamped with it yourself. Before you can move their tears, your own must flow. To convince them, you must yourself believe. - Winston Churchill
+Last updated: 2024-04-02 18:20:33
+Random Quote: Love isn't something you find. Love is something that finds you. - Loretta Young
