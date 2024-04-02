@@ -1,2 +1,2 @@
-Last updated: 2024-04-02 16:50:44
-Random Quote: If you want your life to be more rewarding, you have to change the way you think. - Oprah Winfrey
+Last updated: 2024-04-02 16:51:18
+Random Quote: Rock n' roll as a genre is different from pop and hip hop: it is about bands, and that for me suggests brotherhood, family, friendship and community. - Steven Van Zandt
