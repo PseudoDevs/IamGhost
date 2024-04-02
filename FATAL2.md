@@ -1,2 +1,2 @@
-Last updated: 2024-04-02 11:24:35
-Random Quote: True silence is the rest of the mind; it is to the spirit what sleep is to the body, nourishment and refreshment. - William Penn
+Last updated: 2024-04-02 11:26:39
+Random Quote: Knowledge has three degrees: opinion, science, illumination. The means or instrument of the first is sense; of the second, dialectic; of the third, intuition. - Plotinus
