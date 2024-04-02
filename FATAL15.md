@@ -1,2 +1,2 @@
-Last updated: 2024-04-02 18:29:22
-Random Quote: If you'll not settle for anything less than your best, you will be amazed at what you can accomplish in your lives. - Vince Lombardi
+Last updated: 2024-04-02 18:29:56
+Random Quote: Change will not come if we wait for some other person or some other time. We are the ones we've been waiting for. We are the change that we seek. - Barack Obama
