@@ -1,2 +1,2 @@
-Last updated: 2024-04-02 17:17:57
-Random Quote: We need to find the courage to say NO to the things and people that are not serving us if we want to rediscover ourselves and live our lives with authenticity. - Barbara De Angelis
+Last updated: 2024-04-02 17:19:07
+Random Quote: Only through our connectedness to others can we really know and enhance the self. And only through working on the self can we begin to enhance our connectedness to others. - Harriet Lerner
