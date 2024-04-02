@@ -1,2 +1,2 @@
-Last updated: 2024-04-02 19:11:26
-Random Quote: I will not be concerned at other men's not knowing me; I will be concerned at my own want of ability. - Confucius
+Last updated: 2024-04-02 19:11:59
+Random Quote: It all depends on how we look at things, and not how they are in themselves. - Carl Jung
