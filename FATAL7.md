@@ -1,2 +1,2 @@
-Last updated: 2024-04-02 15:26:05
-Random Quote: Through meditation and by giving full attention to one thing at a time, we can learn to direct attention where we choose. - Eknath Easwaran
+Last updated: 2024-04-02 15:27:09
+Random Quote: In all things of nature there is something of the marvelous. - Aristotle
