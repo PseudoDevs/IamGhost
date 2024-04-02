@@ -1,2 +1,2 @@
-Last updated: 2024-04-02 20:12:49
-Random Quote: In complete darkness we are all the same, it is only our knowledge and wisdom that separates us, don't let your eyes deceive you. - Janet Jackson
+Last updated: 2024-04-02 20:13:23
+Random Quote: I think that novels that leave out technology misrepresent life as badly as Victorians misrepresented life by leaving out sex. - Kurt Vonnegut
