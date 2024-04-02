@@ -1,2 +1,2 @@
-Last updated: 2024-04-02 12:58:43
-Random Quote: Let go of your attachment to being right, and suddenly your mind is more open. You're able to benefit from the unique viewpoints of others, without being crippled by your own judgement. - Ralph Marston
+Last updated: 2024-04-02 13:00:46
+Random Quote: The man of knowledge must be able not only to love his enemies but also to hate his friends. - Friedrich Nietzsche
