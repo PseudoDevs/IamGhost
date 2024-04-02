@@ -1,2 +1,2 @@
-Last updated: 2024-04-02 18:44:45
-Random Quote: Through meditation and by giving full attention to one thing at a time, we can learn to direct attention where we choose. - Eknath Easwaran
+Last updated: 2024-04-02 18:45:52
+Random Quote: If the single man plant himself indomitably on his instincts, and there abide, the huge world will come round to him. - Ralph Waldo Emerson
