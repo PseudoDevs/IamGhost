@@ -1,2 +1,2 @@
-Last updated: 2024-04-02 20:06:38
-Random Quote: The fact is, with every friendship you make, and every bond of trust you establish, you are shaping the image of America projected to the rest of the world. That is so important. So when you study abroad, you're actually helping to make America stronger. - Michelle Obama
+Last updated: 2024-04-02 20:07:12
+Random Quote: You are not here merely to make a living. You are here in order to enable the world to live more amply, with greater vision, with a finer spirit of hope and achievement. You are here to enrich the world, and you impoverish yourself if you forget the errand. - Woodrow Wilson
