@@ -1,2 +1,2 @@
-Last updated: 2024-04-02 13:45:53
-Random Quote: Education is the most powerful weapon which you can use to change the world. - Nelson Mandela
+Last updated: 2024-04-02 13:47:56
+Random Quote: There is nothing happens to any person but what was in his power to go through with. - Marcus Aurelius
