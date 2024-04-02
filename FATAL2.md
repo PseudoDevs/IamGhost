@@ -1,2 +1,2 @@
-Last updated: 2024-04-02 20:03:14
-Random Quote: If you were to offer a thirsty man all wisdom, you would not please him more than if you gave him a drink. - Sophocles
+Last updated: 2024-04-02 20:03:48
+Random Quote: Make the best use of what is in your power and take the rest as it happens. - Epictetus
