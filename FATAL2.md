@@ -1,2 +1,2 @@
-Last updated: 2024-04-02 19:36:52
-Random Quote: I think people who are creative are the luckiest people on earth. I know that there are no shortcuts, but you must keep your faith in something Greater than you and keep doing what you love. Do what you love, and you will find the way to get it out to the world. - Judy Collins
+Last updated: 2024-04-02 19:38:00
+Random Quote: Beginning today, treat everyone you meet as if they were going to be dead by midnight. Extend to them all the care, kindness and understanding you can muster, and do it with no thought of any reward. Your life will never be the same again. - Og Mandino
