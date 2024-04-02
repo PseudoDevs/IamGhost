@@ -1,2 +1,2 @@
-Last updated: 2024-04-02 18:19:14
-Random Quote: In romance, we feel the need to zoom in and expound on our partner's foibles in intimate detail; in friendship, we tend to do the opposite, avoiding confrontation through fear, lethargy or both. - Mariella Frostrup
+Last updated: 2024-04-02 18:19:48
+Random Quote: Some people thrive on huge, dramatic change. Some people prefer the slow and steady route. Do what's right for you. - Julie Morgenstern
