@@ -1,2 +1,2 @@
-Last updated: 2024-04-02 17:07:40
-Random Quote: A good hockey player plays where the puck is. A great hockey player plays where the puck is going to be. - Wayne Gretzky
+Last updated: 2024-04-02 17:08:14
+Random Quote: First say to yourself what you would be; and then do what you have to do. - Epictetus
