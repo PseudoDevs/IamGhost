@@ -1,2 +1,2 @@
-Last updated: 2024-04-02 18:33:02
-Random Quote: The key is to keep company only with people who uplift you, whose presence calls forth your best. - Epictetus
+Last updated: 2024-04-02 18:33:35
+Random Quote: You can only learn so much from books. You can only learn so much from education. Ultimately, it is the wisdom of God that will carry you through in the toughest situations of life. - Ravi Zacharias
