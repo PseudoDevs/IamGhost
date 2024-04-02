@@ -1,2 +1,2 @@
-Last updated: 2024-04-02 17:19:07
-Random Quote: Only through our connectedness to others can we really know and enhance the self. And only through working on the self can we begin to enhance our connectedness to others. - Harriet Lerner
+Last updated: 2024-04-02 17:20:53
+Random Quote: What sweetness is left in life, if you take away friendship? Robbing life of friendship is like robbing the world of the sun. A true friend is more to be esteemed than kinsfolk. - Cicero
