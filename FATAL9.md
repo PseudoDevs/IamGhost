@@ -1,2 +1,2 @@
-Last updated: 2024-04-02 15:04:26
-Random Quote: Marriage is the highest state of friendship. If happy, it lessens our cares by dividing them, at the same time that it doubles our pleasures by mutual participation. - Samuel Richardson
+Last updated: 2024-04-02 15:05:30
+Random Quote: To be fully alive, fully human, and completely awake is to be continually thrown out of the nest. - Pema Chödrön
