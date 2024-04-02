@@ -1,2 +1,2 @@
-Last updated: 2024-04-02 18:09:09
-Random Quote: He who is taught to live upon little owes more to his father's wisdom than he who has a great deal left him does to his father's care. - William C. Menninger
+Last updated: 2024-04-02 18:09:43
+Random Quote: Before you can inspire with emotion, you must be swamped with it yourself. Before you can move their tears, your own must flow. To convince them, you must yourself believe. - Winston Churchill
