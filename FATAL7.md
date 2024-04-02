@@ -1,2 +1,2 @@
-Last updated: 2024-04-02 11:52:57
-Random Quote: Sports do not build character. They reveal it. - Heywood Broun
+Last updated: 2024-04-02 11:55:00
+Random Quote: Vanity can easily overtake wisdom. It usually overtakes common sense. - Julian Casablancas
