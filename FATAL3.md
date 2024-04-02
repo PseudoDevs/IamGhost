@@ -1,2 +1,2 @@
-Last updated: 2024-04-02 18:31:37
-Random Quote: One fails forward toward success. - Charles F. Kettering
+Last updated: 2024-04-02 18:32:11
+Random Quote: Science investigates; religion interprets. Science gives man knowledge which is power; religion gives man wisdom which is control. - Martin Luther King Jr.
