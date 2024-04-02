@@ -1,2 +1,2 @@
-Last updated: 2024-04-02 16:55:05
-Random Quote: Those who cannot learn from history are doomed to repeat it. - George Santayana
+Last updated: 2024-04-02 16:55:38
+Random Quote: Be Impeccable with Your Word. Speak with integrity. Say only what you mean. Avoid using the word to speak against yourself or to gossip about others. Use the power of your word in the direction of truth and love. - Don Miguel Ruiz
