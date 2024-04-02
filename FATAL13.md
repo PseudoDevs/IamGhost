@@ -1,2 +1,2 @@
-Last updated: 2024-04-02 17:58:56
-Random Quote: Wisdom is nothing but a preparation of the soul, a capacity, a secret art of thinking, feeling and breathing thoughts of unity at every moment of life. - Hermann Hesse
+Last updated: 2024-04-02 17:59:29
+Random Quote: All know the way; few actually walk it. - Bodhidharma
