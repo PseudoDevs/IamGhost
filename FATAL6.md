@@ -1,2 +1,2 @@
-Last updated: 2024-04-02 16:09:04
-Random Quote: Between saying and doing, many a pair of shoes is worn out. - Iris Murdoch
+Last updated: 2024-04-02 16:10:18
+Random Quote: It isn't what happens to us that causes us to suffer; it's what we say to ourselves about what happens. - Pema Chödrön
