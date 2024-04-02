@@ -1,2 +1,2 @@
-Last updated: 2024-04-02 16:21:12
-Random Quote: I'm selfish, impatient and a little insecure. I make mistakes, I am out of control and at times hard to handle. But if you can't handle me at my worst, then you sure as hell don't deserve me at my best. - Marilyn Monroe
+Last updated: 2024-04-02 16:22:15
+Random Quote: Technological progress has merely provided us with more efficient means for going backwards. - Aldous Huxley
