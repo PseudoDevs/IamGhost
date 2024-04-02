@@ -1,2 +1,2 @@
-Last updated: 2024-04-02 17:13:17
-Random Quote: It has long been an axiom of mine that the little things are infinitely the most important. - Arthur Conan Doyle
+Last updated: 2024-04-02 17:13:51
+Random Quote: To be aware of a single shortcoming in oneself is more useful than to be aware of a thousand in someone else. - Dalai Lama
