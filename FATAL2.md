@@ -1,2 +1,2 @@
-Last updated: 2024-04-02 19:19:58
-Random Quote: You teach best what you most need to learn. - Richard Bach
+Last updated: 2024-04-02 19:20:32
+Random Quote: Technology frightens me to death. It's designed by engineers to impress other engineers. And they always come with instruction booklets that are written by engineers for other engineers — which is why almost no technology ever works. - John Cleese
