@@ -1,2 +1,2 @@
-Last updated: 2024-04-02 17:20:53
-Random Quote: What lies behind us and what lies before us are tiny matters compared to what lies within us. - Ralph Waldo Emerson
+Last updated: 2024-04-02 17:21:28
+Random Quote: Know, first, who you are, and then adorn yourself accordingly. - Epictetus
