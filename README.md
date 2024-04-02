@@ -1,2 +1,2 @@
-Last updated: 2024-04-02 17:51:48
-Random Quote: If a man watches three football games in a row, he should be declared legally dead. - Erma Bombeck
+Last updated: 2024-04-02 17:52:21
+Random Quote: As a technology, the book is like a hammer. That is to say, it is perfect: a tool ideally suited to its task. Hammers can be tweaked and varied but will never go obsolete. Even when builders pound nails by the thousand with pneumatic nail guns, every household needs a hammer. - James Gleick
