@@ -1,2 +1,2 @@
-Last updated: 2024-04-02 16:10:58
-Random Quote: Our shared values define us more than our differences. And acknowledging those shared values can see us through our challenges today if we have the wisdom to trust in them again. - John McCain
+Last updated: 2024-04-02 16:12:02
+Random Quote: If you are going to achieve excellence in big things, you develop the habit in little matters. Excellence is not an exception; it is a prevailing attitude. - Colin Powell
