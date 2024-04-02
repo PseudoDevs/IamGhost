@@ -1,2 +1,2 @@
-Last updated: 2024-04-02 20:20:46
-Random Quote: Technology frightens me to death. It's designed by engineers to impress other engineers. And they always come with instruction booklets that are written by engineers for other engineers — which is why almost no technology ever works. - John Cleese
+Last updated: 2024-04-02 20:21:20
+Random Quote: The thing always happens that you really believe in; and the belief in a thing makes it happen. - Frank Lloyd Wright
