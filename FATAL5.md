@@ -1,2 +1,2 @@
-Last updated: 2024-04-02 18:35:05
-Random Quote: Change will not come if we wait for some other person or some other time. We are the ones we've been waiting for. We are the change that we seek. - Barack Obama
+Last updated: 2024-04-02 18:36:46
+Random Quote: Vanity can easily overtake wisdom. It usually overtakes common sense. - Julian Casablancas
