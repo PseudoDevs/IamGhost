@@ -1,2 +1,2 @@
-Last updated: 2024-04-02 19:58:57
-Random Quote: Never accept ultimatums, conventional wisdom, or absolutes. - Christopher Reeve
+Last updated: 2024-04-02 19:59:31
+Random Quote: Wisdom is the reward you get for a lifetime of listening when you'd have preferred to talk. - Doug Larson
