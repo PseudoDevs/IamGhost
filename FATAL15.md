@@ -1,2 +1,2 @@
-Last updated: 2024-04-02 19:03:42
-Random Quote: Where all think alike, no one thinks very much. - Walter Lippmann
+Last updated: 2024-04-02 19:04:49
+Random Quote: These days people seek knowledge, not wisdom. Knowledge is of the past; wisdom is of the future. - Vernon Cooper
