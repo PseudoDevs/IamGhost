@@ -1,2 +1,2 @@
-Last updated: 2024-04-02 18:51:54
-Random Quote: Know from the rivers in clefts and in crevices: those in small channels flow noisily, the great flow silent. Whatever's not full makes noise. Whatever is full is quiet. - The Buddha
+Last updated: 2024-04-02 18:52:28
+Random Quote: The cause is hidden. The effect is visible to all. - Ovid
