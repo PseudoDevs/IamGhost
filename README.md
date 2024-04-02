@@ -1,2 +1,2 @@
-Last updated: 2024-04-02 17:30:44
-Random Quote: The foolish man seeks happiness in the distance, the wise grows it under his feet. - James Oppenheim
+Last updated: 2024-04-02 17:31:18
+Random Quote: All of our technology is completely unnecessary to a happy life. - Tom Hodgkinson
