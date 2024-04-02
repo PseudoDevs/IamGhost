@@ -1,2 +1,2 @@
-Last updated: 2024-04-02 15:18:11
-Random Quote: Make the best use of what is in your power and take the rest as it happens. - Epictetus
+Last updated: 2024-04-02 15:19:14
+Random Quote: Be less curious about people and more curious about ideas. - Marie Curie
