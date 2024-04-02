@@ -1,2 +1,2 @@
-Last updated: 2024-04-02 17:56:11
-Random Quote: Character is like a tree and reputation like a shadow. The shadow is what we think of it; the tree is the real thing. - Abraham Lincoln
+Last updated: 2024-04-02 17:56:45
+Random Quote: Our doubts are traitors and make us lose the good we often might win, by fearing to attempt. - Jane Addams
