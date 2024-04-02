@@ -1,2 +1,2 @@
-Last updated: 2024-04-02 18:24:19
-Random Quote: There is not one big cosmic meaning for all, there is only the meaning we each give to our life. - Anaïs Nin
+Last updated: 2024-04-02 18:24:53
+Random Quote: We live in a society bloated with data yet starved for wisdom. We're connected 24/7, yet anxiety, fear, depression and loneliness are at an all-time high. We must course-correct. - Elizabeth Kapu'uwailani Lindsey
