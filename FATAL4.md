@@ -1,2 +1,2 @@
-Last updated: 2024-04-02 17:57:02
-Random Quote: When in doubt, tell the truth. - Mark Twain
+Last updated: 2024-04-02 17:57:35
+Random Quote: Knowledge has three degrees: opinion, science, illumination. The means or instrument of the first is sense; of the second, dialectic; of the third, intuition. - Plotinus
