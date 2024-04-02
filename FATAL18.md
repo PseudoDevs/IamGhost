@@ -1,2 +1,2 @@
-Last updated: 2024-04-02 18:12:22
-Random Quote: To support mother and father, to cherish partner and children, and to be engaged in peaceful occupation — this is the greatest blessing. - The Buddha
+Last updated: 2024-04-02 18:12:55
+Random Quote: Conflict is the gadfly of thought. It stirs us to observation and memory. It instigates to invention. It shocks us out of sheeplike passivity, and sets us at noting and contriving. - John Dewey
