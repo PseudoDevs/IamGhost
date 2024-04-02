@@ -1,2 +1,2 @@
-Last updated: 2024-04-02 19:44:10
-Random Quote: If we could learn to like ourselves, even a little, maybe our cruelties and angers might melt away. - John Steinbeck
+Last updated: 2024-04-02 19:45:17
+Random Quote: Let yourself be silently drawn by the stronger pull of what you really love. - Rumi
