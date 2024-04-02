@@ -1,2 +1,2 @@
-Last updated: 2024-04-02 17:13:52
-Random Quote: Heedfulness is the path to the Deathless. Heedlessness is the path to death. The heedful die not. The heedless are as if already dead. - The Buddha
+Last updated: 2024-04-02 17:14:26
+Random Quote: Do not worry about your difficulties in Mathematics. I can assure you mine are still greater. - Albert Einstein
