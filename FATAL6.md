@@ -1,2 +1,2 @@
-Last updated: 2024-04-02 15:23:39
-Random Quote: Do I speak at the right time, or not? Do I speak of facts, or not? Do I speak gently or harshly? Do I speak profitable words or not? Do I speak with a kindly heart, or inwardly malicious? - The Buddha
+Last updated: 2024-04-02 15:24:53
+Random Quote: Knowing your own darkness is the best method for dealing with the darkness of other people. - Carl Jung
