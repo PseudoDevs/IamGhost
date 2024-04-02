@@ -1,2 +1,2 @@
-Last updated: 2024-04-02 15:23:57
-Random Quote: But friendship is precious, not only in the shade, but in the sunshine of life, and thanks to a benevolent arrangement the greater part of life is sunshine. - Thomas Jefferson
+Last updated: 2024-04-02 15:25:01
+Random Quote: If I am not for myself, who will be for me? If I am not for others, what am I? And if not now, when? - Rabbi Hillel
