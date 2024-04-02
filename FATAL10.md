@@ -1,2 +1,2 @@
-Last updated: 2024-04-02 17:00:49
-Random Quote: Men of perverse opinion do not know the excellence of what is in their hands, till someone dash it from them. - Sophocles
+Last updated: 2024-04-02 17:01:58
+Random Quote: The young man knows the rules, but the old man knows the exceptions. - Oliver Wendell Holmes Jr.
