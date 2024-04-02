@@ -1,2 +1,2 @@
-Last updated: 2024-04-02 17:19:42
-Random Quote: Use what talents you possess; the woods would be very silent if no birds sang there except those that sang best. - Henry van Dyke Jr.
+Last updated: 2024-04-02 17:20:53
+Random Quote: Knowledge is going to make you stronger. Knowledge is going to let you control your life. Knowledge is going to give you the wisdom to teach their children. Knowledge is the thing that makes you smile in the face of disaster. - Avery Brooks
