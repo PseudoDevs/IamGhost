@@ -1,2 +1,2 @@
-Last updated: 2024-04-02 17:53:19
-Random Quote: Be less curious about people and more curious about ideas. - Marie Curie
+Last updated: 2024-04-02 17:53:52
+Random Quote: Much though he recites the sacred texts, but acts not accordingly, that heedless man is like a cowherd who only counts the cows of others - The Buddha
