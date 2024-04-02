@@ -1,2 +1,2 @@
-Last updated: 2024-04-02 17:03:43
-Random Quote: As an organizer I start from where the world is, as it is, not as I would like it to be. - Saul Alinsky
+Last updated: 2024-04-02 17:04:17
+Random Quote: I'm astounded by people who want to 'know' the universe when it's hard enough to find your way around Chinatown. - Woody Allen
