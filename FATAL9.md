@@ -1,2 +1,2 @@
-Last updated: 2024-04-02 17:05:22
-Random Quote: Be great in act, as you have been in thought. - William Shakespeare
+Last updated: 2024-04-02 17:06:30
+Random Quote: Conflict is the gadfly of thought. It stirs us to observation and memory. It instigates to invention. It shocks us out of sheeplike passivity, and sets us at noting and contriving. - John Dewey
