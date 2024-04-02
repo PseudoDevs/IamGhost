@@ -1,2 +1,2 @@
-Last updated: 2024-04-02 17:23:15
-Random Quote: The most precious gift we can offer anyone is our attention. When mindfulness embraces those we love, they will bloom like flowers. - Thích Nhất Hạnh
+Last updated: 2024-04-02 17:23:50
+Random Quote: It isn't what happens to us that causes us to suffer; it's what we say to ourselves about what happens. - Pema Chödrön
