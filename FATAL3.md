@@ -1,2 +1,2 @@
-Last updated: 2024-04-02 19:30:37
-Random Quote: As a technology, the book is like a hammer. That is to say, it is perfect: a tool ideally suited to its task. Hammers can be tweaked and varied but will never go obsolete. Even when builders pound nails by the thousand with pneumatic nail guns, every household needs a hammer. - James Gleick
+Last updated: 2024-04-02 19:31:11
+Random Quote: Meetings are indispensable when you don't want to do anything. - John Kenneth Galbraith
