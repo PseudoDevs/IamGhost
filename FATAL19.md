@@ -1,2 +1,2 @@
-Last updated: 2024-04-02 18:25:26
-Random Quote: Well done is better than well said. - Benjamin Franklin
+Last updated: 2024-04-02 18:26:34
+Random Quote: These days people seek knowledge, not wisdom. Knowledge is of the past; wisdom is of the future. - Vernon Cooper
