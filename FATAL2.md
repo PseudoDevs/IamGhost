@@ -1,2 +1,2 @@
-Last updated: 2024-04-02 17:49:13
-Random Quote: Men in general judge more from appearances than from reality. All men have eyes, but few have the gift of penetration. - Niccolò Machiavelli
+Last updated: 2024-04-02 17:50:45
+Random Quote: I am not the first Buddha who came upon Earth, nor shall I be the last. In due time, another Buddha will arise in the world - a Holy One, a supremely enlightened One, endowed with wisdom in conduct, auspicious, knowing the universe, an incomparable leader of men, a master of angels and mortals. - The Buddha
