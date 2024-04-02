@@ -1,2 +1,2 @@
-Last updated: 2024-04-02 20:03:48
-Random Quote: Better it is to live one day seeing the rise and fall of things than to live a hundred years without ever seeing the rise and fall of things. - The Buddha
+Last updated: 2024-04-02 20:04:56
+Random Quote: I don't believe you have to be better than everybody else. I believe you have to be better than you ever thought you could be. - Ken Venturi
