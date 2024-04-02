@@ -1,2 +1,2 @@
-Last updated: 2024-04-02 12:11:05
-Random Quote: Knowledge has three degrees: opinion, science, illumination. The means or instrument of the first is sense; of the second, dialectic; of the third, intuition. - Plotinus
+Last updated: 2024-04-02 12:13:09
+Random Quote: Quick decisions are unsafe decisions. - Sophocles
