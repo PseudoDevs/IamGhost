@@ -1,2 +1,2 @@
-Last updated: 2024-04-02 18:36:26
-Random Quote: All our knowledge begins with the senses, proceeds then to the understanding, and ends with reason. There is nothing higher than reason. - Immanuel Kant
+Last updated: 2024-04-02 18:37:00
+Random Quote: One's philosophy is not best expressed in words; it is expressed in the choices one makes... and the choices we make are ultimately our responsibility. - Eleanor Roosevelt
