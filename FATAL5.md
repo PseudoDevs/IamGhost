@@ -1,2 +1,2 @@
-Last updated: 2024-04-02 18:30:37
-Random Quote: I believe that we are solely responsible for our choices, and we have to accept the consequences of every deed, word, and thought throughout our lifetime. - Elisabeth Kübler-Ross
+Last updated: 2024-04-02 18:31:11
+Random Quote: It is not wisdom but Authority that makes a law. - Thomas Hobbes
