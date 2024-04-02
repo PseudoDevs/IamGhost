@@ -1,2 +1,2 @@
-Last updated: 2024-04-02 13:35:30
-Random Quote: It seemed the world was divided into good and bad people. The good ones slept better... while the bad ones seemed to enjoy the waking hours much more. - Woody Allen
+Last updated: 2024-04-02 13:36:33
+Random Quote: Leaders aren't born they are made. And they are made just like anything else, through hard work. And that's the price we'll have to pay to achieve that goal, or any goal. - Vince Lombardi
