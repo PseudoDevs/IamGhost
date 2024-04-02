@@ -1,2 +1,2 @@
-Last updated: 2024-04-02 19:54:14
-Random Quote: Through meditation and by giving full attention to one thing at a time, we can learn to direct attention where we choose. - Eknath Easwaran
+Last updated: 2024-04-02 19:54:48
+Random Quote: Those who will play with cats must expect to be scratched. - Miguel de Cervantes
