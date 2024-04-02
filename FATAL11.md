@@ -1,2 +1,2 @@
-Last updated: 2024-04-02 18:39:33
-Random Quote: It is unwise to be too sure of one's own wisdom. It is healthy to be reminded that the strongest might weaken and the wisest might err. - Mahatma Gandhi
+Last updated: 2024-04-02 18:40:07
+Random Quote: It is not wisdom but Authority that makes a law. - Thomas Hobbes
