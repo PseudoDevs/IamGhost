@@ -1,2 +1,2 @@
-Last updated: 2024-04-02 19:29:36
-Random Quote: Courage is not the absence of fear, but simply moving on with dignity despite that fear. - Pat Riley
+Last updated: 2024-04-02 19:30:10
+Random Quote: Leaders aren't born they are made. And they are made just like anything else, through hard work. And that's the price we'll have to pay to achieve that goal, or any goal. - Vince Lombardi
