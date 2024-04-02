@@ -1,2 +1,2 @@
-Last updated: 2024-04-02 16:18:10
-Random Quote: Some people are born on third base and go through life thinking they hit a triple. - Barry Switzer
+Last updated: 2024-04-02 16:19:14
+Random Quote: A passion for politics stems usually from an insatiable need, either for power, or for friendship and adulation, or a combination of both. - Fawn M. Brodie
