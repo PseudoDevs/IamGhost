@@ -1,2 +1,2 @@
-Last updated: 2024-04-02 16:12:13
-Random Quote: All that is necessary is to accept the impossible, do without the indispensable, and bear the intolerable. - Kathleen Norris
+Last updated: 2024-04-02 16:13:17
+Random Quote: An appeaser is one who feeds a crocodile, hoping it will eat him last. - Winston Churchill
