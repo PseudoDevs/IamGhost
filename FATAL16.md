@@ -1,2 +1,2 @@
-Last updated: 2024-04-02 19:37:41
-Random Quote: I will give you a definition of a proud man: he is a man who has neither vanity nor wisdom one filled with hatreds cannot be vain, neither can he be wise. - John Keats
+Last updated: 2024-04-02 19:38:15
+Random Quote: The greatest obstacle to discovery is not ignorance - it is the illusion of knowledge. - Daniel J. Boorstin
