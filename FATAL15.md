@@ -1,2 +1,2 @@
-Last updated: 2024-04-02 19:56:43
-Random Quote: Use what talents you possess; the woods would be very silent if no birds sang there except those that sang best. - Henry van Dyke Jr.
+Last updated: 2024-04-02 19:57:50
+Random Quote: We the people are the rightful masters of both Congress and the courts, not to overthrow the Constitution but to overthrow the men who pervert the Constitution. - Abraham Lincoln
