@@ -1,2 +1,2 @@
-Last updated: 2024-04-02 19:43:02
-Random Quote: Using the power of decision gives you the capacity to get past any excuse to change any and every part of your life in an instant. - Tony Robbins
+Last updated: 2024-04-02 19:43:36
+Random Quote: The truth of the matter is that you always know the right thing to do. The hard part is doing it. - Norman Schwarzkopf

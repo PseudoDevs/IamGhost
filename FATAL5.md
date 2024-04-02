@@ -1,2 +1,2 @@
-Last updated: 2024-04-02 19:43:02
-Random Quote: Knowing is not enough; we must apply. Willing is not enough; we must do. - Johann Wolfgang von Goethe
+Last updated: 2024-04-02 19:43:36
+Random Quote: Through pride we are ever deceiving ourselves. But deep down below the surface of the average conscience a still, small voice says to us, something is out of tune. - Carl Jung
