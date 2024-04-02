@@ -1,2 +1,2 @@
-Last updated: 2024-04-02 19:40:14
-Random Quote: Do you know what my favorite part of the game is? The opportunity to play. - Mike Singletary (basketball)
+Last updated: 2024-04-02 19:40:48
+Random Quote: In order to succeed, we must first believe that we can. - Nikos Kazantzakis
