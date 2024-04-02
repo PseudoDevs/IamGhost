@@ -1,2 +1,2 @@
-Last updated: 2024-04-02 19:28:11
-Random Quote: Better than a thousand hollow words, is one word that brings peace. - The Buddha
+Last updated: 2024-04-02 19:28:45
+Random Quote: In times of change, learners inherit the earth, while the learned find themselves beautifully equipped to deal with a world that no longer exists. - Eric Hoffer
