@@ -1,2 +1,2 @@
-Last updated: 2024-04-02 17:57:06
-Random Quote: We come to love not by finding a perfect person, but by learning to see an imperfect person perfectly. - Sam Keen
+Last updated: 2024-04-02 17:57:39
+Random Quote: Start with what is right rather than what is acceptable. - Franz Kafka
