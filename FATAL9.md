@@ -1,2 +1,2 @@
-Last updated: 2024-04-02 19:05:58
-Random Quote: Your worst enemy cannot harm you as much as your own unguarded thoughts. - The Buddha
+Last updated: 2024-04-02 19:06:32
+Random Quote: The lure of the distant and the difficult is deceptive. The great opportunity is where you are. - John Burroughs
