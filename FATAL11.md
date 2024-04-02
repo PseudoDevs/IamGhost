@@ -1,2 +1,2 @@
-Last updated: 2024-04-02 19:08:12
-Random Quote: Technology presumes there's just one right way to do things and there never is. - Robert M. Pirsig
+Last updated: 2024-04-02 19:08:46
+Random Quote: When you see a man of worth, think of how you may emulate him. When you see one who is unworthy, examine yourself. - Confucius
