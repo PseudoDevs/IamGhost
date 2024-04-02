@@ -1,2 +1,2 @@
-Last updated: 2024-04-02 19:37:55
-Random Quote: Let my skin and sinews and bones dry up, together with all the flesh and blood of my body! I welcome it! But I will not move from this spot until I have attained the supreme and final wisdom. - The Buddha
+Last updated: 2024-04-02 19:38:28
+Random Quote: I'm selfish, impatient and a little insecure. I make mistakes, I am out of control and at times hard to handle. But if you can't handle me at my worst, then you sure as hell don't deserve me at my best. - Marilyn Monroe
