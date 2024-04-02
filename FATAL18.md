@@ -1,2 +1,2 @@
-Last updated: 2024-04-02 18:12:55
-Random Quote: Conflict is the gadfly of thought. It stirs us to observation and memory. It instigates to invention. It shocks us out of sheeplike passivity, and sets us at noting and contriving. - John Dewey
+Last updated: 2024-04-02 18:13:29
+Random Quote: By nature, man hates change; seldom will he quit his old home till it has actually fallen around his ears. - Thomas Carlyle
