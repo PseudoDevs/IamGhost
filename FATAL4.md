@@ -1,2 +1,2 @@
-Last updated: 2024-04-02 16:53:57
-Random Quote: Man is equally incapable of seeing the nothingness from which he emerges and the infinity in which he is engulfed. - Blaise Pascal
+Last updated: 2024-04-02 16:55:05
+Random Quote: Those who cannot learn from history are doomed to repeat it. - George Santayana
