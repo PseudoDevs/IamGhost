@@ -1,2 +1,2 @@
-Last updated: 2024-04-02 18:11:39
-Random Quote: My motto was always to keep swinging. Whether I was in a slump or feeling badly or having trouble off the field, the only thing to do was keep swinging. - Hank Aaron
+Last updated: 2024-04-02 18:12:46
+Random Quote: The person born with a talent they are meant to use will find their greatest happiness in using it. - Johann Wolfgang von Goethe
