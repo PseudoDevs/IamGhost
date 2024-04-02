@@ -1,2 +1,2 @@
-Last updated: 2024-04-02 18:24:09
-Random Quote: In times of change, learners inherit the earth, while the learned find themselves beautifully equipped to deal with a world that no longer exists. - Eric Hoffer
+Last updated: 2024-04-02 18:25:16
+Random Quote: The way a team plays as a whole determines its success. You may have the greatest bunch of individual stars in the world, but if they don't play together, the club won't be worth a dime. - Babe Ruth
