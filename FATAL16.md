@@ -1,2 +1,2 @@
-Last updated: 2024-04-02 17:24:25
-Random Quote: Every day I remind myself that my inner and outer life are based on the labors of other men, living and dead, and that I must exert myself in order to give in the same measure as I have received and am still receiving. - Albert Einstein
+Last updated: 2024-04-02 17:24:57
+Random Quote: Communications tools don't get socially interesting until they get technologically boring. - Clay Shirky
