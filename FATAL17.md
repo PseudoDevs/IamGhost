@@ -1,2 +1,2 @@
-Last updated: 2024-04-02 20:01:32
-Random Quote: If you find yourself in a hole, the first thing to do is stop digging. - Will Rogers
+Last updated: 2024-04-02 20:02:06
+Random Quote: All tremble at violence; all fear death. Putting oneself in the place of another, one should not kill nor cause another to kill. - The Buddha
