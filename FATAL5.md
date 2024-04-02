@@ -1,2 +1,2 @@
-Last updated: 2024-04-02 19:13:12
-Random Quote: Everything we hear is an opinion, not a fact. Everything we see is a perspective, not the truth. - Marcus Aurelius
+Last updated: 2024-04-02 19:14:21
+Random Quote: Courage is what it takes to stand up and speak; courage is also what it takes to sit down and listen. - Winston Churchill
