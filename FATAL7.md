@@ -1,2 +1,2 @@
-Last updated: 2024-04-02 19:20:21
-Random Quote: There is only one happiness in life, to love and be loved. - George Sand
+Last updated: 2024-04-02 19:20:54
+Random Quote: Rock n' roll as a genre is different from pop and hip hop: it is about bands, and that for me suggests brotherhood, family, friendship and community. - Steven Van Zandt
