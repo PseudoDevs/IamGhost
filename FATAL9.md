@@ -1,2 +1,2 @@
-Last updated: 2024-04-02 17:30:09
-Random Quote: One is not called noble who harms living beings. By not harming living beings one is called noble. - The Buddha
+Last updated: 2024-04-02 17:30:43
+Random Quote: Democracy's premise rests on the notion that the collective wisdom of the majority will prove right more often than it's wrong; that given sufficient opportunity in the pursuit of happiness, your population will develop its talents, its intellect, its better judgment; that over time its capacity for discernment and self-correction will be enlarged. - Ben Fountain
