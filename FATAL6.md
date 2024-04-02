@@ -1,2 +1,2 @@
-Last updated: 2024-04-02 12:07:34
-Random Quote: The doctor of the future will give no medicine, but will interest her or his patients in the care of the human frame, in a proper diet, and in the cause and prevention of disease. - Thomas Edison
+Last updated: 2024-04-02 12:09:38
+Random Quote: Wise kings generally have wise counselors; and he must be a wise man himself who is capable of distinguishing one. - Diogenes
