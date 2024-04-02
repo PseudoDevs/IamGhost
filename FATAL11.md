@@ -1,2 +1,2 @@
-Last updated: 2024-04-02 16:57:19
-Random Quote: Make it a rule of life never to regret and never to look back. Regret is an appalling waste of energy; you can't build on it; it's only for wallowing in. - Katherine Mansfield
+Last updated: 2024-04-02 16:57:53
+Random Quote: And the attitude of faith is the very opposite of clinging to belief, of holding on. - Alan Watts
