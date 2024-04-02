@@ -1,2 +1,2 @@
-Last updated: 2024-04-02 16:59:36
-Random Quote: The greatest obstacle to discovery is not ignorance - it is the illusion of knowledge. - Daniel J. Boorstin
+Last updated: 2024-04-02 17:00:09
+Random Quote: In wartime, truth is so precious that she should always be attended by a bodyguard of lies. - Winston Churchill
