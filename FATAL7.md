@@ -1,2 +1,2 @@
-Last updated: 2024-04-02 20:00:37
-Random Quote: The fox has many tricks. The hedgehog has but one. But that is the best of all. - Erasmus
+Last updated: 2024-04-02 20:01:45
+Random Quote: Anyone who doesn't take truth seriously in small matters cannot be trusted in large ones either. - Albert Einstein
