@@ -1,2 +1,2 @@
-Last updated: 2024-04-02 16:52:08
-Random Quote: To find a man's true character, play golf with him. - P. G. Wodehouse
+Last updated: 2024-04-02 16:52:42
+Random Quote: Vanity can easily overtake wisdom. It usually overtakes common sense. - Julian Casablancas
