@@ -1,2 +1,2 @@
-Last updated: 2024-04-02 18:29:56
-Random Quote: Not every difficult and dangerous thing is suitable for training, but only that which is conducive to success in achieving the object of our effort. - Epictetus
+Last updated: 2024-04-02 18:30:29
+Random Quote: Sorrow is knowledge, those that know the most must mourn the deepest, the tree of knowledge is not the tree of life. - Lord Byron
