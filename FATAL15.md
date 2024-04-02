@@ -1,2 +1,2 @@
-Last updated: 2024-04-02 18:52:27
-Random Quote: The possession of knowledge does not kill the sense of wonder and mystery. There is always more mystery. - Anaïs Nin
+Last updated: 2024-04-02 18:53:01
+Random Quote: If we are not fully ourselves, truly in the present moment, we miss everything. - Thích Nhất Hạnh
