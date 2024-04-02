@@ -1,2 +1,2 @@
-Last updated: 2024-04-02 19:59:16
-Random Quote: Minds, like bodies, will often fall into a pimpled, ill-conditioned state from mere excess of comfort. - Charles Dickens
+Last updated: 2024-04-02 20:06:37
+Random Quote: Consult not your fears but your hopes and your dreams. Think not about your frustrations, but about your unfulfilled potential. Concern yourself not with what you tried and failed in, but with what it is still possible for you to do. - Pope John XXIII
