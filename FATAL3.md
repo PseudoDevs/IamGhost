@@ -1,2 +1,2 @@
-Last updated: 2024-04-02 16:03:20
-Random Quote: Silence at the proper season is wisdom, and better than any speech. - Plutarch
+Last updated: 2024-04-02 16:04:44
+Random Quote: Look up at the stars and not down at your feet. Try to make sense of what you see, and wonder about what makes the universe exist. Be curious. - Stephen Hawking
