@@ -1,2 +1,2 @@
-Last updated: 2024-04-02 16:07:58
-Random Quote: The root of suffering is attachment. - The Buddha
+Last updated: 2024-04-02 16:09:02
+Random Quote: Do the one thing you think you cannot do. Fail at it. Try again. Do better the second time. The only people who never tumble are those who never mount the high wire. This is your moment. Own it. - Oprah Winfrey
