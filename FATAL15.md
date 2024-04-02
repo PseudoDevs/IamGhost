@@ -1,2 +1,2 @@
-Last updated: 2024-04-02 19:57:50
-Random Quote: We the people are the rightful masters of both Congress and the courts, not to overthrow the Constitution but to overthrow the men who pervert the Constitution. - Abraham Lincoln
+Last updated: 2024-04-02 19:58:24
+Random Quote: If you want to go east, don't go west. - Ramakrishna
