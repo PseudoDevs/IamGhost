@@ -1,2 +1,2 @@
-Last updated: 2024-04-02 13:19:59
-Random Quote: Ardently do today what must be done. Who knows? Tomorrow, death comes. - The Buddha
+Last updated: 2024-04-02 13:22:02
+Random Quote: Make the best use of what is in your power and take the rest as it happens. - Epictetus
