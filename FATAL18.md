@@ -1,2 +1,2 @@
-Last updated: 2024-04-02 17:05:56
-Random Quote: I endeavor to be wise when I cannot be merry, easy when I cannot be glad, content with what cannot be mended and patient when there is no redress. - Elizabeth Montagu
+Last updated: 2024-04-02 17:07:38
+Random Quote: I think that novels that leave out technology misrepresent life as badly as Victorians misrepresented life by leaving out sex. - Kurt Vonnegut
