@@ -1,2 +1,2 @@
-Last updated: 2024-04-02 11:22:36
-Random Quote: There are three methods to gaining wisdom. The first is reflection, which is the highest. The second is limitation, which is the easiest. The third is experience, which is the bitterest. - Confucius
+Last updated: 2024-04-02 11:24:40
+Random Quote: We come to love not by finding a perfect person, but by learning to see an imperfect person perfectly. - Sam Keen
