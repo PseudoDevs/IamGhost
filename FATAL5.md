@@ -1,2 +1,2 @@
-Last updated: 2024-04-02 18:54:09
-Random Quote: There are two primary choices in life: to accept conditions as they exist or accept responsibility for changing them. - Denis Waitley
+Last updated: 2024-04-02 18:54:43
+Random Quote: I decided that it was not wisdom that enabled poets to write their poetry, but a kind of instinct or inspiration, such as you find in seers and prophets who deliver all their sublime messages without knowing in the least what they mean. - Isocrates
