@@ -1,2 +1,2 @@
-Last updated: 2024-04-02 17:11:00
-Random Quote: What we see depends mainly on what we look for. - John Lubbock
+Last updated: 2024-04-02 17:12:09
+Random Quote: It isn't what happens to us that causes us to suffer; it's what we say to ourselves about what happens. - Pema Chödrön
