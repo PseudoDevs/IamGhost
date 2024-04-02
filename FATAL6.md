@@ -1,2 +1,2 @@
-Last updated: 2024-04-02 12:17:52
-Random Quote: If I were two-faced, would I be wearing this one? - Abraham Lincoln
+Last updated: 2024-04-02 12:19:56
+Random Quote: Before you can inspire with emotion, you must be swamped with it yourself. Before you can move their tears, your own must flow. To convince them, you must yourself believe. - Winston Churchill
