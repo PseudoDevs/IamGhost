@@ -1,2 +1,2 @@
-Last updated: 2024-04-02 16:35:02
-Random Quote: Fear grows in darkness; if you think there's a bogeyman around, turn on the light. - Dorothy Thompson
+Last updated: 2024-04-02 16:36:06
+Random Quote: Avoid having your ego so close to your position that when your position falls, your ego goes with it. - Colin Powell
