@@ -1,2 +1,2 @@
-Last updated: 2024-04-02 13:42:44
-Random Quote: Through pride we are ever deceiving ourselves. But deep down below the surface of the average conscience a still, small voice says to us, something is out of tune. - Carl Jung
+Last updated: 2024-04-02 13:44:27
+Random Quote: There are basically two types of people. People who accomplish things, and people who claim to have accomplished things. The first group is less crowded. - Mark Twain
