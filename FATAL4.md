@@ -1,2 +1,2 @@
-Last updated: 2024-04-02 17:14:25
-Random Quote: Not every difficult and dangerous thing is suitable for training, but only that which is conducive to success in achieving the object of our effort. - Epictetus
+Last updated: 2024-04-02 17:15:35
+Random Quote: I care not so much what I am to others as what I am to myself. I will be rich by myself, and not by borrowing. - Michel de Montaigne
