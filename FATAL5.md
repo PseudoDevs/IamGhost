@@ -1,2 +1,2 @@
-Last updated: 2024-04-02 19:38:33
-Random Quote: Meditate … do not delay, lest you later regret it. - The Buddha
+Last updated: 2024-04-02 19:39:07
+Random Quote: Focusing your life solely on making a buck shows a poverty of ambition. It asks too little of yourself. And it will leave you unfulfilled. - Barack Obama
