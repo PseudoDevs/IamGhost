@@ -1,2 +1,2 @@
-Last updated: 2024-04-02 18:34:32
-Random Quote: If you'll not settle for anything less than your best, you will be amazed at what you can accomplish in your lives. - Vince Lombardi
+Last updated: 2024-04-02 18:35:05
+Random Quote: The most difficult thing is the decision to act, the rest is merely tenacity. The fears are paper tigers. You can do anything you decide to do. You can act to change and control your life; and the procedure, the process is its own reward. - Amelia Earhart
