@@ -1,2 +1,2 @@
-Last updated: 2024-04-02 16:59:48
-Random Quote: An appeaser is one who feeds a crocodile, hoping it will eat him last. - Winston Churchill
+Last updated: 2024-04-02 17:00:21
+Random Quote: I think people who are creative are the luckiest people on earth. I know that there are no shortcuts, but you must keep your faith in something Greater than you and keep doing what you love. Do what you love, and you will find the way to get it out to the world. - Judy Collins
