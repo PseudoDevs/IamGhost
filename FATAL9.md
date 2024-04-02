@@ -1,2 +1,2 @@
-Last updated: 2024-04-02 14:54:32
-Random Quote: By living deeply in the present moment we can understand the past better and we can prepare for a better future. - Thích Nhất Hạnh
+Last updated: 2024-04-02 14:55:36
+Random Quote: Both formerly and now, it is only suffering that I describe, and the cessation of suffering. - The Buddha
