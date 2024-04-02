@@ -1,2 +1,2 @@
-Last updated: 2024-04-02 19:07:39
-Random Quote: All tremble at violence; all fear death. Putting oneself in the place of another, one should not kill nor cause another to kill. - The Buddha
+Last updated: 2024-04-02 19:08:12
+Random Quote: Technology presumes there's just one right way to do things and there never is. - Robert M. Pirsig
