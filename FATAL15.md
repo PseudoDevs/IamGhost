@@ -1,2 +1,2 @@
-Last updated: 2024-04-02 17:27:52
-Random Quote: A man who doesn't trust himself can never really trust anyone else. - Jean François Paul de Gondi
+Last updated: 2024-04-02 17:28:26
+Random Quote: Look up at the stars and not down at your feet. Try to make sense of what you see, and wonder about what makes the universe exist. Be curious. - Stephen Hawking
