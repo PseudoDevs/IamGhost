@@ -1,2 +1,2 @@
-Last updated: 2024-04-02 18:23:55
-Random Quote: My religion consists of a humble admiration of the illimitable superior spirit who reveals himself in the slight details we are able to perceive with our frail and feeble mind. - Albert Einstein
+Last updated: 2024-04-02 18:24:29
+Random Quote: Science and technology revolutionize our lives, but memory, tradition and myth frame our response. - Arthur M. Schlesinger Jr.
