@@ -1,2 +1,2 @@
-Last updated: 2024-04-02 19:10:57
-Random Quote: The only Zen you find on the tops of mountains is the Zen you bring up there. - Robert M. Pirsig
+Last updated: 2024-04-02 19:11:30
+Random Quote: Just as a solid rock is not shaken by the storm, even so the wise are not affected by praise or blame. - The Buddha
