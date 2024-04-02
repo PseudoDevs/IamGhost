@@ -1,2 +1,2 @@
-Last updated: 2024-04-02 11:28:36
-Random Quote: I think that we have a great opportunity to impart our wisdom and our knowledge and our experience to this younger generation. It may be different times, but experience transcends time, and wisdom transcends time. - Victoria Osteen
+Last updated: 2024-04-02 11:30:40
+Random Quote: Think as a wise man but communicate in the language of the people. - William Butler Yeats
