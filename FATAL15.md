@@ -1,2 +1,2 @@
-Last updated: 2024-04-02 16:18:24
-Random Quote: He who can curb his wrath as soon as it arises, as a timely antidote will check snake's venom that so quickly spreads, — such a monk gives up the here and the beyond, just as a serpent sheds its worn-out skin. - The Buddha
+Last updated: 2024-04-02 16:19:28
+Random Quote: The ego is nothing other than the focus of conscious attention. - Alan Watts
