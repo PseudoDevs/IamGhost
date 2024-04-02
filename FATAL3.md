@@ -1,2 +1,2 @@
-Last updated: 2024-04-02 17:12:08
-Random Quote: Pick battles big enough to matter, small enough to win. - Jonathan Kozol
+Last updated: 2024-04-02 17:13:17
+Random Quote: It has long been an axiom of mine that the little things are infinitely the most important. - Arthur Conan Doyle
