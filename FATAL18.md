@@ -1,2 +1,2 @@
-Last updated: 2024-04-02 16:57:26
-Random Quote: A monarchy conducted with infinite wisdom and infinite benevolence is the most perfect of all possible governments. - Ezra Stiles
+Last updated: 2024-04-02 16:58:00
+Random Quote: Sorrow is knowledge, those that know the most must mourn the deepest, the tree of knowledge is not the tree of life. - Lord Byron
