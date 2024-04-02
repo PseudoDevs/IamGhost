@@ -1,2 +1,2 @@
-Last updated: 2024-04-02 19:28:45
-Random Quote: In times of change, learners inherit the earth, while the learned find themselves beautifully equipped to deal with a world that no longer exists. - Eric Hoffer
+Last updated: 2024-04-02 19:29:18
+Random Quote: I don't turn to greeting cards for wisdom and advice, but they are a fine reflection of the general drift of the culture. - Susan Orlean
