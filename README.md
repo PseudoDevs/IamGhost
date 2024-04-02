@@ -1,2 +1,2 @@
-Last updated: 2024-04-02 18:26:22
-Random Quote: Some people thrive on huge, dramatic change. Some people prefer the slow and steady route. Do what's right for you. - Julie Morgenstern
+Last updated: 2024-04-02 18:26:56
+Random Quote: It's easier to resist at the beginning than at the end. - Leonardo da Vinci
