@@ -1,2 +1,2 @@
-Last updated: 2024-04-02 18:07:41
-Random Quote: I took a speed-reading course and read 'War and Peace' in twenty minutes. It involves Russia. - Woody Allen
+Last updated: 2024-04-02 18:08:15
+Random Quote: The greatest obstacle to connecting with our joy is resentment. - Pema Chödrön
