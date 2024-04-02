@@ -1,2 +1,2 @@
-Last updated: 2024-04-02 16:56:12
-Random Quote: Grief can be the garden of compassion. If you keep your heart open through everything, your pain can become your greatest ally in your life's search for love and wisdom. - Rumi
+Last updated: 2024-04-02 16:56:46
+Random Quote: Experts on romance say for a happy marriage there has to be more than a passionate love. For a lasting union, they insist, there must be a genuine liking for each other. Which, in my book, is a good definition for friendship. - Marilyn Monroe
