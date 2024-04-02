@@ -1,2 +1,2 @@
-Last updated: 2024-04-02 19:39:07
-Random Quote: No work or love will flourish out of guilt, fear, or hollowness of heart, just as no valid plans for the future can be made by those who have no capacity for living now. - Alan Watts
+Last updated: 2024-04-02 19:40:14
+Random Quote: We live in a society bloated with data yet starved for wisdom. We're connected 24/7, yet anxiety, fear, depression and loneliness are at an all-time high. We must course-correct. - Elizabeth Kapu'uwailani Lindsey
