@@ -1,2 +1,2 @@
-Last updated: 2024-04-02 20:19:40
-Random Quote: So then, the relationship of self to other is the complete realization that loving yourself is impossible without loving everything defined as other than yourself. - Alan Watts
+Last updated: 2024-04-02 20:20:14
+Random Quote: Do not be embarrassed by your mistakes. Nothing can teach us better than our understanding of them. This is one of the best ways of self-education. - Thomas Carlyle
