@@ -1,2 +1,2 @@
-Last updated: 2024-04-02 19:04:15
-Random Quote: Be not afraid of greatness: some are born great, some achieve greatness, and some have greatness thrust upon them. - William Shakespeare
+Last updated: 2024-04-02 19:04:48
+Random Quote: Take no thought of who is right or wrong or who is better than. Be not for or against. - Bruce Lee
