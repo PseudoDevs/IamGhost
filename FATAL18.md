@@ -1,2 +1,2 @@
-Last updated: 2024-04-02 19:49:08
-Random Quote: Victory belongs to the most persevering. - Napoleon
+Last updated: 2024-04-02 19:49:42
+Random Quote: Consult not your fears but your hopes and your dreams. Think not about your frustrations, but about your unfulfilled potential. Concern yourself not with what you tried and failed in, but with what it is still possible for you to do. - Pope John XXIII
