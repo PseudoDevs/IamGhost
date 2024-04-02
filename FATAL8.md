@@ -1,2 +1,2 @@
-Last updated: 2024-04-02 13:29:29
-Random Quote: What lies behind us and what lies before us are tiny matters compared to what lies within us. - Ralph Waldo Emerson
+Last updated: 2024-04-02 13:31:32
+Random Quote: He who can curb his wrath as soon as it arises, as a timely antidote will check snake's venom that so quickly spreads, — such a monk gives up the here and the beyond, just as a serpent sheds its worn-out skin. - The Buddha
