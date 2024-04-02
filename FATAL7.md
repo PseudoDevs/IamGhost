@@ -1,2 +1,2 @@
-Last updated: 2024-04-02 15:27:09
-Random Quote: In all things of nature there is something of the marvelous. - Aristotle
+Last updated: 2024-04-02 15:28:12
+Random Quote: Technology presumes there's just one right way to do things and there never is. - Robert M. Pirsig
