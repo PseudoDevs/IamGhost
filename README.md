@@ -1,2 +1,2 @@
-Last updated: 2024-04-02 12:53:17
-Random Quote: It is not the possession of truth, but the success which attends the seeking after it, that enriches the seeker and brings happiness to him. - Max Planck
+Last updated: 2024-04-02 12:55:21
+Random Quote: Chaos and Order are not enemies, only opposites. - Richard Garriott
