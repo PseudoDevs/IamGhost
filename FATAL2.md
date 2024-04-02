@@ -1,2 +1,2 @@
-Last updated: 2024-04-02 18:36:07
-Random Quote: More often than not, anger is actually an indication of weakness rather than of strength. - Dalai Lama
+Last updated: 2024-04-02 18:36:41
+Random Quote: Today you are you! That is truer than true! There is no one alive who is you-er than you! - Dr. Seuss
