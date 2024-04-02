@@ -1,2 +1,2 @@
-Last updated: 2024-04-02 16:55:45
-Random Quote: Wisdom is the right use of knowledge. To know is not to be wise. Many men know a great deal and are all the greater fools for it. There is no fool so great a fool as a knowing fool. But to know how to use knowledge is to have wisdom. - Charles Spurgeon
+Last updated: 2024-04-02 16:56:53
+Random Quote: If you cannot do great things, do small things in a great way. - Napoleon Hill
