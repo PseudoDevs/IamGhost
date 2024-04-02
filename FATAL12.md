@@ -1,2 +1,2 @@
-Last updated: 2024-04-02 18:14:31
-Random Quote: Permanence, perseverance and persistence in spite of all obstacles, discouragements, and impossibilities: It is this, that in all things distinguishes the strong soul from the weak. - Thomas Carlyle
+Last updated: 2024-04-02 18:15:05
+Random Quote: Everything we hear is an opinion, not a fact. Everything we see is a perspective, not the truth. - Marcus Aurelius
