@@ -1,2 +1,2 @@
-Last updated: 2024-04-02 20:10:34
-Random Quote: The world cares very little about what a man or woman knows; it is what a man or woman is able to do that counts. - Booker T. Washington
+Last updated: 2024-04-02 20:11:08
+Random Quote: I prefer to be true to myself, even at the hazard of incurring the ridicule of others, rather than to be false, and to incur my own abhorrence. - Frederick Douglass
