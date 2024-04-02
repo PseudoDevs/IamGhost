@@ -1,2 +1,2 @@
-Last updated: 2024-04-02 12:36:25
-Random Quote: To want to be what one can be is purpose in life. - Cynthia Ozick
+Last updated: 2024-04-02 12:38:28
+Random Quote: Change is the law of life. And those who look only to the past or present are certain to miss the future. - John F. Kennedy
