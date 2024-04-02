@@ -1,2 +1,2 @@
-Last updated: 2024-04-02 19:16:27
-Random Quote: Both formerly and now, it is only suffering that I describe, and the cessation of suffering. - The Buddha
+Last updated: 2024-04-02 19:17:00
+Random Quote: Ceasing to do evil, Cultivating the good, Purifying the heart: This is the teaching of the Buddhas. - The Buddha
