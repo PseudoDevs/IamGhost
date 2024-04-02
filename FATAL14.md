@@ -1,2 +1,2 @@
-Last updated: 2024-04-02 16:50:24
-Random Quote: Conflict is the gadfly of thought. It stirs us to observation and memory. It instigates to invention. It shocks us out of sheeplike passivity, and sets us at noting and contriving. - John Dewey
+Last updated: 2024-04-02 16:50:57
+Random Quote: There are two primary choices in life: to accept conditions as they exist or accept responsibility for changing them. - Denis Waitley
