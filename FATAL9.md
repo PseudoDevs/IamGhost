@@ -1,2 +1,2 @@
-Last updated: 2024-04-02 12:09:02
-Random Quote: Difficulties increase the nearer we get to the goal. - Johann Wolfgang von Goethe
+Last updated: 2024-04-02 12:11:05
+Random Quote: Knowledge has three degrees: opinion, science, illumination. The means or instrument of the first is sense; of the second, dialectic; of the third, intuition. - Plotinus
