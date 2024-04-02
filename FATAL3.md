@@ -1,2 +1,2 @@
-Last updated: 2024-04-02 12:51:01
-Random Quote: We live in a society bloated with data yet starved for wisdom. We're connected 24/7, yet anxiety, fear, depression and loneliness are at an all-time high. We must course-correct. - Elizabeth Kapu'uwailani Lindsey
+Last updated: 2024-04-02 12:53:04
+Random Quote: The wise man does not lay up his own treasures. The more he gives to others, the more he has for his own. - Laozi
