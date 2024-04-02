@@ -1,2 +1,2 @@
-Last updated: 2024-04-02 16:55:38
-Random Quote: Be Impeccable with Your Word. Speak with integrity. Say only what you mean. Avoid using the word to speak against yourself or to gossip about others. Use the power of your word in the direction of truth and love. - Don Miguel Ruiz
+Last updated: 2024-04-02 16:56:12
+Random Quote: Promises are the uniquely human way of ordering the future, making it predictable and reliable to the extent that this is humanly possible. - Hannah Arendt
