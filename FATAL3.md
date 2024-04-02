@@ -1,2 +1,2 @@
-Last updated: 2024-04-02 19:27:16
-Random Quote: You can only learn so much from books. You can only learn so much from education. Ultimately, it is the wisdom of God that will carry you through in the toughest situations of life. - Ravi Zacharias
+Last updated: 2024-04-02 19:27:50
+Random Quote: When you dance, your purpose is not to get to a certain place on the floor. It's to enjoy each step along the way. - Wayne Dyer
