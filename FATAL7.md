@@ -1,2 +1,2 @@
-Last updated: 2024-04-02 12:44:29
-Random Quote: Marriage is the highest state of friendship. If happy, it lessens our cares by dividing them, at the same time that it doubles our pleasures by mutual participation. - Samuel Richardson
+Last updated: 2024-04-02 12:46:33
+Random Quote: It is not wisdom but Authority that makes a law. - Thomas Hobbes
