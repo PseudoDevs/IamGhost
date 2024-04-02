@@ -1,2 +1,2 @@
-Last updated: 2024-04-02 10:54:12
-Random Quote: In romance, we feel the need to zoom in and expound on our partner's foibles in intimate detail; in friendship, we tend to do the opposite, avoiding confrontation through fear, lethargy or both. - Mariella Frostrup
+Last updated: 2024-04-02 10:56:16
+Random Quote: Speak when you are angry, and you will make the best speech you will ever regret. - Ambrose Bierce
