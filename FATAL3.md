@@ -1,2 +1,2 @@
-Last updated: 2024-04-02 19:35:42
-Random Quote: We love life, not because we are used to living but because we are used to loving. - Friedrich Nietzsche
+Last updated: 2024-04-02 19:36:49
+Random Quote: Only through our connectedness to others can we really know and enhance the self. And only through working on the self can we begin to enhance our connectedness to others. - Harriet Lerner
