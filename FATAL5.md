@@ -1,2 +1,2 @@
-Last updated: 2024-04-02 13:15:16
-Random Quote: Technology is the campfire around which we tell our stories. - Laurie Anderson
+Last updated: 2024-04-02 13:16:59
+Random Quote: It is impossible for a man to learn what he thinks he already knows. - Epictetus
