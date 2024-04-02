@@ -1,2 +1,2 @@
-Last updated: 2024-04-02 20:20:46
-Random Quote: There is a difference between happiness and wisdom: he that thinks himself the happiest man is really so; but he that thinks himself the wisest is generally the greatest fool. - Francis Bacon
+Last updated: 2024-04-02 20:21:20
+Random Quote: Chaos and Order are not enemies, only opposites. - Richard Garriott
