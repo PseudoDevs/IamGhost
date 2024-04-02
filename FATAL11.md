@@ -1,2 +1,2 @@
-Last updated: 2024-04-02 20:12:16
-Random Quote: Yesterday's home runs don't win today's games. - Babe Ruth
+Last updated: 2024-04-02 20:12:49
+Random Quote: It is the nature of the wise to resist pleasures, but the foolish to be a slave to them. - Epictetus
