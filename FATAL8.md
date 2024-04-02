@@ -1,2 +1,2 @@
-Last updated: 2024-04-02 17:08:48
-Random Quote: Argue for your limitations, and sure enough they're yours. - Richard Bach
+Last updated: 2024-04-02 17:09:21
+Random Quote: Every man takes the limits of his own field of vision for the limits of the world. - Arthur Schopenhauer
