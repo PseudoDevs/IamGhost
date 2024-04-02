@@ -1,2 +1,2 @@
-Last updated: 2024-04-02 17:55:42
-Random Quote: The friend who can be silent with us in a moment of despair or confusion, who can stay with us in an hour of grief and bereavement, who can tolerate not knowing... not healing, not curing... that is a friend who cares. - Henri Nouwen
+Last updated: 2024-04-02 17:56:15
+Random Quote: America's freedom of religion, and freedom from religion, offers every wisdom tradition an opportunity to address our soul-deep needs: Christianity, Judaism, Islam, Buddhism, Hinduism, secular humanism, agnosticism and atheism among others. - Parker Palmer
