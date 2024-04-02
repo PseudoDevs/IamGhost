@@ -1,2 +1,2 @@
-Last updated: 2024-04-02 17:13:52
-Random Quote: In the sky there are no tracks. Outside there is no recluse. There are no conditioned things that are eternal. There is no instability in the Buddhas. - The Buddha
+Last updated: 2024-04-02 17:14:26
+Random Quote: Difficulties are things that show a person what they are. - Epictetus
