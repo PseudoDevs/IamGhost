@@ -1,2 +1,2 @@
-Last updated: 2024-04-02 19:37:59
-Random Quote: I think that we have a great opportunity to impart our wisdom and our knowledge and our experience to this younger generation. It may be different times, but experience transcends time, and wisdom transcends time. - Victoria Osteen
+Last updated: 2024-04-02 19:38:33
+Random Quote: I was thrown out of college for cheating on the metaphysics exam; I looked into the soul of the boy sitting next to me. - Woody Allen
