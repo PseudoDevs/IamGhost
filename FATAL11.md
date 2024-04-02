@@ -1,2 +1,2 @@
-Last updated: 2024-04-02 16:51:10
-Random Quote: No work or love will flourish out of guilt, fear, or hollowness of heart, just as no valid plans for the future can be made by those who have no capacity for living now. - Alan Watts
+Last updated: 2024-04-02 16:51:43
+Random Quote: Courage is not the absence of fear, but simply moving on with dignity despite that fear. - Pat Riley
