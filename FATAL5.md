@@ -1,2 +1,2 @@
-Last updated: 2024-04-02 20:06:37
-Random Quote: Consult not your fears but your hopes and your dreams. Think not about your frustrations, but about your unfulfilled potential. Concern yourself not with what you tried and failed in, but with what it is still possible for you to do. - Pope John XXIII
+Last updated: 2024-04-02 20:07:11
+Random Quote: I'd rather regret the things I've done than regret the things I haven't done. - Lucille Ball
