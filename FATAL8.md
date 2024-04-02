@@ -1,2 +1,2 @@
-Last updated: 2024-04-02 19:01:28
-Random Quote: You cannot find yourself by going into the past. You can find yourself by coming into the present. - Eckhart Tolle
+Last updated: 2024-04-02 19:02:02
+Random Quote: I have realized that the past and future are real illusions, that they exist in the present, which is what there is and all there is. - Alan Watts
