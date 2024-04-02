@@ -1,2 +1,2 @@
-Last updated: 2024-04-02 13:41:01
-Random Quote: Setting an example is not the main means of influencing another, it is the only means. - Albert Einstein
+Last updated: 2024-04-02 13:42:44
+Random Quote: Through pride we are ever deceiving ourselves. But deep down below the surface of the average conscience a still, small voice says to us, something is out of tune. - Carl Jung
