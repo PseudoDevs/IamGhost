@@ -1,2 +1,2 @@
-Last updated: 2024-04-02 16:52:16
-Random Quote: If you must tell me your opinions, tell me what you believe in. I have plenty of doubts of my own. - Johann Wolfgang von Goethe
+Last updated: 2024-04-02 16:52:49
+Random Quote: If I am not for myself, who will be for me? If I am not for others, what am I? And if not now, when? - Rabbi Hillel
