@@ -1,2 +1,2 @@
-Last updated: 2024-04-02 14:44:50
-Random Quote: There is only one way to happiness and that is to cease worrying about things which are beyond the power of our will. - Epictetus
+Last updated: 2024-04-02 14:46:53
+Random Quote: Look up at the stars and not down at your feet. Try to make sense of what you see, and wonder about what makes the universe exist. Be curious. - Stephen Hawking
