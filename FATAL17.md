@@ -1,2 +1,2 @@
-Last updated: 2024-04-02 19:42:29
-Random Quote: Know, first, who you are, and then adorn yourself accordingly. - Epictetus
+Last updated: 2024-04-02 19:43:03
+Random Quote: Meditation brings wisdom, lack of meditation leaves ignorance. Know well what leads you forward and what holds you back and choose the path that leads to wisdom. - The Buddha
