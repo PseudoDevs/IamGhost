@@ -1,2 +1,2 @@
-Last updated: 2024-04-02 16:49:50
-Random Quote: You know you're in love when you can't fall asleep because reality is finally better than your dreams. - Dr. Seuss
+Last updated: 2024-04-02 16:50:24
+Random Quote: Conflict is the gadfly of thought. It stirs us to observation and memory. It instigates to invention. It shocks us out of sheeplike passivity, and sets us at noting and contriving. - John Dewey
