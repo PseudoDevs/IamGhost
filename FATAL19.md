@@ -1,2 +1,2 @@
-Last updated: 2024-04-02 19:59:16
-Random Quote: The first requisite for success is the ability to apply your physical and mental energies to one problem incessantly without growing weary. - Thomas Edison
+Last updated: 2024-04-02 19:59:50
+Random Quote: You're not obligated to win. You're obligated to keep trying to do the best you can every day. - Marian Wright Edelman
