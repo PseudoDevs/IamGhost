@@ -1,2 +1,2 @@
-Last updated: 2024-04-02 16:24:34
-Random Quote: All phenomena are preceded by the mind, created by the mind, and have the mind as their master. - The Buddha
+Last updated: 2024-04-02 16:25:38
+Random Quote: Excellence, then, is a state concerned with choice, lying in a mean, relative to us, this being determined by reason and in the way in which the man of practical wisdom would determine it. - Aristotle
