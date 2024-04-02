@@ -1,2 +1,2 @@
-Last updated: 2024-04-02 18:41:45
-Random Quote: I endeavor to be wise when I cannot be merry, easy when I cannot be glad, content with what cannot be mended and patient when there is no redress. - Elizabeth Montagu
+Last updated: 2024-04-02 18:42:19
+Random Quote: Through meditation and by giving full attention to one thing at a time, we can learn to direct attention where we choose. - Eknath Easwaran
