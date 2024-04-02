@@ -1,2 +1,2 @@
-Last updated: 2024-04-02 17:28:13
-Random Quote: Pitching is the art of instilling fear. - Sandy Koufax
+Last updated: 2024-04-02 17:28:46
+Random Quote: Do I speak at the right time, or not? Do I speak of facts, or not? Do I speak gently or harshly? Do I speak profitable words or not? Do I speak with a kindly heart, or inwardly malicious? - The Buddha
