@@ -1,2 +1,2 @@
-Last updated: 2024-04-02 18:36:12
-Random Quote: By three methods we may learn wisdom: First, by reflection, which is noblest; Second, by imitation, which is easiest; and third by experience, which is the bitterest. - Confucius
+Last updated: 2024-04-02 18:36:46
+Random Quote: There are two ways to slide easily through life: to believe everything or to doubt everything; both ways save us from thinking. - Alfred Korzybski
