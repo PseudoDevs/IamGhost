@@ -1,2 +1,2 @@
-Last updated: 2024-04-02 18:02:12
-Random Quote: The strong bond of friendship is not always a balanced equation; friendship is not always about giving and taking in equal shares. Instead, friendship is grounded in a feeling that you know exactly who will be there for you when you need something, no matter what or when. - Simon Sinek
+Last updated: 2024-04-02 18:02:45
+Random Quote: You can only learn so much from books. You can only learn so much from education. Ultimately, it is the wisdom of God that will carry you through in the toughest situations of life. - Ravi Zacharias
