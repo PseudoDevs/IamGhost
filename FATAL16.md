@@ -1,2 +1,2 @@
-Last updated: 2024-04-02 17:31:07
-Random Quote: Before you can inspire with emotion, you must be swamped with it yourself. Before you can move their tears, your own must flow. To convince them, you must yourself believe. - Winston Churchill
+Last updated: 2024-04-02 17:31:40
+Random Quote: Difficulties are things that show a person what they are. - Epictetus
