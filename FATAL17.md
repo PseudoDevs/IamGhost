@@ -1,2 +1,2 @@
-Last updated: 2024-04-02 19:20:32
-Random Quote: To be fully alive, fully human, and completely awake is to be continually thrown out of the nest. - Pema Chödrön
+Last updated: 2024-04-02 19:21:05
+Random Quote: By nature, man hates change; seldom will he quit his old home till it has actually fallen around his ears. - Thomas Carlyle
