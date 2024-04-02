@@ -1,2 +1,2 @@
-Last updated: 2024-04-02 20:06:05
-Random Quote: Let the future tell the truth and evaluate each one according to his work and accomplishments. The present is theirs; the future, for which I have really worked, is mine. - Nikola Tesla
+Last updated: 2024-04-02 20:06:38
+Random Quote: The fact is, with every friendship you make, and every bond of trust you establish, you are shaping the image of America projected to the rest of the world. That is so important. So when you study abroad, you're actually helping to make America stronger. - Michelle Obama
