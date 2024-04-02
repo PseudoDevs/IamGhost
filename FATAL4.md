@@ -1,2 +1,2 @@
-Last updated: 2024-04-02 16:52:49
-Random Quote: Make it a rule of life never to regret and never to look back. Regret is an appalling waste of energy; you can't build on it; it's only for wallowing in. - Katherine Mansfield
+Last updated: 2024-04-02 16:53:23
+Random Quote: You are a product of your environment. So choose the environment that will best develop you toward your objective. Analyze your life in terms of its environment. Are the things around you helping you toward success - or are they holding you back? - W. Clement Stone
