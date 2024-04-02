@@ -1,2 +1,2 @@
-Last updated: 2024-04-02 12:40:50
-Random Quote: Conditions fall apart. Persist with diligence. - The Buddha
+Last updated: 2024-04-02 12:42:54
+Random Quote: Motivation is the art of getting people to do what you want them to do because they want to do it. - Dwight D. Eisenhower
