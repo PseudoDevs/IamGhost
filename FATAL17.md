@@ -1,2 +1,2 @@
-Last updated: 2024-04-02 20:08:19
-Random Quote: I cannot always control what goes on outside. But I can always control what goes on inside. - Wayne Dyer
+Last updated: 2024-04-02 20:08:53
+Random Quote: What lies behind us and what lies before us are small matters compared to what lies within us. - Oliver Wendell Holmes Jr.
