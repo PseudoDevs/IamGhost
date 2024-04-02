@@ -1,2 +1,2 @@
-Last updated: 2024-04-02 17:52:09
-Random Quote: We lost because we told ourselves we lost. - Leo Tolstoy
+Last updated: 2024-04-02 17:52:43
+Random Quote: You cannot find yourself by going into the past. You can find yourself by coming into the present. - Eckhart Tolle
