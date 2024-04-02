@@ -1,2 +1,2 @@
-Last updated: 2024-04-02 18:35:11
-Random Quote: Sooner or later, those who win are those who think they can. - Richard Bach
+Last updated: 2024-04-02 18:35:45
+Random Quote: It is the nature of the wise to resist pleasures, but the foolish to be a slave to them. - Epictetus

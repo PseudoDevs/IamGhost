@@ -1,2 +1,2 @@
-Last updated: 2024-04-02 18:35:11
-Random Quote: Where there is charity and wisdom, there is neither fear nor ignorance. - Francis of Assisi
+Last updated: 2024-04-02 18:35:45
+Random Quote: The older I get the more wisdom I find in the ancient rule of taking first things first. A process which often reduces the most complex human problem to a manageable proportion. - Dwight D. Eisenhower
