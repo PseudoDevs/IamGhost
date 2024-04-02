@@ -1,2 +1,2 @@
-Last updated: 2024-04-02 18:06:01
-Random Quote: Technology… the knack of so arranging the world that we don't have to experience it. - Max Frisch
+Last updated: 2024-04-02 18:06:34
+Random Quote: The greater our knowledge increases the more our ignorance unfolds. - John F. Kennedy
