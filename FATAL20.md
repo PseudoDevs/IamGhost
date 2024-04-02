@@ -1,2 +1,2 @@
-Last updated: 2024-04-02 18:40:38
-Random Quote: Leaders aren't born they are made. And they are made just like anything else, through hard work. And that's the price we'll have to pay to achieve that goal, or any goal. - Vince Lombardi
+Last updated: 2024-04-02 18:41:12
+Random Quote: Nature takes away any faculty that is not used. - William Inge
