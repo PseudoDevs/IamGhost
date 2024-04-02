@@ -1,2 +1,2 @@
-Last updated: 2024-04-02 17:24:59
-Random Quote: Wisdom is oftentimes nearer when we stoop than when we soar. - William Wordsworth
+Last updated: 2024-04-02 17:25:33
+Random Quote: You can only learn so much from books. You can only learn so much from education. Ultimately, it is the wisdom of God that will carry you through in the toughest situations of life. - Ravi Zacharias
