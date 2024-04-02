@@ -1,2 +1,2 @@
-Last updated: 2024-04-02 17:58:39
-Random Quote: I think that novels that leave out technology misrepresent life as badly as Victorians misrepresented life by leaving out sex. - Kurt Vonnegut
+Last updated: 2024-04-02 17:59:12
+Random Quote: I know not with what weapons World War III will be fought, but World War IV will be fought with sticks and stones. - Albert Einstein
