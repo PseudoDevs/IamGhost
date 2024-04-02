@@ -1,2 +1,2 @@
-Last updated: 2024-04-02 16:36:06
-Random Quote: Avoid having your ego so close to your position that when your position falls, your ego goes with it. - Colin Powell
+Last updated: 2024-04-02 16:37:10
+Random Quote: The truth you believe and cling to makes you unavailable to hear anything new. - Pema Chödrön
