@@ -1,2 +1,2 @@
-Last updated: 2024-04-02 20:17:22
-Random Quote: Use what talents you possess; the woods would be very silent if no birds sang there except those that sang best. - Henry van Dyke Jr.
+Last updated: 2024-04-02 20:19:03
+Random Quote: It isn't what happens to us that causes us to suffer; it's what we say to ourselves about what happens. - Pema Chödrön
