@@ -1,2 +1,2 @@
-Last updated: 2024-04-02 17:25:35
-Random Quote: The greatest obstacle to connecting with our joy is resentment. - Pema Chödrön
+Last updated: 2024-04-02 17:26:09
+Random Quote: In order to live free and happily you must sacrifice boredom. It is not always an easy sacrifice. - Richard Bach
