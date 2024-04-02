@@ -1,2 +1,2 @@
-Last updated: 2024-04-02 17:10:26
-Random Quote: Let us resolve to be masters, not the victims, of our history, controlling our own destiny without giving way to blind suspicions and emotions. - John F. Kennedy
+Last updated: 2024-04-02 17:12:08
+Random Quote: It all depends on how we look at things, and not how they are in themselves. - Carl Jung
