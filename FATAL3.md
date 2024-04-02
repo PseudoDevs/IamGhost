@@ -1,2 +1,2 @@
-Last updated: 2024-04-02 16:12:39
-Random Quote: Our doubts are traitors and make us lose the good we often might win, by fearing to attempt. - Jane Addams
+Last updated: 2024-04-02 16:14:02
+Random Quote: The beginning of wisdom is found in doubting; by doubting we come to the question, and by seeking we may come upon the truth. - Peter Abelard
