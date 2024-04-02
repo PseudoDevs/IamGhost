@@ -1,2 +1,2 @@
-Last updated: 2024-04-02 16:08:17
-Random Quote: Think as a wise man but communicate in the language of the people. - William Butler Yeats
+Last updated: 2024-04-02 16:09:31
+Random Quote: Be as you wish to seem. - Socrates
