@@ -1,2 +1,2 @@
-Last updated: 2024-04-02 14:35:47
-Random Quote: No party has a monopoly on wisdom. No democracy works without compromise. - Barack Obama
+Last updated: 2024-04-02 14:37:51
+Random Quote: The great myth of our times is that technology is communication. - Libby Larsen
