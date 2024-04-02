@@ -1,2 +1,2 @@
-Last updated: 2024-04-02 12:01:23
-Random Quote: If facts are the seeds that later produce knowledge and wisdom, then the emotions and the impressions of the senses are the fertile soil in which the seeds must grow. - Rachel Carson
+Last updated: 2024-04-02 12:03:26
+Random Quote: Without this playing with fantasy no creative work has ever yet come to birth. The debt we owe to the play of the imagination is incalculable. - Carl Jung
