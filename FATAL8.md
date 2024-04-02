@@ -1,2 +1,2 @@
-Last updated: 2024-04-02 15:20:43
-Random Quote: If I am not for myself, who will be for me? If I am not for others, what am I? And if not now, when? - Rabbi Hillel
+Last updated: 2024-04-02 15:21:47
+Random Quote: Science and technology revolutionize our lives, but memory, tradition and myth frame our response. - Arthur M. Schlesinger Jr.
