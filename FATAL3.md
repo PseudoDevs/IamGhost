@@ -1,2 +1,2 @@
-Last updated: 2024-04-02 20:16:48
-Random Quote: The key to wisdom is this - constant and frequent questioning, for by doubting we are led to question and by questioning we arrive at the truth. - Peter Abelard
+Last updated: 2024-04-02 20:17:21
+Random Quote: Be true to yourself, help others, make each day your masterpiece, make friendship a fine art, drink deeply from good books - especially the Bible, build a shelter against a rainy day, give thanks for your blessings and pray for guidance every day. - John Wooden
