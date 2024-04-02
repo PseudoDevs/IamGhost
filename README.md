@@ -1,2 +1,2 @@
-Last updated: 2024-04-02 17:54:35
-Random Quote: Criticism is something you can easily avoid by saying nothing, doing nothing, and being nothing. - Aristotle
+Last updated: 2024-04-02 17:55:08
+Random Quote: Avoid having your ego so close to your position that when your position falls, your ego goes with it. - Colin Powell
