@@ -1,2 +1,2 @@
-Last updated: 2024-04-02 19:32:56
-Random Quote: A dream is your creative vision for your life in the future. You must break out of your current comfort zone and become comfortable with the unfamiliar and the unknown. - Denis Waitley
+Last updated: 2024-04-02 19:33:29
+Random Quote: We have two ears and one mouth so that we can listen twice as much as we speak. - Epictetus
