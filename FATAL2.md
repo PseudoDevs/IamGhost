@@ -1,2 +1,2 @@
-Last updated: 2024-04-02 18:44:35
-Random Quote: I think that we have a great opportunity to impart our wisdom and our knowledge and our experience to this younger generation. It may be different times, but experience transcends time, and wisdom transcends time. - Victoria Osteen
+Last updated: 2024-04-02 18:45:42
+Random Quote: The art of storytelling is reaching its end because the epic side of truth, wisdom, is dying out. - Walter Benjamin
