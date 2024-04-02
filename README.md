@@ -1,2 +1,2 @@
-Last updated: 2024-04-02 12:55:21
-Random Quote: Chaos and Order are not enemies, only opposites. - Richard Garriott
+Last updated: 2024-04-02 12:57:24
+Random Quote: All of our technology is completely unnecessary to a happy life. - Tom Hodgkinson
