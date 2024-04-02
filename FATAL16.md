@@ -1,2 +1,2 @@
-Last updated: 2024-04-02 17:58:05
-Random Quote: No day in which you learn something is a complete loss. - David Eddings
+Last updated: 2024-04-02 17:58:39
+Random Quote: I think that novels that leave out technology misrepresent life as badly as Victorians misrepresented life by leaving out sex. - Kurt Vonnegut
