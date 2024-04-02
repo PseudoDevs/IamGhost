@@ -1,2 +1,2 @@
-Last updated: 2024-04-02 16:02:06
-Random Quote: The deepest craving of human nature is the need to be appreciated. - William James
+Last updated: 2024-04-02 16:03:10
+Random Quote: The most difficult thing is the decision to act, the rest is merely tenacity. The fears are paper tigers. You can do anything you decide to do. You can act to change and control your life; and the procedure, the process is its own reward. - Amelia Earhart
