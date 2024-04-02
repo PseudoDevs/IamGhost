@@ -1,2 +1,2 @@
-Last updated: 2024-04-02 17:26:32
-Random Quote: When one door of happiness closes, another opens; but often we look so long at the closed door that we do not see the one which has been opened for us. - Helen Keller
+Last updated: 2024-04-02 17:27:06
+Random Quote: Serious sport has nothing to do with fair play. It is bound up with hatred, jealousy, boastfulness, disregard of all rules and sadistic pleasure in witnessing violence. In other words, it is war minus the shooting. - George Orwell
