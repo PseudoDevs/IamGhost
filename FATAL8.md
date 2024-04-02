@@ -1,2 +1,2 @@
-Last updated: 2024-04-02 12:36:01
-Random Quote: Kindness is more important than wisdom, and the recognition of this is the beginning of wisdom. - Theodore Isaac Rubin
+Last updated: 2024-04-02 12:38:05
+Random Quote: True knowledge exists in knowing that you know nothing. - Isocrates
