@@ -1,2 +1,2 @@
-Last updated: 2024-04-02 18:05:05
-Random Quote: The greatest obstacle to being heroic is the doubt whether one may not be going to prove oneself a fool; the truest heroism is to resist the doubt; and the profoundest wisdom, to know when it ought to be resisted, and when it be obeyed. - Nathaniel Hawthorne
+Last updated: 2024-04-02 18:05:39
+Random Quote: These days people seek knowledge, not wisdom. Knowledge is of the past; wisdom is of the future. - Vernon Cooper
