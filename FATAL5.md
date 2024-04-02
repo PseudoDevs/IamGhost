@@ -1,2 +1,2 @@
-Last updated: 2024-04-02 16:52:42
-Random Quote: To effectively communicate, we must realize that we are all different in the way we perceive the world and use this understanding as a guide to our communication with others. - Tony Robbins
+Last updated: 2024-04-02 16:53:50
+Random Quote: I have realized that the past and future are real illusions, that they exist in the present, which is what there is and all there is. - Alan Watts
