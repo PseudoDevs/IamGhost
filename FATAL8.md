@@ -1,2 +1,2 @@
-Last updated: 2024-04-02 12:03:02
-Random Quote: He who learns must suffer. And even in our sleep pain that cannot forget falls drop by drop upon the heart, and in our own despair, against our will, comes wisdom to us by the awful grace of God. - Aeschylus
+Last updated: 2024-04-02 12:05:06
+Random Quote: All phenomena are preceded by the mind, created by the mind, and have the mind as their master. - The Buddha
