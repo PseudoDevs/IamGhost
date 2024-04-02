@@ -1,2 +1,2 @@
-Last updated: 2024-04-02 16:11:15
-Random Quote: Think for yourselves and let others enjoy the privilege to do so too. - Voltaire
+Last updated: 2024-04-02 16:12:19
+Random Quote: Knowing your own darkness is the best method for dealing with the darkness of other people. - Carl Jung
