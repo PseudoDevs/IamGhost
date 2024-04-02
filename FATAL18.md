@@ -1,2 +1,2 @@
-Last updated: 2024-04-02 16:51:18
-Random Quote: Rock n' roll as a genre is different from pop and hip hop: it is about bands, and that for me suggests brotherhood, family, friendship and community. - Steven Van Zandt
+Last updated: 2024-04-02 16:51:51
+Random Quote: So much technology, so little talent. - Vernor Vinge
