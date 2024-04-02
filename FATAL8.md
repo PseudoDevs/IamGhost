@@ -1,2 +1,2 @@
-Last updated: 2024-04-02 19:37:54
-Random Quote: 'As I am, so are these. As are these, so am I.' Drawing the parallel to yourself, neither kill nor get others to kill. - The Buddha
+Last updated: 2024-04-02 19:39:01
+Random Quote: Train up a fig tree in the way it should go, and when you are old sit under the shade of it. - Charles Dickens
