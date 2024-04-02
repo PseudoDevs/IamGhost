@@ -1,2 +1,2 @@
-Last updated: 2024-04-02 18:42:53
-Random Quote: Don't talk about what you have done or what you are going to do. - Thomas Jefferson
+Last updated: 2024-04-02 18:43:27
+Random Quote: I, too, do not envision a doctrine of self the clinging to which there would not arise sorrow, lamentation, pain, grief, and despair. - The Buddha
