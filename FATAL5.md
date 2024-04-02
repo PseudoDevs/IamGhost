@@ -1,2 +1,2 @@
-Last updated: 2024-04-02 16:24:32
-Random Quote: Do not wait; the time will never be 'just right.' Start where you stand, and work with whatever tools you may have at your command, and better tools will be found as you go along. - George Herbert
+Last updated: 2024-04-02 16:26:40
+Random Quote: Experts on romance say for a happy marriage there has to be more than a passionate love. For a lasting union, they insist, there must be a genuine liking for each other. Which, in my book, is a good definition for friendship. - Marilyn Monroe
