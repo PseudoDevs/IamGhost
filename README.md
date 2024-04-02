@@ -1,2 +1,2 @@
-Last updated: 2024-04-02 13:34:20
-Random Quote: Success in business requires training and discipline and hard work. But if you're not frightened by these things, the opportunities are just as great today as they ever were. - David Rockefeller
+Last updated: 2024-04-02 13:36:23
+Random Quote: No party has a monopoly on wisdom. No democracy works without compromise. - Barack Obama
