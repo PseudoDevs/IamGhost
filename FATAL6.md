@@ -1,2 +1,2 @@
-Last updated: 2024-04-02 19:30:10
-Random Quote: If you were to offer a thirsty man all wisdom, you would not please him more than if you gave him a drink. - Sophocles
+Last updated: 2024-04-02 19:30:44
+Random Quote: Your sacred space is where you can find yourself again and again. - Joseph Campbell
