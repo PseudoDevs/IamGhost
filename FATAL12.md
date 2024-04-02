@@ -1,2 +1,2 @@
-Last updated: 2024-04-02 18:11:43
-Random Quote: You don't play against opponents, you play against the game of basketball. - Bob Knight
+Last updated: 2024-04-02 18:12:17
+Random Quote: Courage is what it takes to stand up and speak; courage is also what it takes to sit down and listen. - Winston Churchill
