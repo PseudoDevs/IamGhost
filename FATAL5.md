@@ -1,2 +1,2 @@
-Last updated: 2024-04-02 13:04:58
-Random Quote: Even if you're on the right track, you'll get run over if you just sit there. - Will Rogers
+Last updated: 2024-04-02 13:06:41
+Random Quote: Meditation brings wisdom, lack of meditation leaves ignorance. Know well what leads you forward and what holds you back and choose the path that leads to wisdom. - The Buddha
