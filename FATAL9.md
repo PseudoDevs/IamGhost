@@ -1,2 +1,2 @@
-Last updated: 2024-04-02 13:32:21
-Random Quote: A passion for politics stems usually from an insatiable need, either for power, or for friendship and adulation, or a combination of both. - Fawn M. Brodie
+Last updated: 2024-04-02 13:33:24
+Random Quote: Not every difficult and dangerous thing is suitable for training, but only that which is conducive to success in achieving the object of our effort. - Epictetus
