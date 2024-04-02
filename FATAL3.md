@@ -1,2 +1,2 @@
-Last updated: 2024-04-02 19:26:43
-Random Quote: Never accept ultimatums, conventional wisdom, or absolutes. - Christopher Reeve
+Last updated: 2024-04-02 19:27:16
+Random Quote: You can only learn so much from books. You can only learn so much from education. Ultimately, it is the wisdom of God that will carry you through in the toughest situations of life. - Ravi Zacharias
