@@ -1,2 +1,2 @@
-Last updated: 2024-04-02 18:25:46
-Random Quote: America's freedom of religion, and freedom from religion, offers every wisdom tradition an opportunity to address our soul-deep needs: Christianity, Judaism, Islam, Buddhism, Hinduism, secular humanism, agnosticism and atheism among others. - Parker Palmer
+Last updated: 2024-04-02 18:26:20
+Random Quote: Life's most persistent and urgent question is, 'What are you doing for others?' - Martin Luther King Jr.
