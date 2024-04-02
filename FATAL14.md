@@ -1,2 +1,2 @@
-Last updated: 2024-04-02 16:35:44
-Random Quote: We are either progressing or retrograding all the while. There is no such thing as remaining stationary in this life. - James Freeman Clarke
+Last updated: 2024-04-02 16:36:48
+Random Quote: If we are not fully ourselves, truly in the present moment, we miss everything. - Thích Nhất Hạnh
