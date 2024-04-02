@@ -1,2 +1,2 @@
-Last updated: 2024-04-02 11:22:22
-Random Quote: Get busy living or get busy dying. - Stephen King
+Last updated: 2024-04-02 11:24:26
+Random Quote: Rock n' roll as a genre is different from pop and hip hop: it is about bands, and that for me suggests brotherhood, family, friendship and community. - Steven Van Zandt
