@@ -1,2 +1,2 @@
-Last updated: 2024-04-02 16:54:40
-Random Quote: This is why I loved technology: if you used it right, it could give you power and privacy. - Cory Doctorow
+Last updated: 2024-04-02 16:55:13
+Random Quote: Motivation is the art of getting people to do what you want them to do because they want to do it. - Dwight D. Eisenhower
