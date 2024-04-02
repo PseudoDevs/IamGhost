@@ -1,2 +1,2 @@
-Last updated: 2024-04-02 18:34:05
-Random Quote: Whether you think you can or you think you can't, you are right. - Henry Ford
+Last updated: 2024-04-02 18:34:38
+Random Quote: Wisdom is the right use of knowledge. To know is not to be wise. Many men know a great deal and are all the greater fools for it. There is no fool so great a fool as a knowing fool. But to know how to use knowledge is to have wisdom. - Charles Spurgeon
