@@ -1,2 +1,2 @@
-Last updated: 2024-04-02 16:50:27
-Random Quote: Courage is what it takes to stand up and speak; courage is also what it takes to sit down and listen. - Winston Churchill
+Last updated: 2024-04-02 16:51:35
+Random Quote: Nothing in life is to be feared. It is only to be understood. - Marie Curie
