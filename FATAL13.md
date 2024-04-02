@@ -1,2 +1,2 @@
-Last updated: 2024-04-02 19:26:31
-Random Quote: Heedfulness is the path to the Deathless. Heedlessness is the path to death. The heedful die not. The heedless are as if already dead. - The Buddha
+Last updated: 2024-04-02 19:27:04
+Random Quote: To be beautiful means to be yourself. You don't need to be accepted by others. You need to accept yourself. - Thích Nhất Hạnh
