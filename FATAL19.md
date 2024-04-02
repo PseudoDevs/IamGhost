@@ -1,2 +1,2 @@
-Last updated: 2024-04-02 18:45:09
-Random Quote: The friend who can be silent with us in a moment of despair or confusion, who can stay with us in an hour of grief and bereavement, who can tolerate not knowing... not healing, not curing... that is a friend who cares. - Henri Nouwen
+Last updated: 2024-04-02 18:45:43
+Random Quote: By three methods we may learn wisdom: First, by reflection, which is noblest; Second, by imitation, which is easiest; and third by experience, which is the bitterest. - Confucius
