@@ -1,2 +1,2 @@
-Last updated: 2024-04-02 17:30:33
-Random Quote: The only Zen you find on the tops of mountains is the Zen you bring up there. - Robert M. Pirsig
+Last updated: 2024-04-02 17:31:07
+Random Quote: Before you can inspire with emotion, you must be swamped with it yourself. Before you can move their tears, your own must flow. To convince them, you must yourself believe. - Winston Churchill
