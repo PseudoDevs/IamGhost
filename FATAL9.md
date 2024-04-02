@@ -1,2 +1,2 @@
-Last updated: 2024-04-02 13:36:33
-Random Quote: Leaders aren't born they are made. And they are made just like anything else, through hard work. And that's the price we'll have to pay to achieve that goal, or any goal. - Vince Lombardi
+Last updated: 2024-04-02 13:37:36
+Random Quote: There are no failures. Just experiences and your reactions to them. - Tom Krause
