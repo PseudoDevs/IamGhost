@@ -1,2 +1,2 @@
-Last updated: 2024-04-02 16:05:00
-Random Quote: The greater danger for most of us lies not in setting our aim too high and falling short; but in setting our aim too low and achieving our mark. - Michelangelo
+Last updated: 2024-04-02 16:06:04
+Random Quote: They say that time changes things, but you actually have to change them yourself. - Andy Warhol
