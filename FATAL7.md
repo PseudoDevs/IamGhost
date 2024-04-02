@@ -1,2 +1,2 @@
-Last updated: 2024-04-02 16:50:20
-Random Quote: The older I get the more wisdom I find in the ancient rule of taking first things first. A process which often reduces the most complex human problem to a manageable proportion. - Dwight D. Eisenhower
+Last updated: 2024-04-02 16:50:54
+Random Quote: Difficulties are meant to rouse, not discourage. The human spirit is to grow strong by conflict. - William Ellery Channing
