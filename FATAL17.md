@@ -1,2 +1,2 @@
-Last updated: 2024-04-02 17:25:00
-Random Quote: I'm selfish, impatient and a little insecure. I make mistakes, I am out of control and at times hard to handle. But if you can't handle me at my worst, then you sure as hell don't deserve me at my best. - Marilyn Monroe
+Last updated: 2024-04-02 17:26:10
+Random Quote: He that respects himself is safe from others; he wears a coat of mail that none can pierce. - Henry Wadsworth Longfellow
