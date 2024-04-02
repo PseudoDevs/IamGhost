@@ -1,2 +1,2 @@
-Last updated: 2024-04-02 16:57:33
-Random Quote: Wisdom alone is the science of other sciences. - Plato
+Last updated: 2024-04-02 16:58:07
+Random Quote: True wisdom is less presuming than folly. The wise man doubteth often, and changeth his mind; the fool is obstinate, and doubteth not; he knoweth all things but his own ignorance. - Akhenaten
