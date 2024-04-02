@@ -1,2 +1,2 @@
-Last updated: 2024-04-02 18:23:35
-Random Quote: You are never given a wish without also being given the power to make it come true. You may have to work for it, however. - Richard Bach
+Last updated: 2024-04-02 18:24:09
+Random Quote: In times of change, learners inherit the earth, while the learned find themselves beautifully equipped to deal with a world that no longer exists. - Eric Hoffer
