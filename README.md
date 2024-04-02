@@ -1,2 +1,2 @@
-Last updated: 2024-04-02 20:00:24
-Random Quote: Technology made large populations possible; large populations now make technology indispensable. - Joseph Wood Krutch
+Last updated: 2024-04-02 20:00:58
+Random Quote: In dwelling, live close to the ground. In thinking, keep to the simple. In conflict, be fair and generous. In governing, don't try to control. In work, do what you enjoy. In family life, be completely present. - Laozi
