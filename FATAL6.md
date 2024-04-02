@@ -1,2 +1,2 @@
-Last updated: 2024-04-02 17:16:57
-Random Quote: Democracy's premise rests on the notion that the collective wisdom of the majority will prove right more often than it's wrong; that given sufficient opportunity in the pursuit of happiness, your population will develop its talents, its intellect, its better judgment; that over time its capacity for discernment and self-correction will be enlarged. - Ben Fountain
+Last updated: 2024-04-02 17:17:31
+Random Quote: I can't imagine a person becoming a success who doesn't give this game of life everything he's got. - Walter Cronkite
