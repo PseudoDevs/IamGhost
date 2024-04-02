@@ -1,2 +1,2 @@
-Last updated: 2024-04-02 19:04:48
-Random Quote: Nothing in life is to be feared. It is only to be understood. - Marie Curie
+Last updated: 2024-04-02 19:05:21
+Random Quote: In dwelling, live close to the ground. In thinking, keep to the simple. In conflict, be fair and generous. In governing, don't try to control. In work, do what you enjoy. In family life, be completely present. - Laozi
