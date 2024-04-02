@@ -1,2 +1,2 @@
-Last updated: 2024-04-02 20:21:20
-Random Quote: If you are going to achieve excellence in big things, you develop the habit in little matters. Excellence is not an exception; it is a prevailing attitude. - Colin Powell
+Last updated: 2024-04-02 20:21:54
+Random Quote: Science investigates; religion interprets. Science gives man knowledge which is power; religion gives man wisdom which is control. - Martin Luther King Jr.
