@@ -1,2 +1,2 @@
-Last updated: 2024-04-02 15:10:09
-Random Quote: Meditation is the dissolution of thoughts in eternal awareness or Pure consciousness without objectification, knowing without thinking, merging finitude in infinity. - Voltaire
+Last updated: 2024-04-02 15:11:12
+Random Quote: Parents can only give good advice or put them on the right paths, but the final forming of a person's character lies in their own hands. - Anne Frank
