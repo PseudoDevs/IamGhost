@@ -1,2 +1,2 @@
-Last updated: 2024-04-02 20:02:39
-Random Quote: Sometimes it is better to lose and do the right thing than to win and do the wrong thing. - Tony Blair
+Last updated: 2024-04-02 20:03:48
+Random Quote: There are two primary choices in life: to accept conditions as they exist or accept responsibility for changing them. - Denis Waitley
