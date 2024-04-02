@@ -1,2 +1,2 @@
-Last updated: 2024-04-02 19:11:26
-Random Quote: Man is not sum of what he has already, but rather the sum of what he does not yet have, of what he could have. - Jean-Paul Sartre
+Last updated: 2024-04-02 19:11:59
+Random Quote: Men of perverse opinion do not know the excellence of what is in their hands, till someone dash it from them. - Sophocles
