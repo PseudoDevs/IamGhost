@@ -1,2 +1,2 @@
-Last updated: 2024-04-02 12:09:26
-Random Quote: Obstacles are those frightful things you see when you take your eyes off your goal. - Henry Ford
+Last updated: 2024-04-02 12:11:30
+Random Quote: Leaders aren't born they are made. And they are made just like anything else, through hard work. And that's the price we'll have to pay to achieve that goal, or any goal. - Vince Lombardi
