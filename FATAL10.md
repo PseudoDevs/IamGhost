@@ -1,2 +1,2 @@
-Last updated: 2024-04-02 17:02:32
-Random Quote: You're not obligated to win. You're obligated to keep trying to do the best you can every day. - Marian Wright Edelman
+Last updated: 2024-04-02 17:03:06
+Random Quote: The lure of the distant and the difficult is deceptive. The great opportunity is where you are. - John Burroughs
