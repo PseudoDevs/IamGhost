@@ -1,2 +1,2 @@
-Last updated: 2024-04-02 15:19:59
-Random Quote: He who is taught to live upon little owes more to his father's wisdom than he who has a great deal left him does to his father's care. - William C. Menninger
+Last updated: 2024-04-02 15:21:13
+Random Quote: There is a wisdom of the head, and a wisdom of the heart. - Charles Dickens
