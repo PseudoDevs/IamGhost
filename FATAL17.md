@@ -1,2 +1,2 @@
-Last updated: 2024-04-02 17:18:31
-Random Quote: No one can make you feel inferior without your consent. - Eleanor Roosevelt
+Last updated: 2024-04-02 17:19:42
+Random Quote: Serious sport has nothing to do with fair play. It is bound up with hatred, jealousy, boastfulness, disregard of all rules and sadistic pleasure in witnessing violence. In other words, it is war minus the shooting. - George Orwell
