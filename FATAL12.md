@@ -1,2 +1,2 @@
-Last updated: 2024-04-02 18:44:08
-Random Quote: Whatever you do in life, surround yourself with smart people who'll argue with you. - John Wooden
+Last updated: 2024-04-02 18:45:15
+Random Quote: So then, the relationship of self to other is the complete realization that loving yourself is impossible without loving everything defined as other than yourself. - Alan Watts
