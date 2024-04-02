@@ -1,2 +1,2 @@
-Last updated: 2024-04-02 19:22:01
-Random Quote: 'All conditioned things are impermanent' — when one sees this with wisdom, one turns away from suffering. - The Buddha
+Last updated: 2024-04-02 19:22:35
+Random Quote: Neither a lofty degree of intelligence nor imagination nor both together go to the making of genius. Love, love, love, that is the soul of genius. - Wolfgang Amadeus Mozart
