@@ -1,2 +1,2 @@
-Last updated: 2024-04-02 17:19:42
-Random Quote: Our greatness lies not so much in being able to remake the world as being able to remake ourselves. - Mahatma Gandhi
+Last updated: 2024-04-02 17:20:18
+Random Quote: Every man takes the limits of his own field of vision for the limits of the world. - Arthur Schopenhauer
