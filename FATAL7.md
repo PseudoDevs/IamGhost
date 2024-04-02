@@ -1,2 +1,2 @@
-Last updated: 2024-04-02 18:49:41
-Random Quote: It is not wisdom but Authority that makes a law. - Thomas Hobbes
+Last updated: 2024-04-02 18:50:15
+Random Quote: Knowing your own darkness is the best method for dealing with the darkness of other people. - Carl Jung
