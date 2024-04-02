@@ -1,2 +1,2 @@
-Last updated: 2024-04-02 18:05:28
-Random Quote: The fact is, with every friendship you make, and every bond of trust you establish, you are shaping the image of America projected to the rest of the world. That is so important. So when you study abroad, you're actually helping to make America stronger. - Michelle Obama
+Last updated: 2024-04-02 18:06:01
+Random Quote: Technology… the knack of so arranging the world that we don't have to experience it. - Max Frisch
