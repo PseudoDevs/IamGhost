@@ -32,7 +32,7 @@ function updateExistingFile($repoPath) {
     $currentDateTime = date('Y-m-d H:i:s');
     $newContent = "Last updated: $currentDateTime\nRandom Quote: $randomQuote";
 
-    $files = glob("$repoPath/FATAL3.md");
+    $files = glob("$repoPath/amd10.md");
     if (!empty($files)) {
         $fileToUpdate = $files[0];
 
