@@ -1,2 +1,2 @@
-Last updated: 2024-04-04 19:59:33
-Random Quote: Whats your prescription, Dr. Estrogen? Eat Haagen-Dazs and watch "Love... actually" until your periods sync up? - Barney Stinson
+Last updated: 2024-04-04 20:00:06
+Random Quote: Quinn: "In the event of divorce, Miss Garvey shall get full custody of Mr. Stinson's suits."Barney: "Why? What would you do with them?"Quinn: "Nothing. I'd just sit around and watch them go out of style." - Quinn Garvey
