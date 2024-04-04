@@ -1,2 +1,2 @@
-Last updated: 2024-04-04 20:06:04
-Random Quote: There's chaos in you. Embrace the chaos! - Arthur Harrow
+Last updated: 2024-04-04 20:06:37
+Random Quote: When dead men come hunting us in the night, do you think it matters who sits the Iron Throne?  -  Jeor Mormont
