@@ -1,2 +1,2 @@
-Last updated: 2024-04-04 19:46:10
-Random Quote: I'm going to tell you something curious about prisons. You're never alone. But you always have the feeling that you are. - Don Neto
+Last updated: 2024-04-04 19:46:43
+Random Quote: The biggest case of my life and I'd already lost the jury. I mean, I've heard of "Twelve Angry Men",  but this was more like "Twelve Horny Women". - Marshall Eriksen
