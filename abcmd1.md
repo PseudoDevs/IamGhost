@@ -1,2 +1,4 @@
-Last updated: 2024-04-04 19:23:20
-Random Quote: Kids, I'm going to tell you an incredible story, the story of how I met your mother. - Ted Mosby
+Last updated: 2024-04-04 19:23:53
+Random Quote: Oh Il-nam: "As a kid, I'm willing to bet you got spanked a lot."
+Seong Gi-hun: "How did you know?"
+Oh Il-nam: "My son did too. He was just like you, friend." - Oh Il-nam
