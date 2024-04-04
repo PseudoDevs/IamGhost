@@ -1,2 +1,2 @@
-Last updated: 2024-04-04 20:31:01
-Random Quote: Know the men who follow you and let them know you.  Don't ask your men to die for a stranger.  -  Eddard Stark
+Last updated: 2024-04-04 20:31:34
+Random Quote: There is only one god, and his name is Death.  And there is only one thing we say to Death: not today.  -  Syrio Forel
