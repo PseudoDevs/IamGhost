@@ -1,2 +1,2 @@
-Last updated: 2024-04-04 19:56:49
-Random Quote: Finally, you will be among pears who understand you. Maybe you'll even make some friends. - Morticia Addams
+Last updated: 2024-04-04 19:57:22
+Random Quote: Whats your prescription, Dr. Estrogen? Eat Haagen-Dazs and watch "Love... actually" until your periods sync up? - Barney Stinson
