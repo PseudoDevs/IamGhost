@@ -1,2 +1,2 @@
-Last updated: 2024-04-04 19:38:14
-Random Quote: Think of me as Yoda - only, instead of being little and green, I wear suits and I'm awesome. I'm your bro. I'm Broda. - Barney Stinson
+Last updated: 2024-04-04 19:38:47
+Random Quote: Well, if there is something wrong with him, it ain't constipation. - Meemaw
