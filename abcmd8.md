@@ -1,2 +1,2 @@
-Last updated: 2024-04-04 20:03:51
-Random Quote: You can have all the intelligence in the world, but if nobody's there to act on it, what's it worth? Nothing. - Steve Murphy
+Last updated: 2024-04-04 20:04:58
+Random Quote: No sword is strong until it's been tempered.  The Stark boy is a child.  No doubt he likes the sound of warhorns well enough, and the sight of his banners fluttering in the wind, but in the end it comes down to butcher's work.  I doubt he has the stomach for it.  -  Tywin Lannister
