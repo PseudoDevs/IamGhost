@@ -1,2 +1,2 @@
-Last updated: 2024-04-04 20:19:49
-Random Quote: Old gods or new, it makes no matter, no man is so accursed as the kinslayer.  -  Rickard Karstark
+Last updated: 2024-04-04 20:20:22
+Random Quote: Minds are like swords, I do fear.  The old ones go to rust.  -  Grand Maester Pycelle
