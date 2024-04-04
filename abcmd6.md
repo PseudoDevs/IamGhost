@@ -1,2 +1,2 @@
-Last updated: 2024-04-04 20:28:58
-Random Quote: I don't wanna be choosing between two girls, I wanna be a complete head over heels idiot for one! - Ted Mosby
+Last updated: 2024-04-04 20:29:31
+Random Quote: People taking power who don't deserve it. It never ends well. - Jérôme
