@@ -1,2 +1,3 @@
-Last updated: 2024-04-04 19:14:41
-Random Quote: I can't believe I'm taking sexual advice from Ted Mosby.That's like taking fashion advice from... well, Ted Mosby. - Barney Stinson
+Last updated: 2024-04-04 19:15:13
+Random Quote: "Crutch down and bend over a little bit."
+Barney: "Wow, It took five shots of tequila to have you in that position." - Barney Stinson
