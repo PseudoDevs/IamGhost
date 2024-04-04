@@ -1,2 +1,2 @@
-Last updated: 2024-04-04 19:19:03
-Random Quote: Dead people are notoriously bad at returning calls. - Wednesday Addams
+Last updated: 2024-04-04 19:19:36
+Random Quote: This is Stannis Baratheon.  The man will fight to the bitter end and then some.  -  Tywin Lannister
