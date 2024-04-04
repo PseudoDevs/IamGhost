@@ -1,2 +1,2 @@
-Last updated: 2024-04-04 19:46:28
-Random Quote: Marshall: "Excuse me, miss. When you get a chance, could you bring over a hundred shots of tequila please?"Barney: "I'll have the same." - Marshall Eriksen
+Last updated: 2024-04-04 19:47:01
+Random Quote: But every now and then it’s good to question those who question things. - Noah
