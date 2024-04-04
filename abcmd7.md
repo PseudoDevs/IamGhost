@@ -1,2 +1,2 @@
-Last updated: 2024-04-04 19:33:11
-Random Quote: The Night's Watch is a sworn brotherhood.  We have no families.  None of us will ever father sons.  Our wife is duty.  Our mistress is honor.  -  Benjen Stark
+Last updated: 2024-04-04 19:33:44
+Random Quote: There's kids playing hockey in the back. It's like you want us to make fun of you! - Barney Stinson
