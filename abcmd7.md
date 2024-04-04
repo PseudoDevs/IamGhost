@@ -1,2 +1,2 @@
-Last updated: 2024-04-04 19:45:13
-Random Quote: Marshall: "The broken windows?"Lily: "We had to make it look realistic."Marshall: "But why did you break two of them?"Robin: "It looked like fun when she did it, so I wanted to try."Marshall: "I can't believe this whole time it was you guys; I've been blaming Really Tan Dancing Leotard guy." - Marshall Eriksen
+Last updated: 2024-04-04 19:45:45
+Random Quote: Money is not peace of mind. Money is not happiness. Money is, at its essence, that measure of a man's choices. - Marty Byrde
