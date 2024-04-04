@@ -1,2 +1,2 @@
-Last updated: 2024-04-04 19:18:37
-Random Quote: I'm sorry, can you repeat that? I don't speak "I-never-get-laid". - Barney Stinson
+Last updated: 2024-04-04 19:19:10
+Random Quote: The common people pray for rain, healthy children, and a summer that never ends.  It is no matter to them if the high lords play their game of thrones, so long as they are left in peace.  They never are.  -  Jorah Mormont
