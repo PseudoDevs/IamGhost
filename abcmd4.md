@@ -1,2 +1,2 @@
-Last updated: 2024-04-04 19:22:32
-Random Quote: What do you think a knight is for, girl?  You think it's all taking favors from ladies and looking fine in gold plate?  Knights are for killing.  I killed my first man at twelve.  I've lost count of how many I've killed since then.  High lords with old names, fat rich men dressed in velvet, knights puffed up like bladders with their honors, yes, and women and children too... they're all meat, and I'm the butcher.  -  Sandor Clegane
+Last updated: 2024-04-04 19:23:05
+Random Quote: If we're together long enough I hope that one day you see yourself like I do. - Kevin
