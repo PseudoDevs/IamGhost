@@ -1,2 +1,2 @@
-Last updated: 2024-04-04 19:55:27
-Random Quote: Ran: "We were all young, tryin' to make a name for ourselves. But runnin' with a Mandalorian, that brought us some reputation."Mayfeld: "Oh, yeah? What did he get out of it?"Ran: "I asked him that one time. You remember what you said, Mando? Target Practice." - Din Djarin
+Last updated: 2024-04-04 19:56:00
+Random Quote: The Boltons have always been as cruel as they are cunning, but this one seems a beast in human skin.  -  Robett Glover
