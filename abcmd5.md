@@ -1,2 +1,2 @@
-Last updated: 2024-04-04 19:58:44
-Random Quote: Some battles are won with swords and spears, others with quills and ravens.  -  Tywin Lannister
+Last updated: 2024-04-04 19:59:17
+Random Quote: What the hell is the matter with you? You tryin' out for the retard Olympics? - George 'Pornstache' Mendez
