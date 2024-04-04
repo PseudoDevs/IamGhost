@@ -1,2 +1,2 @@
-Last updated: 2024-04-04 19:14:48
-Random Quote: Demons made of snow and ice and cold.  The ancient enemy.  The only enemy that matters.  -  Stannis Baratheon
+Last updated: 2024-04-04 19:15:21
+Random Quote: Ted: "When you leave someone at the altar, you always leave a note. It's common courtesy."Victoria: "I think common courtesy went out the window when I did." - Victoria
