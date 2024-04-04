@@ -1,2 +1,2 @@
-Last updated: 2024-04-04 19:47:31
-Random Quote: One life, one choice, one moment can destroy the entire universe. - The Watcher
+Last updated: 2024-04-04 19:48:04
+Random Quote: When you date someone, it's like you're taking one long course in who that person is and then, when you break up, all that stuff becomes useless. It's the emotional equivalent of an English degree... - Ted Mosby
