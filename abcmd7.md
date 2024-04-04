@@ -1,2 +1,2 @@
-Last updated: 2024-04-04 20:27:00
-Random Quote: These days, even women go to war. I mean, when you finally get older, there's not gonna be that kind of discrimination like we got now. - Seong Gi-hun
+Last updated: 2024-04-04 20:27:33
+Random Quote: They shall come day and night to see the wonder that has been born again into the world, and when they see they shall lust.  For dragons are fire made flesh, and fire is power.  -  Quaithe
