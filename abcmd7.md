@@ -1,3 +1,2 @@
-Last updated: 2024-04-04 19:34:49
-Random Quote: Robin: "I can't believe my great grandparents still do that."
-Barney: "And I never imagined a walker being used for anything other than walking." - Barney Stinson
+Last updated: 2024-04-04 19:35:22
+Random Quote: Every Halloween I bring a spare costume. In case I strike out with the hottest girl at the party. That way I have a second chance to make a first impression. - Barney Stinson
