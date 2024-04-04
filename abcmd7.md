@@ -1,2 +1,2 @@
-Last updated: 2024-04-04 20:20:55
-Random Quote: To be a scientist is to be naive. - Valery Legasov
+Last updated: 2024-04-04 20:21:28
+Random Quote: I dreamed of the man who came today, the one they call Reek.  You and your brother lay dead at his feet, and he was skinning off your faces with a long red blade.  -  Jojen Reed
