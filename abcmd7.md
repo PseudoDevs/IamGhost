@@ -1,2 +1,2 @@
-Last updated: 2024-04-04 20:02:12
-Random Quote: Career has been trouncing romance for years. It's like the Globetrotters versus the Generals: Career's sinking hook shots from half court, romance is just a bunch of slow white guys, who couldn't make it in the Italian league. - Ted Mosby
+Last updated: 2024-04-04 20:02:45
+Random Quote: When you date someone, it's like you're taking one long course in who that person is and then, when you break up, all that stuff becomes useless. It's the emotional equivalent of an English degree... - Ted Mosby
