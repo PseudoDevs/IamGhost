@@ -1,2 +1,2 @@
-Last updated: 2024-04-04 19:15:32
-Random Quote: Even brave men blind themselves sometimes, when they are afraid to see.  -  Beric Dondarrian
+Last updated: 2024-04-04 19:16:05
+Random Quote: His blood ran black.  Made him my brother as much as yours.  -  Yoren of the Night's Watch
