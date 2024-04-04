@@ -1,2 +1,2 @@
-Last updated: 2024-04-04 20:22:00
-Random Quote: I can't tell the difference between my waking life and dreams. - Arthur Harrow
+Last updated: 2024-04-04 20:22:33
+Random Quote: You're Reek.  You'll always be Reek, no matter how sweet you smell.  Your nose may lie to you.  Remember your name.  Remember who you are.  -  Ramsay Bolton
