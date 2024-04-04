@@ -1,2 +1,2 @@
-Last updated: 2024-04-04 19:53:58
-Random Quote: Oh man, I am so excited that you're here! It has been forever since I have been around anyone even remotely fun![to Lily, Robin, Ted and Marshall] Huh... yes, offense! - Barney Stinson
+Last updated: 2024-04-04 19:54:32
+Random Quote: I never wanted the throne, I only ever wanted to be your equal. - Thor
