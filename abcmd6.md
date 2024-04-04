@@ -1,2 +1,2 @@
-Last updated: 2024-04-04 19:29:50
-Random Quote: Always keep your foes confused.  If they are never certain who you are or what you want, they cannot know what you are like to do next.  Sometimes the best way to baffle them is to make moves that have no purpose, or even seem to work against you.  Remember that, Sansa, when you come to play the game.  -  Petyr Baelish
+Last updated: 2024-04-04 19:30:22
+Random Quote: Robin: "This locket was my grandma's, she kept it hidden in her butt all through world war II."Lily: "What? Where was she?"Robin: "Winnipeg. Come on, Lily, that is a joke." - Robin Scherbatsky
