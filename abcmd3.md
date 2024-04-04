@@ -1,2 +1,2 @@
-Last updated: 2024-04-04 19:28:59
-Random Quote: Hey, ref, check your voicemail! I think you've missed a few calls! - Ted Mosby
+Last updated: 2024-04-04 19:29:32
+Random Quote: The Crow's Eye brought back monsters from the east... aye, and wizards too.  -  Tristifer Botley
