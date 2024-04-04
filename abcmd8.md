@@ -1,2 +1,2 @@
-Last updated: 2024-04-04 19:55:37
-Random Quote: After all, what’s more human than the fight for survival? - Tokyo
+Last updated: 2024-04-04 19:56:10
+Random Quote: The World is going to come to an end tonight. Yes think about it. End of the World, Nostradamus, Notre Dame, Fighting Irish, Irish, St. Patrick's Day. This is it Bro. Bro-calypse Now... Bro-Mageddon. - Barney Stinson
