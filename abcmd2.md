@@ -1,4 +1,2 @@
-Last updated: 2024-04-04 19:21:13
-Random Quote: It's going to be legen...
-wait for it - and I hope you're not lactose-intolerant cause the second half of that word is
-...dary! - Barney Stinson
+Last updated: 2024-04-04 19:21:46
+Random Quote: Bulls are strong.  Bears.  I have seen my bastard fight.  He is not entirely to blame.  Reek was his tutor, the first Reek, and Reek was never trained at arms.  Ramsay is ferocious, I will grant you, but he swings that sword like a butcher hacking meat.  -  Roose Bolton
