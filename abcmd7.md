@@ -1,2 +1,5 @@
-Last updated: 2024-04-04 20:11:01
-Random Quote: Which meant for the first time in years, the world was wide open. Because kids, when a door closes... well, you know the rest. - Ted Mosby
+Last updated: 2024-04-04 20:11:33
+Random Quote: Morty: "Mom, I have a friend coming over. Is that cool?"
+Beth: "I told your sister no parties."
+Morty: "It's one friend."
+Beth: "That's a party to you." - Beth Smith
