@@ -1,2 +1,2 @@
-Last updated: 2024-04-04 19:42:06
-Random Quote: So I will only ask you once, Lord Snow.  Are you a brother of the Night's Watch, or a bastard boy who wants to play at war?  -  Jeor Mormont
+Last updated: 2024-04-04 19:42:39
+Random Quote: Things never work out the way you imagine they will. - Lucien
