@@ -1,3 +1,2 @@
-Last updated: 2024-04-04 19:32:01
-Random Quote: Summer: "Someone out there is trying to kill us."
-Rick: "Someone's always trying to kill us." - Rick Sanchez
+Last updated: 2024-04-04 19:32:34
+Random Quote: Of course, nobody I knew in East-Texas in 1989 cared about Newtonian Physics. The only Newtons they cared about were Wayne and Fig. - Sheldon Cooper
