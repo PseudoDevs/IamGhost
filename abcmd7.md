@@ -1,2 +1,3 @@
-Last updated: 2024-04-04 19:47:56
-Random Quote: The most amazing things that can happen to a human being will happen to you, if you just lower your expectations. - Phil Dunphy
+Last updated: 2024-04-04 19:48:29
+Random Quote: Tommy: "I'll have some men watch her house 'til the danger passes."
+Polly: "'Til the danger passes. That'll be the bloody day." - Polly Gray
