@@ -1,2 +1,2 @@
-Last updated: 2024-04-04 19:59:43
-Random Quote: I wouldn't lie to you. Well... that's a lie. - Rick Sanchez
+Last updated: 2024-04-04 20:00:16
+Random Quote: Godless?  Why, Aeron, I am the godliest man ever to raise sail!  You serve one god, Damphair, but I have served ten thousand.  From Ib to Asshai, when men see my sails, they pray.  -  Euron Greyjoy
