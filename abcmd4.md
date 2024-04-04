@@ -1,2 +1,2 @@
-Last updated: 2024-04-04 19:14:53
-Random Quote: My only aim is to take many lives. The more the better I feel. - 
+Last updated: 2024-04-04 19:15:26
+Random Quote: No tales were ever told of me.  Do you think I would be sitting here if it were otherwise?  Your amusements are your own, I will not chide you on that count, but you must be more discreet.  A peaceful land, a quiet people.  That has always been my rule.  Make it yours.  -  Roose Bolton
