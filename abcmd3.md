@@ -1,3 +1,2 @@
-Last updated: 2024-04-04 19:30:38
-Random Quote: Ted: "So this is what you guys do? You invite other couples over for dinner, to judge them and feel superior?"
-Lily: "Oh, grow up, Ted, that's why any couple invites anyone over ever!" - Lily Aldrin
+Last updated: 2024-04-04 19:31:11
+Random Quote: Sometimes two people in the universe who aren't meant for each other find each other. - Cal Jacobs
