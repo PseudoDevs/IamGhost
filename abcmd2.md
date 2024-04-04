@@ -1,2 +1,2 @@
-Last updated: 2024-04-04 20:30:48
-Random Quote: Don't knock long-distance relationships, I really think they can work. I'm juggling four right now. There's Lisa in Madrid, there's Erica in Tokyo, there's Laura in Denmark. And Kelly on 34th street. The last thinks I'm a humble sheep-shearer from Kelani. - Barney Stinson
+Last updated: 2024-04-04 20:31:21
+Random Quote: When I'm king in my own right, I'm going to outlaw beets.  -  Tommen Baratheon
