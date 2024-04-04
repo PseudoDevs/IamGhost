@@ -1,2 +1,2 @@
-Last updated: 2024-04-04 19:51:14
-Random Quote: Mitchell: "We didn't just go to Vietnam for pleasure. We kinda have some big news."Jay: "Oh God, if Cam comes out there with boobs, I'm leaving." - Jay Pritchett
+Last updated: 2024-04-04 19:51:47
+Random Quote: It was the white cloak that soiled me, not the other way around.  -  Jaime Lannister
