@@ -1,2 +1,2 @@
-Last updated: 2024-04-04 20:09:55
-Random Quote: The singers of the forest had no books.  No ink, no parchment, no written language.  Instead they had the trees, and the weirwoods above all.  When they died, they went into the wood, into leaf and limb and root, and the trees remembered.  All their songs and spells, their histories and prayers, everything they knew about this world.  Maesters will tell you that the weirwoods are sacred to the old gods.  The singers believe they are the old gods.  When singers die they become part of that godhood.  -  Jojen Reed
+Last updated: 2024-04-04 20:10:28
+Random Quote: Cum is kind of like a penis having a sneeze. Ugh, that means when you swallow someone's cum, it's like eating their snot. - Aimee Gibbs
