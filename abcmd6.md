@@ -1,2 +1,5 @@
-Last updated: 2024-04-04 19:25:59
-Random Quote: I stayed up all night wondering where the sun went. Then it dawned on me. - Will Livingston
+Last updated: 2024-04-04 19:26:32
+Random Quote: Abby: "Do we have to go back this way?"
+Owen: "Consider it an opportunity to work on your fears."
+Abby: "How about I work my foot up your ass?"
+Owen: "Abby, stop flirting!" - Joel Miller
