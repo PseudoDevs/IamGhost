@@ -1,3 +1,2 @@
-Last updated: 2024-04-04 19:26:45
-Random Quote: Doctor: "Hypothetically speaking, every new father-to-be get nervous."
-Vision: "Well, I have nerves of steel, so there goes your theory, Mr. Doctor." - Vision
+Last updated: 2024-04-04 19:27:17
+Random Quote: God. It's me, Barney. What up? I know we don't talk much, but I know a lot of girls call out your name because of me. Awesome! - Barney Stinson
