@@ -1,3 +1,2 @@
-Last updated: 2024-04-04 19:35:40
-Random Quote: "Crutch down and bend over a little bit."
-Barney: "Wow, It took five shots of tequila to have you in that position." - Barney Stinson
+Last updated: 2024-04-04 19:36:13
+Random Quote: Think of me as Yoda - only, instead of being little and green, I wear suits and I'm awesome. I'm your bro. I'm Broda. - Barney Stinson
