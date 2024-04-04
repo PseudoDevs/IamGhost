@@ -1,2 +1,2 @@
-Last updated: 2024-04-04 20:29:53
-Random Quote: Because sometimes, even when you know how something's gonna end, that doesn't mean you can't enjoy the ride. - Ted Mosby
+Last updated: 2024-04-04 20:30:26
+Random Quote: Everyone wants something, Alayne.  And when you know what a man wants you know who he is, and how to move him.  -  Petyr Baelish
