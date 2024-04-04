@@ -1,2 +1,2 @@
-Last updated: 2024-04-04 20:27:00
-Random Quote: Elia Martell, Princess of Dorne.  You raped her!  You murdered her!  You killed her children!  -  Oberyn Martell
+Last updated: 2024-04-04 20:27:32
+Random Quote: You are the love of my life. Everything I have and everything I am is yours. Forever. - Barney Stinson
