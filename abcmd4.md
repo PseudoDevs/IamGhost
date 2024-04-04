@@ -1,2 +1,2 @@
-Last updated: 2024-04-04 19:20:21
-Random Quote: You, Vision, are the piece of the Mind Stone that lives in me. You are a body of wires and blood and bone that I created. You are my sadness and my hope. But mostly, you're my love. - Wanda Maximoff
+Last updated: 2024-04-04 19:20:54
+Random Quote: It is for my prince to command, for Hotah to obey.  -  Areo Hotah
