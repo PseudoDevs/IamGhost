@@ -1,2 +1,4 @@
-Last updated: 2024-04-04 20:11:04
-Random Quote: Ted, your throwing your life away. This girl is blinding you with her shiny hair and her boob-shaped boobs! - Barney Stinson
+Last updated: 2024-04-04 20:11:37
+Random Quote: Rick: "Wait a minute! Is that Mountain Dew in my quantum-transport-solution?"
+Morty: "I saw you were marking the level so I had to top it off."
+Rick: "Top it off? Do you know how dangerously toxic this stuff is? And you added it to my portal fluid?" - Rick Sanchez
