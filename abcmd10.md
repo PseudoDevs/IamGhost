@@ -1,2 +1,4 @@
-Last updated: 2024-04-04 20:08:19
-Random Quote: Then odds are he'll be near a settlement, probably close to another city out there. Ain't too many of 'em in Wyoming. - Joel Miller
+Last updated: 2024-04-04 20:08:52
+Random Quote: Rick: "Guests are fans, Morty, which we are not. We'd like professional badges."
+"Do you have a crew?"
+Rick: "Yes. He's a getaway driver with Asperger's and my butt is a demolitions expert." - Rick Sanchez
