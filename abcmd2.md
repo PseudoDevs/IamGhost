@@ -1,2 +1,2 @@
-Last updated: 2024-04-04 20:12:40
-Random Quote: These old knights are more cunning than you think, or they would never have lived to see their first grey hair.  -  Dagmer Cleftjaw
+Last updated: 2024-04-04 20:13:13
+Random Quote: Ted: "I hate how you're always right."Lily: "It's my best, and most annoying, trait." - Lily Aldrin
