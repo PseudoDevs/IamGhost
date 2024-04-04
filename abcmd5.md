@@ -1,3 +1,2 @@
-Last updated: 2024-04-04 19:48:54
-Random Quote: Morty: "Rick, can we not leave without my sister?"
-Rick: "Ugh. You have infinite sisters, Morty. Not that I want to spend the rest of my day looking for another one. Sum-Sum, let's go! Grandpa's concern for your safety is fleeting." - Rick Sanchez
+Last updated: 2024-04-04 19:49:27
+Random Quote: I did it for me. I liked it. I was good at it. And... I was really... I was alive. - Walter White
