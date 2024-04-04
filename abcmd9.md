@@ -1,2 +1,2 @@
-Last updated: 2024-04-04 20:14:55
-Random Quote: In the end, a gentle heart may be worth more than pride or valor.  -  Doran Martell
+Last updated: 2024-04-04 20:15:27
+Random Quote: I'm not him, I'm not the turncloak, he died at Winterfell.  My name is Reek.  It rhymes with freak.  -  Reek
