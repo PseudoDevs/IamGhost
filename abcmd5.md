@@ -1,3 +1,2 @@
-Last updated: 2024-04-04 19:35:45
-Random Quote: Morty: "You're really this pissed about my mum making sure I'm okay with our adventures?"
-Rick: "What's next, Morty? What if I want you to jump off the Empire State Building? I have to ask?" - Rick Sanchez
+Last updated: 2024-04-04 19:36:18
+Random Quote: What did the mermaid wear to her math class? An algae bra! - Will Livingston
