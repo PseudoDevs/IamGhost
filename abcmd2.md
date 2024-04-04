@@ -1,2 +1,2 @@
-Last updated: 2024-04-04 20:00:01
-Random Quote: If you die before you say her name, Set, I will hunt you through the seven hells.  -  Oberyn Martell
+Last updated: 2024-04-04 20:01:07
+Random Quote: Put me on your magical boat, man, and sail me down your chocolaty river of meth! - Badger
