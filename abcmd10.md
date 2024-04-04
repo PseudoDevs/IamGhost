@@ -1,2 +1,2 @@
-Last updated: 2024-04-04 19:46:26
-Random Quote: Talkin' to you was one of the best parts of my whole year. - Fezco
+Last updated: 2024-04-04 19:46:59
+Random Quote: I'm honest.  It's the world that's awful.  -  Sandor Clegane
