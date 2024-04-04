@@ -1,4 +1,2 @@
-Last updated: 2024-04-04 19:12:31
-Random Quote: Morticia: "Please excuse Wednesday. She's allergic to color."
-Enid: "Wow, what happens to you?"
-Wednesday: "I break out into hives, and then the flesh peels off my bones." - Wednesday Addams
+Last updated: 2024-04-04 19:13:04
+Random Quote: I count no day as lived unless I have loved a woman, slain a foeman, and eaten a fine meal.  -  Daario Naharis
