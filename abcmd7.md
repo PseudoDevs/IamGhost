@@ -1,2 +1,3 @@
-Last updated: 2024-04-04 19:43:01
-Random Quote: Lord Pea Pod.  If you were a man, I would kill you for that, but my sword is made of too fine a steel to besmirch with craven's blood.  Aye, men are dying.  More will die before we see Winterfell.  What of it?  This is war.  Men die in war.  That is as it should be.  As it has always been.  -  Hugo Wull
+Last updated: 2024-04-04 19:43:34
+Random Quote: Joel: "You got any advice on the best way west?"
+Man: "Yeah. Go east." - Ellie Williams
