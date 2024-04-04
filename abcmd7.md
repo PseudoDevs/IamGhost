@@ -1,2 +1,2 @@
-Last updated: 2024-04-04 19:35:22
-Random Quote: Every Halloween I bring a spare costume. In case I strike out with the hottest girl at the party. That way I have a second chance to make a first impression. - Barney Stinson
+Last updated: 2024-04-04 19:35:55
+Random Quote: Because there's no way watching it can be more fun than playing it yourself. - Oh Il-nam
