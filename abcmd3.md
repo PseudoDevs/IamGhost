@@ -1,2 +1,2 @@
-Last updated: 2024-04-04 19:32:16
-Random Quote: Dear, in the end, love is what makes us see life in another color, and lately, you have only seen everything black. - Mariví Fuentes
+Last updated: 2024-04-04 19:32:48
+Random Quote: Power tastes best when sweetened by courtesy; you had best learn that if you ever hope to rule.  -  Roose Bolton
