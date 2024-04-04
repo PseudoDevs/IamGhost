@@ -1,3 +1,2 @@
-Last updated: 2024-04-04 20:15:24
-Random Quote: This woman has a hold on my heart that I could not break if I wanted to, and there have been times that I wanted to.
-It has been overwhelming and humbling and even painful at times, but I could not stop loving her any more than I could stop breathing. - Barney Stinson
+Last updated: 2024-04-04 20:15:57
+Random Quote: In my body, where the shame gland should be, there is a second awesome gland. True story! - Barney Stinson
