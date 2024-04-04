@@ -1,2 +1,2 @@
-Last updated: 2024-04-04 19:20:27
-Random Quote: The Freys slashed her throat from ear to ear.  When we found her by the river she was three days dead.  Harwin begged me to give her the kiss of life, but it had been too long.  I would not do it, so Lord Beric put his lips to hers instead, and the flame of life passed from him to her.  And... she rose.  May the Lord of Light protect us.  She rose.  -  Thoros of Myr
+Last updated: 2024-04-04 19:20:59
+Random Quote: My order serves the realm, not the ruler.  Once I counseled King Aerys as loyally as I council King Robert now, so I bear this girl child of his no ill will.  Yet I ask you this, should war come again, how many soldiers will die?  How many towns will burn?  How many children will be ripped from their mothers to perish on the end of a spear?  Is it not wiser, even kinder, that Daenerys Targaryen should die now so that tens of thousands might live?  -  Grand Maester Pycelle
