@@ -1,3 +1,2 @@
-Last updated: 2024-04-04 20:13:12
-Random Quote: Tommy: "I'll have some men watch her house 'til the danger passes."
-Polly: "'Til the danger passes. That'll be the bloody day." - Polly Gray
+Last updated: 2024-04-04 20:13:45
+Random Quote: Robin: "I wouldn't go to Cleveland for 125 million dollars, paid over six years."Ted: "Still with the LeBron jokes? Where's that ring he's supposed to have by now?" - Robin Scherbatsky
