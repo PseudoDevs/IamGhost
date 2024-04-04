@@ -1,3 +1,2 @@
-Last updated: 2024-04-04 20:03:51
-Random Quote: Weems: "No doubt you'll find something that tickles your fancy."
-Wednesday: "The last person who tickled me lost a finger." - Wednesday Addams
+Last updated: 2024-04-04 20:04:25
+Random Quote: Those men sitting in Mexico City might be done with me, but I'm not done with them. - Miguel Angel Felix Gallardo
