@@ -1,2 +1,2 @@
-Last updated: 2024-04-04 19:53:21
-Random Quote: Lord Wyman is not the only one who lost kin at your Red Wedding, Frey.  Do you imagine Whoresbane loves you any better?  If you did not hold the Greatjon, he would pull out your entrails and make you eat them, as Lady Hornwood ate her fingers.  Flints, Cerwyns, Tallharts, Slates... they all had men with the Young Wolf.  The North remembers, Frey.  -  Barbrey Dustin
+Last updated: 2024-04-04 19:53:55
+Random Quote: Did you know that if gravity were slightly more powerful, the universe would collapse into a ball? - Sheldon
