@@ -1,2 +1,2 @@
-Last updated: 2024-04-04 19:44:39
-Random Quote: Fine I'll fill her in and I am so angry I am not even goin' to make a joke about "filling her in"... which I did three times last night. Self-five! - Barney Stinson
+Last updated: 2024-04-04 19:45:12
+Random Quote: If you waste time trying to get people to love you, you'll end up the most popular dead man in town.  -  Bronn
