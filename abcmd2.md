@@ -1,4 +1,2 @@
-Last updated: 2024-04-04 19:56:10
-Random Quote: Ted: "It's freezing out there. Where's your coat?"
-Robin: "Ted, I'm Canadian. I don't need a coat. This kind of weather is nothing for me."
-Marshall: "Yeah. This is like a spring day back in Minnesota." - Marshall Eriksen
+Last updated: 2024-04-04 19:56:43
+Random Quote: Serve, Obey, Protect.  Simple vows for a simple man.  -  Areo Hotah

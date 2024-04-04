@@ -1,2 +1,2 @@
-Last updated: 2024-04-04 19:55:37
-Random Quote: I learned form Set Arthur Dayne, the Sword of the Morning, who could have slain all five of you with his left hand while he was taking a piss with the right.  -  Jaime Lannister
+Last updated: 2024-04-04 19:56:43
+Random Quote: When treating with liars, even an honest man must lie.  -  Wyman Manderly
