@@ -1,2 +1,2 @@
-Last updated: 2024-04-04 19:19:43
-Random Quote: I understand that if any more words come pouring out of your cunt mouth I'm going to have to eat every fucking chicken in this room.  -  Sandor Clegane
+Last updated: 2024-04-04 19:20:16
+Random Quote: In the end, love is a good reason for everything to fall apart. - Tokyo
