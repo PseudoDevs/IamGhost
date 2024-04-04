@@ -1,2 +1,3 @@
-Last updated: 2024-04-04 19:59:17
-Random Quote: What the hell is the matter with you? You tryin' out for the retard Olympics? - George 'Pornstache' Mendez
+Last updated: 2024-04-04 19:59:49
+Random Quote: Kids, you can't talk yourself into falling in love. It doesn't take days of deliberation. When it's real, you know pretty quickly and with absolute certainty.
+I had forgotten that, but I was about to be reminded... - Ted Mosby
