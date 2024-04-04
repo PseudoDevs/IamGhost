@@ -1,2 +1,2 @@
-Last updated: 2024-04-04 20:13:46
-Random Quote: Marshall: "Open your eyes, ref! That's not a pregnant lady..."Ted: "...it's a basketball under his shirt. Blow the freakin' whistle!" - Ted Mosby
+Last updated: 2024-04-04 20:14:19
+Random Quote: Bronn was no knight, that was true.  Bronn was a battle - hardened killer. 
