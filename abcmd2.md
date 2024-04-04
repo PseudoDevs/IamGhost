@@ -1,2 +1,2 @@
-Last updated: 2024-04-04 20:14:19
-Random Quote: Winter will never come for the likes of us.  Should we die in battle, they will surely sing of us, and it's always summer in the songs.  In the songs all knights are gallant, all maids are beautiful, and the sun is always shining.  -  Brienne of Tarth
+Last updated: 2024-04-04 20:14:52
+Random Quote: Always look people in the eye. Even if they're blind. Just say, 'I am looking you in the eye.' - Phil Dunphy
