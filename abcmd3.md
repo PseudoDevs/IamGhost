@@ -1,3 +1,2 @@
-Last updated: 2024-04-04 20:10:31
-Random Quote: Ted: "So this is what you guys do? You invite other couples over for dinner, to judge them and feel superior?"
-Lily: "Oh, grow up, Ted, that's why any couple invites anyone over ever!" - Lily Aldrin
+Last updated: 2024-04-04 20:11:04
+Random Quote: Ted, your throwing your life away. This girl is blinding you with her shiny hair and her boob-shaped boobs! - Barney Stinson
