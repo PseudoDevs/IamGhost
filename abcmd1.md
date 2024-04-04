@@ -1,2 +1,2 @@
-Last updated: 2024-04-04 19:52:53
-Random Quote: When you hit rock bottom, you still have a way to go until the abyss. - Tokyo
+Last updated: 2024-04-04 19:53:26
+Random Quote: We all must choose.  Man or woman, young or old, lord or peasant, our choices are the same.  We choose light or we choose darkness.  -  Melisandre
