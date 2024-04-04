@@ -1,2 +1,2 @@
-Last updated: 2024-04-04 19:38:42
-Random Quote: The truth can free you, if you let it. - Hannah Baker
+Last updated: 2024-04-04 19:39:48
+Random Quote: Aye, and from what I saw of Joffrey, you are as unfit a mother as you are a ruler.  -  Kevan Lannister
