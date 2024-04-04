@@ -1,2 +1,2 @@
-Last updated: 2024-04-04 19:26:40
-Random Quote: Journey to face the unknown and ponder the question, "What if...?" - The Watcher
+Last updated: 2024-04-04 19:27:13
+Random Quote: Knights?  Dondarrion's a knight, but the rest of you are the sorriest lot of outlaws and broken men I've ever seen.  -  Sandor Clegane
