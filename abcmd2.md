@@ -1,2 +1,2 @@
-Last updated: 2024-04-04 19:49:35
-Random Quote: Yes, I'm in a rotten mood. No, I don't want to talk about it. Yes, this has booze in it. No, it's not my first. - Lily Aldrin
+Last updated: 2024-04-04 19:50:41
+Random Quote: The more you move up in the world, the more enemies you make. - Rue Bennett
