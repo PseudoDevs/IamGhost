@@ -1,4 +1,3 @@
-Last updated: 2024-04-04 20:14:52
-Random Quote: Lorna Morello: "I need to start tightening up. You're making me feel like a cave."
-Nicky Nichols: "Baby, it's a c-nt, it stretches!"
-Lorna Morello: "Yeah, sometimes I feel like you're trying to climb inside my womb." - Lorna Morello
+Last updated: 2024-04-04 20:15:24
+Random Quote: This woman has a hold on my heart that I could not break if I wanted to, and there have been times that I wanted to.
+It has been overwhelming and humbling and even painful at times, but I could not stop loving her any more than I could stop breathing. - Barney Stinson
