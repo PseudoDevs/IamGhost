@@ -1,2 +1,2 @@
-Last updated: 2024-04-04 20:10:52
-Random Quote: Back boobs! The visual stimulation of missionary meets the emotional detachment of doggy style... patent pending. - Barney Stinson
+Last updated: 2024-04-04 20:11:25
+Random Quote: Everyone wants something, Alayne.  And when you know what a man wants you know who he is, and how to move him.  -  Petyr Baelish
