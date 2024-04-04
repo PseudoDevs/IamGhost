@@ -1,4 +1,2 @@
-Last updated: 2024-04-04 19:56:26
-Random Quote: Ellie: "Can I have a gun?"
-Joel: "Absolutely not."
-Ellie: "Okay, Jesus. Fine. I'll have to throw a f-ckin' sandwich at them." - Ellie Williams
+Last updated: 2024-04-04 19:56:59
+Random Quote: I can't believe I'm taking sexual advice from Ted Mosby.That's like taking fashion advice from... well, Ted Mosby. - Barney Stinson
