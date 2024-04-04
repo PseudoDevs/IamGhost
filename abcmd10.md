@@ -1,2 +1,2 @@
-Last updated: 2024-04-04 19:58:28
-Random Quote: You want to rule?  This is what ruling is; lying on a bed of weeds, ripping them out by the root, one by one, before they strangle you in your sleep.  -  Cersei Lannister
+Last updated: 2024-04-04 19:59:00
+Random Quote: I'm growing a child in my belly, a child that just developed ears, and it's a very thin sweater. So, please, if you must tell your story, just make it cheerful. - Lily Aldrin
