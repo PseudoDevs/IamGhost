@@ -1,2 +1,2 @@
-Last updated: 2024-04-04 19:09:48
-Random Quote: In this world, a man must learn to seize whatever gifts the gods chose to send him.  That was a lesson I learned at some cost.  -  The Tattered Prince
+Last updated: 2024-04-04 19:10:20
+Random Quote: I'm only nine years oldMost evil doesn't start till puberty. - Sheldon
