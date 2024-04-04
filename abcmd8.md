@@ -1,2 +1,2 @@
-Last updated: 2024-04-04 19:30:30
-Random Quote: You need to stop focusing on the darkness behind you. The past is the past. Nothing can change what we’ve done. - Walter White
+Last updated: 2024-04-04 19:31:03
+Random Quote: Here's the secret, kids: none of us can vow to be perfect. In the end, all we can do is promise to love each other with everything we've got. Because love's the best thing we do. - Ted Mosby
