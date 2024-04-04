@@ -1,2 +1,2 @@
-Last updated: 2024-04-04 19:23:57
-Random Quote: Ted, you know who's a million times hotter than the hottest girl I've ever slept with? Her okay-looking friend I haven't seen naked. Why? Because new is always better. - Barney Stinson
+Last updated: 2024-04-04 19:24:29
+Random Quote: The Citadel took my chain, but they could not take my knowledge.  -  Qyburn
