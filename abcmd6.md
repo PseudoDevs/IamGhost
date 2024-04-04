@@ -1,2 +1,2 @@
-Last updated: 2024-04-04 19:15:04
-Random Quote: They get in your head. People tell lies about you, and other people believe them. And it gets to the point where the lies might as well be the truth. - Tyler Down
+Last updated: 2024-04-04 19:15:37
+Random Quote: I did it for me. I liked it. I was good at it. And... I was really... I was alive. - Walter White
