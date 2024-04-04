@@ -1,3 +1,2 @@
-Last updated: 2024-04-04 20:02:45
-Random Quote: Jerry: "Why Florida?"
-Cat: "Because they don't ask questions. They play Volleyball, they party and they have fun." - Rick and Morty
+Last updated: 2024-04-04 20:03:18
+Random Quote: I'm only nine years oldMost evil doesn't start till puberty. - Sheldon
