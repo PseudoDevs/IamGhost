@@ -1,2 +1,2 @@
-Last updated: 2024-04-04 19:48:47
-Random Quote: The Captain: "Guess it's just you, me, and six hours in frigid international waters."Ted: "Or we could stay in dry land, hang out with some witnesses?" - Ted Mosby
+Last updated: 2024-04-04 19:49:20
+Random Quote: I only have one rule. For every three 10's you bang, throw a bone to a 5. They're grateful and hard working and let's face it, sometimes you just want to lay there. - Barney Stinson
