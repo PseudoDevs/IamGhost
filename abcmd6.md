@@ -1,2 +1,2 @@
-Last updated: 2024-04-04 20:02:07
-Random Quote: Look, I found a rock that looks like a penis with one ball. It's my Lance Armstrong rock. - Piper Chapman
+Last updated: 2024-04-04 20:02:40
+Random Quote: You think you're the only one he whispers secrets to?  He gives each of us just enough to convince us that we'd be helpless without him.  -  Cersei Lannister
