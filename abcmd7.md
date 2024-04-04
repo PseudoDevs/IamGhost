@@ -1,2 +1,2 @@
-Last updated: 2024-04-04 20:12:06
-Random Quote: When I look at something, I don't see it for what it is, I see it for what it could be. When I look at something, I see how it ends. - Miguel Angel Felix Gallardo
+Last updated: 2024-04-04 20:12:39
+Random Quote: If you think this has a happy ending, you haven't been paying attention.  -  Ramsay Bolton
