@@ -1,2 +1,2 @@
-Last updated: 2024-04-04 20:19:16
-Random Quote: Marshall: "Let the dinnertainment begin!"Barney: "That reminds me there's this other restaurant we should try sometime. What they do is, they cook you a meal, in a little room called a 'kitchen'." - Barney Stinson
+Last updated: 2024-04-04 20:19:49
+Random Quote: Old gods or new, it makes no matter, no man is so accursed as the kinslayer.  -  Rickard Karstark
