@@ -1,2 +1,2 @@
-Last updated: 2024-04-04 19:48:04
-Random Quote: When you date someone, it's like you're taking one long course in who that person is and then, when you break up, all that stuff becomes useless. It's the emotional equivalent of an English degree... - Ted Mosby
+Last updated: 2024-04-04 19:48:37
+Random Quote: Kids, sometimes the universe sends exactly what you ask for. Other times... it sends Lily's dad. - Ted Mosby
