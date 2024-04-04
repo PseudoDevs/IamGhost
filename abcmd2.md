@@ -1,2 +1,3 @@
-Last updated: 2024-04-04 20:13:13
-Random Quote: Ted: "I hate how you're always right."Lily: "It's my best, and most annoying, trait." - Lily Aldrin
+Last updated: 2024-04-04 20:13:46
+Random Quote: Marylin Thornhill: "I trust Enid has given you the old Nevermore welcome."
+Wednesday: "She's been smothering me with hospitality. I hope to return the favor... in her sleep." - Wednesday Addams
