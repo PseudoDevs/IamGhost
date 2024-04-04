@@ -1,2 +1,2 @@
-Last updated: 2024-04-04 20:04:18
-Random Quote: Ted: "Victoria was great."Robin: "Exactly, and you threw it all away to chase after some hot piece of ass."Ted: "You mean you?"Robin: "Thank you!" - Robin Scherbatsky
+Last updated: 2024-04-04 20:04:51
+Random Quote: Listen, Morty. I hate to break it to you, but what people call 'Love' is just a chemical reaction that compells animals to breed. It hits hard, Morty, then it slowly fades. - Rick Sanchez
