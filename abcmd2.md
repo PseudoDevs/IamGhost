@@ -1,2 +1,2 @@
-Last updated: 2024-04-04 20:19:16
-Random Quote: You're like Hitler! But even Hitler cared about Germany or something. - Morty Smith
+Last updated: 2024-04-04 20:19:49
+Random Quote: Penrose chose to die rather than give him up.  It still angers me.  How could he think I would hurt the boy?  I chose Robert, did I not?  When that hard day came, I chose blood over honor.  -  Stannis Baratheon
