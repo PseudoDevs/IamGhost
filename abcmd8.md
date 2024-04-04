@@ -1,2 +1,2 @@
-Last updated: 2024-04-04 19:48:29
-Random Quote: Turns out, when you projectile vomit on skates, you roll right into the spray. - Ted Mosby
+Last updated: 2024-04-04 19:49:02
+Random Quote: Think of me as Yoda - only, instead of being little and green, I wear suits and I'm awesome. I'm your bro. I'm Broda. - Barney Stinson
