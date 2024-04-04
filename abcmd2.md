@@ -1,2 +1,2 @@
-Last updated: 2024-04-04 19:26:08
-Random Quote: Free folk don't follow names, or little cloth animals sewn on a tunic.  They won't dance for coins, they don't care how you style yourself or what that chain of office means or who your grandsire was.  They follow strength.  They follow the man.  -  Mance Rayder
+Last updated: 2024-04-04 19:26:40
+Random Quote: Journey to face the unknown and ponder the question, "What if...?" - The Watcher
