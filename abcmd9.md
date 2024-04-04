@@ -1,2 +1,2 @@
-Last updated: 2024-04-04 20:05:35
-Random Quote: Men call me Darkstar, and I am of the night.  -  Gerold Dayne
+Last updated: 2024-04-04 20:06:08
+Random Quote: When treating with liars, even an honest man must lie.  -  Wyman Manderly
