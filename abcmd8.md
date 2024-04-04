@@ -1,2 +1,2 @@
-Last updated: 2024-04-04 19:17:24
-Random Quote: Barney: "He's the awesomest, most best-lookingest, greatest guy ever!"Lily: "He's exactly like Barney."Barney: "That's what I just said." - Barney Stinson
+Last updated: 2024-04-04 19:17:57
+Random Quote: The plan was to kill you and take the kid. But after what happened last night, I couldn't go through with it. - Greef Karga
