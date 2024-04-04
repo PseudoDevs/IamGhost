@@ -1,2 +1,2 @@
-Last updated: 2024-04-04 19:30:22
-Random Quote: Robin: "This locket was my grandma's, she kept it hidden in her butt all through world war II."Lily: "What? Where was she?"Robin: "Winnipeg. Come on, Lily, that is a joke." - Robin Scherbatsky
+Last updated: 2024-04-04 19:30:55
+Random Quote: They'll bend the knee or I'll destroy them.  -  Stannis Baratheon
