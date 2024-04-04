@@ -1,2 +1,2 @@
-Last updated: 2024-04-04 19:11:52
-Random Quote: Tick Tack. Tick Tack. - 
+Last updated: 2024-04-04 19:12:24
+Random Quote: Lord Balon's eldest brother had never given up the Old Way, even for a day.  His Silence, with its black sails and dark red hull, was infamous in every port from Ibben to Asshai, it was said.  -  Theon Greyjoy
