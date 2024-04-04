@@ -1,3 +1,2 @@
-Last updated: 2024-04-04 20:11:01
-Random Quote: Robin: "I'm drinking 'til I forget the 1999 NFC Championship?"
-Marshall: "The Vikings were two minutes away from going to the Super Bowl, when our kicker, who hadn't missed all year, shanked a field goal, and we lost in overtime. Damn!" - Marshall Eriksen
+Last updated: 2024-04-04 20:11:34
+Random Quote: Ted: "First it was too much eye-contact, then not enough - where do you look during sex?"Barney: "Into the hidden camera at future me, watching it." - Barney Stinson
