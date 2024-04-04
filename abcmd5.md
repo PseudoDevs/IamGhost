@@ -1,2 +1,2 @@
-Last updated: 2024-04-04 19:19:21
-Random Quote: Marshall: "Lily, you snooped through her stuff?"Lily: "No, it's like the first thing you see when you jimmy open her desk-drawer with the letter opener her grandfather left her, according to her diary." - Lily Aldrin
+Last updated: 2024-04-04 19:19:54
+Random Quote: They're minerals, Marie! Jesus! - Hank Schrader
