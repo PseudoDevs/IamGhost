@@ -1,2 +1,2 @@
-Last updated: 2024-04-04 20:11:04
-Random Quote: That's it. Three rules. I call 'em the 'Don't be stupid'-rules. 'Cause we're not stupid, alright? - Jim Hopper
+Last updated: 2024-04-04 20:11:37
+Random Quote: My order serves the realm, not the ruler.  Once I counseled King Aerys as loyally as I council King Robert now, so I bear this girl child of his no ill will.  Yet I ask you this, should war come again, how many soldiers will die?  How many towns will burn?  How many children will be ripped from their mothers to perish on the end of a spear?  Is it not wiser, even kinder, that Daenerys Targaryen should die now so that tens of thousands might live?  -  Grand Maester Pycelle
