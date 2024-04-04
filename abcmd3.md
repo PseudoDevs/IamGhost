@@ -1,2 +1,2 @@
-Last updated: 2024-04-04 19:21:21
-Random Quote: Lucas: "Mike's not gonna like it."Dustin: "Last time I checked our party is not a dictatorship, it's a democracy." - Dustin Henderson
+Last updated: 2024-04-04 19:21:54
+Random Quote: The beautiful thing about getting high is that time ceases to exist. - Rue Bennett
