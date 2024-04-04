@@ -1,2 +1,2 @@
-Last updated: 2024-04-04 20:28:38
-Random Quote: Robert wanted smiles and cheers, always, so he went where he found them, to his friends and his whores.  Robert wanted to be loved.  My brother Tyrion has the same disease.  -  Cersei Lannister
+Last updated: 2024-04-04 20:29:11
+Random Quote: I will go to my grave thinking of my brother's peach.  -  Stannis Baratheon
