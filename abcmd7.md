@@ -1,2 +1,2 @@
-Last updated: 2024-04-04 20:00:34
-Random Quote: You can have all the intelligence in the world, but if nobody's there to act on it, what's it worth? Nothing. - Steve Murphy
+Last updated: 2024-04-04 20:01:07
+Random Quote: The brain drives our thoughts, our behavior. It holds all of the secrets of the universe. There's a whole hidden world inside each of us which only needs to be deciphered. - Maura Franklin
