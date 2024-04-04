@@ -1,2 +1,2 @@
-Last updated: 2024-04-04 19:53:42
-Random Quote: I don’t need a calculator, dad. I am one. - Sheldon
+Last updated: 2024-04-04 19:54:15
+Random Quote: Some battles are won with swords and spears, others with quills and ravens.  -  Tywin Lannister
