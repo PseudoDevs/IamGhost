@@ -1,4 +1,2 @@
-Last updated: 2024-04-04 19:19:26
-Random Quote: Joel: "Long way or short way?"
-Tess: "I mean, it's the long way or the 'we're fuckin' dead' way."
-Ellie: "Well, I vote long way just based on that limited information." - Ellie Williams
+Last updated: 2024-04-04 19:19:59
+Random Quote: Our secrecy is our survival. our survival is our strength. - The Armorer
