@@ -1,2 +1,2 @@
-Last updated: 2024-04-04 20:04:25
-Random Quote: I know that new situations can be intimidating. You look around, and it's all scary and different. But meeting them head-on, charging right into them like a bull, that's how we grow as people. - Rick Sanchez
+Last updated: 2024-04-04 20:05:31
+Random Quote: Phil: "Little heads up - there's no way I'm not crying at this wedding."Claire: "Phil, you cried on the way here."Phil: "I was on the brink already. I watched 'Dirty Dancing' before we left." - Phil Dunphy
