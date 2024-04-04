@@ -1,2 +1,2 @@
-Last updated: 2024-04-04 20:14:54
-Random Quote: You grew up with actors.  You learned their craft and you learned it well.  I grew up with soldiers.  I learned how to die a long time ago.  -  Eddard Stark
+Last updated: 2024-04-04 20:15:27
+Random Quote: Because were baseball, strippers and guns can't help, the only thing that can really heal a broken heart, is time. - Ted Mosby
