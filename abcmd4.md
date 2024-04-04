@@ -1,2 +1,2 @@
-Last updated: 2024-04-04 20:17:49
-Random Quote: The common people pray for rain, healthy children, and a summer that never ends.  It is no matter to them if the high lords play their game of thrones, so long as they are left in peace.  They never are.  -  Jorah Mormont
+Last updated: 2024-04-04 20:18:22
+Random Quote: Droids are not good or bad. They are neutral reflections of those who imprint them. - Kuiil
