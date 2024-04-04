@@ -1,2 +1,2 @@
-Last updated: 2024-04-04 20:12:07
-Random Quote: When you play the game of thrones, you win or you die.  There is no middle ground.  -  Cersei Lannister
+Last updated: 2024-04-04 20:12:40
+Random Quote: I'm not in the meth business. I'm in the empire business. - Walter White
