@@ -1,2 +1,2 @@
-Last updated: 2024-04-04 19:19:54
-Random Quote: They're minerals, Marie! Jesus! - Hank Schrader
+Last updated: 2024-04-04 19:20:27
+Random Quote: The Freys slashed her throat from ear to ear.  When we found her by the river she was three days dead.  Harwin begged me to give her the kiss of life, but it had been too long.  I would not do it, so Lord Beric put his lips to hers instead, and the flame of life passed from him to her.  And... she rose.  May the Lord of Light protect us.  She rose.  -  Thoros of Myr
