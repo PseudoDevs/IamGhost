@@ -1,2 +1,2 @@
-Last updated: 2024-04-04 20:30:14
-Random Quote: Some things are more important than doing math problems. - Bode Locke
+Last updated: 2024-04-04 20:30:49
+Random Quote: I did it for me. I liked it. I was good at it. And... I was really... I was alive. - Walter White
