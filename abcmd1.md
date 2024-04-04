@@ -1,2 +1,2 @@
-Last updated: 2024-04-04 19:38:39
-Random Quote: It's just, I know I can be a jerk like him sometimes, and I do not want to be like him. Ever. - Max Mayfield
+Last updated: 2024-04-04 19:39:12
+Random Quote: I did the world a favor. People like Dalton shouldn't be allowed to procreate. Getting expelled was just a bonus. - Wednesday Addams
