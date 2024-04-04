@@ -1,2 +1,2 @@
-Last updated: 2024-04-04 19:40:58
-Random Quote: Larry: "Where would you like me to put it then, Piper?"Piper: "Up your ass."Larry: "There's no room. Apparently, my head's already up there." - Larry Bloom
+Last updated: 2024-04-04 19:41:31
+Random Quote: There's nothing more powerful than a fat girl who doesn't give a f. - Kat Hernandez
