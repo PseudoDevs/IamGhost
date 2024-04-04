@@ -1,2 +1,2 @@
-Last updated: 2024-04-04 20:12:19
-Random Quote: Free folk don't follow names, or little cloth animals sewn on a tunic.  They won't dance for coins, they don't care how you style yourself or what that chain of office means or who your grandsire was.  They follow strength.  They follow the man.  -  Mance Rayder
+Last updated: 2024-04-04 20:12:52
+Random Quote: At first, these keys were fun, but now we know they're more than that. They're important. They're part of our family and we need to protect them. - Bode Locke
