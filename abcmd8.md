@@ -1,2 +1,2 @@
-Last updated: 2024-04-04 19:43:02
-Random Quote: Men say Tywin never smiled, but he smiled when he wed your mother, and when Aerys made him Hand.  When Tarbeck Hall came crashing down on Lady Ellyn, that scheming bitch, Tyg claimed he smiled then, and he smiled at your birth, Jaime, I saw with my own eyes.  -  Genna Lannister
+Last updated: 2024-04-04 19:43:34
+Random Quote: I'm mature enough to be on my own. Now, if you'll excuse me, I'm gonna Google how to buy a credit card. - Devi Vishwakumar
