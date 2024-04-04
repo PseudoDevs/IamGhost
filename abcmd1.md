@@ -1,2 +1,2 @@
-Last updated: 2024-04-04 19:40:51
-Random Quote: You know how sometimes you'll meet a girl and there'll be that one bewitching little detail that'll make you fall in love with her instantly? You know, a little freckle on the nose, the lilt of her laugh, the way she pronounces a certain word or phrase... - Ted Mosby
+Last updated: 2024-04-04 19:41:23
+Random Quote: That's the thing with guys like Nate. They don't actually want a person. They want something they can own and possess. - Rue Bennett

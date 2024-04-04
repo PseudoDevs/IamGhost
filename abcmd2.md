@@ -1,2 +1,5 @@
-Last updated: 2024-04-04 19:40:52
-Random Quote: Love doesn't make sense. I mean, you can't logic your way into or out of it. Love ist totally nonsensical, but we have to keep doing it or else we're lost and love is dead and humanity should just pack it in. Because love is the best thing we do. - Ted Mosby
+Last updated: 2024-04-04 19:41:24
+Random Quote: Dina: "You're infuriating."
+Ellie: "Have you met you?"
+Dina: "You make me want to go back outside into that blizzard."
+Ellie: "No one is stopping you." - Joel Miller

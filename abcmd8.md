@@ -1,2 +1,2 @@
-Last updated: 2024-04-04 19:40:52
-Random Quote: Dragons old and young, true and false, bright and dark.  And you.  A small man with a big shadow, snarling in the midst of it all.  -  Moqorro
+Last updated: 2024-04-04 19:41:24
+Random Quote: Come with me to the House of the Undying, and you shall drink of truth and wisdom.  -  Pyat Pree
