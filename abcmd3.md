@@ -1,2 +1,3 @@
-Last updated: 2024-04-04 20:16:00
-Random Quote: So I will only ask you once, Lord Snow.  Are you a brother of the Night's Watch, or a bastard boy who wants to play at war?  -  Jeor Mormont
+Last updated: 2024-04-04 20:17:06
+Random Quote: What do you call a fish with no eyes?
+Fsh. - Marshall Eriksen
