@@ -1,2 +1,2 @@
-Last updated: 2024-04-04 19:41:33
-Random Quote: Ted: "Grinch, Grinch, Grinch, Grinch!"[The lights turn out]Lily: "Happy? Now you pissed up the big guy upstairs!"Ted: "Yeah, I'm sure god cares if I..."Man: "You use that language again and I turn off your water!"Lily: "It's my super - he lives above me." - Lily Aldrin
+Last updated: 2024-04-04 19:42:06
+Random Quote: B-Dawg, Barn Door, Stinson-natti, Bro-hio! Talk to me, how's it hangin'? - Robin Scherbatsky
