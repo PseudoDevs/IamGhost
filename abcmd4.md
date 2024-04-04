@@ -1,3 +1,3 @@
-Last updated: 2024-04-04 19:45:30
-Random Quote: Freddie Thorne: "What kind of a list would have the name of a communist and the name of a bookmaker side by side?"
-Thomas Shelby: "Perhaps it's a list of men who give false hope to the poor." - Thomas Shelby
+Last updated: 2024-04-04 19:46:03
+Random Quote: I hired a decorator and I asked him: "What would the inside of Tinkerbell's vagina look like?"
+And the kid just ran with it! - Quinn Garvey
