@@ -1,2 +1,3 @@
-Last updated: 2024-04-04 19:41:00
-Random Quote: Space. Time. Reality. It's more than a linear path. It's a prism of endless possibility. - The Watcher
+Last updated: 2024-04-04 19:41:33
+Random Quote: Jessica: "I miss you."
+Morty: "You miss the old me. You miss someone that loved you so much, you never had to love him back." - Morty Smith
