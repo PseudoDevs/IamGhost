@@ -1,2 +1,2 @@
-Last updated: 2024-04-04 19:13:35
-Random Quote: I was a better smuggler than a knight, he had written to his wife, a better knight than a King's hand, a better King's hand than a husband.  I am so sorry Marya, I have loved you.  Please forgive the wrongs I did you.  -  Davos Seaworth
+Last updated: 2024-04-04 19:14:08
+Random Quote: Being alone like that shows you what kind of a person you are. - Maura Franklin
