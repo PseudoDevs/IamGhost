@@ -1,2 +1,2 @@
-Last updated: 2024-04-04 20:08:29
-Random Quote: Come on Ted, it's 2012. What do you expect, to meet some cute travel agent when you're reading a newspaper at a bookstore? None of those things exist anymore! - Barney Stinson
+Last updated: 2024-04-04 20:09:02
+Random Quote: No.  You were the betrayer.  You turned against me, against your own blood.  They cheated me.  Your horsey husband and his stinking savages.  They were cheats and liars.  They promised me a golden crown and gave me this.  -  Viserys Targaryen
