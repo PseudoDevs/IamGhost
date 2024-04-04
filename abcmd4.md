@@ -1,2 +1,2 @@
-Last updated: 2024-04-04 19:58:37
-Random Quote: One of the 24 similarities between women and fish are they're both attracted to shiny objects. - Barney Stinson
+Last updated: 2024-04-04 19:59:10
+Random Quote: In the game of thrones, even the humblest pieces have wills of their own.  Sometimes they refuse to make the moves you've planned for them.  Mark that well, Alayne.  It's a lesson that Cersei Lannister still has yet to learn.  -  Petyr Baelish
