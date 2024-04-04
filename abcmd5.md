@@ -1,2 +1,2 @@
-Last updated: 2024-04-04 20:14:38
-Random Quote: I can't believe I'm taking sexual advice from Ted Mosby.That's like taking fashion advice from... well, Ted Mosby. - Barney Stinson
+Last updated: 2024-04-04 20:15:11
+Random Quote: Pictures can be twisted and used against you and haunt you forever. - Hannah Baker
