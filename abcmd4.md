@@ -1,3 +1,2 @@
-Last updated: 2024-04-04 19:46:03
-Random Quote: I hired a decorator and I asked him: "What would the inside of Tinkerbell's vagina look like?"
-And the kid just ran with it! - Quinn Garvey
+Last updated: 2024-04-04 19:46:36
+Random Quote: If you die before you say her name, Set, I will hunt you through the seven hells.  -  Oberyn Martell
