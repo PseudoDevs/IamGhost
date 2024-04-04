@@ -1,2 +1,2 @@
-Last updated: 2024-04-04 20:11:34
-Random Quote: Ted: "First it was too much eye-contact, then not enough - where do you look during sex?"Barney: "Into the hidden camera at future me, watching it." - Barney Stinson
+Last updated: 2024-04-04 20:12:07
+Random Quote: Pictures can be twisted and used against you and haunt you forever. - Hannah Baker
