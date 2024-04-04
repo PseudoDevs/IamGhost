@@ -1,2 +1,2 @@
-Last updated: 2024-04-04 19:17:37
-Random Quote: In the end, we will all get just what we deserve. - 
+Last updated: 2024-04-04 19:18:10
+Random Quote: It's not Aerys I rue, it's Robert... Why is it no one names Robert oathbreaker?  He tore the realm apart, yet I am the one with shit for honor.  -  Jaime Lannister
