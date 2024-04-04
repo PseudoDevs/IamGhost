@@ -1,4 +1,2 @@
-Last updated: 2024-04-04 20:13:32
-Random Quote: Rick: "F you, Summer! And f the government. And f me for letting my car down, which I will never do again."
-Morty: "Jeez, Rick. You can't say FU to your grand-daughter!"
-Rick: "I just did, Morty. Here's dessert: F you!" - Rick Sanchez
+Last updated: 2024-04-04 20:14:05
+Random Quote: When you start moving furniture around, people stub their toes and get upset. - Don Neto
