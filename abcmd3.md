@@ -1,2 +1,2 @@
-Last updated: 2024-04-04 20:15:27
-Random Quote: Because were baseball, strippers and guns can't help, the only thing that can really heal a broken heart, is time. - Ted Mosby
+Last updated: 2024-04-04 20:16:00
+Random Quote: So I will only ask you once, Lord Snow.  Are you a brother of the Night's Watch, or a bastard boy who wants to play at war?  -  Jeor Mormont

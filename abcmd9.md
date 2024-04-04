@@ -1,2 +1,2 @@
-Last updated: 2024-04-04 20:15:27
-Random Quote: I'm not him, I'm not the turncloak, he died at Winterfell.  My name is Reek.  It rhymes with freak.  -  Reek
+Last updated: 2024-04-04 20:16:00
+Random Quote: Joe Caputo: "You ever notice how some dog breeds, they sound kind of dirty? Like, shih tzu, cocker, Jack-something."Susan Fischer: "Poodle."Joe Caputo: "That is good, I didn't think of that one." - Joe Caputo
