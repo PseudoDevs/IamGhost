@@ -1,2 +1,2 @@
-Last updated: 2024-04-04 19:32:41
-Random Quote: Asha Greyjoy did not intend to be taken alive.  She would die as she had lived, with an axe in her hand and a laugh upon her lips.  -  Asha Greyjoy
+Last updated: 2024-04-04 19:33:14
+Random Quote: You see, ladies? When you're out with a Blinder, you don't have to queue. - Arthur Shelby
