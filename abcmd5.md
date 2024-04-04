@@ -1,2 +1,2 @@
-Last updated: 2024-04-04 20:07:30
-Random Quote: It's not like anyone's 100% straight or 100% gay. - Maddy Perez
+Last updated: 2024-04-04 20:08:03
+Random Quote: His size, Gregor is a very large man.  Also a very stupid one.  Too stupid to know when he should die, it seems.  -  Cersei Lannister
