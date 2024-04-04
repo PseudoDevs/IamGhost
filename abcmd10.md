@@ -1,2 +1,2 @@
-Last updated: 2024-04-04 19:33:18
-Random Quote: I thought you where vomit-free since nintythree... so that was a lie? - Marshall Eriksen
+Last updated: 2024-04-04 19:33:51
+Random Quote: Ran: "We were all young, tryin' to make a name for ourselves. But runnin' with a Mandalorian, that brought us some reputation."Mayfeld: "Oh, yeah? What did he get out of it?"Ran: "I asked him that one time. You remember what you said, Mando? Target Practice." - Din Djarin
