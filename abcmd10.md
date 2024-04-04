@@ -1,5 +1,2 @@
-Last updated: 2024-04-04 20:30:17
-Random Quote: Marshall: "What the hell happened?"
-Barney: "I said no questions asked."
-Marshall: "Star, clover, horseshoe... Barney, did you swallow real versions of all the Lucky Charms items?"
-Barney: "No questions asked! Now come on. Let's hit the bar. I'm buying. I just won 50 bucks from a little Irish guy on a dare." - Barney Stinson
+Last updated: 2024-04-04 20:30:49
+Random Quote: All the tales agreed that the green men had strange magic powers.  Maybe they could help him walk again, even turn him into a knight.  They turned the little crannogman into a knight, even if it was only for a day, he thought.  A day would be enough.  -  Bran Stark
