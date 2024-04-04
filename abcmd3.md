@@ -1,2 +1,2 @@
-Last updated: 2024-04-04 19:26:48
-Random Quote: The farther you go, the sharper their blade. Just don't ever give them an opening. - Cal Jacobs
+Last updated: 2024-04-04 19:27:21
+Random Quote: A man will tell you poison is dishonorable, but a woman's honor is different.  The Mother shaped us to protect our children, and our only dishonor is failure.  -  Lysa Arryn
