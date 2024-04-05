@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 19:47:42
-Random Quote: I never wanted the throne, I only ever wanted to be your equal. - Thor
+Last updated: 2024-04-05 19:48:15
+Random Quote: And there's this other band, led by this woman Stoneheart... Lord Beric's lover, according to one tale.  Supposedly she was hanged by the Freys, but Dondarrion kissed her and brought her back to life, and now she cannot die, no more than he.  -  Set Hyle Hunt
