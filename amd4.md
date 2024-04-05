@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 17:06:11
-Random Quote: I know this hurts little buddy, but you'll love again someday. Because time will heal a broken heart, but not that bitch's window. - Barney Stinson
+Last updated: 2024-04-05 17:06:44
+Random Quote: Have you ever lost someone? It's like you're dying with them. They can move on. And you're stuck. - Eyk Larsen
