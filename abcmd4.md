@@ -1,3 +1,2 @@
-Last updated: 2024-04-05 19:59:27
-Random Quote: Morty: "Rick, can we not leave without my sister?"
-Rick: "Ugh. You have infinite sisters, Morty. Not that I want to spend the rest of my day looking for another one. Sum-Sum, let's go! Grandpa's concern for your safety is fleeting." - Rick Sanchez
+Last updated: 2024-04-05 20:00:01
+Random Quote: To have power does not mean that one can abuse the poor. - Pablo Escobar
