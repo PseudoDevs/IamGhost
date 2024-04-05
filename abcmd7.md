@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 11:52:37
-Random Quote: Seriously? "Hello Kitty"? - Jesse Pinkman
+Last updated: 2024-04-05 11:53:45
+Random Quote: She don't speak.  You bloody bastards cut her throat too deep for that.  But she remembers.  -  Lem Lemoncloack
