@@ -1,2 +1,5 @@
-Last updated: 2024-04-05 14:12:05
-Random Quote: The only way to keep your people loyal is to make certain they fear you more than they do the enemy.  -  Cersei Lannister
+Last updated: 2024-04-05 14:12:39
+Random Quote: Dina: "You're infuriating."
+Ellie: "Have you met you?"
+Dina: "You make me want to go back outside into that blizzard."
+Ellie: "No one is stopping you." - Joel Miller
