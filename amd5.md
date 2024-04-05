@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 15:58:19
-Random Quote: It wasn't the violence that scared her. It was the fact that she knew no matter what he did, she'd still love him. - Rue Bennett
+Last updated: 2024-04-05 15:58:52
+Random Quote: We didn't choose this life, we're just living in it. - Number Five
