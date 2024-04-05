@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 16:51:49
-Random Quote: There is one problem with success. Not everyone can handle it. - Walt Breslin
+Last updated: 2024-04-05 16:52:22
+Random Quote: I don't care if you're so scared you foul your breeches, and I don't care if a thousand wildlings are coming over the walls howling for your blood, you get those birds off, or I swear I'll hunt you through all seven hells and make you damn sorry that you didn't.  -  Jeor Mormont
