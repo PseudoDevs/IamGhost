@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 13:00:50
-Random Quote: Honey, it's just the way your brain was hardwired. Plenty of great, intelligent, funny, interesting, and creative people have struggled with the same things you struggle with. - Leslie Bennett
+Last updated: 2024-04-05 13:01:25
+Random Quote: And at some point you make a choice about who you are and what you want. - Rue Bennett
