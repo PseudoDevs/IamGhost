@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 17:33:16
-Random Quote: This little bogwing is what all the fuss was about. What a precious little creature! I can see why you didn't want to harm a hair on its wrinkled little head. - Greef Karga
+Last updated: 2024-04-05 17:33:49
+Random Quote: Robin: "Who wants hot-wings?"Lily: "I'm in... or maybe we should just pour hot-sauce on Barney, since he's a total chicken." - Lily Aldrin
