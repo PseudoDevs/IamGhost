@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 17:38:14
-Random Quote: Guard: "Inmate, step away from the machine."Larry: "He just called you 'inmate'."Guard: "You too, sir."Larry: "Sorry." - Larry Bloom
+Last updated: 2024-04-05 17:38:47
+Random Quote: Oh, Cersei is lovely to look at, truly, but cold... the way she guards her cunt, you'd think she had all the gold of Casterly Rock between her legs.  -  Robert Baratheon
