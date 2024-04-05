@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 13:15:19
-Random Quote: Pennsatucky: "It weren't my fault. I was just doing as the Spirit commanded."Pussey: "Fuck are you? Joan of Arc?"Pennsatucky: "No, I'm from Waynesboro, my name is Tiffany..." - Tiffany 'Pennsatucky' Doggett
+Last updated: 2024-04-05 13:15:53
+Random Quote: Because you're so broken you don't even trust yourself. And that's scary. - Nate Jacobs
