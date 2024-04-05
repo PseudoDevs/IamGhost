@@ -1,2 +1,3 @@
-Last updated: 2024-04-05 19:13:29
-Random Quote: Sam Healy: "It's popular fiction. It's like global warming or female ejaculation."Piper: "No! No. No, it's not. This is real."Sam Healy: "How is it real? Wait, which?"Piper: "The chicken. And the... the chicken." - Piper Chapman
+Last updated: 2024-04-05 19:14:36
+Random Quote: Woman: "You know this isn't Vegas, right?"
+Robin: "Well sure, in Vegas the casinos pump in oxygen, in Atlantic City it looks like everyone brought their own." - Robin Scherbatsky
