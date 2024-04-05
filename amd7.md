@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 20:04:48
-Random Quote: A war is coming. I'm afraid your friends at Hawkins are very much in the eye of the storm. I don't know how to say this other than just to say it: without you, we can't win this war. - Sam Owens
+Last updated: 2024-04-05 20:05:21
+Random Quote: Once, she had loved Prince Joffrey with all her heart, and admired and trusted his mother, the queen.  They had repaid that love and trust with her father's head.  Sansa would never make that mistake again.  -  Sansa Stark
