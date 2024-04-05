@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 07:21:10
-Random Quote: Barney: "This is one of those things you have to do before you turn 30."Ted: "Sleep with a prostitute?!"Barney: "No, lose your virginity!... What up?" - Barney Stinson
+Last updated: 2024-04-05 07:22:52
+Random Quote: The Freys slashed her throat from ear to ear.  When we found her by the river she was three days dead.  Harwin begged me to give her the kiss of life, but it had been too long.  I would not do it, so Lord Beric put his lips to hers instead, and the flame of life passed from him to her.  And... she rose.  May the Lord of Light protect us.  She rose.  -  Thoros of Myr
