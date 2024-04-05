@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 17:39:21
-Random Quote: Old gods or new, it makes no matter, no man is so accursed as the kinslayer.  -  Rickard Karstark
+Last updated: 2024-04-05 17:39:54
+Random Quote: Friends tell the truth. - Eleven
