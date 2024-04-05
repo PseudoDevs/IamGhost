@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 12:09:51
-Random Quote: Believe me, I’ve had five divorces. Do you know what five divorces are? Five times I believed in love. - Berlin
+Last updated: 2024-04-05 12:10:57
+Random Quote: Larry Bloom: "Are we at least gonna talk about other options?"Piper Chapman: "You mean..."Larry Bloom: "It's not Voldemort, you can say it. Abortion." - Larry Bloom
