@@ -1,4 +1,2 @@
-Last updated: 2024-04-05 20:27:14
-Random Quote: Ted: "Okay, time to get the horn back to the bistro."
-Robin: "Oh Ted, I don't know if I can go again, that tuckered me out."
-Ted: "No euphemism." - Robin Scherbatsky
+Last updated: 2024-04-05 20:27:47
+Random Quote: For the night is dark and full of terrors.  -  Words of R'hllor
