@@ -1,2 +1,3 @@
-Last updated: 2024-04-05 08:15:27
-Random Quote: I'll have to take a page from Robert's book, not that he ever read one.  -  Stannis Baratheon
+Last updated: 2024-04-05 08:16:00
+Random Quote: Lily: "Swear on the lifes of your unborn boy and girl!"
+Ted: "I swear... on Luke and Leia!" - Ted Mosby
