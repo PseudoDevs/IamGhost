@@ -1,4 +1,2 @@
-Last updated: 2024-04-05 20:08:21
-Random Quote: Joel: "I need you to tell us where we are."
-Man: "If you got a map, why you lost?"
-Ellie: "Must've missed all the street signs in the enormous f-cking forest." - Ellie Williams
+Last updated: 2024-04-05 20:08:54
+Random Quote: Ich love you too. But so what? - Kim Wexler
