@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 06:51:07
-Random Quote: Get the keys and remove those chains from him, before you make me rue the day I raped your mother.  -  Roose Bolton
+Last updated: 2024-04-05 06:51:40
+Random Quote: If there's one thing I've learned in the narco world, it's that life is more complicated than you think. Good and bad, they're relative concepts. - Steve Murphy
