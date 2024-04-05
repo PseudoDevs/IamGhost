@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 15:25:10
-Random Quote: There's kids playing hockey in the back. It's like you want us to make fun of you! - Barney Stinson
+Last updated: 2024-04-05 15:25:42
+Random Quote: Power resides where men believe it resides... It's a trick, a shadow on the wall.  -  Varys
