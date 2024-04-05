@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 15:47:56
-Random Quote: They may separate us, but they'll never be able to destroy us. - Pablo Escobar
+Last updated: 2024-04-05 15:49:01
+Random Quote: Rickard Karstark killed more than a Frey and a Lannister.  He killed my honor.  -  Robb Stark
