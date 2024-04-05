@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 12:29:06
-Random Quote: I'd say hump her brain out, but somebody obviously already has. - Ted Mosby
+Last updated: 2024-04-05 12:29:45
+Random Quote: Don Eladio, look into Fring's eyes. There you will see the truth. The Chicken Man hates you. He is our enemy. He plots against us. I demand blood for blood. - Hector Salamanca
