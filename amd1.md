@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 18:41:51
-Random Quote: The "no more surprises"-thing is the best part of being married. - Lily Aldrin
+Last updated: 2024-04-05 18:42:24
+Random Quote: Robert wanted smiles and cheers, always, so he went where he found them, to his friends and his whores.  Robert wanted to be loved.  My brother Tyrion has the same disease.  -  Cersei Lannister

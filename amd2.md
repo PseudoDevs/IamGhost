@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 18:41:51
-Random Quote: No, that you think you'll graduate High-School. - Meemaw
+Last updated: 2024-04-05 18:42:24
+Random Quote: The absolute worst part of depression is that even though you know you're depressed, You're unable to stop yourself from getting worse. - Rue Bennett
