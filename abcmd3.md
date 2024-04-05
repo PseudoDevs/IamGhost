@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 18:10:08
-Random Quote: Robb Stark has won more battles in a year than the Lord of Highgarden had in twenty.  -  Tyrion Lannister
+Last updated: 2024-04-05 18:10:41
+Random Quote: I don't want to die, I've only kissed one boy so far. - Missy

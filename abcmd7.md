@@ -1,4 +1,2 @@
-Last updated: 2024-04-05 18:10:06
-Random Quote: Joel: "Where'd you get the money for this?"
-Sarah: "Drugs. I sell hardcore drugs."
-Joel: "It's better than what I do." - Joel Miller
+Last updated: 2024-04-05 18:10:39
+Random Quote: There is one difference between you and me: I'm not saying any of this to get in your pants. - How I Met Your Mother
