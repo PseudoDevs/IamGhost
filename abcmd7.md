@@ -1,2 +1,3 @@
-Last updated: 2024-04-05 11:31:00
-Random Quote: There is a 83% correlation between times when men are wearing a boutonniere and when they are getting laid... proms, weddings, funerals... thanks for the redhead, grandma! By the way, did you know that "boutonniere" is french for "booty is near"? - Barney Stinson
+Last updated: 2024-04-05 11:31:33
+Random Quote: Dragon: "My name is Balthromaw. Breaker of skies, slayer of mountain."
+Rick: "Rule 1: You're now scooper of your own poops, or I will take you down like the black-light poster you are." - Rick Sanchez
