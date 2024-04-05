@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 08:19:51
-Random Quote: Okay, I've missed you. Not in a "we're gonna make out" way, not even in an "I forgive you" way. Just in an "I've missed you" way. - Robin Scherbatsky
+Last updated: 2024-04-05 08:20:24
+Random Quote: The blood of the First Men flows in my veins as much as yours, boy.  You would do well to remember that.  I was named for your grandfather.  I raised my banners against King Aerys for your father, and against King Joffrey for you.  At Oxcross and the Whispering Wood and in the Battle of the Camps, I rode beside you, and I stood with Lord Eddard on the Trident.  We are kin, Stark and Karstark.  -  Rickard Karstark
