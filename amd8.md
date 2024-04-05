@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 16:14:34
-Random Quote: Dragons old and young, true and false, bright and dark.  And you.  A small man with a big shadow, snarling in the midst of it all.  -  Moqorro
+Last updated: 2024-04-05 16:15:07
+Random Quote: Every journey has a beginning. But change one step along the way, and you could end up at a very different destination. - The Watcher
