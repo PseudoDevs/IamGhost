@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 19:35:20
-Random Quote: Robin: "You mean the whiny, bottomless pit of neediness? He was bugging me so I spiked his echinacea tea with codeine."Ted: "You would be a great mom." - Ted Mosby
+Last updated: 2024-04-05 19:35:52
+Random Quote: It wasn't the violence that scared her. It was the fact that she knew no matter what he did, she'd still love him. - Rue Bennett
