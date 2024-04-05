@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 09:11:37
-Random Quote: I know our relationship isn't exactly what you want it to be. And I know I may not love you the way you love me, but I DO love you. Isn't that worth hanging on to? - Robin Scherbatsky
+Last updated: 2024-04-05 09:12:10
+Random Quote: When the sun has set, no candle can replace it.  -  Loras Tyrell
