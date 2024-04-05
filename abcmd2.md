@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 15:02:26
-Random Quote: Only Renly could vex me so with a piece of fruit.  He brought his doom on himself with his treason, but I did love him, Davos.  I know that now.  I swear, I will go to my grave thinking of my brother's peach.  -  Stannis Baratheon
+Last updated: 2024-04-05 15:03:00
+Random Quote: Barney: "I love how she was this wise, old, chilled out, lesbian farmer."Robin: "No, no, no. She's not a lesbian, nor does she farm them. No, that woman she lives with, that's just her special friend Maureen. They've lived together for... Oh!" - Robin Scherbatsky

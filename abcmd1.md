@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 15:01:53
-Random Quote: A man lives three lives. The first one ends with the loss of naivety, the second, with the loss of innocence and the third… with the loss of life itself. It’s inevitable that we go through all three stages. - Adam
+Last updated: 2024-04-05 15:03:00
+Random Quote: And Stannis has always felt he was cheated of Storm's End.  The ancestral seat of House Baratheon, his by rights... if you knew how many times he came to Robert singing that same dull song in that gloomy aggrieved tone he has.  When Robert gave the place to Renly, Stannis clenched his jaw so tight I thought his teeth would shatter.  -  Cersei Lannister

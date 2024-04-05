@@ -1,3 +1,2 @@
-Last updated: 2024-04-05 15:02:27
-Random Quote: Kids, you can't talk yourself into falling in love. It doesn't take days of deliberation. When it's real, you know pretty quickly and with absolute certainty.
-I had forgotten that, but I was about to be reminded... - Ted Mosby
+Last updated: 2024-04-05 15:03:00
+Random Quote: I can't believe I'm taking sexual advice from Ted Mosby.That's like taking fashion advice from... well, Ted Mosby. - Barney Stinson
