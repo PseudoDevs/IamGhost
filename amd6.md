@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 18:05:07
-Random Quote: I feel like I've framed my entire womanhood around men. - Jules Vaughn
+Last updated: 2024-04-05 18:05:41
+Random Quote: There is only one god, and his name is Death.  And there is only one thing we say to Death: not today.  -  Syrio Forel
