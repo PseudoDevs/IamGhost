@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 20:13:52
-Random Quote: I’ve spent my life being a bit of a son of a bitch, but today I think I want to die with dignity. - Berlin
+Last updated: 2024-04-05 20:14:25
+Random Quote: My daughter has taken an axe for a lover.  I will not have my son bedeck himself like a whore.  It is as I feared.  The green lands have made you soft, and the Starks have made you theirs.  -  Balon Greyjoy
