@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 17:34:11
-Random Quote: Marshall: "All pregnant ladies have crazy sex dreams. It's just her hormones going berserk."Barney: "So who's responsible for her rapid thigh movement this time?"Ted: "Oh, my favorite was when she banged George Washington."Barney: "I liked the three-way with Bill Cosby and Papa Smurf."Ted: "Oh, he smurfed the smurf out of her."Marshall: "Yes, while The Cos smurfed off in the corner - we all remember." - Marshall Eriksen
+Last updated: 2024-04-05 17:34:44
+Random Quote: Robin: "I don't know if we should keep seeing each other."Nick: "You want to start turning off the lights during sex?"Robin: "No. God, no. No! I am just worried that, as a couple, we're not working out."Nick: "You want to start going to the gym together?" - Nick
