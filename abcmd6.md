@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 10:03:22
-Random Quote: Robert wanted smiles and cheers, always, so he went where he found them, to his friends and his whores.  Robert wanted to be loved.  My brother Tyrion has the same disease.  -  Cersei Lannister
+Last updated: 2024-04-05 10:03:54
+Random Quote: Stella: "Ted, you're staring at my breasts."Ted: "In fairness... they were staring at me." - Ted Mosby
