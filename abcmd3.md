@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 12:56:25
-Random Quote: Don't believe everything you hear. Our enemies want to separate us. But Mandalorians are stronger together. - Bo-Katan
+Last updated: 2024-04-05 12:57:00
+Random Quote: I have been called many things, my lord, byt kind is seldom one of them.  -  Maester Aemon
