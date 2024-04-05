@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 07:36:20
-Random Quote: You're Reek.  You'll always be Reek, no matter how sweet you smell.  Your nose may lie to you.  Remember your name.  Remember who you are.  -  Ramsay Bolton
+Last updated: 2024-04-05 07:36:54
+Random Quote: By "entertainment" they mean "table-shuffle-board", Makramee classes and other non-stimulating activities which are only used in Manhatten to calm down drug-addicts and the criminaly insane. - Robin Scherbatsky
