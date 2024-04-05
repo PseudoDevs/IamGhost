@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 17:10:55
-Random Quote: Anything sounds weird, if you say it a  undred times. Bowl. Bowl. Bowl... - Ted Mosby
+Last updated: 2024-04-05 17:11:28
+Random Quote: Penrose chose to die rather than give him up.  It still angers me.  How could he think I would hurt the boy?  I chose Robert, did I not?  When that hard day came, I chose blood over honor.  -  Stannis Baratheon
