@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 17:23:37
-Random Quote: This is Hawkins, okay? You wanna know the worst thing that's ever happened here in the four years I've been working here? It was when an owl attacked Eleanor Gillespie's head because it though that her hair was a nest. - Jim Hopper
+Last updated: 2024-04-05 17:24:10
+Random Quote: Richard, you have desecrated the sacred treaty betwixt land and sea. Now face the wrath of your once and eternal foe - Mr. Nimbus! - Mr. Nimbus
