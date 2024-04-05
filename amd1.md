@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 19:11:47
-Random Quote: I am afraid of panic. Turns out it's bad for business. - Miguel Angel Felix Gallardo
+Last updated: 2024-04-05 19:12:21
+Random Quote: Only Renly could vex me so with a piece of fruit.  He brought his doom on himself with his treason, but I did love him, Davos.  I know that now.  I swear, I will go to my grave thinking of my brother's peach.  -  Stannis Baratheon
