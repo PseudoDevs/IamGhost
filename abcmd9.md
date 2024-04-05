@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 10:10:31
-Random Quote: How to run a marathon: Step one, you start running. There is no step two. - Barney Stinson
+Last updated: 2024-04-05 10:11:04
+Random Quote: The blood of the First Men flows in my veins as much as yours, boy.  You would do well to remember that.  I was named for your grandfather.  I raised my banners against King Aerys for your father, and against King Joffrey for you.  At Oxcross and the Whispering Wood and in the Battle of the Camps, I rode beside you, and I stood with Lord Eddard on the Trident.  We are kin, Stark and Karstark.  -  Rickard Karstark
