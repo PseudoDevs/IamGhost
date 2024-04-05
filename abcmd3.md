@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 11:00:58
-Random Quote: Kids, sometimes the universe sends exactly what you ask for. Other times... it sends Lily's dad. - Ted Mosby
+Last updated: 2024-04-05 11:02:04
+Random Quote: What you have to do is show these suckers what you’re capable of. Show them you’re not scared. - Nairobi
