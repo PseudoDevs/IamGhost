@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 11:08:45
-Random Quote: Barney: "Her butt?"Marshall: "What is it, too much?"Lily: "Too low?"Robin: "Or ist it an issue of access?" - Robin Scherbatsky
+Last updated: 2024-04-05 11:09:18
+Random Quote: I feel like her sobriety is completely dependent on how available I am to her. - Jules Vaughn
