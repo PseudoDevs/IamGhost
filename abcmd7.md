@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 13:40:04
-Random Quote: I have a tender spot in my heart for cripples, bastards, and broken things.  -  Tyrion Lannister
+Last updated: 2024-04-05 13:40:38
+Random Quote: I am IRONBORN!  I laugh at death.  -  Victarion Greyjoy
