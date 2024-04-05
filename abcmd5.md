@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 15:09:37
-Random Quote: I have a tender spot in my heart for cripples, bastards, and broken things.  -  Tyrion Lannister
+Last updated: 2024-04-05 15:10:10
+Random Quote: In the game of thrones, even the humblest pieces have wills of their own.  Sometimes they refuse to make the moves you've planned for them.  Mark that well, Alayne.  It's a lesson that Cersei Lannister still has yet to learn.  -  Petyr Baelish

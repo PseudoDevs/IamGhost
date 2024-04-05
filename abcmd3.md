@@ -1,3 +1,3 @@
-Last updated: 2024-04-05 15:09:37
-Random Quote: Jerry: "Well, traditionally, science faires are a father-son thing."
-Rick: "Well, scientifically, traditions are an idiot thing." - Rick Sanchez
+Last updated: 2024-04-05 15:10:10
+Random Quote: Woman: "You know this isn't Vegas, right?"
+Robin: "Well sure, in Vegas the casinos pump in oxygen, in Atlantic City it looks like everyone brought their own." - Robin Scherbatsky
