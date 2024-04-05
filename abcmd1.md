@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 14:59:40
-Random Quote: Barney: "On your tombstone, it will be, 'Lily Aldrin. Caring wife. Loving friend. Slapbet-Commissioner.'"Marshall: "And your tombstone will read, 'Got slapped by Marhsall so hard he died.'" - Marshall Eriksen
+Last updated: 2024-04-05 15:00:14
+Random Quote: What about the reality where Hitler cured cancer, Morty? The answer is: don't think about it. - Rick Sanchez
