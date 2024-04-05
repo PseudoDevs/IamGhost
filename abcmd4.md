@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 19:19:40
-Random Quote: Never buy a girl flowers, 'cause giving her a living thing reminds her of babies. - Barney Stinson
+Last updated: 2024-04-05 19:20:14
+Random Quote: Small wonder that the Seven Kingdoms thought the free folk scarcely human.  They have no laws, no honor, not even simple decency.  They steal endlessly from each other, breed like beasts, prefer rape to marriage, and fill the world with baseborn children.  Yet he was growing fond of Tormund Giantsbane, great bag of wind and lies though he was.  -  Jon Snow
