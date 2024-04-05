@@ -1,2 +1,3 @@
-Last updated: 2024-04-05 07:47:15
-Random Quote: Stannis Baratheon with a grievance was like a mastiff with a bone; he gnawed it down to splinters.  -  Jon Snow
+Last updated: 2024-04-05 07:47:49
+Random Quote: Give it a week, you'll get her back. And her front.
+Oh! Did you feel that? I think we just had a "what up?"-quake! - Barney Stinson
