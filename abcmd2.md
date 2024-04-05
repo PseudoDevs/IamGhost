@@ -1,3 +1,2 @@
-Last updated: 2024-04-05 16:17:19
-Random Quote: May: "May Carleton. I breed racehorses and train them. What is it you do?"
-Thommy: "I rarely answer questions is what I do." - Thomas Shelby
+Last updated: 2024-04-05 16:17:52
+Random Quote: Pornstache: "You are not an agent of God, okay? God can do so much better than you. You must know that, right?"Pennsatucky: "Know what?"Pornstache: "Jesus Christ, how the fuck did you survive infancy?"Pennsatucky: "My auntie helped my momma..."Pornstache: "That's a rhetorical question! Do you not understand what a fucking rhetorical question is?" - George 'Pornstache' Mendez
