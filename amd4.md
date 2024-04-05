@@ -1,2 +1,4 @@
-Last updated: 2024-04-05 16:00:28
-Random Quote: What if God doesn’t know what he’s doing? If the plan is wrong? If God is wrong? - 
+Last updated: 2024-04-05 16:01:01
+Random Quote: Marshall: "Except the flames of Lucifer keep singein our back bumper as we drive through this hellish, cheese-infected wasteland."
+Lily: "Wisconsin?"
+Marshall: "Wisconsin!" - Marshall Eriksen
