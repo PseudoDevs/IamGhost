@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 14:42:59
-Random Quote: When dead men come hunting us in the night, do you think it matters who sits the Iron Throne?  -  Jeor Mormont
+Last updated: 2024-04-05 14:43:32
+Random Quote: The "no more surprises"-thing is the best part of being married. - Lily Aldrin
