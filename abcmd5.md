@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 13:48:45
-Random Quote: Some dogs crawled atop me during the night.  My cloak was almost dry when one of them pissed in it.  Have you noticed that the rain stopped the instant I had a roof above me?  It will start again now that I'm back out.  Gods and dogs alike delight to piss on me.  -  Dolorous Edd Tollett
+Last updated: 2024-04-05 13:49:54
+Random Quote: Barney: "Ted what is my one rule?"Ted: "You can tell how old a girl is by her elbows?"Barney: "My other one rule."Ted: "Flax seed relieves upset stomach?"Barney: "My other one rule."Ted: "Always have a fake pair of concert tickets in your pocket in case Lily invites you to something stupid?"Barney: "My other one rule."Ted: "Labanese girls sprint to third base and then stay there."Barney: "My other one rule."Ted: "New is always better?"Barney: "New is always better!" - Barney Stinson
