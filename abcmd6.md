@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 13:23:33
-Random Quote: There's kids playing hockey in the back. It's like you want us to make fun of you! - Barney Stinson
+Last updated: 2024-04-05 13:24:08
+Random Quote: Men say Tywin never smiled, but he smiled when he wed your mother, and when Aerys made him Hand.  When Tarbeck Hall came crashing down on Lady Ellyn, that scheming bitch, Tyg claimed he smiled then, and he smiled at your birth, Jaime, I saw with my own eyes.  -  Genna Lannister
