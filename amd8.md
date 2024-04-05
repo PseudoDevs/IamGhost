@@ -1,3 +1,2 @@
-Last updated: 2024-04-05 20:17:47
-Random Quote: Sal: "Does Lily have any other plates? I don't let Sammy eat off this plastic."
-Pepper: "How does she breastfeed him if she doesn't let him near plastic?" - Pepper Saltzman
+Last updated: 2024-04-05 20:18:20
+Random Quote: One of the 24 similarities between women and fish are they're both attracted to shiny objects. - Barney Stinson
