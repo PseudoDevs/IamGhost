@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 07:06:22
-Random Quote: Barney: "Before you know it, you'll be marrying a man who once ate a vanilla-scented candle!"Robin: "That was on me. I shouldn't have left it in the kitchen. Though, it was lit. Man, he dumb." - Robin Scherbatsky
+Last updated: 2024-04-05 07:06:56
+Random Quote: Sandy Rivers: "I don't know what went wrong."Robin: "Well, proposing a three way was bad. Starting without us was worse. Finishing in the hallway was the nail in the coffin." - Robin Scherbatsky
