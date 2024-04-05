@@ -1,3 +1,2 @@
-Last updated: 2024-04-05 17:17:00
-Random Quote: Tommy: "I'll have some men watch her house 'til the danger passes."
-Polly: "'Til the danger passes. That'll be the bloody day." - Polly Gray
+Last updated: 2024-04-05 17:17:34
+Random Quote: There are moments when we must understand that the decisions we make influence more than just our own fates. - 

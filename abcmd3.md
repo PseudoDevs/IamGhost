@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 17:17:00
-Random Quote: Roose Bolton's cold and cunning, aye, but a man can deal with Roose.  We've all known worse.  But this bastard son of his... they say he's mad and cruel, a monster.  -  Locke
+Last updated: 2024-04-05 17:17:34
+Random Quote: Dead people are notoriously bad at returning calls. - Wednesday Addams
