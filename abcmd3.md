@@ -1,2 +1,3 @@
-Last updated: 2024-04-05 20:18:04
-Random Quote: Screw the FCC! I'll go to the mat with those pencil-pushers! This is textbook freedom of speech. What could be more American than that? - Saul Goodman
+Last updated: 2024-04-05 20:18:37
+Random Quote: What do I think love is? It's like when someone makes your stomach feel all tight, but floaty at the same time, you know? And your cheeks hurt from smiling. And you smile so much, that people think something's wrong with you.
+...And also fucking. Twenty-four seven, deep-dick, can't-walk-right fucking. - Aleida Diaz
