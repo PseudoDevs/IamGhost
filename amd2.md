@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 19:54:39
-Random Quote: Jesus! Just grow some fucking balls! - Walter White
+Last updated: 2024-04-05 19:55:13
+Random Quote: I want you to allow yourself to aknowledge the pain that you so clearly feel. - Fabiola Torres
