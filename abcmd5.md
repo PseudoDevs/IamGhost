@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 15:54:35
-Random Quote: The years pass in their hundreds and their thousands, and what does any man see of life but a few summers, a few winters?  -  Maester Luwin
+Last updated: 2024-04-05 15:55:08
+Random Quote: The Night's Watch is a sworn brotherhood.  We have no families.  None of us will ever father sons.  Our wife is duty.  Our mistress is honor.  -  Benjen Stark
