@@ -1,4 +1,2 @@
-Last updated: 2024-04-05 11:08:12
-Random Quote: Greef: "Nevarro is a very fine planet. And now that the scum and villainy have been washed away, it's very respectable again."
-Mando: "As a bounty hunter hive?"
-Greef: "Some of my favorite people are bounty hunters." - Greef Karga
+Last updated: 2024-04-05 11:08:45
+Random Quote: Barney: "Her butt?"Marshall: "What is it, too much?"Lily: "Too low?"Robin: "Or ist it an issue of access?" - Robin Scherbatsky
