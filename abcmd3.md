@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 20:14:45
-Random Quote: Ted: "Every three years we sit down and Tril' it up big time, agreed?"Marshall: "Agreed-o!" - Marshall Eriksen
+Last updated: 2024-04-05 20:15:18
+Random Quote: Here's the thing about me and tools: The only one I know how to use, is attached to me. And I'm not gonna try putting it in a TV... again. - Barney Stinson
