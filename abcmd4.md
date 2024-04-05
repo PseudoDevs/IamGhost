@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 17:22:31
-Random Quote: Death is always inevitable. destiny is nothing but the connection between cause and effect. In light, in shadow. - 
+Last updated: 2024-04-05 17:23:04
+Random Quote: It all goes back and back.  To our mothers and fathers and theirs before them.  We are puppets dancing on the strings of those who came before us, and one day our own children will take up our strings and dance in our steads.  -  Tyrion Lannister
