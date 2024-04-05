@@ -1,2 +1,3 @@
-Last updated: 2024-04-05 16:04:15
-Random Quote: That changes everything, how do you know who to trust? - Meemaw
+Last updated: 2024-04-05 16:05:21
+Random Quote: The Deep: "What do we do? We can't just kill everyone."
+Billy Butcher: "That's exactly what we're gonna do!" - Billy Butcher
