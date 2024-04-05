@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 17:17:16
-Random Quote: A feeling of unresolved resentment against injustices suffered, a sense of helplessness because of the overwhelming odds against one, a feeling of acute pain in one's guts and bowels, making the whole body writhe and squirm, and an obstinate urge to take revenge and to right the wrong - all these combined. - Seong Gi-hun
+Last updated: 2024-04-05 17:17:49
+Random Quote: Here's the secret, kids: none of us can vow to be perfect. In the end, all we can do is promise to love each other with everything we've got. Because love's the best thing we do. - Ted Mosby
