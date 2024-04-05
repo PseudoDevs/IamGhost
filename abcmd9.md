@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 20:10:37
-Random Quote: I have a tender spot in my heart for cripples, bastards, and broken things.  -  Tyrion Lannister
+Last updated: 2024-04-05 20:11:10
+Random Quote: The greatest fools are ofttimes more clever than the men who laugh at them.  -  Tywin Lannister
