@@ -1,3 +1,2 @@
-Last updated: 2024-04-05 07:41:21
-Random Quote: "Everybody else can see Ben, right?"
-"Yeah, and he's a complete d-ckhead." - Allison Hargreeves
+Last updated: 2024-04-05 07:41:55
+Random Quote: We should have never gotten on this ship. It was a mistake. All of it, a huge mistake. - Yuk Je
