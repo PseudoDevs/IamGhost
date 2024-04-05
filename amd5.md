@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 19:20:13
-Random Quote: You don’t love anyone? Of course you don’t, darling. You don’t have the balls for it. To love, you need courage. - Nairobi
+Last updated: 2024-04-05 19:20:47
+Random Quote: If you're looking for the word that means caring for someone beyond all rationality and wanting them to have everything they want, no matter how much it destroys you, it's love! - Ted Mosby
