@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 17:42:07
-Random Quote: The only difference between us is, when I made bad decisions in life, I didn't get caught. - Susan Fischer
+Last updated: 2024-04-05 17:42:40
+Random Quote: You were supposed to be my wife, to bear me children with silver hair and purple eyes, to keep the blood of the dragon pure.  I took care of you.  I taught you who you were.  I fed you.  I sold our mother's crown to keep you fed.  -  Viserys Targaryen
