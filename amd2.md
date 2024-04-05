@@ -1,3 +1,2 @@
-Last updated: 2024-04-05 17:30:29
-Random Quote: Morty: "Rick, can we not leave without my sister?"
-Rick: "Ugh. You have infinite sisters, Morty. Not that I want to spend the rest of my day looking for another one. Sum-Sum, let's go! Grandpa's concern for your safety is fleeting." - Rick Sanchez
+Last updated: 2024-04-05 17:31:02
+Random Quote: If you love something, you can never let it go. Not even for a second. Or it's gone forever. - Ted Mosby
