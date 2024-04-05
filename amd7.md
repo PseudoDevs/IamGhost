@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 16:33:01
-Random Quote: I don't want to die, I've only kissed one boy so far. - Missy
+Last updated: 2024-04-05 16:33:34
+Random Quote: There is no such thing as magic, just illusion. Things only change when we change them. But you have to do it skillfully, in secret. Then it seems like magic. - Mikkel Nielsen
