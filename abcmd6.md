@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 19:27:41
-Random Quote: Oh, we're busting apple bags? I can bust apple bags. - Robin Scherbatsky
+Last updated: 2024-04-05 19:28:15
+Random Quote: It's not Aerys I rue, it's Robert... Why is it no one names Robert oathbreaker?  He tore the realm apart, yet I am the one with shit for honor.  -  Jaime Lannister
