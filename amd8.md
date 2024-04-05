@@ -1,2 +1,3 @@
-Last updated: 2024-04-05 20:02:48
-Random Quote: Barney: "Let me choose your child's middle name! Because I have thought up the most awesome name of all time."Marshall: "What's the middle name?"Barney: "Wait for it."Marshall: "I'm waiting."Barney: "Wait for it."Marshall: "I said I'm waiting."Barney: "Wait for it."Marshall: "What's the middle name?"Barney: "No, the middle name is 'Wait For It'. Let's say his first name is, oh, I don't know, 'Barney'. He'd be Barney 'Wait For It' Eriksen. How awesome is that?" - Barney Stinson
+Last updated: 2024-04-05 20:03:21
+Random Quote: Doctor: "Hypothetically speaking, every new father-to-be get nervous."
+Vision: "Well, I have nerves of steel, so there goes your theory, Mr. Doctor." - Vision
