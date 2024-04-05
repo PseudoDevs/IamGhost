@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 19:40:49
-Random Quote: Get ready, Cleveland. The last man to screw you that hard and then disappear, was LeBron James! - Barney Stinson
+Last updated: 2024-04-05 19:41:22
+Random Quote: No one had expected the broken boy to live.  The gods could not kill Bran, no more than I could.  It was a strange thought, and stranger still to remember that Bran might still be alive.  -  Theon Greyjoy
