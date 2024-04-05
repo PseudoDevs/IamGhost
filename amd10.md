@@ -1,5 +1,2 @@
-Last updated: 2024-04-05 18:50:15
-Random Quote: Bo-Katan: "I haven't seen battle droids since the Clone Wars."
-Din: "I have."
-Bo-Katan: "Any of 'em look suspicious?"
-Din: "They all look suspicious." - Din Djarin
+Last updated: 2024-04-05 18:50:49
+Random Quote: You want to be a bounty hunter? Make the best deal for yourself and survive! - Fennec Shand
