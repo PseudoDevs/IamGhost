@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 17:23:53
-Random Quote: Ted: "Robin and I already had our backslide. Last Thanksgiving, not even that long ago."Stella: "Did you place a large bet against yourself?" - Stella Zinman
+Last updated: 2024-04-05 17:24:26
+Random Quote: Don't believe everything you hear. Our enemies want to separate us. But Mandalorians are stronger together. - Bo-Katan
