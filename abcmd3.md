@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 19:16:40
-Random Quote: We have to control this fing world, or it will control you. And if you don't protect yourself, it makes a mess and breaks you. - Miguel Angel Felix Gallardo
+Last updated: 2024-04-05 19:17:13
+Random Quote: What we know is a drop. What we don’t know is an ocean - 
