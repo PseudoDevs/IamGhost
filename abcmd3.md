@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 13:48:54
-Random Quote: Reality is more than neurons firing around in your brain. Reality is not what's on the inside. It's what's happening on the outside. - Daniel Solace
+Last updated: 2024-04-05 13:49:30
+Random Quote: I can't tell the difference between my waking life and dreams. - Arthur Harrow
