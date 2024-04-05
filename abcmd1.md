@@ -1,6 +1,2 @@
-Last updated: 2024-04-05 07:07:30
-Random Quote: Beth: "Do you want homeless people to have homes?"
-Jerry: "Yes."
-Beth: "Are you gonna build them?"
-Jerry: "No."
-Beth: "Then what good was the 'yes'?" - Beth Smith
+Last updated: 2024-04-05 07:08:04
+Random Quote: Power tastes best when sweetened by courtesy; you had best learn that if you ever hope to rule.  -  Roose Bolton
