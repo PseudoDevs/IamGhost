@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 19:42:11
-Random Quote: The Freys slashed her throat from ear to ear.  When we found her by the river she was three days dead.  Harwin begged me to give her the kiss of life, but it had been too long.  I would not do it, so Lord Beric put his lips to hers instead, and the flame of life passed from him to her.  And... she rose.  May the Lord of Light protect us.  She rose.  -  Thoros of Myr
+Last updated: 2024-04-05 19:42:45
+Random Quote: You're not gonna believe this because it usually never happens, but I made a mistake! - Rick Sanchez
