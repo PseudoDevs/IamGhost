@@ -1,2 +1,3 @@
-Last updated: 2024-04-05 09:20:04
-Random Quote: Lily: "Ted, you did this all yourself?"Ted: "Just like Ryan Gosling in 'The Notebook'. It was pretty manly 'til I mentioned Ryan Gosling in 'The Notebook', huh?" - Ted Mosby
+Last updated: 2024-04-05 09:20:37
+Random Quote: Wednesday: "So you were guided by latent chivalry, the tool of the patriarchy, to extract my undying gratitude?"
+Xavier: "Most people just say 'thank you'." - Xavier Thorpe
