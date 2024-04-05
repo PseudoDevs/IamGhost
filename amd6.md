@@ -1,6 +1,4 @@
-Last updated: 2024-04-05 18:20:40
-Random Quote: Beth: "Do you want homeless people to have homes?"
-Jerry: "Yes."
-Beth: "Are you gonna build them?"
-Jerry: "No."
-Beth: "Then what good was the 'yes'?" - Beth Smith
+Last updated: 2024-04-05 18:21:13
+Random Quote: Ted: "Okay, time to get the horn back to the bistro."
+Robin: "Oh Ted, I don't know if I can go again, that tuckered me out."
+Ted: "No euphemism." - Robin Scherbatsky
