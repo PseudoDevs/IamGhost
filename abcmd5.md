@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 11:13:13
-Random Quote: Sometimes, the cure is a little taste of the disease. The difference between medicine and poison sometimes is only dosage. - Arthur Harrow
+Last updated: 2024-04-05 11:13:47
+Random Quote: Ted: "When you leave someone at the altar, you always leave a note. It's common courtesy."Victoria: "I think common courtesy went out the window when I did." - Victoria
