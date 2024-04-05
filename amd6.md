@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 20:20:36
-Random Quote: You have a passing clever father, Devan.  He makes me wish I had more smugglers in my service.  And fewer lords.  -  Stannis Baratheon
+Last updated: 2024-04-05 20:21:09
+Random Quote: Finally, you will be among pears who understand you. Maybe you'll even make some friends. - Morticia Addams
