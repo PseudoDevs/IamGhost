@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 16:30:31
-Random Quote: You will never walk again... but you will fly.  -  Bloodraven
+Last updated: 2024-04-05 16:31:05
+Random Quote: Any man who steps between a father and his vengeance asks for death.  -  Rickard Karstark
