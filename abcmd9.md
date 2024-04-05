@@ -1,4 +1,3 @@
-Last updated: 2024-04-05 16:23:57
-Random Quote: Rick: "Wait a minute! Is that Mountain Dew in my quantum-transport-solution?"
-Morty: "I saw you were marking the level so I had to top it off."
-Rick: "Top it off? Do you know how dangerously toxic this stuff is? And you added it to my portal fluid?" - Rick Sanchez
+Last updated: 2024-04-05 16:24:30
+Random Quote: Morty: "So, time moves faster in there? Is it like a Narnia thing?"
+Rick: "I'm not a beaver who believes in Jesus Christ, Morty. But yeah, it's pretty much a Narnia thing." - Rick Sanchez
