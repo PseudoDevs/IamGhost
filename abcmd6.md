@@ -1,2 +1,4 @@
-Last updated: 2024-04-05 14:36:17
-Random Quote: I'm KFC baby - you don't mess with the Colonel's recipe! - Barney Stinson
+Last updated: 2024-04-05 14:36:50
+Random Quote: Joel: "I need you to tell us where we are."
+Man: "If you got a map, why you lost?"
+Ellie: "Must've missed all the street signs in the enormous f-cking forest." - Ellie Williams
