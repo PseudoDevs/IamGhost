@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 11:37:39
-Random Quote: You Westerosi are all the same.  You sew some beast upon a scrap of silk, and suddenly you are all lions or dragons or eagles.  -  Illyrio Mopatis
+Last updated: 2024-04-05 11:39:19
+Random Quote: Many hands make light work. And many mouths make good gossip. - Agatha Harkness
