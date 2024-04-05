@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 16:37:27
-Random Quote: Catelyn would sooner Lord Umber had seen fit to stay sober, but telling the Greatjon not to drink was like telling him not to breathe for a few hours.  -  Catelyn Stark
+Last updated: 2024-04-05 16:38:00
+Random Quote: In King's Landing, there are two sorts of people.  The players and the pieces.  -  Petyr Baelish
