@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 17:15:57
-Random Quote: If you don't push, I will shove that baby up your throat and pull it out of your mouth! - Dr. Sonya
+Last updated: 2024-04-05 17:16:30
+Random Quote: Honey, don't you think the little rocks would hurt your nose, if you're trying to snort crack? I think you mean coke. - Piper Chapman
