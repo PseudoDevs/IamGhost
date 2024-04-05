@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 19:11:14
-Random Quote: Minds are like swords, I do fear.  The old ones go to rust.  -  Grand Maester Pycelle
+Last updated: 2024-04-05 19:11:47
+Random Quote: Barney: "Fine, we'll just have a nice, tasteful rehearsal dinner. Maybe at a French restaurant, I know just the place."Robin: "What's the name of the restaurant?"Barney: "La Sertag." - Barney Stinson
