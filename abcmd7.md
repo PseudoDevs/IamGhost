@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 07:53:15
-Random Quote: Bring on your storm, my lord... and recall, if you do, the name of this castle.  -  Cortnay Penrose
+Last updated: 2024-04-05 07:53:48
+Random Quote: I'm KFC baby - you don't mess with the Colonel's recipe! - Barney Stinson
