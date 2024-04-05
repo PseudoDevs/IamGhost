@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 18:00:08
-Random Quote: It's not what you think, he just wants to have sex. Kidding. Just a little hand stuff. Ha, kidding again. Ted's more of a boob man. I seriously can't stop. - Robin Scherbatsky
+Last updated: 2024-04-05 18:01:47
+Random Quote: There's kids playing hockey in the back. It's like you want us to make fun of you! - Barney Stinson
