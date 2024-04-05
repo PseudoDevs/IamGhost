@@ -1,3 +1,2 @@
-Last updated: 2024-04-05 17:01:48
-Random Quote: Jerry: "Space sperm? Sperm from... space?"
-Rick: "Very impressive verbal forensic work, Jerry." - Rick Sanchez
+Last updated: 2024-04-05 17:02:21
+Random Quote: Only when we’ve freed ourselves of emotion can we be truly free. Only when you’re willing to sacrifice what you hold dearest. - Adam
