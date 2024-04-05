@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 17:48:30
-Random Quote: No one had expected the broken boy to live.  The gods could not kill Bran, no more than I could.  It was a strange thought, and stranger still to remember that Bran might still be alive.  -  Theon Greyjoy
+Last updated: 2024-04-05 17:49:03
+Random Quote: I am not in danger, Skyler. I AM the danger! - Walter White
