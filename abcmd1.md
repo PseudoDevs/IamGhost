@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 17:40:46
-Random Quote: Women aren't soldiers, and they sure as hell don't fight on the front lines. They might break a nail. - John Flynn
+Last updated: 2024-04-05 17:41:18
+Random Quote: They'll bend the knee or I'll destroy them.  -  Stannis Baratheon

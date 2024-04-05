@@ -1,2 +1,3 @@
-Last updated: 2024-04-05 17:40:46
-Random Quote: Serve, Obey, Protect.  Simple vows for a simple man.  -  Areo Hotah
+Last updated: 2024-04-05 17:41:18
+Random Quote: Freddie: "If you want me out of Birmingham, it'll have to be in a wooden box."
+Polly: "You lay a hand on our Ada, I'll put you in a wooden box myself!" - Polly Gray
