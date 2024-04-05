@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 16:41:18
-Random Quote: I liked the way I dressed you, but I'm worried I f'ed with your gender expression. - Jules Vaughn
+Last updated: 2024-04-05 16:41:51
+Random Quote: She studied Theon Greyjoy's sly smile, wondering what it meant.  That young man had a way of looking as though he knew some secret jest that only he was privy to; Catelyn had never liked it.  -  Catelyn Stark
