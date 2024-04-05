@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 15:13:27
-Random Quote: I'm going out of this world the same way I came into it: Buck-naked. Yeah. It's gonna be awesome. Open bar for the guys, open casket for the ladies. What up? - Barney Stinson
+Last updated: 2024-04-05 15:15:06
+Random Quote: We were king's men, knights, and heroes... but some knights are dark and full of terror, my lady.  War makes monsters of us all.  -  Thoros of Myr
