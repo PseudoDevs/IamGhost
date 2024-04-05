@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 12:13:20
-Random Quote: There's something that I need to ask you and I want you to be honest with me. Why do white people like Carrot Top? - Barney Stinson
+Last updated: 2024-04-05 12:13:53
+Random Quote: Everyone was yelling stuff.  Hot Pie yelled hot pie.  He must have yelled it a hundred times.  -  Arya Stark
