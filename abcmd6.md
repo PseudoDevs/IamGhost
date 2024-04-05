@@ -1,3 +1,2 @@
-Last updated: 2024-04-05 19:10:07
-Random Quote: Ellie: "Everybody I've cared for, either died or left me."
-Joel: "You have no idea what loss is." - Joel Miller
+Last updated: 2024-04-05 19:10:41
+Random Quote: Most people are nothing but pawns on a chessboard led by an unknown hand - Noah
