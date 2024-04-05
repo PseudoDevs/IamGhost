@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 17:56:46
-Random Quote: Have you seen Mace Tyrell's boy?  The Knight of Flowers, they call him.  Now there's a son any man would be proud to own to.  Last tourney, he dumped the Kingslayer on his golden rump, you ought to have seen the look on Cersei's face.  I laughed till my sides hurt.  -  Robert Baratheon
+Last updated: 2024-04-05 17:57:20
+Random Quote: What if God doesn’t know what he’s doing? If the plan is wrong? If God is wrong? - 
