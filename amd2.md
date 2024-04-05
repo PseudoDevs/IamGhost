@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 18:18:37
-Random Quote: Aye, and from what I saw of Joffrey, you are as unfit a mother as you are a ruler.  -  Kevan Lannister
+Last updated: 2024-04-05 18:19:43
+Random Quote: That's not a law, just a sword.  Happens I got one too.  -  Yoren of the Night's Watch
