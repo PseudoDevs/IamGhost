@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 18:14:46
-Random Quote: Marshall: "Open your eyes, ref! That's not a pregnant lady..."Ted: "...it's a basketball under his shirt. Blow the freakin' whistle!" - Ted Mosby
+Last updated: 2024-04-05 18:15:18
+Random Quote: Barney: "Before you know it, you'll be marrying a man who once ate a vanilla-scented candle!"Robin: "That was on me. I shouldn't have left it in the kitchen. Though, it was lit. Man, he dumb." - Robin Scherbatsky
