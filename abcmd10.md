@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 19:57:14
-Random Quote: Robin: "He has a book of plays he uses to trick women into sleeping with him."Patrice: "Oh, no way. Barney's my honey bear."Robin: "Actually, one of his plays is called 'The Honey Bear'. He dresses up like Winnie the Pooh, and the next thing you know, his hand's stuck in your pot." - Robin Scherbatsky
+Last updated: 2024-04-05 19:58:22
+Random Quote: Adam: "Three viagras."Maeve: "Jesus Christ."Adam: "You said there was gonna be no judgement. Is three viagras bad? Her reaction made it seem like it was bad. I feel lightheaded and I can taste scampi."Maeve: "No wonder. You could besiege a castle with that thing."Adam: "I said stop staring at it!"Maeve: "Sorry, it's like a third leg." - Maeve Wiley
