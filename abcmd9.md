@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 17:37:30
-Random Quote: There are only two reasons to date a girl you've already dated: breast implants. - Barney Stinson
+Last updated: 2024-04-05 17:39:09
+Random Quote: Shagg, son of Dolf will chop off their manhoods and feed them to the crows.  -  Shagga, son of Dolf
