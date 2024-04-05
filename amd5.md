@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 20:15:51
-Random Quote: I never asked for this, no more than I asked to be king.  Yet dare I disregard her?  We do not choose our destinies.  Yet we must... we must do our duty, no?  Great or small, we must do our duty.  -  Stannis Baratheon
+Last updated: 2024-04-05 20:16:24
+Random Quote: I like firsts. Good or bad, they're always memorable. - Ahsoka Tano
