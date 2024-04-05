@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 20:07:01
-Random Quote: Marshall: "The tiniest little burger joint you ever saw. Tucked between a taxidermist and a XXX bookstore."Barney: "Name two places where things get stuffed." - Barney Stinson
+Last updated: 2024-04-05 20:07:34
+Random Quote: When I get sad, I stop being sad and be awesome instead. True Story. - Barney Stinson
