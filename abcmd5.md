@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 14:21:20
-Random Quote: Since when do vegans eat fried chicken? - Hank Schrader
+Last updated: 2024-04-05 14:21:55
+Random Quote: The greatest fools are ofttimes more clever than the men who laugh at them.  -  Tywin Lannister
