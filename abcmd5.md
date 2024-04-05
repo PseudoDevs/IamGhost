@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 19:59:51
-Random Quote: Hey, takin' on a challenge is a lot like ridin' a horse. If you're comfortable while you're doin' it, you're probably doin' it wrong. - Jim Hopper
+Last updated: 2024-04-05 20:00:24
+Random Quote: I have sinned and must atone, must parade my shame before the eyes of every beggar in the city.  They think that this will break my pride, that it will make an end to me, but they are wrong.  -  Cersei Lannister
