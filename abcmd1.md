@@ -1,3 +1,2 @@
-Last updated: 2024-04-05 19:44:27
-Random Quote: Sal: "Does Lily have any other plates? I don't let Sammy eat off this plastic."
-Pepper: "How does she breastfeed him if she doesn't let him near plastic?" - Pepper Saltzman
+Last updated: 2024-04-05 19:45:00
+Random Quote: The Lord of Light cherishes the innocent.  There is no sacrifice more precious.  From his king's blood and his untainted fire, a dragon shall be born.  -  Melisandre
