@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 14:09:04
-Random Quote: Rhaegar fought valiantly, Rhaegar fought nobly, and Rhaegar died.  -  Jorah Mormont
+Last updated: 2024-04-05 14:09:39
+Random Quote: What you have to do is show these suckers what you’re capable of. Show them you’re not scared. - Nairobi
