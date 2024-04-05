@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 15:18:25
-Random Quote: You're Reek.  You'll always be Reek, no matter how sweet you smell.  Your nose may lie to you.  Remember your name.  Remember who you are.  -  Ramsay Bolton
+Last updated: 2024-04-05 15:18:58
+Random Quote: Jon, did you ever wonder why the men of the Night's Watch take no wives and father no children?  So they will not love, for love is the bane of honor, the death of duty.  -  Maester Aemon
