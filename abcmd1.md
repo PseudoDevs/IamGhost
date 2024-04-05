@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 14:11:59
-Random Quote: Dance, until your feet hurt. Sing, until your lungs hurt. Act, until you're William Hurt. - Phil Dunphy
+Last updated: 2024-04-05 14:12:33
+Random Quote: We have to control this fing world, or it will control you. And if you don't protect yourself, it makes a mess and breaks you. - Miguel Angel Felix Gallardo
