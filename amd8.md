@@ -1,3 +1,2 @@
-Last updated: 2024-04-05 20:03:21
-Random Quote: Doctor: "Hypothetically speaking, every new father-to-be get nervous."
-Vision: "Well, I have nerves of steel, so there goes your theory, Mr. Doctor." - Vision
+Last updated: 2024-04-05 20:03:55
+Random Quote: Sometimes, even when you know something's a mistake, you gotta make it anyway. - Ted Mosby
