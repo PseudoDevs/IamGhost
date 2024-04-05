@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 10:17:40
-Random Quote: Barney: "This is one of those things you have to do before you turn 30."Ted: "Sleep with a prostitute?!"Barney: "No, lose your virginity!... What up?" - Barney Stinson
+Last updated: 2024-04-05 10:18:13
+Random Quote: Lily: "Ted, you did this all yourself?"Ted: "Just like Ryan Gosling in 'The Notebook'. It was pretty manly 'til I mentioned Ryan Gosling in 'The Notebook', huh?" - Ted Mosby
