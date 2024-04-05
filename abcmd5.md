@@ -1,2 +1,4 @@
-Last updated: 2024-04-05 17:26:23
-Random Quote: Never fear the darkness, Bran.  The strongest trees are rooted in the dark places of the earth.  Darkness will be your cloak, your shield, your mother's milk.  Darkness will make you strong.  -  Bloodraven
+Last updated: 2024-04-05 17:26:56
+Random Quote: Bro McDonald had a farm, E-I-E-I-bro
+And on that farm he had some chicks, E-I-E-I-bro
+With a hot chick here and a dumb chick there... - Barney Stinson
