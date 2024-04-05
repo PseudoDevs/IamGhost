@@ -1,4 +1,2 @@
-Last updated: 2024-04-05 15:48:31
-Random Quote: Morticia: "Please excuse Wednesday. She's allergic to color."
-Enid: "Wow, what happens to you?"
-Wednesday: "I break out into hives, and then the flesh peels off my bones." - Wednesday Addams
+Last updated: 2024-04-05 15:49:04
+Random Quote: Perhaps magic was once a mighty force in the world, but no longer.  What little remains is no more than the wisp of smoke that lingers in the air after a great fire has burned out, and even that is fading.  Valyria was the last ember, and Valyria is gone.  -  Maester Luwin
