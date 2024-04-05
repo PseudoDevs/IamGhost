@@ -1,2 +1,3 @@
-Last updated: 2024-04-05 07:27:41
-Random Quote: A war is coming. I'm afraid your friends at Hawkins are very much in the eye of the storm. I don't know how to say this other than just to say it: without you, we can't win this war. - Sam Owens
+Last updated: 2024-04-05 07:28:14
+Random Quote: Bro, bro, bro your broat, gently to the bar
+Hit on sluts, then do ten shots and... - Barney Stinson
