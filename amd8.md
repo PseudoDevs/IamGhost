@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 18:58:12
-Random Quote: Let them keep believing I'm dead. So much the better. It was the chicken man. That coward sat up there in the north while his paramilitaries came into my home. - Lalo Salamanca
+Last updated: 2024-04-05 18:58:46
+Random Quote: I don't want to be good. I am going to be great. - Pablo Escobar
