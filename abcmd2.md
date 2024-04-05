@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 15:14:34
-Random Quote: Even in sin, you can still be a saint. - Don Neto
+Last updated: 2024-04-05 15:15:07
+Random Quote: Ran: "We were all young, tryin' to make a name for ourselves. But runnin' with a Mandalorian, that brought us some reputation."Mayfeld: "Oh, yeah? What did he get out of it?"Ran: "I asked him that one time. You remember what you said, Mando? Target Practice." - Din Djarin
