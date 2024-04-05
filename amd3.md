@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 18:28:32
-Random Quote: Catelyn would sooner Lord Umber had seen fit to stay sober, but telling the Greatjon not to drink was like telling him not to breathe for a few hours.  -  Catelyn Stark
+Last updated: 2024-04-05 18:29:06
+Random Quote: Rule Number One: Don't ever fall in love with a straight girl. - Alex Vause
