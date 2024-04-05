@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 10:17:41
-Random Quote: When life gives you lemonade, make lemons. Life will be all like, "What?!" - Phil Dunphy
+Last updated: 2024-04-05 10:18:14
+Random Quote: Mother of dragons.  Mother of monsters.  What have I unleashed upon the world?  A queen I am, but my throne is made of burned bones, and it rests on quicksand.  Without dragons, how could she hope to hold Mereen, much less win back Westeros?  I am the blood of the dragon.  If they are monsters, so am I.  -  Daenerys Targaryen
