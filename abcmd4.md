@@ -1,2 +1,3 @@
-Last updated: 2024-04-05 14:15:29
-Random Quote: Marshall: "The broken windows?"Lily: "We had to make it look realistic."Marshall: "But why did you break two of them?"Robin: "It looked like fun when she did it, so I wanted to try."Marshall: "I can't believe this whole time it was you guys; I've been blaming Really Tan Dancing Leotard guy." - Marshall Eriksen
+Last updated: 2024-04-05 14:16:39
+Random Quote: Morty: "You're really this pissed about my mum making sure I'm okay with our adventures?"
+Rick: "What's next, Morty? What if I want you to jump off the Empire State Building? I have to ask?" - Rick Sanchez
