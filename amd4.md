@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 20:04:15
-Random Quote: By "entertainment" they mean "table-shuffle-board", Makramee classes and other non-stimulating activities which are only used in Manhatten to calm down drug-addicts and the criminaly insane. - Robin Scherbatsky
+Last updated: 2024-04-05 20:05:21
+Random Quote: When treating with liars, even an honest man must lie.  -  Wyman Manderly
