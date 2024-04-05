@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 11:13:13
-Random Quote: You'd have been the last lawyer I'd have gone to. - Walter White
+Last updated: 2024-04-05 11:13:47
+Random Quote: A thousand eyes, a hundred skins, wisdom deep as the roots of ancient trees.  Greenseers.  -  Bloodraven

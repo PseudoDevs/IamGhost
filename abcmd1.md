@@ -1,6 +1,2 @@
-Last updated: 2024-04-05 11:12:07
-Random Quote: Rick: "Just do a Die Hard!"
-Summer: "What does that mean?"
-Rick: "Sneak around! Use air vents! You've never seen Die Hard?"
-Summer: "I'm 17. No, I've never seen Die Hard."
-Rick: "Well, neither did the guy in Die Hard." - Rick Sanchez
+Last updated: 2024-04-05 11:13:47
+Random Quote: Then perhaps Lord Eddard should have kept you chained to a dungeon wall.  Instead he raised you among his own sons, the sweet boys you have butchered, and to my undying shame I trained you in the arts of war.  Would that I had thrust a sword through your belly instead of placing one in your hand.  -  Rodrik Cassel
