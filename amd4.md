@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 18:25:13
-Random Quote: People come into our lives exactly when they should. - Nina Locke
+Last updated: 2024-04-05 18:25:46
+Random Quote: War. Such a fascinating concept. A temporary salve for a permanent human flaw. - The Handler
