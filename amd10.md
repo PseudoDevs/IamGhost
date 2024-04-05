@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 20:01:08
-Random Quote: Grey Wind ate two of his fingers, and he laughed about it.  -  Robb Stark on Greatjon Umber
+Last updated: 2024-04-05 20:01:41
+Random Quote: You need to figure out what the fuck you want. - Nicky Nichols

@@ -1,2 +1,3 @@
-Last updated: 2024-04-05 20:01:08
-Random Quote: Fear cuts deeper than swords.  -  Syrio Forel
+Last updated: 2024-04-05 20:01:41
+Random Quote: Marylin Thornhill: "I trust Enid has given you the old Nevermore welcome."
+Wednesday: "She's been smothering me with hospitality. I hope to return the favor... in her sleep." - Wednesday Addams
