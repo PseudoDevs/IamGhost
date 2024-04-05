@@ -1,3 +1,2 @@
-Last updated: 2024-04-05 16:57:10
-Random Quote: Hey look, it's the New York City skyline.
-We built Chip City... we built Chip City on all your dough! - Ted Mosby
+Last updated: 2024-04-05 16:57:43
+Random Quote: A man who sees nothing has no use for his eyes, cut them out and give them to your next outrider.  Tell him you hope that four eyes might see better than two... and if not, the man after him will have six.  -  Gregor Clegane
