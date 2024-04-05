@@ -1,2 +1,3 @@
-Last updated: 2024-04-05 18:48:03
-Random Quote: There is only one street where that is normal. Here's a hint: A giant yellow bird lives on it. - Barney Stinson
+Last updated: 2024-04-05 18:48:36
+Random Quote: Morty: "You're really this pissed about my mum making sure I'm okay with our adventures?"
+Rick: "What's next, Morty? What if I want you to jump off the Empire State Building? I have to ask?" - Rick Sanchez
