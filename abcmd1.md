@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 11:36:00
-Random Quote: Honey, it's just the way your brain was hardwired. Plenty of great, intelligent, funny, interesting, and creative people have struggled with the same things you struggle with. - Leslie Bennett
+Last updated: 2024-04-05 11:36:33
+Random Quote: Oh man, I am so excited that you're here! It has been forever since I have been around anyone even remotely fun![to Lily, Robin, Ted and Marshall] Huh... yes, offense! - Barney Stinson
