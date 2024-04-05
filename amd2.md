@@ -1,3 +1,2 @@
-Last updated: 2024-04-05 19:50:12
-Random Quote: Grace: "I had the phone put in. It's in the back."
-Tommy: "If we knew someone else who had a phone, we could call them." - Thomas Shelby
+Last updated: 2024-04-05 19:50:45
+Random Quote: All three of you were being a buch of little a-sholes. I was the only reasonable one. - Dustin Henderson
