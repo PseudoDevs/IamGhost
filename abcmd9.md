@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 13:11:56
-Random Quote: The Night's Watch is a sworn brotherhood.  We have no families.  None of us will ever father sons.  Our wife is duty.  Our mistress is honor.  -  Benjen Stark
+Last updated: 2024-04-05 13:12:30
+Random Quote: I've had shits that I've liked better than Walder Frey.  -  Brynden Tully
