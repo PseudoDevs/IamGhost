@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 14:15:29
-Random Quote: Eight years ago I made an ass of myself chasing after you and I made an ass of myself chasing after you a bunch of times since then. And I have no regrets because it led me to something I wouldn't trade for the world, it led to you being my friend. So as your friend and a leading expert in the field of making an ass of yourself. I say to you, from the heart, get the hell out of this car! - Ted Mosby
+Last updated: 2024-04-05 14:16:04
+Random Quote: I've got a new bro, a bro that puts all other bros to shame. The bitches love him. He buries bones all day. No one chases tail like him. Why aren't you guys laughing? Oh, wait, I probably should have led with this: he's a dog! I've named him Brover. - Barney Stinson
