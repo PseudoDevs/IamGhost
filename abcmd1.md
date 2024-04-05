@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 15:34:29
-Random Quote: Well, maybe this isn't a breakup. Maybe this is two friends getting back together. - Robin Scherbatsky
+Last updated: 2024-04-05 15:35:35
+Random Quote: We can only die.  Why else do we don these black cloaks, but to die in defense of the realm?  -  Qhorin Halfhand
