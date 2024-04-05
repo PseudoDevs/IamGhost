@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 19:30:45
-Random Quote: Pardon me, but you really hurt my feelings. - Hannah Baker
+Last updated: 2024-04-05 19:35:24
+Random Quote: Oberyn was ever the viper.  Deadly, dangerous, unpredictable.  No man dared tread on him.  I was the grass.  Pleasant, complaisant, sweet - smelling, swaying with every breeze.  Who fears to walk upon the grass?  But it is the grass that hides the viper from his enemies and shelters him until he strikes. 
