@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 19:54:52
-Random Quote: Serve, Obey, Protect.  Simple vows for a simple man.  -  Areo Hotah
+Last updated: 2024-04-05 19:55:26
+Random Quote: Just 'cause you fall on your *ss doesn't mean you have to stay there. - Hughie Campbell
