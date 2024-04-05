@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 13:14:04
-Random Quote: Edric Storm, they call him.  He is said to be the very image of my brother.  If men were to see him, and then look again at Joffrey and Tommen, they could not help but wonder, I would think.  -  Stannis Baratheon
+Last updated: 2024-04-05 13:14:38
+Random Quote: Marshall: "Robin, I need you to delete the last text that Lily got before she sees it."Robin: "Bro, it's my wedding weekend. Just because you didn't know better than to take a naked selfie while you were in the coldest part of the country..."Marshall: "...first, I'm an Eriksen. Cold has a plumping effect." - Marshall Eriksen
