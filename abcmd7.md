@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 10:54:15
-Random Quote: Bronn was no knight, that was true.  Bronn was a battle - hardened killer. 
+Last updated: 2024-04-05 10:54:49
+Random Quote: Pardon my French, f-ck those f-ckers! - Billy Butcher
