@@ -1,2 +1,4 @@
-Last updated: 2024-04-05 19:14:36
-Random Quote: I've killed a lot more than him, I promise you.  You think that makes me some monster.  Well, maybe it does, but I saved your sister's life too.  The day the mob pulled her off her horse, I cut through them and brought her back to the castle, else she would have gotten what Lollys Stokeworth got.  And she sang for me.  You didn't know that, did you?  Your sister sang me a sweet little song.  -  Sandor Clegane
+Last updated: 2024-04-05 19:15:44
+Random Quote: Oh Il-nam: "As a kid, I'm willing to bet you got spanked a lot."
+Seong Gi-hun: "How did you know?"
+Oh Il-nam: "My son did too. He was just like you, friend." - Oh Il-nam

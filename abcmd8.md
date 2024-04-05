@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 19:15:10
-Random Quote: Ted: "You name a chubby white kid LeBron and he's the one getting stuffed in the basketball hoop."Marshall: "Then I'm also crossing off Shaquille, Hakeem and Dikembe." - Ted Mosby
+Last updated: 2024-04-05 19:15:44
+Random Quote: When you play the game of thrones, you win or you die.  There is no middle ground.  -  Cersei Lannister
