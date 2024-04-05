@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 18:59:21
-Random Quote: We have watched how one moment, one choice, can ripple across space and time, giving birth to new stories, heroes, whole universes. But what if it's the wrong choice? What if the best of intentions has very strange consequences? - The Watcher
+Last updated: 2024-04-05 18:59:55
+Random Quote: If you mean when will Chernobyl be completly save - the half-life of Plutonium 239 is 24,000 years. Perhaps we should just say, 'not in our lifetimes'. - Valery Legasov
