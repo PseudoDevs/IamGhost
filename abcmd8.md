@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 16:27:13
-Random Quote: F*ck you! And your eyebrows! - Walter White
+Last updated: 2024-04-05 16:27:46
+Random Quote: I know the poison that my father used, and there is none slower or more agonizing.  Soon we may hear the Mountain screaming, even here in Sunspear.  -  Tyene Sand
