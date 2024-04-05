@@ -1,2 +1,5 @@
-Last updated: 2024-04-05 20:11:41
-Random Quote: The blood of the First Men flows in my veins as much as yours, boy.  You would do well to remember that.  I was named for your grandfather.  I raised my banners against King Aerys for your father, and against King Joffrey for you.  At Oxcross and the Whispering Wood and in the Battle of the Camps, I rode beside you, and I stood with Lord Eddard on the Trident.  We are kin, Stark and Karstark.  -  Rickard Karstark
+Last updated: 2024-04-05 20:12:15
+Random Quote: Marshall: "What the hell happened?"
+Barney: "I said no questions asked."
+Marshall: "Star, clover, horseshoe... Barney, did you swallow real versions of all the Lucky Charms items?"
+Barney: "No questions asked! Now come on. Let's hit the bar. I'm buying. I just won 50 bucks from a little Irish guy on a dare." - Barney Stinson
