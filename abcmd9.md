@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 08:28:39
-Random Quote: Ted: "You're not gonna do it at your wedding?"Lily: "Hell, yeah! I'm gonna take that flower-grenade and chuck it to the crowd and scream, 'Crawl for it, bitches!'" - Lily Aldrin
+Last updated: 2024-04-05 08:29:12
+Random Quote: Ted: "When you leave someone at the altar, you always leave a note. It's common courtesy."Victoria: "I think common courtesy went out the window when I did." - Victoria
