@@ -1,3 +1,2 @@
-Last updated: 2024-04-05 12:14:51
-Random Quote: Ravonna: "You really believe in this Loki variant?"
-Mobius: "Luckily, he believes in himself enough for the both of us." - Mobius M. Mobius
+Last updated: 2024-04-05 12:15:25
+Random Quote: No.  You were the betrayer.  You turned against me, against your own blood.  They cheated me.  Your horsey husband and his stinking savages.  They were cheats and liars.  They promised me a golden crown and gave me this.  -  Viserys Targaryen
