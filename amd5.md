@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 16:18:14
-Random Quote: Don't believe everything you hear. Our enemies want to separate us. But Mandalorians are stronger together. - Bo-Katan
+Last updated: 2024-04-05 16:18:47
+Random Quote: Clearly, his taste in women is the same as his taste in lawyers. - Saul Goodman
