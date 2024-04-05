@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 07:14:23
-Random Quote: At first, these keys were fun, but now we know they're more than that. They're important. They're part of our family and we need to protect them. - Bode Locke
+Last updated: 2024-04-05 07:14:56
+Random Quote: A ruler who hides behind paid executioners soon forgets what death is.  -  Eddard Stark
