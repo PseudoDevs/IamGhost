@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 14:49:15
-Random Quote: Jerry: "I wish that shotgun was my penis."Beth: "If it were, you could call me Ernest Hemingway." - Beth Smith
+Last updated: 2024-04-05 14:49:49
+Random Quote: I thought you where vomit-free since nintythree... so that was a lie? - Marshall Eriksen
