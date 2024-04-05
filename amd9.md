@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 15:50:52
-Random Quote: Come on, baby, do the magic hand thing! - Greef Karga
+Last updated: 2024-04-05 15:51:25
+Random Quote: I've had shits that I've liked better than Walder Frey.  -  Brynden Tully
