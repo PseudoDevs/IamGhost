@@ -1,3 +1,2 @@
-Last updated: 2024-04-05 13:51:17
-Random Quote: Grace: "I had the phone put in. It's in the back."
-Tommy: "If we knew someone else who had a phone, we could call them." - Thomas Shelby
+Last updated: 2024-04-05 13:51:52
+Random Quote: That's the thing with guys like Nate. They don't actually want a person. They want something they can own and possess. - Rue Bennett
