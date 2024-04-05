@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 14:24:44
-Random Quote: Miss Addams, you sadly had a very interesting educational journey. Eight schools in five years. - Larissa Weems
+Last updated: 2024-04-05 14:25:18
+Random Quote: Knowledge is a weapon, Jon.  Arm yourself well before you ride forth to battle.  -  Maester Aemon
