@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 12:36:06
-Random Quote: Dragons old and young, true and false, bright and dark.  And you.  A small man with a big shadow, snarling in the midst of it all.  -  Moqorro
+Last updated: 2024-04-05 12:36:41
+Random Quote: I'm the Homelander. And I can do whatever the f-ck I want. - Homelander
