@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 16:54:02
-Random Quote: Then perhaps Lord Eddard should have kept you chained to a dungeon wall.  Instead he raised you among his own sons, the sweet boys you have butchered, and to my undying shame I trained you in the arts of war.  Would that I had thrust a sword through your belly instead of placing one in your hand.  -  Rodrik Cassel
+Last updated: 2024-04-05 16:54:35
+Random Quote: If I'm always looking back, I'm never looking ahead. We are who we are because of consequences. You can't live without consequences. - Morty Smith
