@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 12:47:25
-Random Quote: Have you ever lost someone? It's like you're dying with them. They can move on. And you're stuck. - Eyk Larsen
+Last updated: 2024-04-05 12:48:00
+Random Quote: I will kill your wife, I will kill your son, I will kill your infant daughter. - Gustavo Fring
