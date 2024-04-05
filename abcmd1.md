@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 08:15:46
-Random Quote: I don't remember much between the ages of eight and twelve. Just that the world moved fast and my brain moved slow. And every now and then, if I focused too closely on the way I breathed, I'd die. Until every second of every day, you find yourself trying to outrun your anxiety. - Rue Bennett
+Last updated: 2024-04-05 08:16:19
+Random Quote: There are so many great things to do with the human mouth, why waste it on talking? - Barney Stinson

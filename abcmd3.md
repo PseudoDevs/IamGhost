@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 08:15:46
-Random Quote: It's not just football. It's life. - Cal Jacobs
+Last updated: 2024-04-05 08:16:19
+Random Quote: Yes, Lord Umber, leave me to the king.  He means to give me a scolding before he forgives me.  That's how he deals with treason, our King in the North.  Or should I call you the King Who Lost the North, your Grace?  -  Rickard Karstark
