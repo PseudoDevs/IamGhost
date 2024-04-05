@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 09:19:55
-Random Quote: Robin: "Ted, are you acting out the last scene of 'Sleepless in Seattle' with little dolls?"Ted: "How long have you been out here?"Robin: "Ten seconds."Ted: "Yeah - just the last scene." - Robin Scherbatsky
+Last updated: 2024-04-05 09:20:28
+Random Quote: Lily, I think we made a mistake moving out to the suburbs. I miss our home. I miss our booth with our friends. And I'm pretty sure I have a drumstick... somewhere bad. - Marshall Eriksen
