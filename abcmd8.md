@@ -1,5 +1,2 @@
-Last updated: 2024-04-05 17:14:48
-Random Quote: Bo-Katan: "I haven't seen battle droids since the Clone Wars."
-Din: "I have."
-Bo-Katan: "Any of 'em look suspicious?"
-Din: "They all look suspicious." - Din Djarin
+Last updated: 2024-04-05 17:15:21
+Random Quote: As fun as this place is, it's late. So, what's our play? And don't say, "The Siamese Twins", we're not stretching out another one of my jackets! - Ted Mosby
