@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 17:22:46
-Random Quote: You need to figure out what the fuck you want. - Nicky Nichols
+Last updated: 2024-04-05 17:23:19
+Random Quote: Robin: "I'm such a mess. Why do you even like me?"Barney: "I guess cause you're almost as messed up as I am." - Barney Stinson
