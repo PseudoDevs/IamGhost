@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 18:34:36
-Random Quote: What did the mermaid wear to her math class? An algae bra! - Will Livingston
+Last updated: 2024-04-05 18:35:10
+Random Quote: You are not the guy. You're not capable of being the guy. I had a guy but now I don't. You are not the guy. - Mike Ehrmantraut
