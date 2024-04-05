@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 12:35:21
-Random Quote: At least I know they didn't spot you. No one could stay that aroused with your mug peeking through the window. - Saul Goodman
+Last updated: 2024-04-05 12:35:58
+Random Quote: When you tear out a man's tongue, you are not proving him a liar, you're only telling the world that you fear what he might say.  -  Tyrion Lannister
