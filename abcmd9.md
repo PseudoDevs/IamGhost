@@ -1,2 +1,3 @@
-Last updated: 2024-04-05 18:03:29
-Random Quote: The years pass in their hundreds and their thousands, and what does any man see of life but a few summers, a few winters?  -  Maester Luwin
+Last updated: 2024-04-05 18:04:02
+Random Quote: Lily: "We don't wanna burden our little angel with all kinds of gender-specific expectations. Boys can do ballet, girls can play football."
+Marshall: "Hell, the Green Bay Packers have been proving that for years." - Marshall Eriksen
