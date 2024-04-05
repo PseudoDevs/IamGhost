@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 20:28:49
-Random Quote: They know.  The gods know.  They saw what I did.  And for one strange moment it seemed as if it were Bran's face carved into the pale trunk of the weirwood, staring down at him with eyes red and wise and sad.  Bran's ghost, he thought, but that was madness.  Why should Bran want to haunt him?  He had been fond of the boy, had never done him any harm.  It was not Bran we killed.  It was not Rickon.  They were only miller's sons, from the mill by the Acorn Water.  -  Theon Greyjoy
+Last updated: 2024-04-05 20:29:22
+Random Quote: Ted: "We can do it against the door. It will be hot. It will be like a three-way: you, me and the door."Stella: "Yeah, but then it's going to be weird between me and the door tomorrow." - Stella Zinman
