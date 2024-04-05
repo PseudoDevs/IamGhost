@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 09:48:04
-Random Quote: Only Renly could vex me so with a piece of fruit.  He brought his doom on himself with his treason, but I did love him, Davos.  I know that now.  I swear, I will go to my grave thinking of my brother's peach.  -  Stannis Baratheon
+Last updated: 2024-04-05 09:48:38
+Random Quote: Pictures can be twisted and used against you and haunt you forever. - Hannah Baker
