@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 17:32:32
-Random Quote: Just in case either of us can actually make it out of this hellhole somehow, we'll look after each other's loved ones, okay? - Oh Il-nam
+Last updated: 2024-04-05 17:33:05
+Random Quote: You don't parley when you're on the back foot. We'll strike a blow back first. - Thomas Shelby
