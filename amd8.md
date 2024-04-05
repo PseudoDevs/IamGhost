@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 16:58:16
-Random Quote: The number two guy doesn't solve problems. He just points them out. - Don Neto
+Last updated: 2024-04-05 16:58:49
+Random Quote: This is the one that you saved? You are as its father. A clan of two. But you have removed your helmet. Then you are a Mandalorian no more. - The Armorer
