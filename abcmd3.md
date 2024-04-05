@@ -1,5 +1,6 @@
-Last updated: 2024-04-05 11:26:00
-Random Quote: Dina: "You're infuriating."
-Ellie: "Have you met you?"
-Dina: "You make me want to go back outside into that blizzard."
-Ellie: "No one is stopping you." - Joel Miller
+Last updated: 2024-04-05 11:26:33
+Random Quote: When Mom was a groupie in the '70s, her scrambled eggs made her the darling of the MSG loading dock. Lot of songs written about those scrambled eggs:
+ZZ Top's "She's Got Legs"? Originally "She's Got Eggs".
+Led Zeppelin? "Scramble On".
+Steve Miller? "The Yolker".
+If you listen to Pink Floyd's "Dark Side of the Moon" while eating her eggs, it lines up perfectly. - Barney Stinson
