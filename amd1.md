@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 19:53:55
-Random Quote: Once, she had loved Prince Joffrey with all her heart, and admired and trusted his mother, the queen.  They had repaid that love and trust with her father's head.  Sansa would never make that mistake again.  -  Sansa Stark
+Last updated: 2024-04-05 19:54:28
+Random Quote: Never trust a pirate. - Din Djarin
