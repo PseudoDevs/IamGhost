@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 19:49:27
-Random Quote: Yes! Tonight is gonna be Legen... wait, are we sure it's a good idea to go to a strip club? Shut up, Lily! I'm in charge now... Dary! - Barney Stinson
+Last updated: 2024-04-05 19:50:01
+Random Quote: Barney: "I met a girl last night. So perky and full of life and not at all fake."Ted: "You're talking about her boobs, right?"Barney: "Si. And that wasn't Spanish, that was cup size. What up?!" - Barney Stinson
