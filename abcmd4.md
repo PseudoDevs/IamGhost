@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 15:26:48
-Random Quote: Only when we’ve freed ourselves of emotion can we be truly free. Only when you’re willing to sacrifice what you hold dearest. - Adam
+Last updated: 2024-04-05 15:27:21
+Random Quote: Khaleesi, better a man should swallow scorpions than trust in the spawn of shadows, who dare not show their face beneath the sun.  It is known.  -  Rakharo
