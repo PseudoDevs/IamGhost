@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 12:25:34
-Random Quote: You grew up with actors.  You learned their craft and you learned it well.  I grew up with soldiers.  I learned how to die a long time ago.  -  Eddard Stark
+Last updated: 2024-04-05 12:26:11
+Random Quote: Shelly, remember when you thought you had leprosy, and it was just a patch of dry skin? - Mary
