@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 17:04:21
-Random Quote: Grey Wind ate two of his fingers, and he laughed about it.  -  Robb Stark on Greatjon Umber
+Last updated: 2024-04-05 17:04:54
+Random Quote: I did the world a favor. People like Dalton shouldn't be allowed to procreate. Getting expelled was just a bonus. - Wednesday Addams
