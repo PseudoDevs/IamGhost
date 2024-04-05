@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 19:55:01
-Random Quote: It's okay to lose yourself in this, just as long as you can find yourself again. - Nina Locke
+Last updated: 2024-04-05 19:56:07
+Random Quote: You're wrong.  Need Stark was my gaoler, but my blood is still salt and iron.  -  Theon Greyjoy
