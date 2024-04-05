@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 19:45:33
-Random Quote: Everyone pretend podcasting isn't boring! - Rick Sanchez
+Last updated: 2024-04-05 19:46:06
+Random Quote: Euron's gifts are poisoned.  -  Victarion Greyjoy
