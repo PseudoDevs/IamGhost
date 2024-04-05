@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 12:00:25
-Random Quote: I act as if I don't care if people dislike me. Deep down, I actually enjoy it. - Wednesday Addams
+Last updated: 2024-04-05 12:00:59
+Random Quote: I feel like her sobriety is completely dependent on how available I am to her. - Jules Vaughn
