@@ -1,2 +1,3 @@
-Last updated: 2024-04-05 09:24:20
-Random Quote: We're going to Buffalo... and I've seen women from there; the city's aptly named. - Barney Stinson
+Last updated: 2024-04-05 09:24:53
+Random Quote: Enid Sinclair: "Want to take a stab at being social?"
+Wednesday: "I do like stabbing. The social part, not so much." - Wednesday Addams
