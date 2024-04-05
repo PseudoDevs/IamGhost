@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 18:29:39
-Random Quote: A man who sees nothing has no use for his eyes, cut them out and give them to your next outrider.  Tell him you hope that four eyes might see better than two... and if not, the man after him will have six.  -  Gregor Clegane
+Last updated: 2024-04-05 18:30:12
+Random Quote: I feel like her sobriety is completely dependent on how available I am to her. - Jules Vaughn
