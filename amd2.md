@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 18:35:13
-Random Quote: No voting, no debate. It's not a democracy - it's a Rickpublic! - Summer Smith
+Last updated: 2024-04-05 18:35:46
+Random Quote: Now you may be asking yourself why is sports icon John McEnroe narrating this tale? It'll make sense later I promise. - John McEnroe

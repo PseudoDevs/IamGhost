@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 18:34:39
-Random Quote: You can never tell with men. They go for whoever their dcks point at and there's no changing their minds. - Polly Gray
+Last updated: 2024-04-05 18:35:46
+Random Quote: A man will tell you poison is dishonorable, but a woman's honor is different.  The Mother shaped us to protect our children, and our only dishonor is failure.  -  Lysa Arryn
