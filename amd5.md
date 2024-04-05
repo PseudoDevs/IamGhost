@@ -1,2 +1,3 @@
-Last updated: 2024-04-05 17:58:42
-Random Quote: Be proud of your penis and your heritage. 'Cause neither are going anywhere. You should work with what you've got. - Otis Milburn
+Last updated: 2024-04-05 17:59:15
+Random Quote: Joel: "You got any advice on the best way west?"
+Man: "Yeah. Go east." - Ellie Williams
