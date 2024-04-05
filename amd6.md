@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 19:20:33
-Random Quote: Yes! Tonight is gonna be Legen... wait, are we sure it's a good idea to go to a strip club? Shut up, Lily! I'm in charge now... Dary! - Barney Stinson
+Last updated: 2024-04-05 19:21:40
+Random Quote: I hate kids. They don't drink, they haven't travelled... - Nicky Nichols
