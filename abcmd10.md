@@ -1,3 +1,2 @@
-Last updated: 2024-04-05 16:17:52
-Random Quote: Jessica: "I miss you."
-Morty: "You miss the old me. You miss someone that loved you so much, you never had to love him back." - Morty Smith
+Last updated: 2024-04-05 16:18:25
+Random Quote: In all the world, violent men are the easiest to deal with. - Irene O'Donnell
