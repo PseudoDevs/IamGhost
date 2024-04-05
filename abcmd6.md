@@ -1,3 +1,2 @@
-Last updated: 2024-04-05 13:31:46
-Random Quote: Stark: "Can I give you a piece of advice?"
-Carter: "I'd rather you didn't." - Peggy Carter
+Last updated: 2024-04-05 13:32:20
+Random Quote: Think of me as Yoda - only, instead of being little and green, I wear suits and I'm awesome. I'm your bro. I'm Broda. - Barney Stinson
