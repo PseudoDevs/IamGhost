@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 14:05:39
-Random Quote: Here's the secret, kids: none of us can vow to be perfect. In the end, all we can do is promise to love each other with everything we've got. Because love's the best thing we do. - Ted Mosby
+Last updated: 2024-04-05 14:07:23
+Random Quote: I am Bo-Katan of Clan Kryze. I was born on Mandalore and fought in the Purge. I am the last of my line. - Bo-Katan
