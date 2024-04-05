@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 20:16:07
-Random Quote: Wherein I suggested that you take your head and store it within yourself, in a fashion that, while space-saving, might limit its exposure to sunshine. - Marshall Eriksen
+Last updated: 2024-04-05 20:16:40
+Random Quote: Larry: "Where would you like me to put it then, Piper?"Piper: "Up your ass."Larry: "There's no room. Apparently, my head's already up there." - Larry Bloom
