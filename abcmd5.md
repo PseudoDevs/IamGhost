@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 15:27:50
-Random Quote: My lords, when Donal Noye was slain, it was this young man Jon Snow who took the Wall and held it, against all the fury of the north.  He has proved himself valiant, loyal, and resourceful.  Were it not for him, you would have found Mance Rayder sitting here when you arrived, Lord Slynt.  You are doing him a great wrong.  Jon Snow was Lord Mormont's own steward and squire.  He was chosen for that duty because the Lord Commander saw much promise in him.  As do I.  -  Maester Aemon
+Last updated: 2024-04-05 15:28:24
+Random Quote: The only difference between us is, when I made bad decisions in life, I didn't get caught. - Susan Fischer
