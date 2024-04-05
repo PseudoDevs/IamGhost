@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 15:03:00
-Random Quote: And Stannis has always felt he was cheated of Storm's End.  The ancestral seat of House Baratheon, his by rights... if you knew how many times he came to Robert singing that same dull song in that gloomy aggrieved tone he has.  When Robert gave the place to Renly, Stannis clenched his jaw so tight I thought his teeth would shatter.  -  Cersei Lannister
+Last updated: 2024-04-05 15:03:33
+Random Quote: Oberyn wanted vengeance for Elia.  Now the three of you want vengeance for him.  I have four daughters, I remind you.  Your sisters.  My Elia is fourteen, almost a woman.  Obella is twelve, on the brink of maiden - hood.  They worship you, as Dorea and Loreza worship them.  If you should die, must El and Obella seek vengeance for you, then Dorea and Loree for them?  Is that how it goes, round and round forever?  I ask again, where does it end? 
