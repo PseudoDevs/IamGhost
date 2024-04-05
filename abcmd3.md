@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 19:08:25
-Random Quote: The most beautiful woman in the world has urgent need of my axe.  -  Victarion Greyjoy.
+Last updated: 2024-04-05 19:08:58
+Random Quote: I asked him why he kept her close, if he thought her so grotesque.  He said that all his other knights wanted things of him, castles or honors or riches, but all that Brienne wanted was to die for him.  -  Loras Tyrell
