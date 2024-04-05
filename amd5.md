@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 20:22:27
-Random Quote: She don't speak.  You bloody bastards cut her throat too deep for that.  But she remembers.  -  Lem Lemoncloack
+Last updated: 2024-04-05 20:23:01
+Random Quote: Because someday, something will go wrong. It could cost you your life or something worse. And on that day what you can’t be thinking is that you are to be blamed for something you couldn’t control. That’s life. Enjoy it, until the party is over. - Berlin
