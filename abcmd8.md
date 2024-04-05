@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 18:15:36
-Random Quote: Shelly, remember when you thought you had leprosy, and it was just a patch of dry skin? - Mary
+Last updated: 2024-04-05 18:16:09
+Random Quote: If you want my advice? Get out of your own goddamn drama for a minute. - Nicky Nichols
