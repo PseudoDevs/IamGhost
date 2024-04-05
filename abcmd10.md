@@ -1,3 +1,2 @@
-Last updated: 2024-04-05 08:46:51
-Random Quote: Woman: "You know this isn't Vegas, right?"
-Robin: "Well sure, in Vegas the casinos pump in oxygen, in Atlantic City it looks like everyone brought their own." - Robin Scherbatsky
+Last updated: 2024-04-05 08:47:24
+Random Quote: There is a time to fight and there is a time to be clever. - Pablo Escobar
