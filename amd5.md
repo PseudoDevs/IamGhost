@@ -1,2 +1,3 @@
-Last updated: 2024-04-05 18:27:26
-Random Quote: I'm missing half my zucchini. These girls don't realize I'm here to provide food, not dildos. - Galina 'Red' Reznikov
+Last updated: 2024-04-05 18:28:00
+Random Quote: Sam: "How do you know about Gandalf?"
+Bucky: "I read 'The Hobbit' in 1937, when it first came out." - Bucky Barnes
