@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 17:18:22
-Random Quote: I am Bo-Katan of Clan Kryze. I was born on Mandalore and fought in the Purge. I am the last of my line. - Bo-Katan
+Last updated: 2024-04-05 17:18:55
+Random Quote: They shall come day and night to see the wonder that has been born again into the world, and when they see they shall lust.  For dragons are fire made flesh, and fire is power.  -  Quaithe
