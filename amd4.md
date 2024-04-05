@@ -1,2 +1,3 @@
-Last updated: 2024-04-05 16:33:01
-Random Quote: One minute we're just laying into each other, and then the next minute... well, same thing. - Ted Mosby
+Last updated: 2024-04-05 16:33:34
+Random Quote: Jay: "I got you a little gift to celebrate. I know it’s not much...-"
+Gloria: "It’s practically nothing!" - Gloria Pritchett
