@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 07:54:53
-Random Quote: Wylla.  Did you see how brave she was.  Even when I threatened to have her tongue out, she reminded me of the debt White Harbor owes to the Starks of Winterfell, a debt that can never be repaid.  Wylla spoke from the heart... not every woman can be as brave as my Wylla.  -  Wyman Manderly
+Last updated: 2024-04-05 07:55:26
+Random Quote: Barney: "This is one of those things you have to do before you turn 30."Ted: "Sleep with a prostitute?!"Barney: "No, lose your virginity!... What up?" - Barney Stinson
