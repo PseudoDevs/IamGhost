@@ -1,2 +1,3 @@
-Last updated: 2024-04-05 13:37:48
-Random Quote: Strip off their skins.  Lord Bolton, he used to say a naked man has few secrets, but a flayed man's got none.  -  Ramsay Bolton
+Last updated: 2024-04-05 13:38:22
+Random Quote: Wanda: "I had a brother. His name was Pietro."
+Geraldine: "He was killed by Ultron, wasn't he?" - Monica "Geraldine" Rambeau
