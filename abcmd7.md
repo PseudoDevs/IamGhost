@@ -1,2 +1,4 @@
-Last updated: 2024-04-05 18:02:20
-Random Quote: That's it. Three rules. I call 'em the 'Don't be stupid'-rules. 'Cause we're not stupid, alright? - Jim Hopper
+Last updated: 2024-04-05 18:02:54
+Random Quote: Oh Il-nam: "As a kid, I'm willing to bet you got spanked a lot."
+Seong Gi-hun: "How did you know?"
+Oh Il-nam: "My son did too. He was just like you, friend." - Oh Il-nam
