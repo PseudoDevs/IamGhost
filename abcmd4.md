@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 10:22:06
-Random Quote: Your pain defines who you are but it no longer holds power on you - Noah
+Last updated: 2024-04-05 10:22:39
+Random Quote: I want you to allow yourself to aknowledge the pain that you so clearly feel. - Fabiola Torres
