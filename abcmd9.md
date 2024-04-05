@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 16:54:57
-Random Quote: You don’t want a criminal lawyer. You want a criminal lawyer. - Jesse Pinkman
+Last updated: 2024-04-05 16:55:30
+Random Quote: 'You leaving already, Chief?"Jim Hopper: "Oh, come on, you think I actually wanted to come to this thing? I was just hungry."'Oh, yeah, that's the spirit."Jim Hopper: "Well, your wife doesn't have time to cook for me, you know what I'm saying." - Jim Hopper
