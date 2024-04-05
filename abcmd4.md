@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 17:13:07
-Random Quote: When it comes to locker rooms, I like 'em just like my mother's bathing suits: I only wanna see 'em in one piece. - Jim Hopper
+Last updated: 2024-04-05 17:13:40
+Random Quote: You poor stupid blind crippled fool.  Must I spell out every little thing for you?  Very well.  Cersei is a lying whore, she's been fucking Lancel and Osmund  Kettleblack and probably Moon Boy for all I know.  And I am the monster they all say I am.  Yes, I killed your vile son.  -  Tyrion Lannister
