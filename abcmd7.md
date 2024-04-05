@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 18:01:14
-Random Quote: There's something between us. Maybe my head was saying, "nip it in the bud", because my heart was saying something else... - Robin Scherbatsky
+Last updated: 2024-04-05 18:01:47
+Random Quote: You wear your honor like a suit of armor, Stark.  You think it keeps you safe, but all it does is weigh you down and make it hard for you to move.  -  Petyr Baelish
