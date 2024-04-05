@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 16:35:30
-Random Quote: When the snows fall and the white winds blow, the lone wolf dies, but the pack survives.  -  Eddard Stark
+Last updated: 2024-04-05 16:36:03
+Random Quote: In this world, a man must learn to seize whatever gifts the gods chose to send him.  That was a lesson I learned at some cost.  -  The Tattered Prince
