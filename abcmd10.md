@@ -1,3 +1,2 @@
-Last updated: 2024-04-05 17:17:00
-Random Quote: Weems: "No doubt you'll find something that tickles your fancy."
-Wednesday: "The last person who tickled me lost a finger." - Wednesday Addams
+Last updated: 2024-04-05 17:17:33
+Random Quote: I hate kids. They don't drink, they haven't travelled... - Nicky Nichols
