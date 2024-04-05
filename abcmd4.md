@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 19:03:53
-Random Quote: Ted: "She was 15?!"Barney: "No. A 15. Like in blackjack."Ted: "As in.. not sure whether you'd hit it?"Barney: "Exactly!" - Barney Stinson
+Last updated: 2024-04-05 19:05:01
+Random Quote: It's easier when you're a kid anyway. You don't have anybody else relying on you. That's the hardest part. - Joel Miller
