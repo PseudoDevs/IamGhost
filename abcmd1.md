@@ -1,3 +1,2 @@
-Last updated: 2024-04-05 15:48:27
-Random Quote: Journalist: "Mr. Stark, were you injured in the attack?"
-Tony Stark: "No, but I did spill my drink, and it was a '26 Macallan, so I'm pretty sure that's a war crime." - Iron Man
+Last updated: 2024-04-05 15:49:34
+Random Quote: You'd have been the last lawyer I'd have gone to. - Walter White
