@@ -1,3 +1,2 @@
-Last updated: 2024-04-05 16:28:36
-Random Quote: Jang Deok-su: "Tell me what you're good at?"
-Han Mi-nyeo: "Everything, except the things I can't do." - Oh Il-nam
+Last updated: 2024-04-05 16:29:09
+Random Quote: I'll have to take a page from Robert's book, not that he ever read one.  -  Stannis Baratheon
