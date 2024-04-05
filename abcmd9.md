@@ -1,3 +1,2 @@
-Last updated: 2024-04-05 10:46:59
-Random Quote: Mi-nyeo: "Deok-su. You betray me... I'll kill you. Okay?"
-Deok-su: "You're the reason that I think I might die tonight." - Jang Deok-su
+Last updated: 2024-04-05 10:47:33
+Random Quote: Ted: "Want to know what I looked like at age 15? There it is."Robin: "I don't get it, that guy wasn't masturbating."Barney: "Yeah, and the waistband of his undies wasn't pulled up to his Cub Scouts neckerchief." - Robin Scherbatsky
