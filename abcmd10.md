@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 08:04:29
-Random Quote: Sometimes distance is the only way to find peace. So you can heal your wound. - Berlin
+Last updated: 2024-04-05 08:05:01
+Random Quote: She don't speak.  You bloody bastards cut her throat too deep for that.  But she remembers.  -  Lem Lemoncloack
