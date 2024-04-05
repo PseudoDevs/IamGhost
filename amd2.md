@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 19:38:04
-Random Quote: No man has ever died from bending his knee.  He who kneels may rise again, blade in hand.  He who will not kneel stays dead, stiff legs and all.  -  Balon Greyjoy
+Last updated: 2024-04-05 19:38:37
+Random Quote: One minute we're just laying into each other, and then the next minute... well, same thing. - Ted Mosby
