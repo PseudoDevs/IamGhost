@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 16:22:47
-Random Quote: You need to stop focusing on the darkness behind you. The past is the past. Nothing can change what we’ve done. - Walter White
+Last updated: 2024-04-05 16:23:20
+Random Quote: Eight years ago I made an ass of myself chasing after you and I made an ass of myself chasing after you a bunch of times since then. And I have no regrets because it led me to something I wouldn't trade for the world, it led to you being my friend. So as your friend and a leading expert in the field of making an ass of yourself. I say to you, from the heart, get the hell out of this car! - Ted Mosby
