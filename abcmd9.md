@@ -1,2 +1,4 @@
-Last updated: 2024-04-05 17:50:47
-Random Quote: Rule Number One: Don't ever fall in love with a straight girl. - Alex Vause
+Last updated: 2024-04-05 17:51:53
+Random Quote: Bo-Katan: "I've scugged off a lot of Imperial warlords."
+Din: "They tend to get mad when you hijack their ships."
+Bo-Katan: "Now you tell me." - Bo-Katan
