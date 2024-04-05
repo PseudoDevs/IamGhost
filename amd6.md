@@ -1,6 +1,2 @@
-Last updated: 2024-04-05 17:15:54
-Random Quote: Rick: "Just do a Die Hard!"
-Summer: "What does that mean?"
-Rick: "Sneak around! Use air vents! You've never seen Die Hard?"
-Summer: "I'm 17. No, I've never seen Die Hard."
-Rick: "Well, neither did the guy in Die Hard." - Rick Sanchez
+Last updated: 2024-04-05 17:16:27
+Random Quote: Shut the f*ck up and let me die in peace. - Mike Ehrmantraut
