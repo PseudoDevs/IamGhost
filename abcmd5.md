@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 08:52:21
-Random Quote: Power tastes best when sweetened by courtesy; you had best learn that if you ever hope to rule.  -  Roose Bolton
+Last updated: 2024-04-05 08:52:54
+Random Quote: I'm KFC baby - you don't mess with the Colonel's recipe! - Barney Stinson

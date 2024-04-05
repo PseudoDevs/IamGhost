@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 08:52:21
-Random Quote: Dinner's a very intimate activity. It requires a level of connection and eye contact, that sex just doesn't. Call me old-fashioned, but I need to have sex with a girl at least three times before I'll even consider having dinner with her. - Barney Stinson
+Last updated: 2024-04-05 08:52:54
+Random Quote: There is a tool for every task, and a task for every tool.  -  Tywin Lannister
