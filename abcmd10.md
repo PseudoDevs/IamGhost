@@ -1,2 +1,3 @@
-Last updated: 2024-04-05 11:33:13
-Random Quote: Robin: "Can you guys keep a secret?"Lily: "Yeah."Marshall: "Well, some of us can..." - Marshall Eriksen
+Last updated: 2024-04-05 11:33:46
+Random Quote: Miguel: "Would you have really fed me to those hippos?"
+Pablo: "No. Hippos don't like Mexicans either." - Pablo Escobar
