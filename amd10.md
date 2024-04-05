@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 16:58:26
-Random Quote: I have won every battle, yet somehow I'm losing the war.  -  Robb Stark
+Last updated: 2024-04-05 16:58:59
+Random Quote: Ted: "You're not gonna do it at your wedding?"Lily: "Hell, yeah! I'm gonna take that flower-grenade and chuck it to the crowd and scream, 'Crawl for it, bitches!'" - Lily Aldrin
