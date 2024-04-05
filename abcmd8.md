@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 15:53:29
-Random Quote: For a joke to work, it has to have part of truth and part of pain. - Berlin
+Last updated: 2024-04-05 15:54:02
+Random Quote: You could turn King's Landing upside down and not find a single man with a mockingbird sewn over his heart but that does not mean I am friendless.  -  Petyr Baelish
