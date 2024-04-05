@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 19:41:22
-Random Quote: Just as long as you're lakeside cheering us to victory on race day... or you can just glare uncomfortably. Whatever works for you. - Enid Sinclair
+Last updated: 2024-04-05 19:41:55
+Random Quote: Some of you cared. None of you cared enough. - Hannah Baker
