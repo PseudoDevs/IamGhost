@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 14:21:55
-Random Quote: You ought to have no trouble catching our uncles.  One is drunk on seawater, after all, and the other is a great grey bullock so dim he'll probably get lost.  -  Asha Greyjoy
+Last updated: 2024-04-05 14:23:02
+Random Quote: Just in case either of us can actually make it out of this hellhole somehow, we'll look after each other's loved ones, okay? - Oh Il-nam
