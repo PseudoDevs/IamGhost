@@ -1,3 +1,2 @@
-Last updated: 2024-04-05 17:22:02
-Random Quote: Morty: "Rick, can we not leave without my sister?"
-Rick: "Ugh. You have infinite sisters, Morty. Not that I want to spend the rest of my day looking for another one. Sum-Sum, let's go! Grandpa's concern for your safety is fleeting." - Rick Sanchez
+Last updated: 2024-04-05 17:23:08
+Random Quote: I'd say hump her brain out, but somebody obviously already has. - Ted Mosby
