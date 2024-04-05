@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 13:51:36
-Random Quote: Sometimes it just feels better not to talk. At All. About Anything. To Anyone. - Walter White
+Last updated: 2024-04-05 13:52:10
+Random Quote: The more you move up in the world, the more enemies you make. - Rue Bennett
