@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 13:52:27
-Random Quote: This story is about to take a dark turn. Usually, I love dark turns. Like when the carousel brakes myteriously failed at my eighth birthdays party. - Wednesday Addams
+Last updated: 2024-04-05 13:53:01
+Random Quote: Pardon my French, f-ck those f-ckers! - Billy Butcher
