@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 18:49:40
-Random Quote: I rose too high, loved too hard, dared too much. I tried to grasp a star, overreached, and fell.  -  Jon Connington
+Last updated: 2024-04-05 18:50:14
+Random Quote: We just don't wanna rush anything, okay? We decided to wait, until she decides to let me have sex with her. - Barney Stinson
