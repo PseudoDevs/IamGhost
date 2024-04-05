@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 18:58:17
-Random Quote: If you think this has a happy ending, you haven't been paying attention.  -  Ramsay Bolton
+Last updated: 2024-04-05 18:58:51
+Random Quote: When you play the game of thrones, you win or you die.  There is no middle ground.  -  Cersei Lannister
