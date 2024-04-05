@@ -1,3 +1,2 @@
-Last updated: 2024-04-05 16:55:07
-Random Quote: "How do you take your tea?"
-Ted: "Well, normally right back to the counter because there's been a terrible mistake." - Jim Hopper
+Last updated: 2024-04-05 16:55:41
+Random Quote: I already told you what you can do with your money. You seem like a guy who can take a hint, so what are we doing? - Mike Ehrmantraut
