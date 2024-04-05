@@ -1,3 +1,2 @@
-Last updated: 2024-04-05 19:05:01
-Random Quote: Grace Burgess: "You think I am a wh-re?"
-Tommy Shelby: "Everyone's a wh-re, Grace. We just sell different parts of ourselves." - Thomas Shelby
+Last updated: 2024-04-05 19:05:35
+Random Quote: And that, kids, is the kind of stupid thing you say, before you've met the person who hits the reset button on the world. Who makes everything new again. Who makes it seem ridiculous that you ever considered settling. - Ted Mosby
