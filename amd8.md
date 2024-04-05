@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 18:36:51
-Random Quote: The title was but a courtesy due him as a council member; Varys was lord of nothing but the spiderweb, the master of none but his whispers.  -  Catelyn Stark
+Last updated: 2024-04-05 18:37:25
+Random Quote: Even in sin, you can still be a saint. - Don Neto
