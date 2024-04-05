@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 09:54:01
-Random Quote: A wolf is not a kraken.  What the kraken grasps it does not lose, be it longship or leviathan.  -  Victarion Greyjoy
+Last updated: 2024-04-05 09:54:34
+Random Quote: I'm not in the meth business. I'm in the empire business. - Walter White
