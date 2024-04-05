@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 10:42:33
-Random Quote: Sometimes a truce is the most important part of a war. - Professor
+Last updated: 2024-04-05 10:43:06
+Random Quote: New York! Home of the Mets, the Chrysler Building, those ladies from Sex and the City and now, the zombie apocalypse. If you can make it here, you can make it anywhere - but first, you have to not get eaten. - Spider-Man
