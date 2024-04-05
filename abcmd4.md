@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 15:03:46
-Random Quote: Marshall: "If economic sanctions and trade-restrictions aren't enforced, the destruction of the rainforest will continue and over a million species will be wiped out!"Ted: "So you don't want coffee?" - Ted Mosby
+Last updated: 2024-04-05 15:04:19
+Random Quote: The Old Gods have no power in the south.  The weirwoods there were all cut down, thousands of years ago.  -  Osha
