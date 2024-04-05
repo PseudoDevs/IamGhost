@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 15:39:29
-Random Quote: You know, it's funny. Almost every woman I've ever met was wrong to give me a chance. You're the first woman who's wrong not to. - Barney Stinson
+Last updated: 2024-04-05 15:40:02
+Random Quote: Serve, Obey, Protect.  Simple vows for a simple man.  -  Areo Hotah
