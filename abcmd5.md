@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 10:40:54
-Random Quote: I dream of a tree sometimes.  A weirwood, like the one in the godswood.  It calls to me.  The wolf dreams are better.  I smell things, and sometimes I can taste the blood.  -  Bran Stark
+Last updated: 2024-04-05 10:41:27
+Random Quote: For the night is dark and full of terrors.  -  Words of R'hllor
