@@ -1,3 +1,2 @@
-Last updated: 2024-04-05 13:17:37
-Random Quote: Jerry: "Rick! Beth! You love me after all!"
-Rick: "Eh, I love her, she loves you. Those credits don't transfer." - Rick Sanchez
+Last updated: 2024-04-05 13:18:13
+Random Quote: One day, we'll wake up, and brush our teeth, and go to work. And at some point, we'll suddenly realize that we haven't thought about it at all. None of it. And that's when we'll know. We'll know we can forget. - Saul Goodman
