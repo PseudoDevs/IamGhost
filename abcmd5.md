@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 07:29:05
-Random Quote: Was snow ever so black?  Ramsay took Lord Hornwood's lands by forcibly wedding his widow, then locked her in a tower and forgot her.  It is said she ate her own fingers in her extremity... and the Lannister notion of king's justice is to reward her killer with Need Stark's little girl.  -  Wyman Manderly
+Last updated: 2024-04-05 07:29:38
+Random Quote: Ted: "Do not pretend you're not the kind of guy, who keeps a list of all the girls he slept with."Marshall: "I have one. It's called my marriage-license." - Marshall Eriksen

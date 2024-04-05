@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 07:29:05
-Random Quote: Eighty-six years. But with good behavior... who knows? - Saul Goodman
+Last updated: 2024-04-05 07:29:38
+Random Quote: Edric Storm, they call him.  He is said to be the very image of my brother.  If men were to see him, and then look again at Joffrey and Tommen, they could not help but wonder, I would think.  -  Stannis Baratheon
