@@ -1,2 +1,3 @@
-Last updated: 2024-04-05 09:42:30
-Random Quote: Whats your prescription, Dr. Estrogen? Eat Haagen-Dazs and watch "Love... actually" until your periods sync up? - Barney Stinson
+Last updated: 2024-04-05 09:43:03
+Random Quote: Doctor: "Hypothetically speaking, every new father-to-be get nervous."
+Vision: "Well, I have nerves of steel, so there goes your theory, Mr. Doctor." - Vision
