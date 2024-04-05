@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 15:09:04
-Random Quote: Pennsatucky: "It weren't my fault. I was just doing as the Spirit commanded."Pussey: "Fuck are you? Joan of Arc?"Pennsatucky: "No, I'm from Waynesboro, my name is Tiffany..." - Tiffany 'Pennsatucky' Doggett
+Last updated: 2024-04-05 15:09:37
+Random Quote: Marshall really took a two-flusher on that one! - Ted Mosby
