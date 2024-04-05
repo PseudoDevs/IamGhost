@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 17:40:13
-Random Quote: Oh, come on. If you don't laugh, it just seems mean. - Barney Stinson
+Last updated: 2024-04-05 17:41:20
+Random Quote: My father never bellowed like the Greatjon, but he was no less dangerous in his wroth.  -  Alys Karstark
