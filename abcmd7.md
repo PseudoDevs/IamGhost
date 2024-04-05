@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 09:59:03
-Random Quote: Quentyn had never felt so much a boy as when he'd stood before Daenerys Targaryen, pleading for her hand.  The thought of bedding her terrified him almost as much as her dragons had.  -  Quentyn Martell
+Last updated: 2024-04-05 09:59:36
+Random Quote: I was in the desert. But if visiting the sands were a crime, the line of sinners would be longer than the Nile. - Arthur Harrow
