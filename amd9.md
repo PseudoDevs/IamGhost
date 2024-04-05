@@ -1,2 +1,3 @@
-Last updated: 2024-04-05 15:59:11
-Random Quote: Grief never gets any smaller, so you have to make yourself bigger around it. The best way to do that is to open up. Let people in. - Rendell Locke
+Last updated: 2024-04-05 15:59:44
+Random Quote: Hey look, it's the New York City skyline.
+We built Chip City... we built Chip City on all your dough! - Ted Mosby
