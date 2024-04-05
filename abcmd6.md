@@ -1,2 +1,3 @@
-Last updated: 2024-04-05 16:09:36
-Random Quote: My father never bellowed like the Greatjon, but he was no less dangerous in his wroth.  -  Alys Karstark
+Last updated: 2024-04-05 16:10:09
+Random Quote: Robin: "I can't believe my great grandparents still do that."
+Barney: "And I never imagined a walker being used for anything other than walking." - Barney Stinson
