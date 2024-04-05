@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 18:32:23
-Random Quote: Robert wanted smiles and cheers, always, so he went where he found them, to his friends and his whores.  Robert wanted to be loved.  My brother Tyrion has the same disease.  -  Cersei Lannister
+Last updated: 2024-04-05 18:32:56
+Random Quote: Let them keep believing I'm dead. So much the better. It was the chicken man. That coward sat up there in the north while his paramilitaries came into my home. - Lalo Salamanca
