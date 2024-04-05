@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 18:48:58
-Random Quote: You wanna know what line doesn't work on a harp player? "Hey baby, wanna pluck?" - Barney Stinson
+Last updated: 2024-04-05 18:49:30
+Random Quote: Do you think I can't tell Lord Stannis from Lord Tywin?  They're both bungholes who think they're too noble to shit, but never mind about that, I know the difference.  -  Walder Frey
