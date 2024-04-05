@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 12:02:06
-Random Quote: Science fact: Sisters are the worst. - Sheldon
+Last updated: 2024-04-05 12:02:39
+Random Quote: There is entirely too much tut - tutting in this realm, if you ask me.  All these kings would do a deal better if they put down their swords and listended to their mothers. 
