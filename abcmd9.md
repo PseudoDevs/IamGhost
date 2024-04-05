@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 15:42:17
-Random Quote: Kingthlayer... you are my captifth.  -  Vargo Hoat
+Last updated: 2024-04-05 15:42:50
+Random Quote: You wanna know what line doesn't work on a harp player? "Hey baby, wanna pluck?" - Barney Stinson
