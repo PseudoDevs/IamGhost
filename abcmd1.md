@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 09:17:52
-Random Quote: Ted: "Grinch, Grinch, Grinch, Grinch!"[The lights turn out]Lily: "Happy? Now you pissed up the big guy upstairs!"Ted: "Yeah, I'm sure god cares if I..."Man: "You use that language again and I turn off your water!"Lily: "It's my super - he lives above me." - Lily Aldrin
+Last updated: 2024-04-05 09:18:25
+Random Quote: We were king's men, knights, and heroes... but some knights are dark and full of terror, my lady.  War makes monsters of us all.  -  Thoros of Myr
