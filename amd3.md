@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 16:09:13
-Random Quote: You Westerosi are all the same.  You sew some beast upon a scrap of silk, and suddenly you are all lions or dragons or eagles.  -  Illyrio Mopatis
+Last updated: 2024-04-05 16:09:46
+Random Quote: It's not what you think, he just wants to have sex. Kidding. Just a little hand stuff. Ha, kidding again. Ted's more of a boob man. I seriously can't stop. - Robin Scherbatsky

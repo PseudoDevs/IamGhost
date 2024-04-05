@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 16:09:12
-Random Quote: We all must choose.  Man or woman, young or old, lord or peasant, our choices are the same.  We choose light or we choose darkness.  -  Melisandre
+Last updated: 2024-04-05 16:09:46
+Random Quote: Would the five of us always live within a few minutes of that booth? No, that's life, kids, but here's what I discovered: Our booth was wherever the five of us were together. - Ted Mosby
