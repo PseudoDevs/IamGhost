@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 13:01:11
-Random Quote: There are worse ways to die than warm and drunk.  I knew a brother drowned himself in wine once.  It was a poor vintage, though, and his corpse did not improve it.  -  Dolorous Edd Tollett
+Last updated: 2024-04-05 13:01:46
+Random Quote: Ted, no! You never break up a girl fight! Never! - Barney Stinson
