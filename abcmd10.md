@@ -1,3 +1,2 @@
-Last updated: 2024-04-05 10:29:51
-Random Quote: Kids, you can't talk yourself into falling in love. It doesn't take days of deliberation. When it's real, you know pretty quickly and with absolute certainty.
-I had forgotten that, but I was about to be reminded... - Ted Mosby
+Last updated: 2024-04-05 10:30:57
+Random Quote: You are the love of my life. Everything I have and everything I am is yours. Forever. - Barney Stinson
