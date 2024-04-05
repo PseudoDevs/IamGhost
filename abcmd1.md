@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 11:04:18
-Random Quote: You want to rule?  This is what ruling is; lying on a bed of weeds, ripping them out by the root, one by one, before they strangle you in your sleep.  -  Cersei Lannister
+Last updated: 2024-04-05 11:04:51
+Random Quote: I don't know anything about norse gods, but I do know how to bring the thunder. - Thor
