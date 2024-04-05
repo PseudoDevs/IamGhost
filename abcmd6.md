@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 08:57:18
-Random Quote: Your heart's talking to you, Barney. Do you have the guts to listen to it? - Lily Aldrin
+Last updated: 2024-04-05 08:57:50
+Random Quote: You give me one hour of phone-free bro time, during which we, and by we I mean you, get magnificently, mythologically drunk. I'm talking needing-subtitles-when-you-speak drunk. - Barney Stinson
