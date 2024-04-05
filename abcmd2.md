@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 12:28:33
-Random Quote: The Mandalorian. His armor alone is worth more than my bounty. - Fennec Shand
+Last updated: 2024-04-05 12:29:08
+Random Quote: Robert... he is in my dreams as well.  Laughing.  Drinking.  Boasting.  Those were the things he was best at.  Those, and fighting.  I never bested him at anything.  -  Stannis Baratheon
