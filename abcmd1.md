@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 20:05:01
-Random Quote: Barney: "Fine, we'll just have a nice, tasteful rehearsal dinner. Maybe at a French restaurant, I know just the place."Robin: "What's the name of the restaurant?"Barney: "La Sertag." - Barney Stinson
+Last updated: 2024-04-05 20:05:34
+Random Quote: Stay out of my territory. - Walter White
