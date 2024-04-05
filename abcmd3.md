@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 15:04:05
-Random Quote: Ted: "Uh, the time Lily went into labor!"Lily: "That's now!"Ted: "Sorry, I'm running out of stories." - Ted Mosby
+Last updated: 2024-04-05 15:04:38
+Random Quote: The Citadel took my chain, but they could not take my knowledge.  -  Qyburn
