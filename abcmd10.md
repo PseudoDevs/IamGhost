@@ -1,3 +1,2 @@
-Last updated: 2024-04-05 13:43:38
-Random Quote: Grace Burgess: "You think I am a wh-re?"
-Tommy Shelby: "Everyone's a wh-re, Grace. We just sell different parts of ourselves." - Thomas Shelby
+Last updated: 2024-04-05 13:44:14
+Random Quote: You and I are opposites but also just the same. Like an image in a mirror. We hate people and they in turn hate us. And fear us. - Chester Campbell
