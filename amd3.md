@@ -1,3 +1,2 @@
-Last updated: 2024-04-05 18:09:47
-Random Quote: How does a computer get drunk?
-It takes screenshots. - Will Livingston
+Last updated: 2024-04-05 18:10:20
+Random Quote: Have you ever thought that if you could go back in time, you might still make the same decisions? We all make our own snowballs out of our bad decisions. Balls that become massive, like the Indiana Jones boulder, chasing you down-hill only to crush you in the end. - Tokyo
