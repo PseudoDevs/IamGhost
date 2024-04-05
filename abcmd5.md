@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 08:25:28
-Random Quote: Have you ever been told you're different, odd, or simply don't belong? In a world full of normies, do you feel like an outcast? Me too. But I'm pleased to tell you there's a very special place for people like us. Nevermore Academy. - Wednesday Addams
+Last updated: 2024-04-05 08:26:00
+Random Quote: There's no shame in fear, my father told me, what matters is how we face it.  -  Jon Snow
