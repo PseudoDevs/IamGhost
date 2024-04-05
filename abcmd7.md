@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 09:43:08
-Random Quote: Space. Time. Reality. It's more than a linear path. It's a prism of endless possibility. - The Watcher
+Last updated: 2024-04-05 09:44:14
+Random Quote: His blood is bad.  He needs to be leeched.  The leeches suck away the bad blood, all the rage and pain.  No man can think so full of anger.  Ramsay, though... his tainted blood would poison even leeches, I fear.  -  Roose Bolton
