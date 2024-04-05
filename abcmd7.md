@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 09:40:57
-Random Quote: I'm going out of this world the same way I came into it: Buck-naked. Yeah. It's gonna be awesome. Open bar for the guys, open casket for the ladies. What up? - Barney Stinson
+Last updated: 2024-04-05 09:41:30
+Random Quote: You don’t want a criminal lawyer. You want a criminal lawyer. - Jesse Pinkman
