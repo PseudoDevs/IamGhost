@@ -1,2 +1,5 @@
-Last updated: 2024-04-05 20:18:36
-Random Quote: The number two guy doesn't solve problems. He just points them out. - Don Neto
+Last updated: 2024-04-05 20:19:09
+Random Quote: Abby: "Do we have to go back this way?"
+Owen: "Consider it an opportunity to work on your fears."
+Abby: "How about I work my foot up your ass?"
+Owen: "Abby, stop flirting!" - Joel Miller
