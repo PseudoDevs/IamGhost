@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 16:06:50
-Random Quote: Since I stopped dating Robin, there's this thing I haven't used as much as I would like. It's kind of big. Surprisingly heavy. Kind of leathery. And it's black.This, my friends, is the playbook! - Barney Stinson
+Last updated: 2024-04-05 16:07:24
+Random Quote: Marshall: "It's kind of a big, professional meeting. You might want to trade out that lollipop for a shirt."Ted: "Yeah. I'll just give it to one of these kids."Marshall: "Oh, buddy. You're half naked, you're not a parent to any of these children. Don't offer 'em candy!" - Marshall Eriksen
