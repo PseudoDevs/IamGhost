@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 08:24:22
-Random Quote: Lily, you just gave those children a stapler, a pair of sharp scissors and a pretty decent Pinot Noir. - Marshall Eriksen
+Last updated: 2024-04-05 08:24:55
+Random Quote: Phil: "Little heads up - there's no way I'm not crying at this wedding."Claire: "Phil, you cried on the way here."Phil: "I was on the brink already. I watched 'Dirty Dancing' before we left." - Phil Dunphy
