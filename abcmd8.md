@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 18:40:53
-Random Quote: A ruler who hides behind paid executioners soon forgets what death is.  -  Eddard Stark
+Last updated: 2024-04-05 18:41:58
+Random Quote: Someone has to protect this family from the man who protects this family. - Skyler White
