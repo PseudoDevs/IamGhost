@@ -1,2 +1,3 @@
-Last updated: 2024-04-05 17:51:30
-Random Quote: I can not believe that a woman who was brave enough to travel halfway around the world to pursue her dreams would allow anyone to dictate who she can be with. - Fabiola Torres
+Last updated: 2024-04-05 17:52:04
+Random Quote: Ellie: "Everybody I've cared for, either died or left me."
+Joel: "You have no idea what loss is." - Joel Miller
