@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 18:46:20
-Random Quote: I wish you could live to see the world we make. - Arthur Harrow
+Last updated: 2024-04-05 18:46:54
+Random Quote: Nymeria was least dangerous when nearly naked.  Elsewise she was sure to have a dozen blades concealed about her person.  -  Areo Hotah
