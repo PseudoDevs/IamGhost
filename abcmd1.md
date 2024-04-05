@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 15:59:32
-Random Quote: Only a fool humbles himself when the world is so full of men eager to do that job for him.  -  Theon Greyjoy
+Last updated: 2024-04-05 16:00:05
+Random Quote: You don’t want a criminal lawyer. You want a criminal lawyer. - Jesse Pinkman
