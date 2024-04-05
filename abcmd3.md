@@ -1,2 +1,4 @@
-Last updated: 2024-04-05 14:01:43
-Random Quote: Cara: "It's gonna break his little heart."Mando: "He'll get over it. We all do." - Din Djarin
+Last updated: 2024-04-05 14:02:17
+Random Quote: Rick: "Guests are fans, Morty, which we are not. We'd like professional badges."
+"Do you have a crew?"
+Rick: "Yes. He's a getaway driver with Asperger's and my butt is a demolitions expert." - Rick Sanchez
