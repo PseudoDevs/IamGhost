@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 12:37:57
-Random Quote: Now my bastards presume to teach me courtesy.  I'll speak any way I like, damn you.  I've had three kings to guest in my life, and queens as well, do you think I require lessons from the likes of you, Ryger?  Your mother was milking goats the first time I gave her my seed.  -  Walder Frey
+Last updated: 2024-04-05 12:38:32
+Random Quote: Hey kid, you know how your mom won't let you have icecream 'til after dinner, but then the waiting kind of makes it taste better? Well, I've been waiting two months for that bowl of ice cream - and tonight I'm gonna have sex with it. - Barney Stinson
