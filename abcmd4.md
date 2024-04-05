@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 16:45:25
-Random Quote: Why should I go running to my aunt as if I were a beggar?  My claim is better than her own.  Let her come to me... in Westeros.  -  Aegon Targaryen
+Last updated: 2024-04-05 16:45:58
+Random Quote: I never asked for this, no more than I asked to be king.  Yet dare I disregard her?  We do not choose our destinies.  Yet we must... we must do our duty, no?  Great or small, we must do our duty.  -  Stannis Baratheon
