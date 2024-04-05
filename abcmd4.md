@@ -1,2 +1,3 @@
-Last updated: 2024-04-05 19:01:39
-Random Quote: Tormund Giantsbane seemed to me the sort of man who would make a good friend and a bad enemy, your Grace.  -  Jon Snow
+Last updated: 2024-04-05 19:02:13
+Random Quote: May: "May Carleton. I breed racehorses and train them. What is it you do?"
+Thommy: "I rarely answer questions is what I do." - Thomas Shelby
