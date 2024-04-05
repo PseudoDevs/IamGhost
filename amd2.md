@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 19:03:52
-Random Quote: Sometimes you gotta do bad things to catch bad people. - Javier Pe�a
+Last updated: 2024-04-05 19:04:27
+Random Quote: The world was full of cravens who pretended to be heroes; it took a queer sort of courage to admit to cowardice as Samwell Tarly had.  -  Jon Snow
