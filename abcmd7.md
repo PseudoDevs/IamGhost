@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 20:03:55
-Random Quote: Ted: "You name a chubby white kid LeBron and he's the one getting stuffed in the basketball hoop."Marshall: "Then I'm also crossing off Shaquille, Hakeem and Dikembe." - Ted Mosby
+Last updated: 2024-04-05 20:05:01
+Random Quote: He would have killed me but for Howland Reed.  -  Eddard Stark
