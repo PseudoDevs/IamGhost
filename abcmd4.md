@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 13:29:25
-Random Quote: Ted: "You're not gonna do it at your wedding?"Lily: "Hell, yeah! I'm gonna take that flower-grenade and chuck it to the crowd and scream, 'Crawl for it, bitches!'" - Lily Aldrin
+Last updated: 2024-04-05 13:29:59
+Random Quote: Power resides where men believe it resides... It's a trick, a shadow on the wall.  -  Varys
