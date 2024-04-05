@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 17:04:22
-Random Quote: Bad guys don't play by the rules. That's what makes them bad. - Steve Murphy
+Last updated: 2024-04-05 17:04:55
+Random Quote: He would have killed me but for Howland Reed.  -  Eddard Stark
