@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 19:14:24
-Random Quote: Get the f out of here and don't stop walking until you hear them speak English! - Guillermo Gonzalez Calderoni
+Last updated: 2024-04-05 19:14:58
+Random Quote: War. Such a fascinating concept. A temporary salve for a permanent human flaw. - The Handler
