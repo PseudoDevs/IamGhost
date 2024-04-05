@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 09:14:33
-Random Quote: Your pain defines who you are but it no longer holds power on you - Noah
+Last updated: 2024-04-05 09:15:06
+Random Quote: Rattleshirt, we called him.  Treacherous and bloodthirsty.  If there's honor in him, he hides it down beneath his suit of bones.  -  Jon Snow
