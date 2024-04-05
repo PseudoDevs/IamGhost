@@ -1,2 +1,3 @@
-Last updated: 2024-04-05 10:33:42
-Random Quote: I am one far more accustomed to demanding answers, fool, than to giving them. - Thor
+Last updated: 2024-04-05 10:34:15
+Random Quote: Ellie: "There's not gonna be anything bad in here?"
+Joel: "Just you." - Joel Miller
