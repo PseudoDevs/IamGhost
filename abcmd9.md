@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 10:06:06
-Random Quote: Robin: "Ted, are you acting out the last scene of 'Sleepless in Seattle' with little dolls?"Ted: "How long have you been out here?"Robin: "Ten seconds."Ted: "Yeah - just the last scene." - Robin Scherbatsky
+Last updated: 2024-04-05 10:06:39
+Random Quote: Why is it always the innocents who suffer most, when you high lords play your game of thrones?  -  Varys
