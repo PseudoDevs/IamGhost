@@ -1,3 +1,2 @@
-Last updated: 2024-04-05 09:13:16
-Random Quote: The good news is, Luke has his bike.
-More good news, I taught some random kid a valuable lesson by stealing his bike. - Phil Dunphy
+Last updated: 2024-04-05 09:13:50
+Random Quote: Did the boy charm you?  He has that gift.  He got it from his father, with the blood.  He knows he is a king's son, but chooses to forget that he is bastard - born. 

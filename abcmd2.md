@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 09:13:16
-Random Quote: You cannot change the nature of things. I am who I am. And you are who you are. Nothing will change that. - Ángel
+Last updated: 2024-04-05 09:13:50
+Random Quote: The Crow's Eye brought back monsters from the east... aye, and wizards too.  -  Tristifer Botley
