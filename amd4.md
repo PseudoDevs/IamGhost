@@ -1,2 +1,4 @@
-Last updated: 2024-04-05 17:32:11
-Random Quote: I just want to stand on top of the Wall and piss off the edge of the world.  -  Tyrion Lannister
+Last updated: 2024-04-05 17:32:44
+Random Quote: Ted: "Okay, time to get the horn back to the bistro."
+Robin: "Oh Ted, I don't know if I can go again, that tuckered me out."
+Ted: "No euphemism." - Robin Scherbatsky

@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 17:32:09
-Random Quote: I swear to you, I was never so alive as when I was winning this throne, or so dead as now that I've won it.  -  Robert Baratheon
+Last updated: 2024-04-05 17:32:42
+Random Quote: The men of Westeros are ever rushing.  What good is this, I ask you?  He who hurries through life hurries to his grave.  -  Salladhor Saan
