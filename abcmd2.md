@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 12:57:37
-Random Quote: Many good men have been bad kings, and some bad men have been good kings.  -  Maester Aemon
+Last updated: 2024-04-05 12:58:14
+Random Quote: The Citadel took my chain, but they could not take my knowledge.  -  Qyburn
