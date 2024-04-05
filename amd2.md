@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 18:40:45
-Random Quote: You grew up with actors.  You learned their craft and you learned it well.  I grew up with soldiers.  I learned how to die a long time ago.  -  Eddard Stark
+Last updated: 2024-04-05 18:41:18
+Random Quote: What if God doesn’t know what he’s doing? If the plan is wrong? If God is wrong? - 
