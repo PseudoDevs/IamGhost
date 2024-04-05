@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 16:10:19
-Random Quote: Do you think I can't tell Lord Stannis from Lord Tywin?  They're both bungholes who think they're too noble to shit, but never mind about that, I know the difference.  -  Walder Frey
+Last updated: 2024-04-05 16:10:52
+Random Quote: I've had shits that I've liked better than Walder Frey.  -  Brynden Tully
