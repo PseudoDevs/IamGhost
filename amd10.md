@@ -1,3 +1,2 @@
-Last updated: 2024-04-05 17:17:16
-Random Quote: Peter Parker: "Splitting up? Do you guys just not have horror movies in Wakanda?"
-Okoye: "We don't need them. We have American reality shows." - Okoye
+Last updated: 2024-04-05 17:18:22
+Random Quote: You have a passing clever father, Devan.  He makes me wish I had more smugglers in my service.  And fewer lords.  -  Stannis Baratheon
