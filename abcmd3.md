@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 17:16:27
-Random Quote: Where some choose to look at this bra half-empty, I choose to look at this bra half-full. - Barney Stinson
+Last updated: 2024-04-05 17:17:00
+Random Quote: Roose Bolton's cold and cunning, aye, but a man can deal with Roose.  We've all known worse.  But this bastard son of his... they say he's mad and cruel, a monster.  -  Locke
