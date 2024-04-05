@@ -1,3 +1,2 @@
-Last updated: 2024-04-05 13:51:17
-Random Quote: Grace Burgess: "You think I am a wh-re?"
-Tommy Shelby: "Everyone's a wh-re, Grace. We just sell different parts of ourselves." - Thomas Shelby
+Last updated: 2024-04-05 13:51:52
+Random Quote: In my head, it's like If I can conquer men, then I can conquer femininity. - Jules Vaughn
