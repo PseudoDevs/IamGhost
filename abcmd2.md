@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 12:55:09
-Random Quote: What did the mermaid wear to her math class? An algae bra! - Will Livingston
+Last updated: 2024-04-05 12:55:47
+Random Quote: I have served six kings, but here before us lies the greatest man I ever knew.  Lord Tywin wore no crown, yet he was all a king should be.  -  Grand Maester Pycelle
