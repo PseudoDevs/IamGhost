@@ -1,2 +1,4 @@
-Last updated: 2024-04-05 14:01:03
-Random Quote: Summer: "It is a hot photo. I think grief flushes her cheeks. Dad, you hardly put any sirup on."Beth: "Honey, stop raising your father's colesterol so you can take a hot funeral selfie."Summer: "I never get to do anything." - Summer Smith
+Last updated: 2024-04-05 14:01:39
+Random Quote: Greef: "Nevarro is a very fine planet. And now that the scum and villainy have been washed away, it's very respectable again."
+Mando: "As a bounty hunter hive?"
+Greef: "Some of my favorite people are bounty hunters." - Greef Karga
