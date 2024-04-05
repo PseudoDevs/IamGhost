@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 20:07:48
-Random Quote: Mike: "Where are you going? You just said, 'stick to the plan'."Dustin: "I am. I'm just gonna go get some chocolate pudding." - Dustin Henderson
+Last updated: 2024-04-05 20:08:22
+Random Quote: New York! Home of the Mets, the Chrysler Building, those ladies from Sex and the City and now, the zombie apocalypse. If you can make it here, you can make it anywhere - but first, you have to not get eaten. - Spider-Man
