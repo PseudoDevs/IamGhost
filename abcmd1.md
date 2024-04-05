@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 07:31:26
-Random Quote: A man lives three lives. The first one ends with the loss of naivety, the second, with the loss of innocence and the third… with the loss of life itself. It’s inevitable that we go through all three stages. - Adam
+Last updated: 2024-04-05 07:32:00
+Random Quote: Bring on your storm, my lord... and recall, if you do, the name of this castle.  -  Cortnay Penrose
