@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 11:27:40
-Random Quote: My old septon used to say that books are dead men talking.  Dead men should keep quiet, is what I say.  No one wants to hear a dead man's yabber.  -  Dolorous Edd Tollett
+Last updated: 2024-04-05 11:28:13
+Random Quote: Is it your fault that Bronn's an insolent black - hearted rogue?  He's always been an insolent black
