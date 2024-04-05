@@ -1,4 +1,2 @@
-Last updated: 2024-04-05 14:01:52
-Random Quote: Stark: "Red, green, blue... who paints a button blue?"
-Carter: "Don't tell me the American playboy needs help pushing buttons."
-Stark: "Hedy Lamarr and I spent a weekend together, but she wasn't teaching me German." - Howard Stark
+Last updated: 2024-04-05 14:02:26
+Random Quote: Just because I don't have fear, doesn't make me irrational. - Kinsey Locke
