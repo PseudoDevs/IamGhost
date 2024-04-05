@@ -1,3 +1,2 @@
-Last updated: 2024-04-05 19:21:58
-Random Quote: HR: "I know this is classic HR to say, but: You're not alone."
-Steven: "Yeah. That's like, part of the problem, innit?" - Arthur Harrow
+Last updated: 2024-04-05 19:22:32
+Random Quote: He made me kill a rabbit. I guess he thought it would make me into more of a man or something. I cried for a week. - Jonathan Byers
