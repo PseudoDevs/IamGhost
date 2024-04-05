@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 15:43:56
-Random Quote: I am not in danger, Skyler. I AM the danger! - Walter White
+Last updated: 2024-04-05 15:44:29
+Random Quote: Have you seen Mace Tyrell's boy?  The Knight of Flowers, they call him.  Now there's a son any man would be proud to own to.  Last tourney, he dumped the Kingslayer on his golden rump, you ought to have seen the look on Cersei's face.  I laughed till my sides hurt.  -  Robert Baratheon

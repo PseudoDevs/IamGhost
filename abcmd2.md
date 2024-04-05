@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 15:43:55
-Random Quote: Perhaps we can fly.  All of us.  How will we ever know unless we leap from some tall tower?  No man ever truly knows what he can do unless he dares to leap.  -  Euron Greyjoy
+Last updated: 2024-04-05 15:44:29
+Random Quote: Some of you cared. None of you cared enough. - Hannah Baker
