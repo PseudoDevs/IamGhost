@@ -1,2 +1,2 @@
-Last updated: 2024-04-04 20:31:22
-Random Quote: It all goes back and back.  To our mothers and fathers and theirs before them.  We are puppets dancing on the strings of those who came before us, and one day our own children will take up our strings and dance in our steads.  -  Tyrion Lannister
+Last updated: 2024-04-05 06:50:53
+Random Quote: What we know is a drop. What we don’t know is an ocean - 
