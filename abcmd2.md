@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 12:51:27
-Random Quote: Sometimes people make decisions, shit happens, and we gotta act accordingly. - Marty Byrde
+Last updated: 2024-04-05 12:52:03
+Random Quote: You came in the door like thunder, Then hit the floor like thunder, Laying me down you wonder, Shaking the walls like thunder - 
