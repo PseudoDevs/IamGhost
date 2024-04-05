@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 19:41:03
-Random Quote: Whenever I feel good I think it will last forever. But it's not like that. - Rue Bennett
+Last updated: 2024-04-05 19:41:36
+Random Quote: Robert was the true steel.  Stannis is pure iron, black and hard and strong, yes, but brittle, the way iron gets.  He'll break before he bends.  And Renly, that one, he's copper, bright and shiny, pretty to look at but not worth all that much at the end of the day.  -  Donal Noye
