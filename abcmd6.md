@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 07:26:26
-Random Quote: Journey to face the unknown and ponder the question, "What if...?" - The Watcher
+Last updated: 2024-04-05 07:27:01
+Random Quote: Lord Balon's eldest brother had never given up the Old Way, even for a day.  His Silence, with its black sails and dark red hull, was infamous in every port from Ibben to Asshai, it was said.  -  Theon Greyjoy
