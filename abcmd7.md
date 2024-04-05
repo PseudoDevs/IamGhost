@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 15:36:42
-Random Quote: The title was but a courtesy due him as a council member; Varys was lord of nothing but the spiderweb, the master of none but his whispers.  -  Catelyn Stark
+Last updated: 2024-04-05 15:37:15
+Random Quote: He would see this country burn if he could be king of the ashes.  -  Varys
