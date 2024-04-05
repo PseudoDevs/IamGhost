@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 16:04:00
-Random Quote: I was a better smuggler than a knight, he had written to his wife, a better knight than a King's hand, a better King's hand than a husband.  I am so sorry Marya, I have loved you.  Please forgive the wrongs I did you.  -  Davos Seaworth
+Last updated: 2024-04-05 16:05:06
+Random Quote: Ted: "You name a chubby white kid LeBron and he's the one getting stuffed in the basketball hoop."Marshall: "Then I'm also crossing off Shaquille, Hakeem and Dikembe." - Ted Mosby
