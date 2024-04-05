@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 14:34:33
-Random Quote: Didn't you notice? Those jerks with masks came in and removed the beds of the people who died. Make on mistake out there, and yours is next. - Jang Deok-su
+Last updated: 2024-04-05 14:35:06
+Random Quote: Until the Mountain crushed my brother's skull, no Dornishmen had died in this War of the Five Kings.  Tell me, Captain, is that my shame or my glory?  -  Doran Martell

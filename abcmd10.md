@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 14:34:32
-Random Quote: This story is about to take a dark turn. Usually, I love dark turns. Like when the carousel brakes myteriously failed at my eighth birthdays party. - Wednesday Addams
+Last updated: 2024-04-05 14:35:06
+Random Quote: Let them keep believing I'm dead. So much the better. It was the chicken man. That coward sat up there in the north while his paramilitaries came into my home. - Lalo Salamanca
