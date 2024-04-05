@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 19:55:43
-Random Quote: My only aim is to take many lives. The more the better I feel. - 
+Last updated: 2024-04-05 19:56:16
+Random Quote: They shall come day and night to see the wonder that has been born again into the world, and when they see they shall lust.  For dragons are fire made flesh, and fire is power.  -  Quaithe
