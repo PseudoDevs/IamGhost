@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 07:49:21
-Random Quote: Our power comes from the perception of our power. - Mikhail Gorbachev
+Last updated: 2024-04-05 07:49:55
+Random Quote: He'd led me in war, hunted with a king, won honor in tourney melees, ridden with Brynden Blackfish and Greatjon Umber, fought in the Whispering Wood, bedded more girls than he could name, and yet his uncle was treating him as though he were still a child of ten.  -  Theon Greyjoy
