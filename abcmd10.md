@@ -1,3 +1,2 @@
-Last updated: 2024-04-05 07:51:12
-Random Quote: Peter Parker: "Splitting up? Do you guys just not have horror movies in Wakanda?"
-Okoye: "We don't need them. We have American reality shows." - Okoye
+Last updated: 2024-04-05 07:51:46
+Random Quote: Once, she had loved Prince Joffrey with all her heart, and admired and trusted his mother, the queen.  They had repaid that love and trust with her father's head.  Sansa would never make that mistake again.  -  Sansa Stark
