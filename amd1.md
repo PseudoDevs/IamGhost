@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 16:26:57
-Random Quote: Robert wanted smiles and cheers, always, so he went where he found them, to his friends and his whores.  Robert wanted to be loved.  My brother Tyrion has the same disease.  -  Cersei Lannister
+Last updated: 2024-04-05 16:27:30
+Random Quote: I have won every battle, yet somehow I'm losing the war.  -  Robb Stark
