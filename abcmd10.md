@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 09:29:50
-Random Quote: Because were baseball, strippers and guns can't help, the only thing that can really heal a broken heart, is time. - Ted Mosby
+Last updated: 2024-04-05 09:30:23
+Random Quote: Don't believe everything you hear. Our enemies want to separate us. But Mandalorians are stronger together. - Bo-Katan
