@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 08:41:20
-Random Quote: Money. That's what seperates the haves from the have-nots. But what is money? It's everything if you don't have it, right? - Marty Byrde
+Last updated: 2024-04-05 08:41:53
+Random Quote: From experience, it often takes a new perspective before one is able to see the light. - Elia Kane
