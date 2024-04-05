@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 15:28:57
-Random Quote: You guys can judge me if you want, but I do not care! I have never ever been happier! - Cassie Howard
+Last updated: 2024-04-05 15:30:04
+Random Quote: The Red God has his due, sweet girl, and only death may pay for life.  This girl took three that were his.  This girl must give three in their places.  Speak the names, and a man will do the rest.  -  Jaqen H'ghar
