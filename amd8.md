@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 18:13:29
-Random Quote: In his chainmail shirt with a sword in his hand, Gendry looked almost a man grown, and dangerous.  Hot Pie looked like Hot Pie.  -  Arya Stark
+Last updated: 2024-04-05 18:14:03
+Random Quote: I did it for me. I liked it. I was good at it. And... I was really... I was alive. - Walter White
