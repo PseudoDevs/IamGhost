@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 14:32:13
-Random Quote: Ted: "I hate how you're always right."Lily: "It's my best, and most annoying, trait." - Lily Aldrin
+Last updated: 2024-04-05 14:32:49
+Random Quote: Time is crucial in a kidnapping. The sooner action's taken, the better your chances of things working out, and everybody coming home in one piece. They put that in the handbook nowadays. - Walt Breslin
