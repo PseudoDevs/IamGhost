@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 20:06:40
-Random Quote: I don't feel so good. It's like my testicals mixed poprocks and soda. - Ted Mosby
+Last updated: 2024-04-05 20:07:46
+Random Quote: Small wonder that the Seven Kingdoms thought the free folk scarcely human.  They have no laws, no honor, not even simple decency.  They steal endlessly from each other, breed like beasts, prefer rape to marriage, and fill the world with baseborn children.  Yet he was growing fond of Tormund Giantsbane, great bag of wind and lies though he was.  -  Jon Snow
