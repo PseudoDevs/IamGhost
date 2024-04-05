@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 11:47:05
-Random Quote: There's kids playing hockey in the back. It's like you want us to make fun of you! - Barney Stinson
+Last updated: 2024-04-05 11:47:38
+Random Quote: Robert was the true steel.  Stannis is pure iron, black and hard and strong, yes, but brittle, the way iron gets.  He'll break before he bends.  And Renly, that one, he's copper, bright and shiny, pretty to look at but not worth all that much at the end of the day.  -  Donal Noye
