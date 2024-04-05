@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 12:49:09
-Random Quote: Doesn't matter what you did or what you were, you are an Avenger! - Agatha Harkness
+Last updated: 2024-04-05 12:49:43
+Random Quote: Money. That's what seperates the haves from the have-nots. But what is money? It's everything if you don't have it, right? - Marty Byrde
