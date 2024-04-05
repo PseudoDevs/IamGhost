@@ -1,2 +1,4 @@
-Last updated: 2024-04-05 17:03:49
-Random Quote: Her one choice gave birth to a whole new history and gave the multiverse a new hero. As for me, these are my stories. I observe all that transpires here, but I do not, cannot, will not interfere. For I am the Watcher. - The Watcher
+Last updated: 2024-04-05 17:04:22
+Random Quote: Joel: "Where'd you get the money for this?"
+Sarah: "Drugs. I sell hardcore drugs."
+Joel: "It's better than what I do." - Joel Miller
