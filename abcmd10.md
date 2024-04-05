@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 14:13:42
-Random Quote: Because I say so. - Walter White
+Last updated: 2024-04-05 14:14:17
+Random Quote: Being a Mandalorian is not just learning about how to fight. You also have to know how to navigate the Galaxy. That way you'll never be lost. - Din Djarin
