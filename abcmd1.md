@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 12:21:10
-Random Quote: Yes Barney, your submissions were recieved and no, we will not be attending any parties in your pants. - Ted Mosby
+Last updated: 2024-04-05 12:22:26
+Random Quote: Gods help you, Theon Greyjoy.  Now you are truly lost.  -  Rodrik Cassel
