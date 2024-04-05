@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 15:24:03
-Random Quote: Marshall Eriksen, put a baby in my belly. - Lily Aldrin
+Last updated: 2024-04-05 15:24:36
+Random Quote: Power tastes best when sweetened by courtesy; you had best learn that if you ever hope to rule.  -  Roose Bolton
