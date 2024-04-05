@@ -1,3 +1,2 @@
-Last updated: 2024-04-05 17:40:49
-Random Quote: Joel: "A deep breath in, slow breath out. You squeeze the trigger like you love it. Gentle, steady, nice and slow."
-Ellie: "You gonna shoot this thing or get it pregnant?" - Ellie Williams
+Last updated: 2024-04-05 17:41:23
+Random Quote: Sometimes you gotta do bad things to catch bad people. - Javier Pe�a
