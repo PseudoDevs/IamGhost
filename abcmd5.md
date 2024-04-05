@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 08:49:36
-Random Quote: So that's it? A couple of white Urkels offer you sausages and you're gone? - Robin Scherbatsky
+Last updated: 2024-04-05 08:50:09
+Random Quote: Khaleesi, better a man should swallow scorpions than trust in the spawn of shadows, who dare not show their face beneath the sun.  It is known.  -  Rakharo

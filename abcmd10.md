@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 08:49:36
-Random Quote: Love doesn't make sense. I mean, you can't logic your way into or out of it. Love ist totally nonsensical, but we have to keep doing it or else we're lost and love is dead and humanity should just pack it in. Because love is the best thing we do. - Ted Mosby
+Last updated: 2024-04-05 08:50:09
+Random Quote: Lord Pea Pod.  If you were a man, I would kill you for that, but my sword is made of too fine a steel to besmirch with craven's blood.  Aye, men are dying.  More will die before we see Winterfell.  What of it?  This is war.  Men die in war.  That is as it should be.  As it has always been.  -  Hugo Wull
