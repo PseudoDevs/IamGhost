@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 10:16:35
-Random Quote: Marshall: "Where is your playbook?"Robin: "My playbook? Bro, uh, two-volume set, right here.Ted: "It's a great read, actually."Lily: "Yeah, I'm reading it right now." - Robin Scherbatsky
+Last updated: 2024-04-05 10:17:08
+Random Quote: Rick: "If it's all the same, could we still get our stories straight? Because you're a terrible liar."Jerry: "You called me a master convincer!"Rick: "You believed me?" - Rick Sanchez
