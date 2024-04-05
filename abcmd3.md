@@ -1,2 +1,4 @@
-Last updated: 2024-04-05 15:59:02
-Random Quote: I would very much like to return your witty banter, but I am too exhausted to be clever. - Galina 'Red' Reznikov
+Last updated: 2024-04-05 15:59:35
+Random Quote: Joel: "I need you to tell us where we are."
+Man: "If you got a map, why you lost?"
+Ellie: "Must've missed all the street signs in the enormous f-cking forest." - Ellie Williams

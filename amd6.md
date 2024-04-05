@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 15:59:02
-Random Quote: So how do you take down a crook who's at the top of his game? Who has every cop in town in his pocket? Well, you hold your breath and you hope you get lucky. - Walt Breslin
+Last updated: 2024-04-05 15:59:35
+Random Quote: Kuiil: "They really don't like you for some reason."Mandalorian: "Well, I did disintegrate a few of them." - Din Djarin
