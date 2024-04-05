@@ -1,2 +1,4 @@
-Last updated: 2024-04-05 16:56:31
-Random Quote: Death is always inevitable. destiny is nothing but the connection between cause and effect. In light, in shadow. - 
+Last updated: 2024-04-05 16:57:04
+Random Quote: Bro McDonald had a farm, E-I-E-I-bro
+And on that farm he had some chicks, E-I-E-I-bro
+With a hot chick here and a dumb chick there... - Barney Stinson
