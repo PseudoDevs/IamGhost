@@ -1,2 +1,7 @@
-Last updated: 2024-04-05 16:14:00
-Random Quote: It all goes back and back.  To our mothers and fathers and theirs before them.  We are puppets dancing on the strings of those who came before us, and one day our own children will take up our strings and dance in our steads.  -  Tyrion Lannister
+Last updated: 2024-04-05 16:14:33
+Random Quote: "Nevermore was founded over 200 years ago to educate outcasts."
+"Students from all walks of life."
+"And death."
+"Our mission is to help each student master their unique abilities. So we offer a full range of extracurricular activities. From painting... to archery."
+"For centuries, notable alumni have roamed these majestic halls, from the master of macabre, Edgar Allan Poe, to personal heroes like Ignatius Itt, and of course, Morticia and Gomez Addams."
+"Our highly trained faculty educate our young outcasts on a wide range of subjects. Everything from werewolf reproduction to Gorgon anatomy." - Larissa Weems
