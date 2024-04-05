@@ -1,2 +1,4 @@
-Last updated: 2024-04-05 13:32:13
-Random Quote: There must always be a Stark in Winterfell.  -  Catelyn Stark
+Last updated: 2024-04-05 13:32:47
+Random Quote: Stark: "Red, green, blue... who paints a button blue?"
+Carter: "Don't tell me the American playboy needs help pushing buttons."
+Stark: "Hedy Lamarr and I spent a weekend together, but she wasn't teaching me German." - Howard Stark
