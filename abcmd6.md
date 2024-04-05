@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 11:09:52
-Random Quote: Barney: "On your tombstone, it will be, 'Lily Aldrin. Caring wife. Loving friend. Slapbet-Commissioner.'"Marshall: "And your tombstone will read, 'Got slapped by Marhsall so hard he died.'" - Marshall Eriksen
+Last updated: 2024-04-05 11:10:59
+Random Quote: Lily: "Anytime a single guy hangs out with a married woman there are rules that must be followed: Rule number one..."Barney: "Don't use the husband's condoms, that's just rude!" - Barney Stinson
