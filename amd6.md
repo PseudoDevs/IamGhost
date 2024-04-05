@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 15:50:09
-Random Quote: See, lad, that's why he's the king and I'm not.  I can outdrink, outfight, and outsing him, and my member's thrice the size o' his, but Mance has cunning.  -  Tormund Giantsbane
+Last updated: 2024-04-05 15:50:42
+Random Quote: Rick: "Hey Morty, quick favor."Morty: "What, cover me in gasoline and spiders? Fine, yeah, I'm in."Rick: "Wasn't my first pitch but hey, not gonna waste this opportunity." - Rick Sanchez
