@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 17:41:51
-Random Quote: We are the ironborn, and once we were conquerors.  Our writ ran everywhere the sound of the waves was heard.  My brother would have been content with the cold and dismal north, my niece with even less... but I shall give you Lannisport.  Highgarden.  The Arbor.  Oldtown.  The Riverlands and the Reach, the Kingswood and the Rainwood, Dorne and the Marches, the Mountains of the Moon and the Vale of Arryn, Tarth and the Stepstones.  I say we take it all!  I say, we take Westeros.  -  Euron Greyjoy
+Last updated: 2024-04-05 17:42:24
+Random Quote: Not only are you wrong... but you are belligerently sticking to your guns and insulting me in the process. Robin Scherbatsky, you are an American. - Barney Stinson
