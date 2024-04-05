@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 19:49:27
-Random Quote: Reality is more than neurons firing around in your brain. Reality is not what's on the inside. It's what's happening on the outside. - Daniel Solace
+Last updated: 2024-04-05 19:50:01
+Random Quote: After all, what’s more human than the fight for survival? - Tokyo
