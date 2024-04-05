@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 09:28:53
-Random Quote: Have you ever been told you're different, odd, or simply don't belong? In a world full of normies, do you feel like an outcast? Me too. But I'm pleased to tell you there's a very special place for people like us. Nevermore Academy. - Wednesday Addams
+Last updated: 2024-04-05 09:29:26
+Random Quote: Kevin: "Well, it's a close one. Lily made 14 awkward references to marriage and Marshall made an even 60."Robin: "I'm so sorry, Kevin."Kevin: "It's okay. I'm gonna go to bed, but you guys think tomorrow we can stop with all the marriage talk?"Lily: "I do."Marshall: "I do."Kevin: "That's a half a point each." - Kevin
