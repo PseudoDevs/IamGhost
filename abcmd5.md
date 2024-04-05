@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 11:10:26
-Random Quote: I put up a good fight but I lost. For the first time, but not the last. - Rue Bennett
+Last updated: 2024-04-05 11:10:59
+Random Quote: His size, Gregor is a very large man.  Also a very stupid one.  Too stupid to know when he should die, it seems.  -  Cersei Lannister
