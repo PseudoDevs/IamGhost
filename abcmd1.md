@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 08:29:31
-Random Quote: Sometimes distance is the only way to find peace. So you can heal your wound. - Berlin
+Last updated: 2024-04-05 08:30:04
+Random Quote: A ruler who hides behind paid executioners soon forgets what death is.  -  Eddard Stark
