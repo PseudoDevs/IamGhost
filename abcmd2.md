@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 14:37:59
-Random Quote: Lily: "A big package just arrived."Marshall: "Yeah, it did."Lily: "No, no. It's a real package from your dad."Marshall: "Well, that's a little weird, but yeah, it is." - Marshall Eriksen
+Last updated: 2024-04-05 14:38:33
+Random Quote: Drugs are kind of cool. I mean, they're cool before they wreck your skin. And your life. And your family. That's when they get uncool. It's actually a very narrow window of cool. - Rue Bennett
