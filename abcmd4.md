@@ -1,4 +1,2 @@
-Last updated: 2024-04-05 14:25:18
-Random Quote: Greef: "Be careful, my friend. They've got you outnumbered ten to one."
-Din: "I like these odds."
-Greef: "I bet you do." - Greef Karga
+Last updated: 2024-04-05 14:25:52
+Random Quote: Bronn was no knight, that was true.  Bronn was a battle - hardened killer. 
