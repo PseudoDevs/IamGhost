@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 17:12:05
-Random Quote: They get in your head. People tell lies about you, and other people believe them. And it gets to the point where the lies might as well be the truth. - Tyler Down
+Last updated: 2024-04-05 17:12:38
+Random Quote: Pain is always there cause life is freaking painful, okay? - Tiffany 'Pennsatucky' Doggett
