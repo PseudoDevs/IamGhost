@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 17:05:23
-Random Quote: The plan was to kill you and take the kid. But after what happened last night, I couldn't go through with it. - Greef Karga
+Last updated: 2024-04-05 17:05:56
+Random Quote: This is New York City, don't get close to the neighbours. You nod at them politely in the hall, you call the cops if you haven't seen them in a while and you smell something funny and that's it! - Ted Mosby
