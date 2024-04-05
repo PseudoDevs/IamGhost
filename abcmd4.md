@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 15:16:56
-Random Quote: I think maybe you're the only person who really knows who I am and still likes me anyway. - Allison Hargreeves
+Last updated: 2024-04-05 15:17:29
+Random Quote: It's easier when you're a kid anyway. You don't have anybody else relying on you. That's the hardest part. - Joel Miller
