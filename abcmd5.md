@@ -1,3 +1,2 @@
-Last updated: 2024-04-05 08:07:54
-Random Quote: Mi-nyeo: "Deok-su. You betray me... I'll kill you. Okay?"
-Deok-su: "You're the reason that I think I might die tonight." - Jang Deok-su
+Last updated: 2024-04-05 08:08:27
+Random Quote: Here's the secret, kids: none of us can vow to be perfect. In the end, all we can do is promise to love each other with everything we've got. Because love's the best thing we do. - Ted Mosby
