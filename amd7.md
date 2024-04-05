@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 19:03:14
-Random Quote: You could turn King's Landing upside down and not find a single man with a mockingbird sewn over his heart but that does not mean I am friendless.  -  Petyr Baelish
+Last updated: 2024-04-05 19:03:47
+Random Quote: Oh, Cersei is lovely to look at, truly, but cold... the way she guards her cunt, you'd think she had all the gold of Casterly Rock between her legs.  -  Robert Baratheon
