@@ -1,2 +1,3 @@
-Last updated: 2024-04-05 10:22:41
-Random Quote: The beautiful thing about getting high is that time ceases to exist. - Rue Bennett
+Last updated: 2024-04-05 10:23:14
+Random Quote: Lily: "Swear on the lifes of your unborn boy and girl!"
+Ted: "I swear... on Luke and Leia!" - Ted Mosby
