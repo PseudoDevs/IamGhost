@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 16:08:07
-Random Quote: Young or old, a true knight is sworn to protect those who are weaker than himself, or die in the attempt.  -  Brienne of Tarth
+Last updated: 2024-04-05 16:09:12
+Random Quote: Fool's blood, king's blood, blood on the maiden's thigh, but chains for the guests and chains for the bridegroom, aye aye aye.  -  Patchface
