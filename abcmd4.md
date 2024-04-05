@@ -1,5 +1,2 @@
-Last updated: 2024-04-05 08:51:15
-Random Quote: Morty: "I'm dying, Rick!"
-Rick: "People who are really dying don't keep bringing it up."
-Morty: "Is that true?"
-Rick: "I don't know. I'm just usually around people that die faster." - Rick Sanchez
+Last updated: 2024-04-05 08:51:48
+Random Quote: Dad, you can be in all of the fights that you want, but don't get hurt too bad. - Seong Gi-hun
