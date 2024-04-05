@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 18:12:18
-Random Quote: The Peaky Blinders. The vicious, merciless gangs who blind those who see and cut out the tongues of those who talk. - Chester Campbell
+Last updated: 2024-04-05 18:13:24
+Random Quote: None will be free until the old ways are gone forever. - Kuiil
