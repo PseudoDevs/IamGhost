@@ -1,2 +1,3 @@
-Last updated: 2024-04-05 13:33:20
-Random Quote: Early drinkin’ means quick drunken. - Jim Hopper
+Last updated: 2024-04-05 13:33:54
+Random Quote: Summer: "Someone out there is trying to kill us."
+Rick: "Someone's always trying to kill us." - Rick Sanchez
