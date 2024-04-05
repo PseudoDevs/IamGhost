@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 11:30:27
-Random Quote: Either get out early, or you get out too late. - Pacho Herrera
+Last updated: 2024-04-05 11:31:00
+Random Quote: You have a passing clever father, Devan.  He makes me wish I had more smugglers in my service.  And fewer lords.  -  Stannis Baratheon
