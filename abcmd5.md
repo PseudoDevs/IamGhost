@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 15:39:29
-Random Quote: Some battles are won with swords and spears, others with quills and ravens.  -  Tywin Lannister
+Last updated: 2024-04-05 15:40:02
+Random Quote: A family is like a small business. And with a small business, at times, there comes a bit of transition. - Marty Byrde
