@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 08:45:45
-Random Quote: Get the f out of here and don't stop walking until you hear them speak English! - Guillermo Gonzalez Calderoni
+Last updated: 2024-04-05 08:46:18
+Random Quote: In Colombia, when money's involved, blood inevitably flows. - Steve Murphy
