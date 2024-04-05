@@ -1,5 +1,3 @@
-Last updated: 2024-04-05 19:02:44
-Random Quote: Therapist: "You need to stop doing these weird things. Go out sometime."
-Klaus: "I went to the park today."
-Therapist: "There you go! I hope you got something from that."
-Klaus: "[Opens up coat] This duck." - Klaus Hargreeves
+Last updated: 2024-04-05 19:03:18
+Random Quote: Men and their d-cks never cease to amaze me. John, Lizzie Stark never did a day's work vertical.
+Brave is going where no man has gone before. And with Lizzie Stark, John, that's not what you'll be doing. - Polly Gray
