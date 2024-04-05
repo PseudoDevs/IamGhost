@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 09:25:35
-Random Quote: Aunties are older Indian women who have no blood-relation to you. But are allowed to have opinions about your life and all your shortcomings. And you have to be nice to them because you're Indian. - John McEnroe
+Last updated: 2024-04-05 09:26:08
+Random Quote: Pornstache: "You are not an agent of God, okay? God can do so much better than you. You must know that, right?"Pennsatucky: "Know what?"Pornstache: "Jesus Christ, how the fuck did you survive infancy?"Pennsatucky: "My auntie helped my momma..."Pornstache: "That's a rhetorical question! Do you not understand what a fucking rhetorical question is?" - George 'Pornstache' Mendez
