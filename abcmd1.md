@@ -1,2 +1,4 @@
-Last updated: 2024-04-05 19:00:28
-Random Quote: Oh, come on. If you don't laugh, it just seems mean. - Barney Stinson
+Last updated: 2024-04-05 19:01:37
+Random Quote: Stark: "Red, green, blue... who paints a button blue?"
+Carter: "Don't tell me the American playboy needs help pushing buttons."
+Stark: "Hedy Lamarr and I spent a weekend together, but she wasn't teaching me German." - Howard Stark
