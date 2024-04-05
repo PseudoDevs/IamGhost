@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 20:01:30
-Random Quote: I am not a rich person. I am a poor person with money. - Pablo Escobar
+Last updated: 2024-04-05 20:02:03
+Random Quote: Euron Greyjoy is no man's notion of a king, if half of what Theon said of him was true.  -  Robb Stark
