@@ -1,2 +1,3 @@
-Last updated: 2024-04-05 09:10:10
-Random Quote: We have watched how one moment, one choice, can ripple across space and time, giving birth to new stories, heroes, whole universes. But what if it's the wrong choice? What if the best of intentions has very strange consequences? - The Watcher
+Last updated: 2024-04-05 09:10:43
+Random Quote: Dragon: "My name is Balthromaw. Breaker of skies, slayer of mountain."
+Rick: "Rule 1: You're now scooper of your own poops, or I will take you down like the black-light poster you are." - Rick Sanchez
