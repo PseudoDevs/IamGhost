@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 13:57:38
-Random Quote: Because I say so. - Walter White
+Last updated: 2024-04-05 13:58:13
+Random Quote: She don't speak.  You bloody bastards cut her throat too deep for that.  But she remembers.  -  Lem Lemoncloack
