@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 15:06:52
-Random Quote: It all goes back and back.  To our mothers and fathers and theirs before them.  We are puppets dancing on the strings of those who came before us, and one day our own children will take up our strings and dance in our steads.  -  Tyrion Lannister
+Last updated: 2024-04-05 15:07:25
+Random Quote: The bad guys need to get lucky every time. The good guys just need to get lucky once. - Steve Murphy
