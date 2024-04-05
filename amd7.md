@@ -1,2 +1,6 @@
-Last updated: 2024-04-05 18:33:32
-Random Quote: When you meet someone special, suddenly life is full of firsts: The first kiss, the first night together, the first weekend together. - Ted Mosby
+Last updated: 2024-04-05 18:34:06
+Random Quote: Morty: "Rick, when you say you made an exact replica of the house, did you mean, like, an exact replica?"
+Rick: "I know about the Yosemite T-Shirt, Morty."
+Morty: "Shit."
+Rick: "You know you can use tissues, right?"
+Morty: "I can't finish without it!" - Morty Smith
