@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 16:16:24
-Random Quote: Dinner's a very intimate activity. It requires a level of connection and eye contact, that sex just doesn't. Call me old-fashioned, but I need to have sex with a girl at least three times before I'll even consider having dinner with her. - Barney Stinson
+Last updated: 2024-04-05 16:16:57
+Random Quote: Ladys and Gentlemen, I have in my hand a copy of tonight's top 10 list. The category: Top 10 things i would have called my truck...Number 10 - 'The Winne-Bango'.Number 9 - 'The Pick-Up Truck'.Number 8 - 'The Ford Explore Her'.Number 7 - 'The You Scream Truck'. You Scream.Number 6 - 'Feels on Wheels!'. Hello!Number 5 - 'The Ride Her Truck'.Number 4 - 'The 18-Squeeler'.Number 3 - 'The Esca-Laid'. Ih-ih-ih!Number 2 - 'The Slam-Boney'.Aaand the number 1 thing I would've called my truck if Ted hadn't been a jerk and given it back...'The '69 Chevy'! - Barney Stinson
