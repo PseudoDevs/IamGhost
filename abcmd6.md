@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 16:39:27
-Random Quote: Minds are like swords, I do fear.  The old ones go to rust.  -  Grand Maester Pycelle
+Last updated: 2024-04-05 16:40:00
+Random Quote: When the sun has set, no candle can replace it.  -  Loras Tyrell
