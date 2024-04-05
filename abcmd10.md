@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 13:25:12
-Random Quote: I don't care if you're so scared you foul your breeches, and I don't care if a thousand wildlings are coming over the walls howling for your blood, you get those birds off, or I swear I'll hunt you through all seven hells and make you damn sorry that you didn't.  -  Jeor Mormont
+Last updated: 2024-04-05 13:25:49
+Random Quote: If you get pulled over for speeding, tell the policeman your spouse has diarrhea. - Phil Dunphy
