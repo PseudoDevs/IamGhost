@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 12:27:55
-Random Quote: They are children, Sansa thought.  They are silly little girls, even Elinor.  They've never seen a battle, they've never seen a man die, they know nothing.  Their dreams were full of songs and stories, the way hers had been before Joffrey cut her father's head off.  Sansa pitied them.  Sansa envied them.  -  Sansa Stark
+Last updated: 2024-04-05 12:29:06
+Random Quote: I just want to stand on top of the Wall and piss off the edge of the world.  -  Tyrion Lannister
