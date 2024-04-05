@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 17:25:33
-Random Quote: Fire in the hole, bitch! - Jesse Pinkman
+Last updated: 2024-04-05 17:26:06
+Random Quote: See, lad, that's why he's the king and I'm not.  I can outdrink, outfight, and outsing him, and my member's thrice the size o' his, but Mance has cunning.  -  Tormund Giantsbane
