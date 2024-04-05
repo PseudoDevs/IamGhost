@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 19:28:53
-Random Quote: Think of the pickup plays we can run as a father-son duo. There's the "Father Knows Breast", there's the "Bush Dynasty", the "Lick Father, Lick Son". - Barney Stinson
+Last updated: 2024-04-05 19:30:45
+Random Quote: They'll bend the knee or I'll destroy them.  -  Stannis Baratheon
