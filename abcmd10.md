@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 07:22:27
-Random Quote: His size, Gregor is a very large man.  Also a very stupid one.  Too stupid to know when he should die, it seems.  -  Cersei Lannister
+Last updated: 2024-04-05 07:23:01
+Random Quote: We all must choose.  Man or woman, young or old, lord or peasant, our choices are the same.  We choose light or we choose darkness.  -  Melisandre
