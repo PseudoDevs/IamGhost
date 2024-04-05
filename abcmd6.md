@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 11:41:32
-Random Quote: The man who passes the sentence should swing the sword.  If you would take a man's life, you owe it to him to look into his eyes and hear his final words.  And if you cannot bear to do that, then perhaps the man does not deserve to die.  -  Eddard Stark
+Last updated: 2024-04-05 11:42:39
+Random Quote: Words are wind, and the only good wind is that which fills our sails.  -  Victarion Greyjoy
