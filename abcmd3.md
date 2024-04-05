@@ -1,2 +1,5 @@
-Last updated: 2024-04-05 10:29:18
-Random Quote: Hey, nice shirt, Ted. Is it yesterday already? - Lily Aldrin
+Last updated: 2024-04-05 10:30:23
+Random Quote: "What's love to you?"
+Flaca: "It's like getting into a bath, but the water is like warm chocolate pudding. And the Smiths are playing. There Is A Light That Never Goes Out.' There's mood lighting all over, and there's like five dudes massaging you."
+Maritza: "And you have a pizza!"
+Flaca: "She's right. You also have a pizza." - Marisol 'Flaca' Gonzales & Maritza Ramos
