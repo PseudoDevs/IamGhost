@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 16:44:52
-Random Quote: We can only die.  Why else do we don these black cloaks, but to die in defense of the realm?  -  Qhorin Halfhand
+Last updated: 2024-04-05 16:45:26
+Random Quote: Sometimes two people in the universe who aren't meant for each other find each other. - Cal Jacobs
