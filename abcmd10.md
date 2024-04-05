@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 10:07:13
-Random Quote: The Crow's Eye brought back monsters from the east... aye, and wizards too.  -  Tristifer Botley
+Last updated: 2024-04-05 10:07:46
+Random Quote: Everyone pretend podcasting isn't boring! - Rick Sanchez
