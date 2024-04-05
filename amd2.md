@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 20:32:12
-Random Quote: I think my soul just threw up a little bit. - Lily Aldrin
+Last updated: 2024-04-05 20:32:45
+Random Quote: What you have to do is show these suckers what you’re capable of. Show them you’re not scared. - Nairobi
