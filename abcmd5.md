@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 11:39:19
-Random Quote: Many hands make light work. And many mouths make good gossip. - Agatha Harkness
+Last updated: 2024-04-05 11:39:52
+Random Quote: My uncle Kevan would make a passably good regent if someone pressed the duty on him, but he will never reach for it.  The gods shaped him to be a follower, not a leader.  -  Tyrion Lannister
