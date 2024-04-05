@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 18:12:18
-Random Quote: You don't parley when you're on the back foot. We'll strike a blow back first. - Thomas Shelby
+Last updated: 2024-04-05 18:12:52
+Random Quote: The title was but a courtesy due him as a council member; Varys was lord of nothing but the spiderweb, the master of none but his whispers.  -  Catelyn Stark
