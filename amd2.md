@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 17:44:19
-Random Quote: Think of me as Yoda - only, instead of being little and green, I wear suits and I'm awesome. I'm your bro. I'm Broda. - Barney Stinson
+Last updated: 2024-04-05 17:44:52
+Random Quote: Since when do vegans eat fried chicken? - Hank Schrader
