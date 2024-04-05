@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 15:55:43
-Random Quote: You ought to have no trouble catching our uncles.  One is drunk on seawater, after all, and the other is a great grey bullock so dim he'll probably get lost.  -  Asha Greyjoy
+Last updated: 2024-04-05 15:56:16
+Random Quote: Every year, there are a million new, hot 22-year-olds walking into bars and call me "glass-half-full"... but I think they're getting dumber. - Barney Stinson
