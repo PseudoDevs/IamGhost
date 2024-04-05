@@ -1,2 +1,6 @@
-Last updated: 2024-04-05 14:04:29
-Random Quote: The title was but a courtesy due him as a council member; Varys was lord of nothing but the spiderweb, the master of none but his whispers.  -  Catelyn Stark
+Last updated: 2024-04-05 14:05:03
+Random Quote: Sam: "They might be a part of the big three."
+Bucky: "What big three?"
+Sam: "Androids, aliens and wizards."
+Bucky: "That's not a thing."
+Sam: "That's definitely a thing." - Sam Wilson
