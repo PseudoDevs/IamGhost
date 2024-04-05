@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 19:05:36
-Random Quote: See, lad, that's why he's the king and I'm not.  I can outdrink, outfight, and outsing him, and my member's thrice the size o' his, but Mance has cunning.  -  Tormund Giantsbane
+Last updated: 2024-04-05 19:06:44
+Random Quote: I'm missing half my zucchini. These girls don't realize I'm here to provide food, not dildos. - Galina 'Red' Reznikov
