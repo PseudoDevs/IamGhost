@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 17:07:18
-Random Quote: Hey, want to come to my house and play telephone? I got the string, you got the cans. - Barney Stinson
+Last updated: 2024-04-05 17:07:51
+Random Quote: Never forget what you are, for surely the world will not.  Make it your strength.  Then it can never be your weakness.  Armor yourself in it, and it will never be used to hurt you.  -  Tyrion Lannister
