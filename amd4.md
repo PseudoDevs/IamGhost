@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 16:53:28
-Random Quote: Lord Balon's eldest brother had never given up the Old Way, even for a day.  His Silence, with its black sails and dark red hull, was infamous in every port from Ibben to Asshai, it was said.  -  Theon Greyjoy
+Last updated: 2024-04-05 16:54:01
+Random Quote: Barney: "I cannot stop staring at that girl's face."Ted: "Face, huh? That's your weirdest nickname for boobs yet." - Ted Mosby
