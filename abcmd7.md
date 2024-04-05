@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 10:40:54
-Random Quote: People say Hawkins is cursed. They're not way off. - Dustin Henderson
+Last updated: 2024-04-05 10:42:00
+Random Quote: You don't bring a date to a wedding, that's like taking a deer carcass on a hunting trip. - Barney Stinson
