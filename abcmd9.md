@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 12:03:26
-Random Quote: Shelly, remember when you thought you had leprosy, and it was just a patch of dry skin? - Mary
+Last updated: 2024-04-05 12:03:59
+Random Quote: The septons preach about the seven hells.  What do they know?  Only a man who's been burned knows what hell is truly like.  -  Sandor Clegane
