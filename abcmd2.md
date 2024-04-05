@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 11:05:58
-Random Quote: I asked him why he kept her close, if he thought her so grotesque.  He said that all his other knights wanted things of him, castles or honors or riches, but all that Brienne wanted was to die for him.  -  Loras Tyrell
+Last updated: 2024-04-05 11:06:32
+Random Quote: There are only two reasons to date a girl you've already dated: breast implants. - Barney Stinson
