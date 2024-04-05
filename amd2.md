@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 16:07:33
-Random Quote: Robin: "We're like sisters."Ted: "You've never gotten through even one exchange without screaming at her."Robin: "Sisters fight, Ted!" - Robin Scherbatsky
+Last updated: 2024-04-05 16:08:06
+Random Quote: Because you're so broken you don't even trust yourself. And that's scary. - Nate Jacobs
