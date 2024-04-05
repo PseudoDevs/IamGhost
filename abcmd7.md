@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 18:14:30
-Random Quote: The big bro in the sky had answered my prayers. Allmighty five! - Barney Stinson
+Last updated: 2024-04-05 18:15:03
+Random Quote: No.  You were the betrayer.  You turned against me, against your own blood.  They cheated me.  Your horsey husband and his stinking savages.  They were cheats and liars.  They promised me a golden crown and gave me this.  -  Viserys Targaryen
