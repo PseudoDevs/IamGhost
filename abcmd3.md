@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 17:40:46
-Random Quote: They say the king loved to hunt.  The things we love destroy us every time, lad.  Remember that.  -  Jeor Mormont
+Last updated: 2024-04-05 17:41:53
+Random Quote: Shut the f*ck up and let me die in peace. - Mike Ehrmantraut
