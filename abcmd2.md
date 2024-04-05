@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 15:09:37
-Random Quote: Lily: "It's nine weeks 'til the wedding, at this point, I'd say yes to just about anything."Barney: "Well..."Lily: "No, Barney." - Lily Aldrin
+Last updated: 2024-04-05 15:10:10
+Random Quote: I hate kids. They don't drink, they haven't travelled... - Nicky Nichols
