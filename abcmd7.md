@@ -1,3 +1,2 @@
-Last updated: 2024-04-05 12:47:59
-Random Quote: Neither one of us are gonna say, "Hey, how's it going?" or "Good to see you!"
-Because it really will be good to see you. - Barney Stinson
+Last updated: 2024-04-05 12:48:33
+Random Quote: We all face the same end. Those above have long forgotten us. They do not judge us. In death, I am all alone, and my only judge… is me. - Martha
