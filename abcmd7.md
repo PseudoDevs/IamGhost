@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 08:58:37
-Random Quote: Zoey: "Don't worry Ted, she's cute."Barney: "'Cute' means 'fat'!"Zoey: "She's not fat."Barney: "'Not fat' means 'ugly'." - Barney Stinson
+Last updated: 2024-04-05 08:59:10
+Random Quote: This is my own private domicile and I will not be harassed…bitch! - Jesse Pinkman
