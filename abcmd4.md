@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 09:35:21
-Random Quote: Clearly, his taste in women is the same as his taste in lawyers. - Saul Goodman
+Last updated: 2024-04-05 09:35:55
+Random Quote: It wasn't the violence that scared her. It was the fact that she knew no matter what he did, she'd still love him. - Rue Bennett
