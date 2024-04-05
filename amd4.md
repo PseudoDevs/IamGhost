@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 19:12:12
-Random Quote: Men of honor will do things for their children that they would never consider doing for themselves.  -  Petyr Baelish
+Last updated: 2024-04-05 19:12:45
+Random Quote: Lily: "A swordfight? On Monday I'm gonna have to tell my kindergarten class, who I teach not to run with scissors, that my fiancé ran me through with a freakin' broadsword."Marshall: "Well... just to be fair, it didn't go all the way through."Lily: "I'm sorry, is this a discussion of the degree to which you stabbed me?" - Lily Aldrin
