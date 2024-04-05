@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 12:25:52
-Random Quote: The Citadel took my chain, but they could not take my knowledge.  -  Qyburn
+Last updated: 2024-04-05 12:26:26
+Random Quote: Oh, Cersei is lovely to look at, truly, but cold... the way she guards her cunt, you'd think she had all the gold of Casterly Rock between her legs.  -  Robert Baratheon
