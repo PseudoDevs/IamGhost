@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 08:56:12
-Random Quote: It's only once you've stopped, that you realize how hard it is to start again. So you force yourself not to want it. - Ted Mosby
+Last updated: 2024-04-05 08:56:45
+Random Quote: Walter Jr., you’re my big man. There are going to be some things that you’ll come to learn about me in the next few days. But just know that no matter how it may look, I only had you in my heart. Goodbye! - Walter White

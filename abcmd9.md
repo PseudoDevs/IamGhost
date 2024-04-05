@@ -1,2 +1,3 @@
-Last updated: 2024-04-05 08:56:11
-Random Quote: A ruler who hides behind paid executioners soon forgets what death is.  -  Eddard Stark
+Last updated: 2024-04-05 08:56:44
+Random Quote: Miguel: "Would you have really fed me to those hippos?"
+Pablo: "No. Hippos don't like Mexicans either." - Pablo Escobar
