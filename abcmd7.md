@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 15:22:18
-Random Quote: The more you give a king, the more he wants.  We are walking on a bridge of ice with an abyss on either side.  Pleasing one king is difficult enough.  Pleasing two is hardly possible.  -  Jon Snow
+Last updated: 2024-04-05 15:23:24
+Random Quote: The truth is, our weakness is the same as anyone’s. It’s people. The people we care about. So I say, cut them loose. For your good and for theirs. That way you’re really bulletproof. - Maeve
