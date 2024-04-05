@@ -1,2 +1,5 @@
-Last updated: 2024-04-05 08:31:24
-Random Quote: Marshall: "Where is your playbook?"Robin: "My playbook? Bro, uh, two-volume set, right here.Ted: "It's a great read, actually."Lily: "Yeah, I'm reading it right now." - Robin Scherbatsky
+Last updated: 2024-04-05 08:31:57
+Random Quote: John Flynn: "Rogers, get in there!"
+Peggy Carter: "He can't."
+John Flynn: "Stark, you go in!"
+Howard Stark: "What? Are you crazy? I push the buttons. I'm the buttons guy." - Howard Stark
