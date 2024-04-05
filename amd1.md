@@ -1,2 +1,5 @@
-Last updated: 2024-04-05 19:03:19
-Random Quote: The beauty of a moment, is that it's fleeting. - Ted Mosby
+Last updated: 2024-04-05 19:03:53
+Random Quote: Therapist: "You need to stop doing these weird things. Go out sometime."
+Klaus: "I went to the park today."
+Therapist: "There you go! I hope you got something from that."
+Klaus: "[Opens up coat] This duck." - Klaus Hargreeves
