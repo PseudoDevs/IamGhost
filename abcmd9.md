@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 11:14:53
-Random Quote: You want to know if I was ever really in love with you? Every morning, I wake up wishing I wasn't. You are a constant reminder of what I can't have. A life. Love. You. - Lucien
+Last updated: 2024-04-05 11:16:00
+Random Quote: The world is one great web, and no man dare not touch a single strand lest all the others tremble.  -  Illyrio Mopatis
