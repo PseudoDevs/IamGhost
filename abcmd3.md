@@ -1,4 +1,2 @@
-Last updated: 2024-04-05 15:59:35
-Random Quote: Joel: "I need you to tell us where we are."
-Man: "If you got a map, why you lost?"
-Ellie: "Must've missed all the street signs in the enormous f-cking forest." - Ellie Williams
+Last updated: 2024-04-05 16:00:08
+Random Quote: So many vows... they make you swear and swear.  Defend the king.  Obey the king.  Keep his secrets.  Do his bidding.  Your life for his.  But obey your father.  Love your sister.  Protect the innocent.  Defend the week.  Respect the gods.  Obey the laws.  It's too much.  No matter what you do, you're forsaking one vow for the other.  -  Jaime Lannister
