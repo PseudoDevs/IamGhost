@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 07:19:28
-Random Quote: Hey, want to come to my house and play telephone? I got the string, you got the cans. - Barney Stinson
+Last updated: 2024-04-05 07:20:02
+Random Quote: Until the Mountain crushed my brother's skull, no Dornishmen had died in this War of the Five Kings.  Tell me, Captain, is that my shame or my glory?  -  Doran Martell
