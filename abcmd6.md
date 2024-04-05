@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 18:07:22
-Random Quote: There are moments when we must understand that the decisions we make influence more than just our own fates. - Claudia
+Last updated: 2024-04-05 18:08:28
+Random Quote: Many good men have been bad kings, and some bad men have been good kings.  -  Maester Aemon
