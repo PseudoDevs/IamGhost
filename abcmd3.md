@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 13:22:12
-Random Quote: Turns out, when you projectile vomit on skates, you roll right into the spray. - Ted Mosby
+Last updated: 2024-04-05 13:22:46
+Random Quote: When the sun rises in the west and sets in the east.  When the seas go dry and mountains blow in the wind like leaves.  When your womb quickens again, and you bear a living child.  Then he will return, and not before.  -  Mirri Maz Duur
