@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 16:57:20
-Random Quote: Ladys and Gentlemen, I have in my hand a copy of tonight's top 10 list. The category: Top 10 things i would have called my truck...Number 10 - 'The Winne-Bango'.Number 9 - 'The Pick-Up Truck'.Number 8 - 'The Ford Explore Her'.Number 7 - 'The You Scream Truck'. You Scream.Number 6 - 'Feels on Wheels!'. Hello!Number 5 - 'The Ride Her Truck'.Number 4 - 'The 18-Squeeler'.Number 3 - 'The Esca-Laid'. Ih-ih-ih!Number 2 - 'The Slam-Boney'.Aaand the number 1 thing I would've called my truck if Ted hadn't been a jerk and given it back...'The '69 Chevy'! - Barney Stinson
+Last updated: 2024-04-05 16:57:53
+Random Quote: When will you guys realize, that the only difference between my real life and a p0rn0 is, my real life has better lighting? - Barney Stinson
