@@ -1,3 +1,2 @@
-Last updated: 2024-04-05 20:02:48
-Random Quote: Jessica: "I miss you."
-Morty: "You miss the old me. You miss someone that loved you so much, you never had to love him back." - Morty Smith
+Last updated: 2024-04-05 20:03:21
+Random Quote: I am scared, 'cause I don't know how to fly. But you're there at the bottom of the slide to catch me when I fall. - Hannah Baker
