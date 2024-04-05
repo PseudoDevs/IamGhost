@@ -1,2 +1,3 @@
-Last updated: 2024-04-05 20:19:24
-Random Quote: You came in the door like thunder, Then hit the floor like thunder, Laying me down you wonder, Shaking the walls like thunder - 
+Last updated: 2024-04-05 20:19:57
+Random Quote: Jang Deok-su: "Tell me what you're good at?"
+Han Mi-nyeo: "Everything, except the things I can't do." - Oh Il-nam
