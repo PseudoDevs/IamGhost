@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 18:07:34
-Random Quote: What is the cost of lies? It's not that we mistake them for the truth. The real danger is that if we hear enough lies, then we no longer recognize the truth at all. - Valery Legasov
+Last updated: 2024-04-05 18:08:07
+Random Quote: The farther you go, the sharper their blade. Just don't ever give them an opening. - Cal Jacobs
