@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 16:19:01
-Random Quote: Baby, can we grow sandwiches behind the garage? - Marshall Eriksen
+Last updated: 2024-04-05 16:19:34
+Random Quote: My father never bellowed like the Greatjon, but he was no less dangerous in his wroth.  -  Alys Karstark
