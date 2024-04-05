@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 12:08:22
-Random Quote: Mike: "Where are you going? You just said, 'stick to the plan'."Dustin: "I am. I'm just gonna go get some chocolate pudding." - Dustin Henderson
+Last updated: 2024-04-05 12:08:55
+Random Quote: My father never bellowed like the Greatjon, but he was no less dangerous in his wroth.  -  Alys Karstark
