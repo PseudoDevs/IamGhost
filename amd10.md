@@ -1,5 +1,2 @@
-Last updated: 2024-04-05 19:05:35
-Random Quote: John Flynn: "Rogers, get in there!"
-Peggy Carter: "He can't."
-John Flynn: "Stark, you go in!"
-Howard Stark: "What? Are you crazy? I push the buttons. I'm the buttons guy." - Howard Stark
+Last updated: 2024-04-05 19:06:09
+Random Quote: When things go well, people start thinking it's because they're so fing smart. - Walt Breslin
