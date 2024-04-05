@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 10:22:39
-Random Quote: Well, I think that... when you have a connection with someone, it never really goes away, you know? - Alex Vause
+Last updated: 2024-04-05 10:23:12
+Random Quote: My father won all the battles.  He killed Prince Rhaegar and took the crown, while your father was hiding under Casterly Rock.  A strong king acts boldly, he doesn't just talk.  -  Joffrey Baratheon
