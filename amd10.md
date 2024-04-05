@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 19:44:27
-Random Quote: Well, if there is something wrong with him, it ain't constipation. - Meemaw
+Last updated: 2024-04-05 19:45:00
+Random Quote: Larry Bloom: "Are we at least gonna talk about other options?"Piper Chapman: "You mean..."Larry Bloom: "It's not Voldemort, you can say it. Abortion." - Larry Bloom
