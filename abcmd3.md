@@ -1,2 +1,3 @@
-Last updated: 2024-04-05 08:48:46
-Random Quote: You gotta move...The fuck...On! - Gloria Mendoza
+Last updated: 2024-04-05 08:49:18
+Random Quote: Jessica: "I miss you."
+Morty: "You miss the old me. You miss someone that loved you so much, you never had to love him back." - Morty Smith
