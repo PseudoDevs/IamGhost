@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 16:58:12
-Random Quote: That's the thing with guys like Nate. They don't actually want a person. They want something they can own and possess. - Rue Bennett
+Last updated: 2024-04-05 16:58:45
+Random Quote: Fire in the hole, bitch! - Jesse Pinkman
