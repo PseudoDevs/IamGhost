@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 20:27:28
-Random Quote: To be a scientist is to be naive. - Valery Legasov
+Last updated: 2024-04-05 20:28:01
+Random Quote: The longer Cersei waits, the angrier she'll become, and anger makes her stupid.  I much prefer angry and stupid to composed and cunning.  -  Tyrion Lannister
