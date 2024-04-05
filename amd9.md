@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 15:58:05
-Random Quote: Red Rahloo means nothing here  You will only make the old gods angry.  They are watching from their island.  -  Hugo Wull
+Last updated: 2024-04-05 15:58:38
+Random Quote: Then odds are he'll be near a settlement, probably close to another city out there. Ain't too many of 'em in Wyoming. - Joel Miller
