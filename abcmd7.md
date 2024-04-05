@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 18:04:34
-Random Quote: If you don’t know who I am, then maybe your best course would be to tread lightly. - Walter White
+Last updated: 2024-04-05 18:05:07
+Random Quote: I've had shits that I've liked better than Walder Frey.  -  Brynden Tully
