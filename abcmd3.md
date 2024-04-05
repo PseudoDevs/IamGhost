@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 09:01:54
-Random Quote: What good is having all the money in the world if you can't go home? - Tata Escobar
+Last updated: 2024-04-05 09:02:27
+Random Quote: Godless?  Why, Aeron, I am the godliest man ever to raise sail!  You serve one god, Damphair, but I have served ten thousand.  From Ib to Asshai, when men see my sails, they pray.  -  Euron Greyjoy
