@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 09:18:25
-Random Quote: We were king's men, knights, and heroes... but some knights are dark and full of terror, my lady.  War makes monsters of us all.  -  Thoros of Myr
+Last updated: 2024-04-05 09:18:58
+Random Quote: I hate it when you talk sometimes. No... all the time. - Nicky Nichols
