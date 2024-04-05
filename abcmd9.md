@@ -1,2 +1,4 @@
-Last updated: 2024-04-05 16:50:32
-Random Quote: Did you just bring a bomb into a hospital? - Jesse Pinkman
+Last updated: 2024-04-05 16:51:05
+Random Quote: Oh Il-nam: "As a kid, I'm willing to bet you got spanked a lot."
+Seong Gi-hun: "How did you know?"
+Oh Il-nam: "My son did too. He was just like you, friend." - Oh Il-nam
