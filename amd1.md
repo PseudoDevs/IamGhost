@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 20:24:22
-Random Quote: Elia of Dorne.  I killed her screaming whelp.  Then I raped her.  Then I smashed her fucking head in like this.  -  Gregor Clegane
+Last updated: 2024-04-05 20:25:29
+Random Quote: I think maybe you're the only person who really knows who I am and still likes me anyway. - Allison Hargreeves
