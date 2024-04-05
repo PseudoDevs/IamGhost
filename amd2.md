@@ -1,5 +1,2 @@
-Last updated: 2024-04-05 18:55:56
-Random Quote: Morty: "I'm dying, Rick!"
-Rick: "People who are really dying don't keep bringing it up."
-Morty: "Is that true?"
-Rick: "I don't know. I'm just usually around people that die faster." - Rick Sanchez
+Last updated: 2024-04-05 18:56:30
+Random Quote: I'm still out here. Still getting away with it. Feds couldn't find their own ass with both hands and a proctologist. - Saul Goodman

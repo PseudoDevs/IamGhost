@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 18:55:55
-Random Quote: Then perhaps Lord Eddard should have kept you chained to a dungeon wall.  Instead he raised you among his own sons, the sweet boys you have butchered, and to my undying shame I trained you in the arts of war.  Would that I had thrust a sword through your belly instead of placing one in your hand.  -  Rodrik Cassel
+Last updated: 2024-04-05 18:56:30
+Random Quote: Ted: "I made a bid online, I won the auction the next day and I got approval. I just finalized the paperwork."Barney: "And was the Blair Witch easy to deal with, or did she haggle over the closing costs?" - Barney Stinson
