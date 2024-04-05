@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 16:23:25
-Random Quote: Not all final girls make it to the end by fighting the monster. Some of them hide. They stay quiet when their family needs them. They're not waiting for their moment. They don't even know if another moment's coming. They just close their eyes and wait for it to be over. Truth is, some final girls are cowards. - Kinsey Locke
+Last updated: 2024-04-05 16:23:57
+Random Quote: Barney: "Wow, Ted. You're gonna have to find a new member for yourself, cause I'm revoking your dude-membership."Ted: "Yeah, how was that manicure yesterday?"Barney: "Invigorating... thanks." - Barney Stinson

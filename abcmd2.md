@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 16:23:24
-Random Quote: Robin: "Can you guys keep a secret?"Lily: "Yeah."Marshall: "Well, some of us can..." - Marshall Eriksen
+Last updated: 2024-04-05 16:23:57
+Random Quote: Quinn: "In the event of divorce, Miss Garvey shall get full custody of Mr. Stinson's suits."Barney: "Why? What would you do with them?"Quinn: "Nothing. I'd just sit around and watch them go out of style." - Quinn Garvey
