@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 19:25:00
-Random Quote: At night, I fall asleep to you, and in the morning, I wake up to you. I kind of feel closer to you than I do anyone in the world. - Nate Jacobs
+Last updated: 2024-04-05 19:25:33
+Random Quote: She hated her life, not because it was bad, but because when you hate your brain and your body, it's hard to enjoy the rest. - Rue Bennett
