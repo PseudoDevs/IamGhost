@@ -1,4 +1,5 @@
-Last updated: 2024-04-05 18:53:40
-Random Quote: It could be for a brother or maybe her sick dad.
-[reads] "And then I want you to do me on the couch."
-Okay, maybe not a sick dad. Or a very sick dad, am I right? - Robin Scherbatsky
+Last updated: 2024-04-05 18:54:13
+Random Quote: Barney: "You can't spell 'game' without 'me' and 'me' has the best game."
+Ted: "Yeah well, I got so much game, I'm Cornish game hen."
+Barney: "Oh, yeah? I'm the New York State gaming commissioner."
+Ted: "Well, I'm The Game. Well-crafted, keep-you-guessing thriller starring Michael Douglas and Sean Penn." - Ted Mosby
