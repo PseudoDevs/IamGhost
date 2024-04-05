@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 16:43:46
-Random Quote: I heard enough to know she saved your a-s. - Mike Ehrmantraut
+Last updated: 2024-04-05 16:44:19
+Random Quote: You must be blind as well as maimed, Set.  Lift your eyes, and you will see the direwolf still flies above our walls.  -  Brynden Tully
