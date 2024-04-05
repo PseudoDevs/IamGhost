@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 15:04:52
-Random Quote: The past is always with us, Tyler. Now, you can try and run away but it's always there. - Rendell Locke
+Last updated: 2024-04-05 15:05:25
+Random Quote: I knew quite a few Jedi, you know. I don't know what they taught you about us, but there was a time we actually got along quite well. Fought side by side. - Bo-Katan
