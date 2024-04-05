@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 07:36:35
-Random Quote: Some people wander around their whole lives looking for a way out, but there’s only one path and it leads you ever deeper. - 
+Last updated: 2024-04-05 07:37:09
+Random Quote: I feel like her sobriety is completely dependent on how available I am to her. - Jules Vaughn
