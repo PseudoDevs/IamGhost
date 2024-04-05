@@ -1,2 +1,3 @@
-Last updated: 2024-04-05 20:18:21
-Random Quote: Roose Bolton's cold and cunning, aye, but a man can deal with Roose.  We've all known worse.  But this bastard son of his... they say he's mad and cruel, a monster.  -  Locke
+Last updated: 2024-04-05 20:18:56
+Random Quote: Summer: "Someone out there is trying to kill us."
+Rick: "Someone's always trying to kill us." - Rick Sanchez
