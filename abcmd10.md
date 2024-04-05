@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 07:03:16
-Random Quote: Larry: "Where would you like me to put it then, Piper?"Piper: "Up your ass."Larry: "There's no room. Apparently, my head's already up there." - Larry Bloom
+Last updated: 2024-04-05 07:03:50
+Random Quote: Silver or lead. You decide. - Pablo Escobar
