@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 16:12:31
-Random Quote: Summer will end soon enough, and childhood as well.  -  Eddard Stark
+Last updated: 2024-04-05 16:13:04
+Random Quote: My daughter has taken an axe for a lover.  I will not have my son bedeck himself like a whore.  It is as I feared.  The green lands have made you soft, and the Starks have made you theirs.  -  Balon Greyjoy
