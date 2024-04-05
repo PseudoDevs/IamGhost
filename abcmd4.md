@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 17:38:00
-Random Quote: Everything will be okay in the end. If it's not okay, it's not the end. - Yuk Je
+Last updated: 2024-04-05 17:38:33
+Random Quote: Because you're so broken you don't even trust yourself. And that's scary. - Nate Jacobs
