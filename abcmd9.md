@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 14:29:20
-Random Quote: You two suck at peddling meth. - Saul Goodman
+Last updated: 2024-04-05 14:29:55
+Random Quote: When dead men come hunting us in the night, do you think it matters who sits the Iron Throne?  -  Jeor Mormont
