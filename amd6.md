@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 18:24:35
-Random Quote: Larry: "Where would you like me to put it then, Piper?"Piper: "Up your ass."Larry: "There's no room. Apparently, my head's already up there." - Larry Bloom
+Last updated: 2024-04-05 18:25:08
+Random Quote: I'm sorry, can you repeat that? I don't speak "I-never-get-laid". - Barney Stinson
