@@ -1,2 +1,4 @@
-Last updated: 2024-04-05 17:35:50
-Random Quote: Asha Greyjoy did not intend to be taken alive.  She would die as she had lived, with an axe in her hand and a laugh upon her lips.  -  Asha Greyjoy
+Last updated: 2024-04-05 17:36:23
+Random Quote: Bo-Katan: "I've scugged off a lot of Imperial warlords."
+Din: "They tend to get mad when you hijack their ships."
+Bo-Katan: "Now you tell me." - Bo-Katan
