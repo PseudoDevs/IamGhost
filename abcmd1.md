@@ -1,2 +1,3 @@
-Last updated: 2024-04-05 12:27:21
-Random Quote: Once a horse is broken to the saddle, any man can mount him.  Once a beast's been joined to a man, any skinchanger can slip inside and ride him.  Orell was withering inside his feathers, so I took the eagle for my own.  But the joining works both ways, warg.  Orell lives inside me now, whispering how much he hates you.  And I can soar above the Wall, and see with eagle eyes.  -  Varamyr Sixskins
+Last updated: 2024-04-05 12:27:55
+Random Quote: Aimee: "Did you know you need, like, sugar and flour and an oven to bake? And you don't shove it all in, you have to follow alle these rules."
+Maeve: "Yeah, it's called a recipe." - Maeve Wiley
