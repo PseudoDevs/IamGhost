@@ -1,3 +1,2 @@
-Last updated: 2024-04-05 08:25:20
-Random Quote: Wyatt Langmore: "This job's my old man's idea. Something about 'calluses and character'."
-Charlotte Byrde: "Yeah, well, you're blowing leaves, not hiding Anne Frank." - Charlotte Byrde
+Last updated: 2024-04-05 08:25:53
+Random Quote: I am not in danger, Skyler. I AM the danger! - Walter White
