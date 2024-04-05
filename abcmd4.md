@@ -1,4 +1,2 @@
-Last updated: 2024-04-05 17:48:29
-Random Quote: Stark: "Red, green, blue... who paints a button blue?"
-Carter: "Don't tell me the American playboy needs help pushing buttons."
-Stark: "Hedy Lamarr and I spent a weekend together, but she wasn't teaching me German." - Howard Stark
+Last updated: 2024-04-05 17:49:02
+Random Quote: I don't need to be good at Math, I have beautiful hair. - Missy
