@@ -1,3 +1,2 @@
-Last updated: 2024-04-05 13:21:32
-Random Quote: Morty: "What are they mad at you for, anyway?"
-Rick: "Well, we're talking about me. It could be anything." - Rick Sanchez
+Last updated: 2024-04-05 13:22:43
+Random Quote: Spare me your empty little compliments, girl... and your ser's.  I am no knight.  I spit on them and their vows.  My brother is a knight.  -  Sandor Clegane
