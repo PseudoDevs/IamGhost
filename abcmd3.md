@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 20:16:57
-Random Quote: Robin: "She was gonna get the last kugel."Ted: "She was 90 years old. It was probably gonna be her last kugel." - Ted Mosby
+Last updated: 2024-04-05 20:17:31
+Random Quote: Power resides where men believe it resides... It's a trick, a shadow on the wall.  -  Varys
