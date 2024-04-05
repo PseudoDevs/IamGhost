@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 17:30:14
-Random Quote: You ought to have no trouble catching our uncles.  One is drunk on seawater, after all, and the other is a great grey bullock so dim he'll probably get lost.  -  Asha Greyjoy
+Last updated: 2024-04-05 17:30:48
+Random Quote: There is no creature on earth half so terrifying as a truly just man.  -  Varys
