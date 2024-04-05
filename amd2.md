@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 19:02:11
-Random Quote: And there's this other band, led by this woman Stoneheart... Lord Beric's lover, according to one tale.  Supposedly she was hanged by the Freys, but Dondarrion kissed her and brought her back to life, and now she cannot die, no more than he.  -  Set Hyle Hunt
+Last updated: 2024-04-05 19:02:44
+Random Quote: So that's it? A couple of white Urkels offer you sausages and you're gone? - Robin Scherbatsky
