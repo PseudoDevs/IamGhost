@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 13:03:54
-Random Quote: So how do you take down a crook who's at the top of his game? Who has every cop in town in his pocket? Well, you hold your breath and you hope you get lucky. - Walt Breslin
+Last updated: 2024-04-05 13:04:31
+Random Quote: Red Rahloo means nothing here  You will only make the old gods angry.  They are watching from their island.  -  Hugo Wull
