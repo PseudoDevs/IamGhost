@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 19:11:39
-Random Quote: Lily: "Ted, you did this all yourself?"Ted: "Just like Ryan Gosling in 'The Notebook'. It was pretty manly 'til I mentioned Ryan Gosling in 'The Notebook', huh?" - Ted Mosby
+Last updated: 2024-04-05 19:12:12
+Random Quote: Men of honor will do things for their children that they would never consider doing for themselves.  -  Petyr Baelish
