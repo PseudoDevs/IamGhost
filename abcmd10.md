@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 16:43:15
-Random Quote: There are worse ways to die than warm and drunk.  I knew a brother drowned himself in wine once.  It was a poor vintage, though, and his corpse did not improve it.  -  Dolorous Edd Tollett
+Last updated: 2024-04-05 16:44:21
+Random Quote: Ted: "Do not pretend you're not the kind of guy, who keeps a list of all the girls he slept with."Marshall: "I have one. It's called my marriage-license." - Marshall Eriksen
