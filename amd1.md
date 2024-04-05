@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 19:14:02
-Random Quote: We will take them before last night's beer turns to piss. - Chester Campbell
+Last updated: 2024-04-05 19:15:09
+Random Quote: That's where The Boys come in: Spank the bastards when they get out of line. - Billy Butcher
