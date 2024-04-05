@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 15:56:30
-Random Quote: You ever touch me again, I will burn your eyes out! - Starlight
+Last updated: 2024-04-05 15:57:03
+Random Quote: This is Hawkins, okay? You wanna know the worst thing that's ever happened here in the four years I've been working here? It was when an owl attacked Eleanor Gillespie's head because it though that her hair was a nest. - Jim Hopper
