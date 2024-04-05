@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 17:29:42
-Random Quote: Have you ever been told you're different, odd, or simply don't belong? In a world full of normies, do you feel like an outcast? Me too. But I'm pleased to tell you there's a very special place for people like us. Nevermore Academy. - Wednesday Addams
+Last updated: 2024-04-05 17:30:48
+Random Quote: This is Stannis Baratheon.  The man will fight to the bitter end and then some.  -  Tywin Lannister

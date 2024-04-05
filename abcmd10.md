@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 17:30:15
-Random Quote: Penrose chose to die rather than give him up.  It still angers me.  How could he think I would hurt the boy?  I chose Robert, did I not?  When that hard day came, I chose blood over honor.  -  Stannis Baratheon
+Last updated: 2024-04-05 17:30:48
+Random Quote: 'Damn, you look like hell, Chief."Jim Hopper: "Oh yeah? Well, I looked better than your wife when I left her this morning." - Jim Hopper
