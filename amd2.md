@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 19:56:51
-Random Quote: In King's Landing, there are two sorts of people.  The players and the pieces.  -  Petyr Baelish
+Last updated: 2024-04-05 19:57:58
+Random Quote: I'm honest.  It's the world that's awful.  -  Sandor Clegane
