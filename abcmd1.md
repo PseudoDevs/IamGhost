@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 14:05:05
-Random Quote: Grief never gets any smaller, so you have to make yourself bigger around it. The best way to do that is to open up. Let people in. - Rendell Locke
+Last updated: 2024-04-05 14:05:39
+Random Quote: Here's the secret, kids: none of us can vow to be perfect. In the end, all we can do is promise to love each other with everything we've got. Because love's the best thing we do. - Ted Mosby
