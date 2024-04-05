@@ -1,3 +1,2 @@
-Last updated: 2024-04-05 08:34:10
-Random Quote: Morty: "I don't like how meta this is getting, Rick."
-Rick: "Shut up, Morty, you're 14. You watch videos of people on YouTube reacting to fing YouTube. I'll be the judge of when we get too meta." - Rick Sanchez
+Last updated: 2024-04-05 08:34:43
+Random Quote: When you tear out a man's tongue, you are not proving him a liar, you're only telling the world that you fear what he might say.  -  Tyrion Lannister
