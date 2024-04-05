@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 08:13:56
-Random Quote: When you date someone, it's like you're taking one long course in who that person is and then, when you break up, all that stuff becomes useless. It's the emotional equivalent of an English degree... - Ted Mosby
+Last updated: 2024-04-05 08:14:29
+Random Quote: Ted: "Barney, I don't know if the oven is deep enough. Plus, it's a display made of cardboard."Barney: "Huh. I should probably disconnect the gas." - Barney Stinson
