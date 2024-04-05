@@ -1,2 +1,5 @@
-Last updated: 2024-04-05 15:04:06
-Random Quote: When you start moving furniture around, people stub their toes and get upset. - Don Neto
+Last updated: 2024-04-05 15:04:39
+Random Quote: Bo-Katan: "I haven't seen battle droids since the Clone Wars."
+Din: "I have."
+Bo-Katan: "Any of 'em look suspicious?"
+Din: "They all look suspicious." - Din Djarin
