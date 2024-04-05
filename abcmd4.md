@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 11:12:06
-Random Quote: My only aim is to take many lives. The more the better I feel. - 
+Last updated: 2024-04-05 11:12:39
+Random Quote: Young I was, and vain, but the sea washed my follies and my vanities away.  That man drowned, nephew.  His lungs filled with seawater, and the fish ate the scales off his eyes.  When I rose again, I saw clearly.  -  Aeron Greyjoy
