@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 16:26:39
-Random Quote: You want to know the horrible truth?  I can't even remember what she looked like.  I only know she was the one thing I ever wanted, and seven kingdoms couldn't fill the hole she left behind.  -  Robert Baratheon
+Last updated: 2024-04-05 16:27:12
+Random Quote: Are you aware, that breaking a broath can have deadly- even fatal repercussions? - Barney Stinson
