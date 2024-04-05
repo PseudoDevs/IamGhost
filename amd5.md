@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 17:02:53
-Random Quote: Lily, I think we made a mistake moving out to the suburbs. I miss our home. I miss our booth with our friends. And I'm pretty sure I have a drumstick... somewhere bad. - Marshall Eriksen
+Last updated: 2024-04-05 17:03:26
+Random Quote: Only when we’ve freed ourselves of emotion can we be truly free. Only when you’re willing to sacrifice what you hold dearest. - Adam
