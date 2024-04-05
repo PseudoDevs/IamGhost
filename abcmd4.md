@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 14:13:47
-Random Quote: Let them keep believing I'm dead. So much the better. It was the chicken man. That coward sat up there in the north while his paramilitaries came into my home. - Lalo Salamanca
+Last updated: 2024-04-05 14:14:55
+Random Quote: If you die before you say her name, Set, I will hunt you through the seven hells.  -  Oberyn Martell
