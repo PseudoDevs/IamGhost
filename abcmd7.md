@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 19:53:21
-Random Quote: Don't go chasing waterfalls. Stick to the rivers and the lakes that you're used to. - Klaus Hargreeves
+Last updated: 2024-04-05 19:53:55
+Random Quote: The only way to keep your people loyal is to make certain they fear you more than they do the enemy.  -  Cersei Lannister
