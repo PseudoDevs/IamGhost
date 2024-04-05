@@ -1,2 +1,3 @@
-Last updated: 2024-04-05 20:26:40
-Random Quote: I hate it when you talk sometimes. No... all the time. - Nicky Nichols
+Last updated: 2024-04-05 20:27:13
+Random Quote: Give it a week, you'll get her back. And her front.
+Oh! Did you feel that? I think we just had a "what up?"-quake! - Barney Stinson
