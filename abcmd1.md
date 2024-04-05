@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 10:44:46
-Random Quote: Karen: "I'm sure all the exploited diamond miners in Sierra Leone would give you a high-five if they still had all their fingers. But really pretty - meet me upstairs!"Robin: "They only need one finger to give her what I'm thinking." - Robin Scherbatsky
+Last updated: 2024-04-05 10:45:19
+Random Quote: By what right does the wolf judge the lion?  -  Jaime Lannister
