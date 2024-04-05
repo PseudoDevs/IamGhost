@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 15:47:25
-Random Quote: I have never liked you, Cersei, but you were my own sister, so I never did you harm.  You've ended that.  I will hurt you for this.  I don't know how yet, but give me time.  A day will come when you think yourself safe and happy, and suddenly your joy will turn to ashes in your mouth, and you'll know the debt is paid.  -  Tyrion Lannister
+Last updated: 2024-04-05 15:47:58
+Random Quote: Not all final girls make it to the end by fighting the monster. Some of them hide. They stay quiet when their family needs them. They're not waiting for their moment. They don't even know if another moment's coming. They just close their eyes and wait for it to be over. Truth is, some final girls are cowards. - Kinsey Locke
