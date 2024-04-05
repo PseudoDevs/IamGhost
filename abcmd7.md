@@ -1,5 +1,2 @@
-Last updated: 2024-04-05 10:14:24
-Random Quote: Abby: "Do we have to go back this way?"
-Owen: "Consider it an opportunity to work on your fears."
-Abby: "How about I work my foot up your ass?"
-Owen: "Abby, stop flirting!" - Joel Miller
+Last updated: 2024-04-05 10:14:57
+Random Quote: If you get pulled over for speeding, tell the policeman your spouse has diarrhea. - Phil Dunphy
