@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 13:11:53
-Random Quote: What do a bunch o' bloody peasants know about a lord's honor?  We know some about murder, though.  -  Lem Lemoncloak
+Last updated: 2024-04-05 13:12:28
+Random Quote: There have always been men who found it easier to speak vows than to keep them.  -  Arys Oakheart
