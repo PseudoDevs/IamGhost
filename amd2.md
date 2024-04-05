@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 16:05:54
-Random Quote: In this world, a man must learn to seize whatever gifts the gods chose to send him.  That was a lesson I learned at some cost.  -  The Tattered Prince
+Last updated: 2024-04-05 16:06:27
+Random Quote: When I'm king in my own right, I'm going to outlaw beets.  -  Tommen Baratheon
