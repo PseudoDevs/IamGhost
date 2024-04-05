@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 13:17:46
-Random Quote: Lily: "Just give me his name!"Robin: "Fine. It's Bill Pepper."Lily: "Kind of a coincidence there happens to be a bill and a pepper shaker here on the table. Any chance you and Bill had a three-way with Fork Napkin?" - Lily Aldrin
+Last updated: 2024-04-05 13:18:23
+Random Quote: I asked him why he kept her close, if he thought her so grotesque.  He said that all his other knights wanted things of him, castles or honors or riches, but all that Brienne wanted was to die for him.  -  Loras Tyrell
