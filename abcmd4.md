@@ -1,2 +1,3 @@
-Last updated: 2024-04-05 15:05:25
-Random Quote: I knew quite a few Jedi, you know. I don't know what they taught you about us, but there was a time we actually got along quite well. Fought side by side. - Bo-Katan
+Last updated: 2024-04-05 15:05:58
+Random Quote: What do you call a fish with no eyes?
+Fsh. - Marshall Eriksen
