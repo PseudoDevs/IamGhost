@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 18:31:52
-Random Quote: I am Mr. Charity. I frequently sleep with sixes, chubsters, over thirty's. I am the Bill and Melinda Gates of the sympathy bang. - Barney Stinson
+Last updated: 2024-04-05 18:32:26
+Random Quote: You think you're the only one he whispers secrets to?  He gives each of us just enough to convince us that we'd be helpless without him.  -  Cersei Lannister
