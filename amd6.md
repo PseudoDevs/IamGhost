@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 17:11:28
-Random Quote: No matter how tough things get, children always turn out okay. - Berlin
+Last updated: 2024-04-05 17:12:01
+Random Quote: The title was but a courtesy due him as a council member; Varys was lord of nothing but the spiderweb, the master of none but his whispers.  -  Catelyn Stark
