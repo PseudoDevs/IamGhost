@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 10:22:39
-Random Quote: Ties and no playoffs? Why do you even do this? - Jim Hopper
+Last updated: 2024-04-05 10:23:12
+Random Quote: The absolute worst part of depression is that even though you know you're depressed, You're unable to stop yourself from getting worse. - Rue Bennett
