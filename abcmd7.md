@@ -1,3 +1,2 @@
-Last updated: 2024-04-05 18:07:21
-Random Quote: Alien: "I was just reading you."
-Rick: "Congratulations on making it into print media. Real bright future there." - Rick Sanchez
+Last updated: 2024-04-05 18:07:54
+Random Quote: It's probably his... I've spent years, training my boys to swim the other way. - Barney Stinson
