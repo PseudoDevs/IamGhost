@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 15:19:39
-Random Quote: People taking power who don't deserve it. It never ends well. - Jérôme
+Last updated: 2024-04-05 15:20:13
+Random Quote: This is the one that you saved? You are as its father. A clan of two. But you have removed your helmet. Then you are a Mandalorian no more. - The Armorer
