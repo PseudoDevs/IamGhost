@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 18:13:06
-Random Quote: Most people are nothing but pawns on a chessboard led by an unknown hand - Noah
+Last updated: 2024-04-05 18:13:39
+Random Quote: There is a savage beast in every man, and it stirs when you put a sword in his hand.  -  Jorah Mormont
