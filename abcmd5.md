@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 10:50:54
-Random Quote: Never trust a pirate. - Din Djarin
+Last updated: 2024-04-05 10:51:27
+Random Quote: You have a passing clever father, Devan.  He makes me wish I had more smugglers in my service.  And fewer lords.  -  Stannis Baratheon
