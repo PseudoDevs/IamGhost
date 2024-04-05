@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 15:31:12
-Random Quote: In all the world, violent men are the easiest to deal with. - Irene O'Donnell
+Last updated: 2024-04-05 15:31:45
+Random Quote: He would have killed me but for Howland Reed.  -  Eddard Stark
