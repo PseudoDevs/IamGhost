@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 19:43:52
-Random Quote: The gods be damned.  It was a hollow victory they gave me.  A crown... it was the girl I prayed them for.  Your sister, safe... and mine again, as she was meant to be.  I ask you, Need, what good is it to wear a crown?  The gods mock the prayers of kings and cowherds alike.  -  Robert Baratheon
+Last updated: 2024-04-05 19:44:25
+Random Quote: I'm still out here. Still getting away with it. Feds couldn't find their own ass with both hands and a proctologist. - Saul Goodman
