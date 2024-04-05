@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 09:44:47
-Random Quote: I'm from Minnesota, where there's plenty hot-dogs for everyone. Perhaps even too many... - Marshall Eriksen
+Last updated: 2024-04-05 09:45:20
+Random Quote: Spare me your empty little compliments, girl... and your ser's.  I am no knight.  I spit on them and their vows.  My brother is a knight.  -  Sandor Clegane
