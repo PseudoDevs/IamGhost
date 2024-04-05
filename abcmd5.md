@@ -1,4 +1,2 @@
-Last updated: 2024-04-05 17:08:08
-Random Quote: Stark: "Red, green, blue... who paints a button blue?"
-Carter: "Don't tell me the American playboy needs help pushing buttons."
-Stark: "Hedy Lamarr and I spent a weekend together, but she wasn't teaching me German." - Howard Stark
+Last updated: 2024-04-05 17:08:41
+Random Quote: So many vows... they make you swear and swear.  Defend the king.  Obey the king.  Keep his secrets.  Do his bidding.  Your life for his.  But obey your father.  Love your sister.  Protect the innocent.  Defend the week.  Respect the gods.  Obey the laws.  It's too much.  No matter what you do, you're forsaking one vow for the other.  -  Jaime Lannister
