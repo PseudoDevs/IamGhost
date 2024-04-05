@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 14:13:05
-Random Quote: The sun is about to set, and we'll be leaving soon. When we return, we're coming in hot. - Din Djarin
+Last updated: 2024-04-05 14:13:40
+Random Quote: The Peaky Blinders. The vicious, merciless gangs who blind those who see and cut out the tongues of those who talk. - Chester Campbell
