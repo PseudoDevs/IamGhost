@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 10:23:45
-Random Quote: Bear Island knows no king save the King in the North, whose name is Stark.  -  Lyanna Mormont
+Last updated: 2024-04-05 10:24:19
+Random Quote: Jesus was a fag! He said: 'This is my body. Eat me.' - Big Boo
