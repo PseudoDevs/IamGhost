@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 08:30:18
-Random Quote: I wish my mental problems made me look like you. - Kat Hernandez
+Last updated: 2024-04-05 08:30:51
+Random Quote: She don't speak.  You bloody bastards cut her throat too deep for that.  But she remembers.  -  Lem Lemoncloack
