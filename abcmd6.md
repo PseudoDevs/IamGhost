@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 14:24:26
-Random Quote: All three of you were being a buch of little a-sholes. I was the only reasonable one. - Dustin Henderson
+Last updated: 2024-04-05 14:25:00
+Random Quote: Serve, Obey, Protect.  Simple vows for a simple man.  -  Areo Hotah
