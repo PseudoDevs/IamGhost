@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 10:43:40
-Random Quote: Canada also helped in two world wars and gave the world Neil Young, William Shatner, Leonard Cohen, Pamela Anderson, one quarter of Barney Stinson, instant mashed potatoes and best of all - you. - Barney Stinson
+Last updated: 2024-04-05 10:44:13
+Random Quote: A family is like a small business. And with a small business, at times, there comes a bit of transition. - Marty Byrde
