@@ -1,3 +1,2 @@
-Last updated: 2024-04-05 10:02:53
-Random Quote: I hired a decorator and I asked him: "What would the inside of Tinkerbell's vagina look like?"
-And the kid just ran with it! - Quinn Garvey
+Last updated: 2024-04-05 10:03:26
+Random Quote: The truth isn't always to most exciting version of things, or the best, or the worst. It's somewhere inbetween. But it deserves to be heard and remembered. 'The truth will out', like someone said once. It remains. - Hannah Baker
