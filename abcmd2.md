@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 16:40:33
-Random Quote: I think I literally have a better understanding of who killed Kennedy than what is offside. - Rebecca Welton
+Last updated: 2024-04-05 16:41:05
+Random Quote: In the game of thrones, even the humblest pieces have wills of their own.  Sometimes they refuse to make the moves you've planned for them.  Mark that well, Alayne.  It's a lesson that Cersei Lannister still has yet to learn.  -  Petyr Baelish
