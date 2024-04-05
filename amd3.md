@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 17:06:11
-Random Quote: The distinction between past, present, and future is only a stubbornly persistent illusion. - 
+Last updated: 2024-04-05 17:06:44
+Random Quote: The title was but a courtesy due him as a council member; Varys was lord of nothing but the spiderweb, the master of none but his whispers.  -  Catelyn Stark
