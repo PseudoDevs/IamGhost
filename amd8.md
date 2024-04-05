@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 16:43:52
-Random Quote: Screw the FCC! I'll go to the mat with those pencil-pushers! This is textbook freedom of speech. What could be more American than that? - Saul Goodman
+Last updated: 2024-04-05 16:44:25
+Random Quote: There are no true knights, no more than there are gods.  If you can't protect yourself, die and get out of the way of those who can.  Sharp steel and strong arms rule this world, don't ever believe any different.  -  Sandor Clegane
