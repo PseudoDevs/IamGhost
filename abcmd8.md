@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 07:15:34
-Random Quote: Some people wander around their whole lives looking for a way out, but there’s only one path and it leads you ever deeper. - 
+Last updated: 2024-04-05 07:16:07
+Random Quote: Being a Mandalorian is not just learning about how to fight. You also have to know how to navigate the Galaxy. That way you'll never be lost. - Din Djarin
