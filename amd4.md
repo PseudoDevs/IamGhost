@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 19:13:18
-Random Quote: Strip off their skins.  Lord Bolton, he used to say a naked man has few secrets, but a flayed man's got none.  -  Ramsay Bolton
+Last updated: 2024-04-05 19:13:51
+Random Quote: The longer Cersei waits, the angrier she'll become, and anger makes her stupid.  I much prefer angry and stupid to composed and cunning.  -  Tyrion Lannister
