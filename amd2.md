@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 15:48:14
-Random Quote: Why didn't you say this to me when I was alive? - Hannah Baker
+Last updated: 2024-04-05 15:48:47
+Random Quote: Our secrecy is our survival. our survival is our strength. - The Armorer
