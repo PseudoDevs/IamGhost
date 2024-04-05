@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 17:41:18
-Random Quote: They'll bend the knee or I'll destroy them.  -  Stannis Baratheon
+Last updated: 2024-04-05 17:41:51
+Random Quote: Once a horse is broken to the saddle, any man can mount him.  Once a beast's been joined to a man, any skinchanger can slip inside and ride him.  Orell was withering inside his feathers, so I took the eagle for my own.  But the joining works both ways, warg.  Orell lives inside me now, whispering how much he hates you.  And I can soar above the Wall, and see with eagle eyes.  -  Varamyr Sixskins
