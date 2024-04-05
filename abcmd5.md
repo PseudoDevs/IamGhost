@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 12:04:19
-Random Quote: Here's the secret, kids: none of us can vow to be perfect. In the end, all we can do is promise to love each other with everything we've got. Because love's the best thing we do. - Ted Mosby
+Last updated: 2024-04-05 12:04:52
+Random Quote: What if Einstein's parents had held him back? We wouldn't even have the... - I was gonna say atomic bomb, but there's probably a better example. - Meemaw
