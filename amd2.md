@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 19:04:27
-Random Quote: The world was full of cravens who pretended to be heroes; it took a queer sort of courage to admit to cowardice as Samwell Tarly had.  -  Jon Snow
+Last updated: 2024-04-05 19:05:36
+Random Quote: So, what do you want to do tonight? Drink ourselves blind, set a car on fire? Oh, watch a movie that doesn't start with a desk lamp jumping on top of a capital "I"? - Lily Aldrin
