@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 15:00:28
-Random Quote: The distinction between past, present, and future is only a stubbornly persistent illusion. - 
+Last updated: 2024-04-05 15:01:01
+Random Quote: Why is it always the innocents who suffer most, when you high lords play your game of thrones?  -  Varys
