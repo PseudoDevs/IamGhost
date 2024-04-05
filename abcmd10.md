@@ -1,4 +1,2 @@
-Last updated: 2024-04-05 06:57:05
-Random Quote: Greef: "Be careful, my friend. They've got you outnumbered ten to one."
-Din: "I like these odds."
-Greef: "I bet you do." - Greef Karga
+Last updated: 2024-04-05 06:57:39
+Random Quote: In the end, love is a good reason for everything to fall apart. - Tokyo
