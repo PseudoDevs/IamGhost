@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 08:32:03
-Random Quote: This is New York City, don't get close to the neighbours. You nod at them politely in the hall, you call the cops if you haven't seen them in a while and you smell something funny and that's it! - Ted Mosby
+Last updated: 2024-04-05 08:32:36
+Random Quote: I'm not sure whose twisted idea it was to put hundreds of adolescents in underfunded schools run by people whose dreams were crushed years ago... but I admire the sadism. - Wednesday Addams

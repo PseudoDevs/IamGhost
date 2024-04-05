@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 08:32:03
-Random Quote: Ted: "Cleveland sports are still relevant! 'LeBron who?' Right, guys?"Barney: "Ted, neither you, nor Cleveland knows how to get over someone leaving them." - Barney Stinson
+Last updated: 2024-04-05 08:32:36
+Random Quote: I asked him why he kept her close, if he thought her so grotesque.  He said that all his other knights wanted things of him, castles or honors or riches, but all that Brienne wanted was to die for him.  -  Loras Tyrell
