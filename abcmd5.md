@@ -1,3 +1,2 @@
-Last updated: 2024-04-05 11:34:20
-Random Quote: Jerry: "Space sperm? Sperm from... space?"
-Rick: "Very impressive verbal forensic work, Jerry." - Rick Sanchez
+Last updated: 2024-04-05 11:34:53
+Random Quote: One minute we're just laying into each other, and then the next minute... well, same thing. - Ted Mosby
