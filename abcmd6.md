@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 09:18:15
-Random Quote: The last play you'll ever run. - Barney Stinson
+Last updated: 2024-04-05 09:19:21
+Random Quote: You wear your honor like a suit of armor, Stark.  You think it keeps you safe, but all it does is weigh you down and make it hard for you to move.  -  Petyr Baelish
