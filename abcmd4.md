@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 18:39:05
-Random Quote: If we're together long enough I hope that one day you see yourself like I do. - Kevin
+Last updated: 2024-04-05 18:39:38
+Random Quote: I am IRONBORN!  I laugh at death.  -  Victarion Greyjoy
