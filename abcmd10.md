@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 18:22:21
-Random Quote: Her one choice gave birth to a whole new history and gave the multiverse a new hero. As for me, these are my stories. I observe all that transpires here, but I do not, cannot, will not interfere. For I am the Watcher. - The Watcher
+Last updated: 2024-04-05 18:22:55
+Random Quote: Need found it hard to imagine what could frighten Stannis Baratheon, who had once held Storm's End through a year of siege, surviving on rats and boot leather while the Lords Tyrell and Redwyne sat outside with their hosts, banqueting in sight of his walls.  -  Eddard Stark

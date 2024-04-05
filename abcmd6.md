@@ -1,2 +1,3 @@
-Last updated: 2024-04-05 18:22:21
-Random Quote: Only Renly could vex me so with a piece of fruit.  He brought his doom on himself with his treason, but I did love him, Davos.  I know that now.  I swear, I will go to my grave thinking of my brother's peach.  -  Stannis Baratheon
+Last updated: 2024-04-05 18:22:54
+Random Quote: Wanda: "I had a brother. His name was Pietro."
+Geraldine: "He was killed by Ultron, wasn't he?" - Monica "Geraldine" Rambeau
