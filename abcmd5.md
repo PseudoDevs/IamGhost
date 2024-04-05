@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 09:08:51
-Random Quote: You better go to your room before I give you a smack. Smacking is still an acceptable punishment in many minority cultures. - Nalini Vishwakumar
+Last updated: 2024-04-05 09:09:24
+Random Quote: I have a tender spot in my heart for cripples, bastards, and broken things.  -  Tyrion Lannister
