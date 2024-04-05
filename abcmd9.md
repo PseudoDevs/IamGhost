@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 20:28:53
-Random Quote: I asked him why he kept her close, if he thought her so grotesque.  He said that all his other knights wanted things of him, castles or honors or riches, but all that Brienne wanted was to die for him.  -  Loras Tyrell
+Last updated: 2024-04-05 20:29:26
+Random Quote: If you waste time trying to get people to love you, you'll end up the most popular dead man in town.  -  Bronn
