@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 15:22:59
-Random Quote: My old septon used to say that books are dead men talking.  Dead men should keep quiet, is what I say.  No one wants to hear a dead man's yabber.  -  Dolorous Edd Tollett
+Last updated: 2024-04-05 15:23:32
+Random Quote: Cum is kind of like a penis having a sneeze. Ugh, that means when you swallow someone's cum, it's like eating their snot. - Aimee Gibbs
