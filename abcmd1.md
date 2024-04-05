@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 16:27:12
-Random Quote: Reality is more than neurons firing around in your brain. Reality is not what's on the inside. It's what's happening on the outside. - Daniel Solace
+Last updated: 2024-04-05 16:28:51
+Random Quote: In my body, where the shame gland should be, there is a second awesome gland. True story! - Barney Stinson
