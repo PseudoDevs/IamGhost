@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 08:20:57
-Random Quote: You don't get to tell anyone what's sad. You're like a one-man Mount Sadmore. So I guess like a Lincoln Sadmorial. - Rick Sanchez
+Last updated: 2024-04-05 08:22:03
+Random Quote: I am not in danger, Skyler. I AM the danger! - Walter White
