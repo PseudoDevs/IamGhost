@@ -1,3 +1,2 @@
-Last updated: 2024-04-05 10:28:45
-Random Quote: How does a computer get drunk?
-It takes screenshots. - Will Livingston
+Last updated: 2024-04-05 10:29:18
+Random Quote: My real father died in King's Landing.  I made a choice, and I chose wrong.  -  Theon Greyjoy
