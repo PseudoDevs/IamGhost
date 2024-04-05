@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 16:31:38
-Random Quote: Geniuses are always branded as crazy. - Pablo Escobar
+Last updated: 2024-04-05 16:32:11
+Random Quote: It's not even the lies that hurt, you know? It's the fact that you're never really emotionally prepared for someone to leave you. - Rue Bennett
