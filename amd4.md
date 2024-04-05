@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 18:50:49
-Random Quote: You Westerosi are all the same.  You sew some beast upon a scrap of silk, and suddenly you are all lions or dragons or eagles.  -  Illyrio Mopatis
+Last updated: 2024-04-05 18:51:23
+Random Quote: Never buy a girl flowers, 'cause giving her a living thing reminds her of babies. - Barney Stinson

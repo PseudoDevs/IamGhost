@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 18:50:49
-Random Quote: Nobody likes to be alone, especially after a breakup. But that's when we discover who we really are and what we really want. - Ted Mosby
+Last updated: 2024-04-05 18:51:23
+Random Quote: Only when we’ve freed ourselves of emotion can we be truly free. Only when you’re willing to sacrifice what you hold dearest. - Adam
