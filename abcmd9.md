@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 11:11:33
-Random Quote: Robin: "I'm such a mess. Why do you even like me?"Barney: "I guess cause you're almost as messed up as I am." - Barney Stinson
+Last updated: 2024-04-05 11:12:06
+Random Quote: Archeology. One big mess of obsessive bookworms. - Arthur Harrow
