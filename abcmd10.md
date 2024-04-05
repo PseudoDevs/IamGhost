@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 11:43:45
-Random Quote: Gloria: "It seemd like all what we did was fight and make love. One time, I'm not kidding you, we fell out of the window together."Jay: "Which one were you doing?" - Jay Pritchett
+Last updated: 2024-04-05 11:44:18
+Random Quote: You know who's into dragons, Morty? Nerds who refuse to admit they're Christian. - Rick Sanchez
