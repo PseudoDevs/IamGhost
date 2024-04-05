@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 15:59:02
-Random Quote: Stella hated Star Wars! She lied to you. Search your feelings, Ted. You know it to be true! - Marshall Eriksen
+Last updated: 2024-04-05 16:00:08
+Random Quote: Do you think I can't tell Lord Stannis from Lord Tywin?  They're both bungholes who think they're too noble to shit, but never mind about that, I know the difference.  -  Walder Frey
