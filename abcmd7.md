@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 11:46:31
-Random Quote: Drugs are kind of cool. I mean, they're cool before they wreck your skin. And your life. And your family. That's when they get uncool. It's actually a very narrow window of cool. - Rue Bennett
+Last updated: 2024-04-05 11:47:05
+Random Quote: No, that you think you'll graduate High-School. - Meemaw
