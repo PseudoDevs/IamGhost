@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 10:35:21
-Random Quote: No.  You were the betrayer.  You turned against me, against your own blood.  They cheated me.  Your horsey husband and his stinking savages.  They were cheats and liars.  They promised me a golden crown and gave me this.  -  Viserys Targaryen
+Last updated: 2024-04-05 10:35:55
+Random Quote: What do you think a knight is for, girl?  You think it's all taking favors from ladies and looking fine in gold plate?  Knights are for killing.  I killed my first man at twelve.  I've lost count of how many I've killed since then.  High lords with old names, fat rich men dressed in velvet, knights puffed up like bladders with their honors, yes, and women and children too... they're all meat, and I'm the butcher.  -  Sandor Clegane
