@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 20:13:52
-Random Quote: Lily: "Whenever we board a flight, you lick the plane!"Marshall: "Have we crashed even once?" - Marshall Eriksen
+Last updated: 2024-04-05 20:14:25
+Random Quote: You think you're the only one he whispers secrets to?  He gives each of us just enough to convince us that we'd be helpless without him.  -  Cersei Lannister
