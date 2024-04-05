@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 11:28:14
-Random Quote: A good act does not wash out the bad, nor a bad act the good.  Each should have its own reward.  -  Stannis Baratheon
+Last updated: 2024-04-05 11:28:47
+Random Quote: I can teach you history, healing, herblore.  I can teach you the speech of ravens, and how to build a castle, and the way a sailor steers his ship by the stars I can teach you to measure the days and marks the seasons, and at the Citadel in Oldtown they can teach you a thousand things more.  But, Bran, no man can teach you magic.  -  Maester Luwin
