@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 17:24:43
-Random Quote: You know what the happiest animal in the world is? It's a goldfish. It's got a 10 second memory. Be a goldfish! - Rebecca Welton
+Last updated: 2024-04-05 17:25:16
+Random Quote: Grief never gets any smaller, so you have to make yourself bigger around it. The best way to do that is to open up. Let people in. - Rendell Locke
