@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 10:58:09
-Random Quote: I’ve spent my life being a bit of a son of a bitch, but today I think I want to die with dignity. - Berlin
+Last updated: 2024-04-05 10:58:43
+Random Quote: So you're the therapist. You know it's one thing to pretend to be a shrink and bang your patients, that's normal. But to do it for real? Little creepy bro. - Barney Stinson
