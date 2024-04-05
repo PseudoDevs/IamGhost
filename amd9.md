@@ -1,3 +1,2 @@
-Last updated: 2024-04-05 16:48:52
-Random Quote: Lily: "We're going to Atlantic City to elope - right now!"
-Barney: "Oh, congratulations Lily! Marshall, you're getting married? What the hell?" - Barney Stinson
+Last updated: 2024-04-05 16:49:25
+Random Quote: I am not "with" Nora. Wrong Preposition! Later tonight I'm hoping to be "on" Nora, right? Or "under" Nora. Am I right? Or, we're all adults, so I'll just say it: "behind" Nora. - Barney Stinson
