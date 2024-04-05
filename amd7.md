@@ -1,4 +1,2 @@
-Last updated: 2024-04-05 16:18:04
-Random Quote: Rick: "Guests are fans, Morty, which we are not. We'd like professional badges."
-"Do you have a crew?"
-Rick: "Yes. He's a getaway driver with Asperger's and my butt is a demolitions expert." - Rick Sanchez
+Last updated: 2024-04-05 16:19:11
+Random Quote: I have worked at the downfall of Tywin Lannister since the day they told me of Elia and her children.  -  Doran Martell
