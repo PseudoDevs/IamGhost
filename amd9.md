@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 20:27:59
-Random Quote: Lord Wyman is not the only one who lost kin at your Red Wedding, Frey.  Do you imagine Whoresbane loves you any better?  If you did not hold the Greatjon, he would pull out your entrails and make you eat them, as Lady Hornwood ate her fingers.  Flints, Cerwyns, Tallharts, Slates... they all had men with the Young Wolf.  The North remembers, Frey.  -  Barbrey Dustin
+Last updated: 2024-04-05 20:28:32
+Random Quote: I never asked for this, no more than I asked to be king.  Yet dare I disregard her?  We do not choose our destinies.  Yet we must... we must do our duty, no?  Great or small, we must do our duty.  -  Stannis Baratheon

@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 20:28:00
-Random Quote: Come on, baby, do the magic hand thing! - Greef Karga
+Last updated: 2024-04-05 20:28:33
+Random Quote: Don Eladio, look into Fring's eyes. There you will see the truth. The Chicken Man hates you. He is our enemy. He plots against us. I demand blood for blood. - Hector Salamanca

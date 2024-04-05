@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 20:28:00
-Random Quote: Judy: "Who got Cousin Daphne drunk? She is 15 years old."Robin: "Whoa, they grow big out here."Barney: "And here's your phone number back." - Barney Stinson
+Last updated: 2024-04-05 20:28:33
+Random Quote: The men of Westeros are ever rushing.  What good is this, I ask you?  He who hurries through life hurries to his grave.  -  Salladhor Saan
