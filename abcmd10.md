@@ -1,3 +1,2 @@
-Last updated: 2024-04-05 09:56:47
-Random Quote: Sam: "What's going on in that cyborg brain of yours?"
-Bucky: "You don't wanna know!" - Bucky Barnes
+Last updated: 2024-04-05 09:57:20
+Random Quote: I have been called many things, my lord, byt kind is seldom one of them.  -  Maester Aemon
