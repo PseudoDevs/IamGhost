@@ -1,3 +1,2 @@
-Last updated: 2024-04-05 20:27:13
-Random Quote: Give it a week, you'll get her back. And her front.
-Oh! Did you feel that? I think we just had a "what up?"-quake! - Barney Stinson
+Last updated: 2024-04-05 20:27:46
+Random Quote: It is R'hllor who brings you back, my lord.  The Lord of Light.  I am only his instrument.  -  Thoros of Myr
