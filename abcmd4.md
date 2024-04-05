@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 09:02:48
-Random Quote: Once, she had loved Prince Joffrey with all her heart, and admired and trusted his mother, the queen.  They had repaid that love and trust with her father's head.  Sansa would never make that mistake again.  -  Sansa Stark
+Last updated: 2024-04-05 09:03:20
+Random Quote: All I know is, life is not a Nicholas Sparks novel. - Rue Bennett
