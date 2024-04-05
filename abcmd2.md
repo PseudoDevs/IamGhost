@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 07:15:17
-Random Quote: It's not like anyone's 100% straight or 100% gay. - Maddy Perez
+Last updated: 2024-04-05 07:15:51
+Random Quote: I swear to you, I was never so alive as when I was winning this throne, or so dead as now that I've won it.  -  Robert Baratheon
