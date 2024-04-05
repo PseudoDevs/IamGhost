@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 11:23:47
-Random Quote: You want to know the horrible truth?  I can't even remember what she looked like.  I only know she was the one thing I ever wanted, and seven kingdoms couldn't fill the hole she left behind.  -  Robert Baratheon
+Last updated: 2024-04-05 11:24:20
+Random Quote: Whenever I feel good I think it will last forever. But it's not like that. - Rue Bennett
