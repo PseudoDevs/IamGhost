@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 08:31:58
-Random Quote: I count no day as lived unless I have loved a woman, slain a foeman, and eaten a fine meal.  -  Daario Naharis
+Last updated: 2024-04-05 08:32:31
+Random Quote: When a maester donned his collar, he put aside the hope of children, yet Cressen had oft felt a father nonetheless.  Robert, Stannis, Renly: three sons he had raised after the angry sea claimed Lord Steffon.  -  Maester Cressen
