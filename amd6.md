@@ -1,3 +1,2 @@
-Last updated: 2024-04-05 19:28:19
-Random Quote: Marylin Thornhill: "I trust Enid has given you the old Nevermore welcome."
-Wednesday: "She's been smothering me with hospitality. I hope to return the favor... in her sleep." - Wednesday Addams
+Last updated: 2024-04-05 19:32:08
+Random Quote: Power resides where men believe it resides... It's a trick, a shadow on the wall.  -  Varys
