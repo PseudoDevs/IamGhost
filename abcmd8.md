@@ -1,2 +1,3 @@
-Last updated: 2024-04-05 19:46:06
-Random Quote: In Texas, the holy trinity is God, Football and barbecueNot necessarily in that order. - Sheldon
+Last updated: 2024-04-05 19:46:39
+Random Quote: Freddie: "If you want me out of Birmingham, it'll have to be in a wooden box."
+Polly: "You lay a hand on our Ada, I'll put you in a wooden box myself!" - Polly Gray
