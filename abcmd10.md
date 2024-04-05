@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 08:55:38
-Random Quote: You want to hurt these guys, we gotta take down the ones calling the shots. - Jaime Kuykendall
+Last updated: 2024-04-05 08:56:11
+Random Quote: You can never tell with men. They go for whoever their dcks point at and there's no changing their minds. - Polly Gray
