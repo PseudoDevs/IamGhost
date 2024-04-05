@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 08:03:11
-Random Quote: Marshall: "Open your eyes, ref! That's not a pregnant lady..."Ted: "...it's a basketball under his shirt. Blow the freakin' whistle!" - Ted Mosby
+Last updated: 2024-04-05 08:03:44
+Random Quote: I feel like her sobriety is completely dependent on how available I am to her. - Jules Vaughn
