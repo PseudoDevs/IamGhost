@@ -1,3 +1,2 @@
-Last updated: 2024-04-05 08:04:50
-Random Quote: Woman: "You know this isn't Vegas, right?"
-Robin: "Well sure, in Vegas the casinos pump in oxygen, in Atlantic City it looks like everyone brought their own." - Robin Scherbatsky
+Last updated: 2024-04-05 08:05:23
+Random Quote: Sorry Peter, we're grown-ups now, we can't fly to Netherland with you anymore. - Ted Mosby
