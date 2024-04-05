@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 16:02:29
-Random Quote: Missy Cooper: I don't want to die, I've only kissed one boy so far. - Missy Cooper
+Last updated: 2024-04-05 16:03:02
+Random Quote: If ever a man deserved to die screaming, it was Gregor Clegane.  -  Doran Martell
