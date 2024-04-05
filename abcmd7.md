@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 09:06:51
-Random Quote: Pennsatucky: "It weren't my fault. I was just doing as the Spirit commanded."Pussey: "Fuck are you? Joan of Arc?"Pennsatucky: "No, I'm from Waynesboro, my name is Tiffany..." - Tiffany 'Pennsatucky' Doggett
+Last updated: 2024-04-05 09:07:24
+Random Quote: To have power does not mean that one can abuse the poor. - Pablo Escobar
