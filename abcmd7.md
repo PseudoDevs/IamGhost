@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 20:15:31
-Random Quote: Barney: "Tell me more. Tell me more. Like did he have a car?"Marshall: "So is he the guy who... how shall I say this like a gentleman? Robin, did he take your maple leaf?"Barney: "Sounds to me like he gave you your first 'O Canada' face!" - Barney Stinson
+Last updated: 2024-04-05 20:16:05
+Random Quote: God wasn't protecting you. The kid had shitty aim. - Grace Young
