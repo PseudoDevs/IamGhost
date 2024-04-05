@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 16:03:09
-Random Quote: I saw a couple riding a tandem bike, and it made me think of how you don't know how to ride a bike. - Kamala
+Last updated: 2024-04-05 16:03:42
+Random Quote: The septons preach about the seven hells.  What do they know?  Only a man who's been burned knows what hell is truly like.  -  Sandor Clegane
