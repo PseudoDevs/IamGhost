@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 17:10:59
-Random Quote: I am not "with" Nora. Wrong Preposition! Later tonight I'm hoping to be "on" Nora, right? Or "under" Nora. Am I right? Or, we're all adults, so I'll just say it: "behind" Nora. - Barney Stinson
+Last updated: 2024-04-05 17:11:32
+Random Quote: When the snows fall and the white winds blow, the lone wolf dies, but the pack survives.  -  Eddard Stark
