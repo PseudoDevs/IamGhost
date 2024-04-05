@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 14:17:49
-Random Quote: By "entertainment" they mean "table-shuffle-board", Makramee classes and other non-stimulating activities which are only used in Manhatten to calm down drug-addicts and the criminaly insane. - Robin Scherbatsky
+Last updated: 2024-04-05 14:18:24
+Random Quote: Name one thing in this world that is non negotiable. - Walter White
