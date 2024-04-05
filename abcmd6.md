@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 10:52:35
-Random Quote: They shall come day and night to see the wonder that has been born again into the world, and when they see they shall lust.  For dragons are fire made flesh, and fire is power.  -  Quaithe
+Last updated: 2024-04-05 10:53:08
+Random Quote: Roose Bolton's cold and cunning, aye, but a man can deal with Roose.  We've all known worse.  But this bastard son of his... they say he's mad and cruel, a monster.  -  Locke
