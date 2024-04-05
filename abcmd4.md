@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 12:07:37
-Random Quote: 'You leaving already, Chief?"Jim Hopper: "Oh, come on, you think I actually wanted to come to this thing? I was just hungry."'Oh, yeah, that's the spirit."Jim Hopper: "Well, your wife doesn't have time to cook for me, you know what I'm saying." - Jim Hopper
+Last updated: 2024-04-05 12:08:11
+Random Quote: She had made the mistake of speaking when Set Gregor wanted quiet, so the Mountain had smashed her teeth to splinters with a mailed fist and broken her pretty little nose as well.  He would have done worse, no doubt, if Cersei had not called him down to King's Landing to face the Red Viper's spear.  Jaime would not mourn him.  -  Jaime Lannister
