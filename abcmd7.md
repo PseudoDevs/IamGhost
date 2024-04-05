@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 17:08:13
-Random Quote: Make it easier for those whose vote you can count on. Make it harder for those you can't. That's how you rig an election without leaving a lick of evidence. - Walt Breslin
+Last updated: 2024-04-05 17:08:47
+Random Quote: One of the 24 similarities between women and fish are they're both attracted to shiny objects. - Barney Stinson
