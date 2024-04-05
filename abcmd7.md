@@ -1,4 +1,2 @@
-Last updated: 2024-04-05 12:15:25
-Random Quote: Joel: "You keep going for family."
-Ellie: "I'm not family?"
-Joel: "No. You're cargo." - Joel Miller
+Last updated: 2024-04-05 12:15:59
+Random Quote: No, only a boy who dreams.  The greenseers were more than that.  They were wargs as well, as you are, and the greatest of them could wear the skins of any beast that flies or swims or crawls, and could look through the eyes of the weirwoods as well, and see the truth that lies beneath the world.  -  Jojen Reed
