@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 11:15:26
-Random Quote: Barney: "The Disappearing Salami... Mr. Flanagan's wife shot him before he could ever tell me what the trick was."Quinn: "Yeah, that guy was banging your mom!" - Quinn Garvey
+Last updated: 2024-04-05 11:16:00
+Random Quote: I think I literally have a better understanding of who killed Kennedy than what is offside. - Rebecca Welton
