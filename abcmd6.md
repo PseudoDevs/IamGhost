@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 16:11:15
-Random Quote: Clint: "Ted, your mother is a very, very erotic woman."Ted: "Please don't." - Ted Mosby
+Last updated: 2024-04-05 16:11:48
+Random Quote: The septons preach about the seven hells.  What do they know?  Only a man who's been burned knows what hell is truly like.  -  Sandor Clegane
