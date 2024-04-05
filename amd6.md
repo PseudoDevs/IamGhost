@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 15:53:30
-Random Quote: I’d get 30 years. And to be honest, growing old in a prison cell is not my thing. I’d rather run, in body and soul. And if I can’t take my body with me, at least my soul should run. - Tokyo
+Last updated: 2024-04-05 15:54:04
+Random Quote: There's only one thing that could blind a man as smart as you, Tommy. Love. - Polly Gray
