@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 07:34:40
-Random Quote: At night, I fall asleep to you, and in the morning, I wake up to you. I kind of feel closer to you than I do anyone in the world. - Nate Jacobs
+Last updated: 2024-04-05 07:35:13
+Random Quote: The Red God has his due, sweet girl, and only death may pay for life.  This girl took three that were his.  This girl must give three in their places.  Speak the names, and a man will do the rest.  -  Jaqen H'ghar
