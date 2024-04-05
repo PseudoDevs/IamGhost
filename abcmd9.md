@@ -1,3 +1,2 @@
-Last updated: 2024-04-05 16:32:14
-Random Quote: Man: "Hello, sir. Can I talk to you?"
-Gi-hun: "I don't believe in Jesus." - Seong Gi-hun
+Last updated: 2024-04-05 16:32:48
+Random Quote: What you have to do is show these suckers what you’re capable of. Show them you’re not scared. - Nairobi
