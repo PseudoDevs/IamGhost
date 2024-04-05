@@ -1,6 +1,2 @@
-Last updated: 2024-04-05 19:09:00
-Random Quote: Polly: "Six."
-John: "Six what?"
-Polly: "Six questions since you walked through that door. Soon you'll have to start being the man with the answers."
-John: "Why?"
-Polly: "Seven." - Polly Gray
+Last updated: 2024-04-05 19:09:34
+Random Quote: Don't knock long-distance relationships, I really think they can work. I'm juggling four right now. There's Lisa in Madrid, there's Erica in Tokyo, there's Laura in Denmark. And Kelly on 34th street. The last thinks I'm a humble sheep-shearer from Kelani. - Barney Stinson
