@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 15:25:45
-Random Quote: Here's the thing about me and tools: The only one I know how to use, is attached to me. And I'm not gonna try putting it in a TV... again. - Barney Stinson
+Last updated: 2024-04-05 15:26:18
+Random Quote: Robert could piss in a cup and men would call it wine, but I offer them cold clear water and they squint in suspicion and mutter to each other about how queer it tastes.  -  Stannis Baratheon
