@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 17:50:47
-Random Quote: Marshall: "Excuse me, miss. When you get a chance, could you bring over a hundred shots of tequila please?"Barney: "I'll have the same." - Marshall Eriksen
+Last updated: 2024-04-05 17:51:20
+Random Quote: Ted: "That beer looks a little flat."Robin: "Yeah.. it's scotch." - Robin Scherbatsky
