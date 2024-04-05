@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 07:32:39
-Random Quote: All religion is a foolish answer to a foolish question. - Thomas Shelby
+Last updated: 2024-04-05 07:33:13
+Random Quote: Do you remember that cave?  We should have stayed in that cave.  I told you so.  -  Ygritte
