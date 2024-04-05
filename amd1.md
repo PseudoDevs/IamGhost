@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 18:17:31
-Random Quote: If you're looking for the word that means caring for someone beyond all rationality and wanting them to have everything they want, no matter how much it destroys you, it's love! - Ted Mosby
+Last updated: 2024-04-05 18:18:04
+Random Quote: I'm only nine years oldMost evil doesn't start till puberty. - Sheldon
