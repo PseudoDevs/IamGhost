@@ -1,2 +1,4 @@
-Last updated: 2024-04-05 18:17:14
-Random Quote: My only aim is to take many lives. The more the better I feel. - 
+Last updated: 2024-04-05 18:17:47
+Random Quote: Morticia: "Please excuse Wednesday. She's allergic to color."
+Enid: "Wow, what happens to you?"
+Wednesday: "I break out into hives, and then the flesh peels off my bones." - Wednesday Addams
