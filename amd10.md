@@ -1,3 +1,2 @@
-Last updated: 2024-04-05 18:18:36
-Random Quote: Kids, you can't talk yourself into falling in love. It doesn't take days of deliberation. When it's real, you know pretty quickly and with absolute certainty.
-I had forgotten that, but I was about to be reminded... - Ted Mosby
+Last updated: 2024-04-05 18:19:09
+Random Quote: You know, I always thought that tea was going to taste like hot brown water, and you know what? I was right. It's horrible. - Rebecca Welton

@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 18:18:03
-Random Quote: Marshall: "Jelly beans, fluffernutter, Gummi Bears, ginger snap... this is a grocery list!"Robin: "For who? A witch building a house in the forest?"Marshall: "Sugar helps me study."Barney: "This is like the shopping a ten-year-old does when his parents leave him alone for the weekend."Lily: "What parent leaves a ten-year-old alone for the weekend?"Barney: "And your mom was perfect." - Barney Stinson
+Last updated: 2024-04-05 18:19:09
+Random Quote: I got thirty this time, men and boys all bound for the Wall, and don't be thinking they're like that bastard brother o' yours.  Lord Eddard gave me pick o' the dungeons, and I didn't find no little lordlings down there.  This log, half o' them would turn you over to the queen quick as spit for a pardon and maybe a few silvers.  The other half'd do the same, only they'd rape you first.  -  Yoren of the Night's Watch
