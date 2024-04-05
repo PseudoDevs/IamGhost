@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 16:07:26
-Random Quote: I’m not saying it’s not bad. It’s bad. But it could be worse. - Saul Goodman
+Last updated: 2024-04-05 16:08:00
+Random Quote: I asked him why he kept her close, if he thought her so grotesque.  He said that all his other knights wanted things of him, castles or honors or riches, but all that Brienne wanted was to die for him.  -  Loras Tyrell
