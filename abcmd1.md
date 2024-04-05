@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 19:32:15
-Random Quote: Robin: "Sometimes in life you have to be assertive and stand up for yourself."Ted: "You called her a whore!"Robin: "Who wears that much make up?"Ted: "Old ladies!"Robin: "Who take money for sex, exactly!" - Robin Scherbatsky
+Last updated: 2024-04-05 19:35:58
+Random Quote: Are you allowed to say that to people in my tax bracket? - Iron Man
