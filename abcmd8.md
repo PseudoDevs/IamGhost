@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 18:40:20
-Random Quote: Barney: "How's the single life?"Ted: "I wouldn't know. After this whole Robin thing, I'm laying low."Barney: "Laying low as in sleeping with a really short chick? You guys doing thirty-nine?" - Barney Stinson
+Last updated: 2024-04-05 18:40:53
+Random Quote: A ruler who hides behind paid executioners soon forgets what death is.  -  Eddard Stark
