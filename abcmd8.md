@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 17:01:32
-Random Quote: Catelyn would sooner Lord Umber had seen fit to stay sober, but telling the Greatjon not to drink was like telling him not to breathe for a few hours.  -  Catelyn Stark
+Last updated: 2024-04-05 17:02:05
+Random Quote: That's not a law, just a sword.  Happens I got one too.  -  Yoren of the Night's Watch
