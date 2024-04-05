@@ -1,3 +1,2 @@
-Last updated: 2024-04-05 18:07:19
-Random Quote: Joel: "You got any advice on the best way west?"
-Man: "Yeah. Go east." - Ellie Williams
+Last updated: 2024-04-05 18:07:53
+Random Quote: Career has been trouncing romance for years. It's like the Globetrotters versus the Generals: Career's sinking hook shots from half court, romance is just a bunch of slow white guys, who couldn't make it in the Italian league. - Ted Mosby
