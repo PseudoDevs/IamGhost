@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 08:00:59
-Random Quote: There's proving and there's knowing. -  Bill Oakley
+Last updated: 2024-04-05 08:01:32
+Random Quote: Good and evil are a question of perspective - Mikkel
