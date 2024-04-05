@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 07:54:31
-Random Quote: We can only die.  Why else do we don these black cloaks, but to die in defense of the realm?  -  Qhorin Halfhand
+Last updated: 2024-04-05 07:55:04
+Random Quote: Your story is so sweet. You didn't even kiss 'til the third date. By our third date, I hit more bases than Bob Hope on a USO tour. - Barney Stinson
