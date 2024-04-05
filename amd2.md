@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 18:54:13
-Random Quote: The truth is, our weakness is the same as anyone’s. It’s people. The people we care about. So I say, cut them loose. For your good and for theirs. That way you’re really bulletproof. - Maeve
+Last updated: 2024-04-05 18:54:47
+Random Quote: Years ago, I bought a Betamax, good product, top of the line. Experts said it was better than a VHS. Turned out to be a complete waste of time and money. - Mike Ehrmantraut

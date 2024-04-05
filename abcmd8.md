@@ -1,5 +1,2 @@
-Last updated: 2024-04-05 18:54:13
-Random Quote: Barney: "You can't spell 'game' without 'me' and 'me' has the best game."
-Ted: "Yeah well, I got so much game, I'm Cornish game hen."
-Barney: "Oh, yeah? I'm the New York State gaming commissioner."
-Ted: "Well, I'm The Game. Well-crafted, keep-you-guessing thriller starring Michael Douglas and Sean Penn." - Ted Mosby
+Last updated: 2024-04-05 18:54:48
+Random Quote: I know our relationship isn't exactly what you want it to be. And I know I may not love you the way you love me, but I DO love you. Isn't that worth hanging on to? - Robin Scherbatsky
