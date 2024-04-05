@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 09:15:39
-Random Quote: People come into our lives exactly when they should. - Nina Locke
+Last updated: 2024-04-05 09:16:12
+Random Quote: Birds are lost, messages stolen or sold... there are things I might tell you of that eunuch that would chill your blood...  -  Grand Maester Pycelle
