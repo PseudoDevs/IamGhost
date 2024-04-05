@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 10:42:00
-Random Quote: Old stories are like old friends, Old Nan used to say.  You have to visit them from time to time.  -  Bran Stark
+Last updated: 2024-04-05 10:42:33
+Random Quote: Sometimes it lasts all night. And I lie here and I listen to the shovels, and the picks against that wall there. And I pray the sun will come up at the curtains before they break through. No, I don't pray. I hope. And sometimes it happens. The sun beats them. But mostly the shovels beat the sun. - Thomas Shelby
