@@ -1,3 +1,2 @@
-Last updated: 2024-04-05 16:26:06
-Random Quote: What do I think love is? It's like when someone makes your stomach feel all tight, but floaty at the same time, you know? And your cheeks hurt from smiling. And you smile so much, that people think something's wrong with you.
-...And also fucking. Twenty-four seven, deep-dick, can't-walk-right fucking. - Aleida Diaz
+Last updated: 2024-04-05 16:26:39
+Random Quote: You want to know the horrible truth?  I can't even remember what she looked like.  I only know she was the one thing I ever wanted, and seven kingdoms couldn't fill the hole she left behind.  -  Robert Baratheon
