@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 12:24:30
-Random Quote: A guy opens his door and gets shot and you think that of me? No. I am the one who knocks! - Walter White
+Last updated: 2024-04-05 12:25:04
+Random Quote: We all wear masks. We all pretend. Presenting a perfect illusion on the outside, while we desperately try to hide who we are on the inside. - Ángel
