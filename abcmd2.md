@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 14:19:55
-Random Quote: Things never work out the way you imagine they will. - Lucien
+Last updated: 2024-04-05 14:20:29
+Random Quote: He climbed onto his throne over the corpses of children, though I will grant you he was no Joffrey.  -  Arianne Martell
