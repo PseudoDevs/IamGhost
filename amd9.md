@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 18:12:57
-Random Quote: I swear to you, I was never so alive as when I was winning this throne, or so dead as now that I've won it.  -  Robert Baratheon
+Last updated: 2024-04-05 18:15:09
+Random Quote: Dragons old and young, true and false, bright and dark.  And you.  A small man with a big shadow, snarling in the midst of it all.  -  Moqorro
