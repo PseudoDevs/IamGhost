@@ -1,3 +1,2 @@
-Last updated: 2024-04-05 08:29:18
-Random Quote: May: "May Carleton. I breed racehorses and train them. What is it you do?"
-Thommy: "I rarely answer questions is what I do." - Thomas Shelby
+Last updated: 2024-04-05 08:29:51
+Random Quote: I can teach you history, healing, herblore.  I can teach you the speech of ravens, and how to build a castle, and the way a sailor steers his ship by the stars I can teach you to measure the days and marks the seasons, and at the Citadel in Oldtown they can teach you a thousand things more.  But, Bran, no man can teach you magic.  -  Maester Luwin
