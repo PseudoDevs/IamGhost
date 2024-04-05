@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 17:18:23
-Random Quote: If you don't trust your men with your money, you have bigger problems than if you trust Saul Goodman. - Kim Wexler
+Last updated: 2024-04-05 17:18:56
+Random Quote: A craven's knife can slay a queen as easily as a hero's.  -  Xaro Xhoan Daxos
