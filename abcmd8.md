@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 17:22:32
-Random Quote: I did the world a favor. People like Dalton shouldn't be allowed to procreate. Getting expelled was just a bonus. - Wednesday Addams
+Last updated: 2024-04-05 17:23:05
+Random Quote: My real father died in King's Landing.  I made a choice, and I chose wrong.  -  Theon Greyjoy
