@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 13:52:27
-Random Quote: I never asked for this, no more than I asked to be king.  Yet dare I disregard her?  We do not choose our destinies.  Yet we must... we must do our duty, no?  Great or small, we must do our duty.  -  Stannis Baratheon
+Last updated: 2024-04-05 13:53:00
+Random Quote: I’ve spent my life being a bit of a son of a bitch, but today I think I want to die with dignity. - Berlin
