@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 17:17:37
-Random Quote: Elia of Dorne.  I killed her screaming whelp.  Then I raped her.  Then I smashed her fucking head in like this.  -  Gregor Clegane
+Last updated: 2024-04-05 17:18:10
+Random Quote: The end of a rope has been this man's destiny since the night he was born. - Chester Campbell
