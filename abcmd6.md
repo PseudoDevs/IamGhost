@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 08:51:49
-Random Quote: Success is 1% inspiration, 98% perspiration, and 2% attention to detail. - Phil Dunphy
+Last updated: 2024-04-05 08:52:55
+Random Quote: Nobody takes an intro class to get on any other path, but the path to not being hungover anymore. I learned that in my intro to something-ology class. - Marshall Eriksen
