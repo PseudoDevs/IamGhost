@@ -1,2 +1,3 @@
-Last updated: 2024-04-05 08:34:27
-Random Quote: You are not the guy. You're not capable of being the guy. I had a guy but now I don't. You are not the guy. - Mike Ehrmantraut
+Last updated: 2024-04-05 08:35:01
+Random Quote: Enid Sinclair: "Want to take a stab at being social?"
+Wednesday: "I do like stabbing. The social part, not so much." - Wednesday Addams
