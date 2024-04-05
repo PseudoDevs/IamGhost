@@ -1,3 +1,2 @@
-Last updated: 2024-04-05 16:31:21
-Random Quote: Tommy: "I'll have some men watch her house 'til the danger passes."
-Polly: "'Til the danger passes. That'll be the bloody day." - Polly Gray
+Last updated: 2024-04-05 16:31:54
+Random Quote: I've been dreaming of that since I was five. Well, that and my own operational Death Star. - Barney Stinson
