@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 08:12:17
-Random Quote: Droids are not good or bad. They are neutral reflections of those who imprint them. - Kuiil
+Last updated: 2024-04-05 08:12:50
+Random Quote: The only way to keep your people loyal is to make certain they fear you more than they do the enemy.  -  Cersei Lannister
