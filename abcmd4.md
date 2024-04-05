@@ -1,3 +1,2 @@
-Last updated: 2024-04-05 19:50:34
-Random Quote: Larissa: "So you automatically assume a Nevermore student is the murderer, even though there's no evidence a crime was even committed."
-Donovan: "I'm sorry. I forgot, you only teach the good outcasts here, right?" - Donovan Galpin
+Last updated: 2024-04-05 19:51:07
+Random Quote: That's where The Boys come in: Spank the bastards when they get out of line. - Billy Butcher
