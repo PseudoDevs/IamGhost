@@ -1,2 +1,3 @@
-Last updated: 2024-04-05 16:29:09
-Random Quote: Never give power to the big man. - Alfie Solomons
+Last updated: 2024-04-05 16:29:42
+Random Quote: Morty: "I don't deserve this. I was just having fun."
+Rick: "So was Jeffrey Dahmer." - Rick Sanchez
