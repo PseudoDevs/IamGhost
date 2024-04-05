@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 15:40:02
-Random Quote: Missy Cooper: I don't want to die, I've only kissed one boy so far. - Missy Cooper
+Last updated: 2024-04-05 15:40:36
+Random Quote: The years pass in their hundreds and their thousands, and what does any man see of life but a few summers, a few winters?  -  Maester Luwin
