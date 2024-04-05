@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 20:13:21
-Random Quote: You can never tell with men. They go for whoever their dcks point at and there's no changing their minds. - Polly Gray
+Last updated: 2024-04-05 20:13:54
+Random Quote: Ted: "Uh, the time Lily went into labor!"Lily: "That's now!"Ted: "Sorry, I'm running out of stories." - Ted Mosby
