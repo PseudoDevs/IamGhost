@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 15:58:12
-Random Quote: It's not just football. It's life. - Cal Jacobs
+Last updated: 2024-04-05 15:58:44
+Random Quote: Some people wander around their whole lives looking for a way out, but there’s only one path and it leads you ever deeper. - 
