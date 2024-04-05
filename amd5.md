@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 16:17:41
-Random Quote: She had seen Bronn fight on the high road; it was no accident that he had survived the journey while other men had died.  He moved like a panther, and that ugly sword of his seemed a part of his arm.  -  Catelyn Stark
+Last updated: 2024-04-05 16:18:14
+Random Quote: Don't believe everything you hear. Our enemies want to separate us. But Mandalorians are stronger together. - Bo-Katan
