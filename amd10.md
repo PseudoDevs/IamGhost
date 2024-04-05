@@ -1,2 +1,3 @@
-Last updated: 2024-04-05 17:50:58
-Random Quote: Frustration and boredom are great motivators to seek out other pleasures. Human behavior is quite predictable. - Virginia Wilson
+Last updated: 2024-04-05 17:51:31
+Random Quote: Morty: "I don't like how meta this is getting, Rick."
+Rick: "Shut up, Morty, you're 14. You watch videos of people on YouTube reacting to fing YouTube. I'll be the judge of when we get too meta." - Rick Sanchez
