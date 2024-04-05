@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 10:58:43
-Random Quote: When you spend years thinking about something obsessively, that something is your whole world, your perfect world. - Tokyo
+Last updated: 2024-04-05 10:59:16
+Random Quote: Lily: "It's nine weeks 'til the wedding, at this point, I'd say yes to just about anything."Barney: "Well..."Lily: "No, Barney." - Lily Aldrin
