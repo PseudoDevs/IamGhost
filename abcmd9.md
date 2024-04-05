@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 17:15:57
-Random Quote: Lily: "It's nine weeks 'til the wedding, at this point, I'd say yes to just about anything."Barney: "Well..."Lily: "No, Barney." - Lily Aldrin
+Last updated: 2024-04-05 17:16:30
+Random Quote: A Dothraki wedding without at least three deaths is considered a dull affair.  -  Illyrio Mopatis
