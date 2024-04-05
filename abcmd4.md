@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 09:17:09
-Random Quote: The legacy of that shield is... complicated. - Sam Wilson
+Last updated: 2024-04-05 09:17:42
+Random Quote: If you mean when will Chernobyl be completly save - the half-life of Plutonium 239 is 24,000 years. Perhaps we should just say, 'not in our lifetimes'. - Valery Legasov
