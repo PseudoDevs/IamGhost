@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 20:17:30
-Random Quote: Barney: "Or it's a chance to mess with her head by showing up with someone hotter. Even better. Triple-threat: hotter and bigger boobs."Ted: "That's only two?"Barney: "Count again!" - Barney Stinson
+Last updated: 2024-04-05 20:18:36
+Random Quote: The number two guy doesn't solve problems. He just points them out. - Don Neto
