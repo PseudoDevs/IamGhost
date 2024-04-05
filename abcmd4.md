@@ -1,3 +1,2 @@
-Last updated: 2024-04-05 19:39:22
-Random Quote: Joel: "You got any advice on the best way west?"
-Man: "Yeah. Go east." - Ellie Williams
+Last updated: 2024-04-05 19:40:29
+Random Quote: And there's this other band, led by this woman Stoneheart... Lord Beric's lover, according to one tale.  Supposedly she was hanged by the Freys, but Dondarrion kissed her and brought her back to life, and now she cannot die, no more than he.  -  Set Hyle Hunt
