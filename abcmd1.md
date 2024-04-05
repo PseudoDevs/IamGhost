@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 19:03:53
-Random Quote: There's proving and there's knowing. -  Bill Oakley
+Last updated: 2024-04-05 19:05:36
+Random Quote: See, lad, that's why he's the king and I'm not.  I can outdrink, outfight, and outsing him, and my member's thrice the size o' his, but Mance has cunning.  -  Tormund Giantsbane
