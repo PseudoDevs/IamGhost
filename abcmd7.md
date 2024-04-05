@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 14:54:34
-Random Quote: If you don't like where you're heading, there's no shame in going back and changing your path. - Chuck McGill
+Last updated: 2024-04-05 14:55:09
+Random Quote: Why is it always the innocents who suffer most, when you high lords play your game of thrones?  -  Varys
