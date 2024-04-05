@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 20:06:07
-Random Quote: Ted: "That beer looks a little flat."Robin: "Yeah.. it's scotch." - Robin Scherbatsky
+Last updated: 2024-04-05 20:06:40
+Random Quote: We can only die.  Why else do we don these black cloaks, but to die in defense of the realm?  -  Qhorin Halfhand
