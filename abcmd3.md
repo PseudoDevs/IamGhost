@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 13:21:36
-Random Quote: Ted: "Those Robin's boobies?"Barney: "When new nubile hotties lean in to inspect your bundle of joy, you can inspect their bundles of joy. The Broller. God, I come up with a lot of good stuff!" - Barney Stinson
+Last updated: 2024-04-05 13:22:12
+Random Quote: Turns out, when you projectile vomit on skates, you roll right into the spray. - Ted Mosby
