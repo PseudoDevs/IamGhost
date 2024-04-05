@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 10:33:42
-Random Quote: The frightened child who sheltered in my manse died on the Dothraki Sea, and was reborn in blood and fire.  This dragon queen who wears her name is a true Targaryen.  -  Illyrio Mopatis
+Last updated: 2024-04-05 10:35:21
+Random Quote: Stay out of my territory. - Walter White
