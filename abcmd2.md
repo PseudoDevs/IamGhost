@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 15:40:02
-Random Quote: You grew up with actors.  You learned their craft and you learned it well.  I grew up with soldiers.  I learned how to die a long time ago.  -  Eddard Stark
+Last updated: 2024-04-05 15:40:35
+Random Quote: There is a time to fight and there is a time to be clever. - Pablo Escobar
