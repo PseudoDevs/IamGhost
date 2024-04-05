@@ -1,3 +1,2 @@
-Last updated: 2024-04-05 15:55:12
-Random Quote: Marylin Thornhill: "I trust Enid has given you the old Nevermore welcome."
-Wednesday: "She's been smothering me with hospitality. I hope to return the favor... in her sleep." - Wednesday Addams
+Last updated: 2024-04-05 15:55:45
+Random Quote: It's nice that they found each other. Sometimes you fall for someone you'd never expect, but that doesn't make it wrong. Doesn't everyone deserve to be happy? - Barney Stinson
