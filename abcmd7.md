@@ -1,2 +1,6 @@
-Last updated: 2024-04-05 19:03:19
-Random Quote: Darlin', there's no inferringI've seen the boy sitting in the dirt eating his own belly button lint. - Meemaw
+Last updated: 2024-04-05 19:04:27
+Random Quote: You lie to your husband all the time...
+"That shirt looks great on you."
+"I love your mom."
+"I never fantasize about Barney when we're doing it."
+Sound familiar, Pinocchio? - Barney Stinson
