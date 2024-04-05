@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 08:04:37
-Random Quote: Celtigar pronounced it admirable.  If I were to show him the contents of my privy he would pronounce that admirable as well.  -  Stannis Baratheon
+Last updated: 2024-04-05 08:05:10
+Random Quote: We just don't wanna rush anything, okay? We decided to wait, until she decides to let me have sex with her. - Barney Stinson
