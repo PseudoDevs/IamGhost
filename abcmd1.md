@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 08:07:01
-Random Quote: You came in the door like thunder, Then hit the floor like thunder, Laying me down you wonder, Shaking the walls like thunder - 
+Last updated: 2024-04-05 08:07:34
+Random Quote: The Night's Watch is a sworn brotherhood.  We have no families.  None of us will ever father sons.  Our wife is duty.  Our mistress is honor.  -  Benjen Stark
