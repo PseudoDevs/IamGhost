@@ -1,5 +1,2 @@
-Last updated: 2024-04-05 15:14:45
-Random Quote: Abby: "Do we have to go back this way?"
-Owen: "Consider it an opportunity to work on your fears."
-Abby: "How about I work my foot up your ass?"
-Owen: "Abby, stop flirting!" - Joel Miller
+Last updated: 2024-04-05 15:15:18
+Random Quote: You need to figure out what the fuck you want. - Nicky Nichols
