@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 09:18:48
-Random Quote: We all wear masks. We all pretend. Presenting a perfect illusion on the outside, while we desperately try to hide who we are on the inside. - Ángel
+Last updated: 2024-04-05 09:19:22
+Random Quote: If I'm always looking back, I'm never looking ahead. We are who we are because of consequences. You can't live without consequences. - Morty Smith
