@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 12:07:38
-Random Quote: When Barney overhears that Ted and Robin have a secret to reveal at the wedding reception, he begins to guess what it might be. - Lily Aldrin
+Last updated: 2024-04-05 12:08:44
+Random Quote: Mitchell: "It's been five years now and he still does this thing were he announces himself before walking into any room we're in, just to make sure he doesn't ever see us kiss."Cameron: "Wish my mother had that system. Remember?" - Cameron Tucker
