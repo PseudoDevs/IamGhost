@@ -1,2 +1,4 @@
-Last updated: 2024-04-05 19:22:41
-Random Quote: Jerry: "You don't, by any chance, have some sort of crazy science thing you could wrap up, that might help make this dog a little smarter?"Rick: "I thought the whole point of having a dog was to feel superior, Jerry. If I were you, I wouldn't pull that thread." - Rick Sanchez
+Last updated: 2024-04-05 19:23:48
+Random Quote: Bo-Katan: "I've scugged off a lot of Imperial warlords."
+Din: "They tend to get mad when you hijack their ships."
+Bo-Katan: "Now you tell me." - Bo-Katan
