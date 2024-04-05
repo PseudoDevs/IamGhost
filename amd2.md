@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 16:48:30
-Random Quote: He is strong with the Force, but talent without training is nothing. I will give my life to protect the child, but he will not be safe until he masters his abilities. - Luke Skywalker
+Last updated: 2024-04-05 16:49:03
+Random Quote: Rule Number One: Don't ever fall in love with a straight girl. - Alex Vause
