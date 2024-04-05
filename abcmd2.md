@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 09:04:59
-Random Quote: You can never tell with men. They go for whoever their dcks point at and there's no changing their minds. - Polly Gray
+Last updated: 2024-04-05 09:05:32
+Random Quote: You're mine.  Mine, as I'm yours.  And if we die, we die.  All men must die, Jon Snow.  But first, we'll live.  -  Ygritte
