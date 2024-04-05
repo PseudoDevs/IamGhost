@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 17:37:08
-Random Quote: What if everything that came from the past was influenced by the future. - H.G. Tannhaus
+Last updated: 2024-04-05 17:37:42
+Random Quote: We all have things we keep hidden. Sometimes, keeping secrets is how you survive. Because in High School, one rumor, one picture, one incident, can define you forever. - Hannah Baker
