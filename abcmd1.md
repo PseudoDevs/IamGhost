@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 16:15:04
-Random Quote: Ran: "Mayfeld, he's one of the best triggermen I've ever seen. Former Imperial sharpshooter."Mando: "That's not saying much." - Din Djarin
+Last updated: 2024-04-05 16:16:10
+Random Quote: Once, she had loved Prince Joffrey with all her heart, and admired and trusted his mother, the queen.  They had repaid that love and trust with her father's head.  Sansa would never make that mistake again.  -  Sansa Stark
