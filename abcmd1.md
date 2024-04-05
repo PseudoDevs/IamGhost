@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 08:04:17
-Random Quote: There is a 83% correlation between times when men are wearing a boutonniere and when they are getting laid... proms, weddings, funerals... thanks for the redhead, grandma! By the way, did you know that "boutonniere" is french for "booty is near"? - Barney Stinson
+Last updated: 2024-04-05 08:04:50
+Random Quote: Lily: "Your job is very simple. At the wedding, do not sleep with anyone even remotely related to me."Barney: "Yeah. Lily, you know I can't promise that" - Barney Stinson
