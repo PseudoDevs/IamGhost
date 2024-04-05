@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 16:04:33
-Random Quote: Love is poison.  A sweet poison, yes, but it will kill you all the same.  -  Cersei Lannister
+Last updated: 2024-04-05 16:05:06
+Random Quote: Listen, you have a choice, okay? You can pay up now or bleed to death in court. - Saul Goodman
