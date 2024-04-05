@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 16:41:18
-Random Quote: Some people wander around their whole lives looking for a way out, but there’s only one path and it leads you ever deeper. - 
+Last updated: 2024-04-05 16:41:51
+Random Quote: A thousand eyes, a hundred skins, wisdom deep as the roots of ancient trees.  Greenseers.  -  Bloodraven
