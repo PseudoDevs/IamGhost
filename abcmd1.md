@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 18:12:52
-Random Quote: To have power does not mean that one can abuse the poor. - Pablo Escobar
+Last updated: 2024-04-05 18:13:57
+Random Quote: Never fear the darkness, Bran.  The strongest trees are rooted in the dark places of the earth.  Darkness will be your cloak, your shield, your mother's milk.  Darkness will make you strong.  -  Bloodraven
