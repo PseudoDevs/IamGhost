@@ -1,4 +1,2 @@
-Last updated: 2024-04-05 09:27:38
-Random Quote: Joel: "You keep going for family."
-Ellie: "I'm not family?"
-Joel: "No. You're cargo." - Joel Miller
+Last updated: 2024-04-05 09:28:11
+Random Quote: I know you mean well. I know you wanna protect me. You have. And when we're done, we'll go wherever you want. Tommy's, sheep ranch, the moon... I'll follow you anywhere you go. But there's no halfway with this. We finish what we started. - Ellie Williams
