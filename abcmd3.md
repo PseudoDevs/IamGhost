@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 19:16:07
-Random Quote: Fear cuts deeper than swords.  -  Syrio Forel
+Last updated: 2024-04-05 19:16:40
+Random Quote: We have to control this fing world, or it will control you. And if you don't protect yourself, it makes a mess and breaks you. - Miguel Angel Felix Gallardo
