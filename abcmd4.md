@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 18:31:49
-Random Quote: I prefer my history dead.  Dead history is writ in ink, the living sort in blood.  -  Rodrik Harlaw
+Last updated: 2024-04-05 18:32:22
+Random Quote: I buried an axe so deep into Willem's skull, they had to bury him with it.  -  Yoren of the Knight's Watch
