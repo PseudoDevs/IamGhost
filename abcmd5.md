@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 07:26:15
-Random Quote: A war is coming. I'm afraid your friends at Hawkins are very much in the eye of the storm. I don't know how to say this other than just to say it: without you, we can't win this war. - Sam Owens
+Last updated: 2024-04-05 07:26:49
+Random Quote: If you don't think there's hope for the world, why bother going on? - Ellie Williams
