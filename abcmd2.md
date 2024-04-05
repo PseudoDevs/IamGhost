@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 19:06:47
-Random Quote: A man lives three lives. The first one ends with the loss of naivety, the second, with the loss of innocence and the third… with the loss of life itself. It’s inevitable that we go through all three stages. - Adam
+Last updated: 2024-04-05 19:07:20
+Random Quote: Was snow ever so black?  Ramsay took Lord Hornwood's lands by forcibly wedding his widow, then locked her in a tower and forgot her.  It is said she ate her own fingers in her extremity... and the Lannister notion of king's justice is to reward her killer with Need Stark's little girl.  -  Wyman Manderly
