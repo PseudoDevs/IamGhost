@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 18:31:00
-Random Quote: Treason is a noxious weed.  It must be torn up, root and stem and seed, lest new traitors sprout from every roadside.  -  Grand Maester Pycelle
+Last updated: 2024-04-05 18:31:33
+Random Quote: In his chainmail shirt with a sword in his hand, Gendry looked almost a man grown, and dangerous.  Hot Pie looked like Hot Pie.  -  Arya Stark
