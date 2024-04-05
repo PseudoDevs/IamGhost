@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 12:38:23
-Random Quote: I am not "with" Nora. Wrong Preposition! Later tonight I'm hoping to be "on" Nora, right? Or "under" Nora. Am I right? Or, we're all adults, so I'll just say it: "behind" Nora. - Barney Stinson
+Last updated: 2024-04-05 12:38:59
+Random Quote: You give me one hour of phone-free bro time, during which we, and by we I mean you, get magnificently, mythologically drunk. I'm talking needing-subtitles-when-you-speak drunk. - Barney Stinson
