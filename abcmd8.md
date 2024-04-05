@@ -1,2 +1,3 @@
-Last updated: 2024-04-05 15:11:28
-Random Quote: Just because you shot Jesse James doesn't mean you are Jesse James. - Mike Ehrmantraut
+Last updated: 2024-04-05 15:12:01
+Random Quote: Billy: "Halloween's a magical holiday. All about family, friends, and the thrill of getting to be someone else for a day."
+Tommy: "Wrong! Halloween's about candy. And scaring people, but mostly candy." - Tommy Maximoff
