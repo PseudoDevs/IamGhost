@@ -1,2 +1,3 @@
-Last updated: 2024-04-05 13:36:48
-Random Quote: Penrose chose to die rather than give him up.  It still angers me.  How could he think I would hurt the boy?  I chose Robert, did I not?  When that hard day came, I chose blood over honor.  -  Stannis Baratheon
+Last updated: 2024-04-05 13:37:21
+Random Quote: How does a computer get drunk?
+It takes screenshots. - Will Livingston
