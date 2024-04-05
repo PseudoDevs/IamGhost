@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 19:10:41
-Random Quote: I want you to wanna kiss me so bad that you don't even ask. - Jules Vaughn
+Last updated: 2024-04-05 19:11:49
+Random Quote: When the sun rises in the west and sets in the east.  When the seas go dry and mountains blow in the wind like leaves.  When your womb quickens again, and you bear a living child.  Then he will return, and not before.  -  Mirri Maz Duur
