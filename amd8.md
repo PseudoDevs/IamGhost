@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 17:35:17
-Random Quote: Here's the thing about me and tools: The only one I know how to use, is attached to me. And I'm not gonna try putting it in a TV... again. - Barney Stinson
+Last updated: 2024-04-05 17:35:50
+Random Quote: Asha Greyjoy did not intend to be taken alive.  She would die as she had lived, with an axe in her hand and a laugh upon her lips.  -  Asha Greyjoy
