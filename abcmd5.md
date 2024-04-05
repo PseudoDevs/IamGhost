@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 07:20:36
-Random Quote: When the truth offends me, we lie and we lie until we can no longer remember it is even there. Every lie we tell incurs a debt to the truth. Sooner or later, that debt is paid. - Valery Legasov
+Last updated: 2024-04-05 07:21:10
+Random Quote: Life hurts. The moment you think you've got it all, it smacks you in the face. - Lucien
