@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 09:43:03
-Random Quote: All three of you were being a buch of little a-sholes. I was the only reasonable one. - Dustin Henderson
+Last updated: 2024-04-05 09:43:36
+Random Quote: There is no creature on earth half so terrifying as a truly just man.  -  Varys
