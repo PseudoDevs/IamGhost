@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 08:43:00
-Random Quote: Marshall: "The broken windows?"Lily: "We had to make it look realistic."Marshall: "But why did you break two of them?"Robin: "It looked like fun when she did it, so I wanted to try."Marshall: "I can't believe this whole time it was you guys; I've been blaming Really Tan Dancing Leotard guy." - Marshall Eriksen
+Last updated: 2024-04-05 08:43:33
+Random Quote: Ted: "Our point guard's a 52-year-old virgin, happy as a clam."Barney: "I'm sure he's quite a ball handler." - Barney Stinson
