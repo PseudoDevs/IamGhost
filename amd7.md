@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 16:23:37
-Random Quote: The plan was to kill you and take the kid. But after what happened last night, I couldn't go through with it. - Greef Karga
+Last updated: 2024-04-05 16:24:10
+Random Quote: What if God doesn’t know what he’s doing? If the plan is wrong? If God is wrong? - 
