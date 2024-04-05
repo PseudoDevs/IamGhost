@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 18:33:44
-Random Quote: Maybe people are nostalgic about high school 'cause it's, like, the last time in their life that they get to dream. - Cassie Howard
+Last updated: 2024-04-05 18:34:17
+Random Quote: Jesus! Just grow some fucking balls! - Walter White
