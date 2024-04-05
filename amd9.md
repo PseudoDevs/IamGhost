@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 16:05:14
-Random Quote: I never wanted the throne, I only ever wanted to be your equal. - Thor
+Last updated: 2024-04-05 16:05:47
+Random Quote: What is dead may never die, but rises again, harder and stronger  -  Words of the Drowned God
