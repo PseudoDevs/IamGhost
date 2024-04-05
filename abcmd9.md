@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 15:09:15
-Random Quote: Judging from how many clients that hooker has serviced, I'd say we've been here almost an hour. - Robin Scherbatsky
+Last updated: 2024-04-05 15:09:48
+Random Quote: Power tastes best when sweetened by courtesy; you had best learn that if you ever hope to rule.  -  Roose Bolton
