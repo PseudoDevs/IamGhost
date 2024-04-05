@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 11:09:53
-Random Quote: Lily: "Ted, you did this all yourself?"Ted: "Just like Ryan Gosling in 'The Notebook'. It was pretty manly 'til I mentioned Ryan Gosling in 'The Notebook', huh?" - Ted Mosby
+Last updated: 2024-04-05 11:10:26
+Random Quote: If I got serious with Nora, it would be like if Mother Teresa focused all her attention on one really hot orphan. With great penis comes great responsibility. - Barney Stinson
