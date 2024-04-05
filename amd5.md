@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 19:19:40
-Random Quote: I love hospitals. If I could spend the rest of my life in a hospital, I would. Because when you're in a hospital, you have zero responsibilities. - Rue Bennett
+Last updated: 2024-04-05 19:20:13
+Random Quote: You don’t love anyone? Of course you don’t, darling. You don’t have the balls for it. To love, you need courage. - Nairobi
