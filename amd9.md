@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 20:31:52
-Random Quote: Barney: "How's the single life?"Ted: "I wouldn't know. After this whole Robin thing, I'm laying low."Barney: "Laying low as in sleeping with a really short chick? You guys doing thirty-nine?" - Barney Stinson
+Last updated: 2024-04-05 20:33:31
+Random Quote: I find Social Media to be a soul-sucking void of meaningless affirmation. - Wednesday Addams
