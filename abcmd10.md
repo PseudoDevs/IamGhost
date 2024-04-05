@@ -1,3 +1,2 @@
-Last updated: 2024-04-05 16:50:58
-Random Quote: Morty: "You were a teenager when dad got you pregnant!"
-Beth: "I was 17. That's at least 26 in boy years." - Beth Smith
+Last updated: 2024-04-05 16:51:31
+Random Quote: This is Hawkins, okay? You wanna know the worst thing that's ever happened here in the four years I've been working here? It was when an owl attacked Eleanor Gillespie's head because it though that her hair was a nest. - Jim Hopper
