@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 17:54:08
-Random Quote: We’re not free in what we do because we’re not free in what we want. We can’t overcome what’s deep within us - The Stranger
+Last updated: 2024-04-05 17:54:42
+Random Quote: Never bring a knife to a sword fight. Unless it's concealed. - Wednesday Addams
