@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 11:49:18
-Random Quote: Because sometimes, even when you know how something's gonna end, that doesn't mean you can't enjoy the ride. - Ted Mosby
+Last updated: 2024-04-05 11:49:51
+Random Quote: Take the foundling to the city of Calodan on the forest planet Corvus. There, you will find Ahsoka Tano. Tell her you were sent by Bo-Katan. - Bo-Katan
