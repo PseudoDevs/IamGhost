@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 15:49:35
-Random Quote: Nerds who aren't good at math?Life is going to be rough boys! - Robin Scherbatsky
+Last updated: 2024-04-05 15:50:09
+Random Quote: They'll bend the knee or I'll destroy them.  -  Stannis Baratheon
