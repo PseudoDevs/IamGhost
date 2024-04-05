@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 16:49:25
-Random Quote: Financial adviser's not my dream job, but I am taking a fing bite out of the apple. - Bruce Liddell
+Last updated: 2024-04-05 16:50:32
+Random Quote: You don't parley when you're on the back foot. We'll strike a blow back first. - Thomas Shelby
