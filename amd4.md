@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 16:22:30
-Random Quote: It wasn't the violence that scared her. It was the fact that she knew no matter what he did, she'd still love him. - Rue Bennett
+Last updated: 2024-04-05 16:23:04
+Random Quote: When you start moving furniture around, people stub their toes and get upset. - Don Neto
