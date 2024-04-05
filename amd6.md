@@ -1,3 +1,5 @@
-Last updated: 2024-04-05 19:02:10
-Random Quote: Doctor: "Hypothetically speaking, every new father-to-be get nervous."
-Vision: "Well, I have nerves of steel, so there goes your theory, Mr. Doctor." - Vision
+Last updated: 2024-04-05 19:02:44
+Random Quote: Therapist: "You need to stop doing these weird things. Go out sometime."
+Klaus: "I went to the park today."
+Therapist: "There you go! I hope you got something from that."
+Klaus: "[Opens up coat] This duck." - Klaus Hargreeves
