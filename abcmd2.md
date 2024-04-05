@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 07:37:45
-Random Quote: Once, she had loved Prince Joffrey with all her heart, and admired and trusted his mother, the queen.  They had repaid that love and trust with her father's head.  Sansa would never make that mistake again.  -  Sansa Stark
+Last updated: 2024-04-05 07:38:19
+Random Quote: He would see this country burn if he could be king of the ashes.  -  Varys
