@@ -1,3 +1,2 @@
-Last updated: 2024-04-05 15:27:52
-Random Quote: Peter Parker: "Splitting up? Do you guys just not have horror movies in Wakanda?"
-Okoye: "We don't need them. We have American reality shows." - Okoye
+Last updated: 2024-04-05 15:28:24
+Random Quote: Be careful who you put your faith in. The only people who can betray us, are the ones we trust. - Maria Miller
