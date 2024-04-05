@@ -1,2 +1,4 @@
-Last updated: 2024-04-05 10:06:07
-Random Quote: We should have never gotten on this ship. It was a mistake. All of it, a huge mistake. - Yuk Je
+Last updated: 2024-04-05 10:07:13
+Random Quote: Ellie: "Can I have a gun?"
+Joel: "Absolutely not."
+Ellie: "Okay, Jesus. Fine. I'll have to throw a f-ckin' sandwich at them." - Ellie Williams
