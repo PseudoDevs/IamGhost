@@ -1,2 +1,3 @@
-Last updated: 2024-04-05 16:33:34
-Random Quote: Jerry: "I wish that shotgun was my penis."Beth: "If it were, you could call me Ernest Hemingway." - Beth Smith
+Last updated: 2024-04-05 16:34:07
+Random Quote: Weems: "No doubt you'll find something that tickles your fancy."
+Wednesday: "The last person who tickled me lost a finger." - Wednesday Addams
