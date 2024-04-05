@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 08:29:12
-Random Quote: Ted: "When you leave someone at the altar, you always leave a note. It's common courtesy."Victoria: "I think common courtesy went out the window when I did." - Victoria
+Last updated: 2024-04-05 08:29:45
+Random Quote: Make it easier for those whose vote you can count on. Make it harder for those you can't. That's how you rig an election without leaving a lick of evidence. - Walt Breslin
