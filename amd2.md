@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 15:52:06
-Random Quote: Sandy Rivers: "I don't know what went wrong."Robin: "Well, proposing a three way was bad. Starting without us was worse. Finishing in the hallway was the nail in the coffin." - Robin Scherbatsky
+Last updated: 2024-04-05 15:52:42
+Random Quote: See, lad, that's why he's the king and I'm not.  I can outdrink, outfight, and outsing him, and my member's thrice the size o' his, but Mance has cunning.  -  Tormund Giantsbane
