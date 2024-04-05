@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 19:26:00
-Random Quote: We will take them before last night's beer turns to piss. - Chester Campbell
+Last updated: 2024-04-05 19:26:34
+Random Quote: A grievous wound, aye, but Thoros healed it.  There's never been no better healer.  -  Lem Lemoncloak
