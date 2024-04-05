@@ -1,5 +1,2 @@
-Last updated: 2024-04-05 18:56:29
-Random Quote: "What's love to you?"
-Flaca: "It's like getting into a bath, but the water is like warm chocolate pudding. And the Smiths are playing. There Is A Light That Never Goes Out.' There's mood lighting all over, and there's like five dudes massaging you."
-Maritza: "And you have a pizza!"
-Flaca: "She's right. You also have a pizza." - Marisol 'Flaca' Gonzales & Maritza Ramos
+Last updated: 2024-04-05 18:57:02
+Random Quote: Have you been arrested in a mall?Dumped in a mall?Turned out you're Canadian in a mall? - Ted Mosby

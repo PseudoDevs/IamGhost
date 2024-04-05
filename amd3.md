@@ -1,3 +1,2 @@
-Last updated: 2024-04-05 18:56:28
-Random Quote: Jang Deok-su: "Tell me what you're good at?"
-Han Mi-nyeo: "Everything, except the things I can't do." - Oh Il-nam
+Last updated: 2024-04-05 18:57:02
+Random Quote: You don't get to blame your problems on anyone but yourself. - Allison Hargreeves
