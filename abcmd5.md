@@ -1,2 +1,4 @@
-Last updated: 2024-04-05 10:31:29
-Random Quote: The Freys slashed her throat from ear to ear.  When we found her by the river she was three days dead.  Harwin begged me to give her the kiss of life, but it had been too long.  I would not do it, so Lord Beric put his lips to hers instead, and the flame of life passed from him to her.  And... she rose.  May the Lord of Light protect us.  She rose.  -  Thoros of Myr
+Last updated: 2024-04-05 10:32:02
+Random Quote: Barney: "Ted, I'm gonna teach you how to live. Barney... we met at the urinal. Lesson 1: Loose the goatee it doesn't go with your suit!"
+Ted: "I'm not wearing a suit."
+Barney: "Lesson 2: Get a suit, suits are cool. Exhibit A. Lesson 3: "Don't even think about getting married until your 30." - Barney Stinson
