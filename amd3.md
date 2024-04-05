@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 16:09:46
-Random Quote: It's not what you think, he just wants to have sex. Kidding. Just a little hand stuff. Ha, kidding again. Ted's more of a boob man. I seriously can't stop. - Robin Scherbatsky
+Last updated: 2024-04-05 16:10:19
+Random Quote: We just don't wanna rush anything, okay? We decided to wait, until she decides to let me have sex with her. - Barney Stinson
