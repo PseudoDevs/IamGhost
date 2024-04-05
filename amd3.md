@@ -1,4 +1,2 @@
-Last updated: 2024-04-05 18:44:39
-Random Quote: Tony Stark: "Lieutenant Killmonger? What is that? German?"
-Killmonger: "A nickname."
-Tony Stark: "That's clearly a good fit." - Killmonger
+Last updated: 2024-04-05 18:45:13
+Random Quote: I've had shits that I've liked better than Walder Frey.  -  Brynden Tully
