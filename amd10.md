@@ -1,3 +1,2 @@
-Last updated: 2024-04-05 17:31:36
-Random Quote: Wednesday: "So you were guided by latent chivalry, the tool of the patriarchy, to extract my undying gratitude?"
-Xavier: "Most people just say 'thank you'." - Xavier Thorpe
+Last updated: 2024-04-05 17:32:09
+Random Quote: I swear to you, I was never so alive as when I was winning this throne, or so dead as now that I've won it.  -  Robert Baratheon
