@@ -1,3 +1,2 @@
-Last updated: 2024-04-05 16:37:26
-Random Quote: Robin: "I'm drinking 'til I forget the 1999 NFC Championship?"
-Marshall: "The Vikings were two minutes away from going to the Super Bowl, when our kicker, who hadn't missed all year, shanked a field goal, and we lost in overtime. Damn!" - Marshall Eriksen
+Last updated: 2024-04-05 16:37:59
+Random Quote: Alvarez has been paying me for years. But you know what? I would have done it for free, because I hate every last one of you psycho sacks of sh-t! I opened Lalo's gate and I would do it again. And I'm glad what they did to him. He's a soulless pig. I wish I'd killed him with my own hands. And you know what else, Hector? I put you in that chair. Your heart meds? I switched them for sugar pills. You were dead and buried, and I had to watch this as-hole bring you back. So when you are sitting in your sh-tty nursing home, and you're sucking down on your Jell-O night after night for the rest of your life, you think of me, you twisted f-ck! - Ignacio 'Nacho' Varga
