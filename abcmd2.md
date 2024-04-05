@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 07:24:17
-Random Quote: I could keep you safe.  They're all afraid of me.  No one would hurt you again, or I'd kill them.  -  Sandor Clegane
+Last updated: 2024-04-05 07:24:51
+Random Quote: Old stories are like old friends, Old Nan used to say.  You have to visit them from time to time.  -  Bran Stark
