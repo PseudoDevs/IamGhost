@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 19:51:55
-Random Quote: Think of the pickup plays we can run as a father-son duo. There's the "Father Knows Breast", there's the "Bush Dynasty", the "Lick Father, Lick Son". - Barney Stinson
+Last updated: 2024-04-05 19:52:27
+Random Quote: Honey, it's just the way your brain was hardwired. Plenty of great, intelligent, funny, interesting, and creative people have struggled with the same things you struggle with. - Leslie Bennett
