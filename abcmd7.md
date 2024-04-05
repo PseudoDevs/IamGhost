@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 09:45:53
-Random Quote: You know nothing, Jon Snow.  -  Ygritte
+Last updated: 2024-04-05 09:46:26
+Random Quote: Quentyn had never felt so much a boy as when he'd stood before Daenerys Targaryen, pleading for her hand.  The thought of bedding her terrified him almost as much as her dragons had.  -  Quentyn Martell
