@@ -1,4 +1,2 @@
-Last updated: 2024-04-05 11:11:33
-Random Quote: Greef: "Be careful, my friend. They've got you outnumbered ten to one."
-Din: "I like these odds."
-Greef: "I bet you do." - Greef Karga
+Last updated: 2024-04-05 11:12:06
+Random Quote: My only aim is to take many lives. The more the better I feel. - 
