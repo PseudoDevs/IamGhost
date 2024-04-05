@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 19:38:37
-Random Quote: The common people pray for rain, healthy children, and a summer that never ends.  It is no matter to them if the high lords play their game of thrones, so long as they are left in peace.  They never are.  -  Jorah Mormont
+Last updated: 2024-04-05 19:39:10
+Random Quote: You don't get to blame your problems on anyone but yourself. - Allison Hargreeves
