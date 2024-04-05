@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 12:30:25
-Random Quote: Rick: "Hey Morty, quick favor."Morty: "What, cover me in gasoline and spiders? Fine, yeah, I'm in."Rick: "Wasn't my first pitch but hey, not gonna waste this opportunity." - Rick Sanchez
+Last updated: 2024-04-05 12:31:00
+Random Quote: The only thing The Umbrella Academy knows about love is how to screw it up. - Klaus Hargreeves

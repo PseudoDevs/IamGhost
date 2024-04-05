@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 12:30:26
-Random Quote: Being a Mandalorian is not just learning about how to fight. You also have to know how to navigate the Galaxy. That way you'll never be lost. - Din Djarin
+Last updated: 2024-04-05 12:31:01
+Random Quote: Never buy a girl flowers, 'cause giving her a living thing reminds her of babies. - Barney Stinson
