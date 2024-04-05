@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 17:55:12
-Random Quote: Sometimes a truce is the most important part of a war. - Professor
+Last updated: 2024-04-05 17:55:45
+Random Quote: They're all weighing the beskar in their minds, but not me. No. I for one, I celebrate your success, because it is my success as well. Hell, even I'm rich. - Greef Karga
