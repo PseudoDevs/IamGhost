@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 19:35:23
-Random Quote: There have always been men who found it easier to speak vows than to keep them.  -  Arys Oakheart
+Last updated: 2024-04-05 19:35:57
+Random Quote: You must be blind as well as maimed, Set.  Lift your eyes, and you will see the direwolf still flies above our walls.  -  Brynden Tully
