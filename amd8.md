@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 17:43:36
-Random Quote: Did Need Stark dress you like that?  Was it his pleasure to garb you in velvets and silks and make you his own sweet daughter?  -  Balon Greyjoy
+Last updated: 2024-04-05 17:44:09
+Random Quote: Death is always inevitable. destiny is nothing but the connection between cause and effect. In light, in shadow. - 
