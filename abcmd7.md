@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 10:40:21
-Random Quote: .OkaySomebody's got to teach this kid to swear, it's embarrassing. - Meemaw
+Last updated: 2024-04-05 10:40:54
+Random Quote: People say Hawkins is cursed. They're not way off. - Dustin Henderson
