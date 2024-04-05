@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 19:15:01
-Random Quote: Ted: "Trying to get them interested in architecture as a career."Barney: "Why? Are we running out of buildings?"Robin: "Are we running out of boring people?" - Robin Scherbatsky
+Last updated: 2024-04-05 19:15:34
+Random Quote: For the night is dark and full of terrors.  -  Words of R'hllor
