@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 09:59:32
-Random Quote: So young.  Though mayhaps this was a blessing.  Had he lived, he would have grown up to be a Frey.  -  Wyman Manderly
+Last updated: 2024-04-05 10:00:05
+Random Quote: All I know is, he's not in the same grade as me anymoreAnd I'm thrilled. - Missy
