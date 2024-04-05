@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 10:57:03
-Random Quote: This sacred text was eventually brought to the New World in 1776 by none other than Christopher Brolumbus. And that's why he got to bang Pocahontas. - Barney Stinson
+Last updated: 2024-04-05 10:58:10
+Random Quote: Let's hit a motel, jam in a quickie and get you back to your wedding. - Ted Mosby
