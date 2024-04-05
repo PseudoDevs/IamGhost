@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 12:47:26
-Random Quote: So you're the therapist. You know it's one thing to pretend to be a shrink and bang your patients, that's normal. But to do it for real? Little creepy bro. - Barney Stinson
+Last updated: 2024-04-05 12:48:00
+Random Quote: Spare me your empty little compliments, girl... and your ser's.  I am no knight.  I spit on them and their vows.  My brother is a knight.  -  Sandor Clegane
