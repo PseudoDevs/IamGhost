@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 19:54:04
-Random Quote: Larry Bloom: "Piper, you put a pee stick in my rinsing cup."Piper Chapman: "Well, you put your pee stick in my vagina. And that's why we're in this situation." - Piper Chapman
+Last updated: 2024-04-05 19:54:37
+Random Quote: When things go well, people start thinking it's because they're so fing smart. - Walt Breslin
