@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 17:07:51
-Random Quote: They're all weighing the beskar in their minds, but not me. No. I for one, I celebrate your success, because it is my success as well. Hell, even I'm rich. - Greef Karga
+Last updated: 2024-04-05 17:08:24
+Random Quote: If you don’t know who I am, then maybe your best course would be to tread lightly. - Walter White
