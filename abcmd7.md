@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 13:14:16
-Random Quote: Do you know what someone with no money has in common with someone with too much money? Living is no fun for them. If you have too much money, no matter what you buy, eat, or drink, everything gets boring in the end. - Oh Il-nam
+Last updated: 2024-04-05 13:14:50
+Random Quote: Robb Stark has won more battles in a year than the Lord of Highgarden had in twenty.  -  Tyrion Lannister
