@@ -1,2 +1,3 @@
-Last updated: 2024-04-05 09:44:41
-Random Quote: Strip off their skins.  Lord Bolton, he used to say a naked man has few secrets, but a flayed man's got none.  -  Ramsay Bolton
+Last updated: 2024-04-05 09:45:14
+Random Quote: The boobs on the bus go up and down, up and down, up and down
+The boobs on the bus go up and down, all through the town - Barney Stinson
