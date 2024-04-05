@@ -1,2 +1,3 @@
-Last updated: 2024-04-05 09:30:56
-Random Quote: I have never liked you, Cersei, but you were my own sister, so I never did you harm.  You've ended that.  I will hurt you for this.  I don't know how yet, but give me time.  A day will come when you think yourself safe and happy, and suddenly your joy will turn to ashes in your mouth, and you'll know the debt is paid.  -  Tyrion Lannister
+Last updated: 2024-04-05 09:33:09
+Random Quote: Enid Sinclair: "Want to take a stab at being social?"
+Wednesday: "I do like stabbing. The social part, not so much." - Wednesday Addams
