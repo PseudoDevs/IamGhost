@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 08:37:28
-Random Quote: You look like an Indian Kardashian. - Fabiola Torres
+Last updated: 2024-04-05 08:38:34
+Random Quote: See, lad, that's why he's the king and I'm not.  I can outdrink, outfight, and outsing him, and my member's thrice the size o' his, but Mance has cunning.  -  Tormund Giantsbane
