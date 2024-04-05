@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 20:23:51
-Random Quote: If I now change my past, I will change who I am right now - The Stranger
+Last updated: 2024-04-05 20:24:24
+Random Quote: My lady, I have seen how you look at my brother.  Loras is valiant and handsome, and we all love him dearly... but your Imp will make a better husband.  He is a bigger man than he seems, I think.  -  Garlan Tyrell
