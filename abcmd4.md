@@ -1,5 +1,2 @@
-Last updated: 2024-04-05 13:27:06
-Random Quote: Barney: "You can't spell 'game' without 'me' and 'me' has the best game."
-Ted: "Yeah well, I got so much game, I'm Cornish game hen."
-Barney: "Oh, yeah? I'm the New York State gaming commissioner."
-Ted: "Well, I'm The Game. Well-crafted, keep-you-guessing thriller starring Michael Douglas and Sean Penn." - Ted Mosby
+Last updated: 2024-04-05 13:27:42
+Random Quote: The bad guys need to get lucky every time. The good guys just need to get lucky once. - Steve Murphy
