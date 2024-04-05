@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 08:48:45
-Random Quote: Morty, he's not gonna donate. You're pitching the police men's ball to a black teenager here. - Rick Sanchez
+Last updated: 2024-04-05 08:49:51
+Random Quote: We can only die.  Why else do we don these black cloaks, but to die in defense of the realm?  -  Qhorin Halfhand
