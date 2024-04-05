@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 16:05:44
-Random Quote: Robert was the true steel.  Stannis is pure iron, black and hard and strong, yes, but brittle, the way iron gets.  He'll break before he bends.  And Renly, that one, he's copper, bright and shiny, pretty to look at but not worth all that much at the end of the day.  -  Donal Noye
+Last updated: 2024-04-05 16:06:17
+Random Quote: Stella hated Star Wars! She lied to you. Search your feelings, Ted. You know it to be true! - Marshall Eriksen
