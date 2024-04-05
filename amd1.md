@@ -1,2 +1,5 @@
-Last updated: 2024-04-05 16:31:22
-Random Quote: I'm sorry, can you repeat that? I don't speak "I-never-get-laid". - Barney Stinson
+Last updated: 2024-04-05 16:31:55
+Random Quote: Bo-Katan: "I haven't seen battle droids since the Clone Wars."
+Din: "I have."
+Bo-Katan: "Any of 'em look suspicious?"
+Din: "They all look suspicious." - Din Djarin
