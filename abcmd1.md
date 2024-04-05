@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 08:32:49
-Random Quote: I will not be remembered as Set Arys the Unworthy.  I will not soil my cloak.  -  Arys Oakheart
+Last updated: 2024-04-05 08:33:22
+Random Quote: Barney: "The Disappearing Salami... Mr. Flanagan's wife shot him before he could ever tell me what the trick was."Quinn: "Yeah, that guy was banging your mom!" - Quinn Garvey
