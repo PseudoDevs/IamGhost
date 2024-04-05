@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 18:12:56
-Random Quote: Being a Mandalorian is not just learning about how to fight. You also have to know how to navigate the Galaxy. That way you'll never be lost. - Din Djarin
+Last updated: 2024-04-05 18:13:29
+Random Quote: In all the world, violent men are the easiest to deal with. - Irene O'Donnell
