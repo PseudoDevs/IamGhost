@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 14:06:49
-Random Quote: I knew Brienne when she was no more than a girl playing at her father's feet in Evenfall Hall, and I knew her still better when the Evenstar sent her here to Storm's End.  She loved Renly Baratheon from the first moment she laid eyes on him, a blind man could see it.  -  Cortnay Penrose
+Last updated: 2024-04-05 14:07:24
+Random Quote: He would see this country burn if he could be king of the ashes.  -  Varys
