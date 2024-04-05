@@ -1,2 +1,5 @@
-Last updated: 2024-04-05 20:30:30
-Random Quote: To have power does not mean that one can abuse the poor. - Pablo Escobar
+Last updated: 2024-04-05 20:31:03
+Random Quote: Therapist: "You need to stop doing these weird things. Go out sometime."
+Klaus: "I went to the park today."
+Therapist: "There you go! I hope you got something from that."
+Klaus: "[Opens up coat] This duck." - Klaus Hargreeves
