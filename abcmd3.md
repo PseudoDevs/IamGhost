@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 15:52:24
-Random Quote: Ted: "What do you say?"Robin: "Yes! No! I don't know..."Ted: "Those are the three options." - Ted Mosby
+Last updated: 2024-04-05 15:52:58
+Random Quote: My real father died in King's Landing.  I made a choice, and I chose wrong.  -  Theon Greyjoy
