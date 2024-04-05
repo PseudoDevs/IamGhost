@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 08:21:38
-Random Quote: Talk about being a few sardines short of a can. - Bucky Barnes
+Last updated: 2024-04-05 08:22:11
+Random Quote: Did the boy charm you?  He has that gift.  He got it from his father, with the blood.  He knows he is a king's son, but chooses to forget that he is bastard - born. 

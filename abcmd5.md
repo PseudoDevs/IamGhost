@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 08:21:38
-Random Quote: We were king's men, knights, and heroes... but some knights are dark and full of terror, my lady.  War makes monsters of us all.  -  Thoros of Myr
+Last updated: 2024-04-05 08:22:11
+Random Quote: I know this hurts little buddy, but you'll love again someday. Because time will heal a broken heart, but not that bitch's window. - Barney Stinson
