@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 15:45:02
-Random Quote: The title was but a courtesy due him as a council member; Varys was lord of nothing but the spiderweb, the master of none but his whispers.  -  Catelyn Stark
+Last updated: 2024-04-05 15:45:35
+Random Quote: I'm a simple man making his way through the galaxy. Like my father before me. - Boba Fett

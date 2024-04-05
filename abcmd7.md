@@ -1,3 +1,3 @@
-Last updated: 2024-04-05 15:44:29
-Random Quote: Woman: "You know this isn't Vegas, right?"
-Robin: "Well sure, in Vegas the casinos pump in oxygen, in Atlantic City it looks like everyone brought their own." - Robin Scherbatsky
+Last updated: 2024-04-05 15:45:35
+Random Quote: Steven Grant: "I'm not trying to slag off marketing, but there's been a major blunder. Because they've got seven gods here, and the Ennead has nine."
+Donna: "I fired two of them for bein' late. Listen, if you don't stop natterin' at me, I swear I'll shove you in a sarcophagus. You can tell the pharaoh in there what's wrong with them and all." - Arthur Harrow
