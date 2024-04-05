@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 19:20:14
-Random Quote: Small wonder that the Seven Kingdoms thought the free folk scarcely human.  They have no laws, no honor, not even simple decency.  They steal endlessly from each other, breed like beasts, prefer rape to marriage, and fill the world with baseborn children.  Yet he was growing fond of Tormund Giantsbane, great bag of wind and lies though he was.  -  Jon Snow
+Last updated: 2024-04-05 19:20:48
+Random Quote: I wasn't there when the meth was cooked. I wasn't there when it was sold. I didn't witness any of the murders, but I damn well knew what was happening. I was more than a willing participant. I was indispensable. I kept Walter White out of Jail. I laundered his money. I lied for him. I conspired with him and I made millions. - Saul Goodman
