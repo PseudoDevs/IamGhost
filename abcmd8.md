@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 19:42:11
-Random Quote: I liked the way I dressed you, but I'm worried I f'ed with your gender expression. - Jules Vaughn
+Last updated: 2024-04-05 19:42:45
+Random Quote: Knowledge is a weapon, Jon.  Arm yourself well before you ride forth to battle.  -  Maester Aemon
