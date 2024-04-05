@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 07:24:05
-Random Quote: Did you think your dad was the only Mandalorian? - Bo-Katan
+Last updated: 2024-04-05 07:24:39
+Random Quote: Just in case either of us can actually make it out of this hellhole somehow, we'll look after each other's loved ones, okay? - Oh Il-nam
