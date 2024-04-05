@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 14:38:59
-Random Quote: I had nothing but time. Endless time. At first, it was madness. Then enlightment. Then madness again. But perhaps it was a gift. I could see the life of time. And as I watched the life of time in all its fleeting, terrible light, I wondered, had I lived? Was I just the object in another's story? Was that all I ever was? Could I be more? I had nothing but time and still no answer. Time without purpose is a prison. I have glimpsed into the mind of eternity. Perhaps the mind of God. And found nothing but silence. - Jessica
+Last updated: 2024-04-05 14:39:33
+Random Quote: I don't care if you're so scared you foul your breeches, and I don't care if a thousand wildlings are coming over the walls howling for your blood, you get those birds off, or I swear I'll hunt you through all seven hells and make you damn sorry that you didn't.  -  Jeor Mormont
