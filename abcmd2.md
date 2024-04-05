@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 20:15:35
-Random Quote: Sheldon, faith means believing in something you can't know for sure is realAnd right now, I am struggling with that. - Mary
+Last updated: 2024-04-05 20:16:08
+Random Quote: When you date someone, it's like you're taking one long course in who that person is and then, when you break up, all that stuff becomes useless. It's the emotional equivalent of an English degree... - Ted Mosby
