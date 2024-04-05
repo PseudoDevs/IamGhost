@@ -1,2 +1,4 @@
-Last updated: 2024-04-05 07:02:04
-Random Quote: Make it easier for those whose vote you can count on. Make it harder for those you can't. That's how you rig an election without leaving a lick of evidence. - Walt Breslin
+Last updated: 2024-04-05 07:02:38
+Random Quote: Ted: "Okay, time to get the horn back to the bistro."
+Robin: "Oh Ted, I don't know if I can go again, that tuckered me out."
+Ted: "No euphemism." - Robin Scherbatsky
