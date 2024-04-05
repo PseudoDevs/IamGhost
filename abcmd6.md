@@ -1,4 +1,4 @@
-Last updated: 2024-04-05 11:02:38
-Random Quote: Five: "Help me with this crossword puzzle. I need a five letter word for 'disappointment'."
-Diego: "Klaus."
-Five: "It fits." - Number Five
+Last updated: 2024-04-05 11:03:45
+Random Quote: Greef: "Nevarro is a very fine planet. And now that the scum and villainy have been washed away, it's very respectable again."
+Mando: "As a bounty hunter hive?"
+Greef: "Some of my favorite people are bounty hunters." - Greef Karga
