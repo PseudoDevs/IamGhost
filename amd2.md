@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 19:05:36
-Random Quote: So, what do you want to do tonight? Drink ourselves blind, set a car on fire? Oh, watch a movie that doesn't start with a desk lamp jumping on top of a capital "I"? - Lily Aldrin
+Last updated: 2024-04-05 19:06:43
+Random Quote: New Mexico. It's another state. I mean, it's like California, just less traffic. - Lalo Salamanca
