@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 18:12:33
-Random Quote: Elia Martell, Princess of Dorne.  You raped her!  You murdered her!  You killed her children!  -  Oberyn Martell
+Last updated: 2024-04-05 18:13:06
+Random Quote: Shut the f*ck up and let me die in peace. - Mike Ehrmantraut
