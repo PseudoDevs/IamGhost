@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 15:31:45
-Random Quote: He would have killed me but for Howland Reed.  -  Eddard Stark
+Last updated: 2024-04-05 15:32:18
+Random Quote: Barney: "The Disappearing Salami... Mr. Flanagan's wife shot him before he could ever tell me what the trick was."Quinn: "Yeah, that guy was banging your mom!" - Quinn Garvey
