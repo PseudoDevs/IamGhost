@@ -1,4 +1,2 @@
-Last updated: 2024-04-05 20:23:49
-Random Quote: Greef: "Nevarro is a very fine planet. And now that the scum and villainy have been washed away, it's very respectable again."
-Mando: "As a bounty hunter hive?"
-Greef: "Some of my favorite people are bounty hunters." - Greef Karga
+Last updated: 2024-04-05 20:24:22
+Random Quote: So you're mining stuff to craft with and crafting stuff to mine with? Did your dad write this game? - Rick Sanchez

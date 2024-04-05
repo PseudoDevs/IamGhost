@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 20:23:49
-Random Quote: I put up a good fight but I lost. For the first time, but not the last. - Rue Bennett
+Last updated: 2024-04-05 20:24:22
+Random Quote: You must be blind as well as maimed, Set.  Lift your eyes, and you will see the direwolf still flies above our walls.  -  Brynden Tully
