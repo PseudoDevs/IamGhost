@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 16:34:57
-Random Quote: Know the men who follow you and let them know you.  Don't ask your men to die for a stranger.  -  Eddard Stark
+Last updated: 2024-04-05 16:35:30
+Random Quote: I am one far more accustomed to demanding answers, fool, than to giving them. - Thor
