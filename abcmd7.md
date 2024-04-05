@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 13:59:02
-Random Quote: There's something between us. Maybe my head was saying, "nip it in the bud", because my heart was saying something else... - Robin Scherbatsky
+Last updated: 2024-04-05 13:59:36
+Random Quote: I got thirty this time, men and boys all bound for the Wall, and don't be thinking they're like that bastard brother o' yours.  Lord Eddard gave me pick o' the dungeons, and I didn't find no little lordlings down there.  This log, half o' them would turn you over to the queen quick as spit for a pardon and maybe a few silvers.  The other half'd do the same, only they'd rape you first.  -  Yoren of the Night's Watch
