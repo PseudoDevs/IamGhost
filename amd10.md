@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 18:23:00
-Random Quote: Ted: "Uh, the time Lily went into labor!"Lily: "That's now!"Ted: "Sorry, I'm running out of stories." - Ted Mosby
+Last updated: 2024-04-05 18:23:34
+Random Quote: The Crow's Eye brought back monsters from the east... aye, and wizards too.  -  Tristifer Botley
