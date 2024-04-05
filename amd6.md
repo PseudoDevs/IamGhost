@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 16:49:51
-Random Quote: A Mandalorian and a Jedi? They'll never see it coming. - Din Djarin
+Last updated: 2024-04-05 16:50:25
+Random Quote: The Boltons have always been as cruel as they are cunning, but this one seems a beast in human skin.  -  Robett Glover
