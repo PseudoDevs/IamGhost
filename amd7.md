@@ -1,5 +1,2 @@
-Last updated: 2024-04-05 20:21:55
-Random Quote: Therapist: "You need to stop doing these weird things. Go out sometime."
-Klaus: "I went to the park today."
-Therapist: "There you go! I hope you got something from that."
-Klaus: "[Opens up coat] This duck." - Klaus Hargreeves
+Last updated: 2024-04-05 20:22:28
+Random Quote: Judy: "Who got Cousin Daphne drunk? She is 15 years old."Robin: "Whoa, they grow big out here."Barney: "And here's your phone number back." - Barney Stinson
