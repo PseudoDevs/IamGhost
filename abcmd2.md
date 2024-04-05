@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 17:15:24
-Random Quote: It doesn't matter how tough you are, you're not going to win in this place. Not on your own. - Jang Deok-su
+Last updated: 2024-04-05 17:15:57
+Random Quote: I've heard so many stories about me now that I don't know which one is the most popular. But I do know which is the least popular: the truth. - Hannah Baker
