@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 19:22:08
-Random Quote: Lily: "A swordfight? On Monday I'm gonna have to tell my kindergarten class, who I teach not to run with scissors, that my fiancé ran me through with a freakin' broadsword."Marshall: "Well... just to be fair, it didn't go all the way through."Lily: "I'm sorry, is this a discussion of the degree to which you stabbed me?" - Lily Aldrin
+Last updated: 2024-04-05 19:22:41
+Random Quote: The truth is always there, whether we see it or not - whether we choose to or not. The truth doesn't care about our needs or wants. It doesn't care about our governments, our ideologies, our religions. - Valery Legasov
