@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 12:46:17
-Random Quote: There are moments when we must understand that the decisions we make influence more than just our own fates. - Claudia
+Last updated: 2024-04-05 12:46:51
+Random Quote: Quinn: "In the event of divorce, Miss Garvey shall get full custody of Mr. Stinson's suits."Barney: "Why? What would you do with them?"Quinn: "Nothing. I'd just sit around and watch them go out of style." - Quinn Garvey
