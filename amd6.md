@@ -1,5 +1,2 @@
-Last updated: 2024-04-05 16:22:47
-Random Quote: Abby: "Do we have to go back this way?"
-Owen: "Consider it an opportunity to work on your fears."
-Abby: "How about I work my foot up your ass?"
-Owen: "Abby, stop flirting!" - Joel Miller
+Last updated: 2024-04-05 16:23:54
+Random Quote: Little did I know that I would be stepping into a nightmare full of mystery, mayhem and murder. I think I'm going to love it here. - Wednesday Addams
