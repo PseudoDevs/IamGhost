@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 18:23:01
-Random Quote: Let them keep believing I'm dead. So much the better. It was the chicken man. That coward sat up there in the north while his paramilitaries came into my home. - Lalo Salamanca
+Last updated: 2024-04-05 18:23:34
+Random Quote: I don't want to die, I've only kissed one boy so far. - Missy
