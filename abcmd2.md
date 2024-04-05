@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 13:25:34
-Random Quote: The end is the beginning, and the beginning is the end - 
+Last updated: 2024-04-05 13:26:10
+Random Quote: You want to know the horrible truth?  I can't even remember what she looked like.  I only know she was the one thing I ever wanted, and seven kingdoms couldn't fill the hole she left behind.  -  Robert Baratheon
