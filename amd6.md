@@ -1,3 +1,2 @@
-Last updated: 2024-04-05 19:03:18
-Random Quote: Men and their d-cks never cease to amaze me. John, Lizzie Stark never did a day's work vertical.
-Brave is going where no man has gone before. And with Lizzie Stark, John, that's not what you'll be doing. - Polly Gray
+Last updated: 2024-04-05 19:03:52
+Random Quote: What is honor compared to a woman's love?  What is duty against the feel of a newborn son in your arms, or the memory of a brother's smile.  Wind and words.  Wind and words.  We are only human, and the gods have fashioned us for love.  That is our great glory and our great tragedy.  -  Aemon Targaryen
