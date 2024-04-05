@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 16:40:45
-Random Quote: My uncle Kevan would make a passably good regent if someone pressed the duty on him, but he will never reach for it.  The gods shaped him to be a follower, not a leader.  -  Tyrion Lannister
+Last updated: 2024-04-05 16:41:18
+Random Quote: It's okay to lose yourself in this, just as long as you can find yourself again. - Nina Locke
