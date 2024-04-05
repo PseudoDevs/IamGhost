@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 20:13:51
-Random Quote: Quinn: "What is an executive strategy coordinator?"Barney: "It's three corporate-sounding words which, when added together, equal a fake job for which you get a real paycheck." - Barney Stinson
+Last updated: 2024-04-05 20:14:24
+Random Quote: Oh, Cersei is lovely to look at, truly, but cold... the way she guards her cunt, you'd think she had all the gold of Casterly Rock between her legs.  -  Robert Baratheon
