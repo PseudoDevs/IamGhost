@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 13:56:38
-Random Quote: Do not tell me you're gonna start searching for "the one" again. The only time I wanna hear you saying "the one", is if it's followed by the word "hundred". - Barney Stinson
+Last updated: 2024-04-05 13:57:12
+Random Quote: Old stories are like old friends, Old Nan used to say.  You have to visit them from time to time.  -  Bran Stark
