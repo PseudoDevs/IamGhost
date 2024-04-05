@@ -1,3 +1,2 @@
-Last updated: 2024-04-05 15:47:30
-Random Quote: HR: "I know this is classic HR to say, but: You're not alone."
-Steven: "Yeah. That's like, part of the problem, innit?" - Arthur Harrow
+Last updated: 2024-04-05 15:48:03
+Random Quote: He would have killed me but for Howland Reed.  -  Eddard Stark
