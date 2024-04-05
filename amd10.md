@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 17:36:02
-Random Quote: It's just, I know I can be a jerk like him sometimes, and I do not want to be like him. Ever. - Max Mayfield
+Last updated: 2024-04-05 17:36:35
+Random Quote: People taking power who don't deserve it. It never ends well. - Jérôme
