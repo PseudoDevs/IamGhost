@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 06:57:17
-Random Quote: Marshall: "Dude, if we fail this econ final, for the rest of our lives we're not gonna be able to... we won't know how to... do you even know what 'econ' is?"Ted: "No idea. We're screwed." - Ted Mosby
+Last updated: 2024-04-05 06:57:51
+Random Quote: Euron Greyjoy is no man's notion of a king, if half of what Theon said of him was true.  -  Robb Stark
