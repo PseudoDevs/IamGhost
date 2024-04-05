@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 20:11:10
-Random Quote: Strip off their skins.  Lord Bolton, he used to say a naked man has few secrets, but a flayed man's got none.  -  Ramsay Bolton
+Last updated: 2024-04-05 20:11:42
+Random Quote: Do you remember that cave?  We should have stayed in that cave.  I told you so.  -  Ygritte
