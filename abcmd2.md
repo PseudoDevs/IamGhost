@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 19:01:48
-Random Quote: Have you seen Mace Tyrell's boy?  The Knight of Flowers, they call him.  Now there's a son any man would be proud to own to.  Last tourney, he dumped the Kingslayer on his golden rump, you ought to have seen the look on Cersei's face.  I laughed till my sides hurt.  -  Robert Baratheon
+Last updated: 2024-04-05 19:02:21
+Random Quote: Nuncle always had a fondness for freaks and fools.  My father used to fight with him about it.  Let the wizards call upon their gods.  The Damphair will call on ours, and drown them.  -  Asha Greyjoy
