@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 19:57:39
-Random Quote: Barney: "Fine, we'll just have a nice, tasteful rehearsal dinner. Maybe at a French restaurant, I know just the place."Robin: "What's the name of the restaurant?"Barney: "La Sertag." - Barney Stinson
+Last updated: 2024-04-05 19:58:12
+Random Quote: Ted: "I hate how you're always right."Lily: "It's my best, and most annoying, trait." - Lily Aldrin
