@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 16:12:21
-Random Quote: It's nice that they found each other. Sometimes you fall for someone you'd never expect, but that doesn't make it wrong. Doesn't everyone deserve to be happy? - Barney Stinson
+Last updated: 2024-04-05 16:12:54
+Random Quote: We were king's men, knights, and heroes... but some knights are dark and full of terror, my lady.  War makes monsters of us all.  -  Thoros of Myr
