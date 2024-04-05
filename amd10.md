@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 16:19:11
-Random Quote: I get my best ideas when everybody else is asleep. - Lalo Salamanca
+Last updated: 2024-04-05 16:20:17
+Random Quote: In the game of thrones, even the humblest pieces have wills of their own.  Sometimes they refuse to make the moves you've planned for them.  Mark that well, Alayne.  It's a lesson that Cersei Lannister still has yet to learn.  -  Petyr Baelish
