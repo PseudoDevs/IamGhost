@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 16:36:36
-Random Quote: There's chaos in you. Embrace the chaos! - Arthur Harrow
+Last updated: 2024-04-05 16:37:09
+Random Quote: You think you're the only one he whispers secrets to?  He gives each of us just enough to convince us that we'd be helpless without him.  -  Cersei Lannister
