@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 07:41:55
-Random Quote: Sorry, got caught up again. God, do I need to take more Adderall or am I taking too much Adderall? - Rick Sanchez
+Last updated: 2024-04-05 07:43:01
+Random Quote: I drank when I was pregnant with you, you turned out fine. There's everybody saying 'don't drink, don't smoke'. I swear - Texas is turning into California. - Meemaw
