@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 16:05:45
-Random Quote: You grew up with actors.  You learned their craft and you learned it well.  I grew up with soldiers.  I learned how to die a long time ago.  -  Eddard Stark
+Last updated: 2024-04-05 16:06:18
+Random Quote: Thank the Force! This little thing has had me worried sick. Come here, you little womp rat. Looks like it remembers me. How much do you want for it? Just kidding. But not really. - Peli Motto
