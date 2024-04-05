@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 18:48:34
-Random Quote: You are not the guy. You're not capable of being the guy. I had a guy but now I don't. You are not the guy. - Mike Ehrmantraut
+Last updated: 2024-04-05 18:49:40
+Random Quote: Oh, Cersei is lovely to look at, truly, but cold... the way she guards her cunt, you'd think she had all the gold of Casterly Rock between her legs.  -  Robert Baratheon
