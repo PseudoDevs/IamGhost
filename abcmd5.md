@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 18:58:46
-Random Quote: Did I leave the oven on, or is it just you, hot stuff? - Agatha Harkness
+Last updated: 2024-04-05 18:59:21
+Random Quote: My daughter has taken an axe for a lover.  I will not have my son bedeck himself like a whore.  It is as I feared.  The green lands have made you soft, and the Starks have made you theirs.  -  Balon Greyjoy
