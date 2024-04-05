@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 19:19:40
-Random Quote: There's only one thing that could blind a man as smart as you, Tommy. Love. - Polly Gray
+Last updated: 2024-04-05 19:20:14
+Random Quote: Good and evil are a question of perspective - Mikkel
