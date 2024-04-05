@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 12:42:15
-Random Quote: But every now and then it’s good to question those who question things. - Noah
+Last updated: 2024-04-05 12:42:50
+Random Quote: Lord Varys, sometimes I feel as though you are the best friend I have in King's Landing and sometimes I feel you are my worst enemy.  -  Tyrion Lannister
