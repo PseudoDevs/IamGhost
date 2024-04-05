@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 20:18:04
-Random Quote: Who do you think killed all the dragons the last time around?  Gallant dragonslayers armed with swords?  The world the Citadel is building has no place in it for sorcery or prophecy or glass candles, much less for dragons.  Ask yourself why Aemon Targaryen was allowed to waste his life upon the Wall, when by rights he should have been raised to archmaester.  His blood was why.  He could not be trusted.  No more than I can.  -  Archmaester Marwyn
+Last updated: 2024-04-05 20:18:37
+Random Quote: If you're looking for the word that means caring for someone beyond all rationality and wanting them to have everything they want, no matter how much it destroys you, it's love! - Ted Mosby
