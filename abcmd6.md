@@ -1,3 +1,2 @@
-Last updated: 2024-04-05 19:39:55
-Random Quote: Grace Burgess: "You think I am a wh-re?"
-Tommy Shelby: "Everyone's a wh-re, Grace. We just sell different parts of ourselves." - Thomas Shelby
+Last updated: 2024-04-05 19:40:29
+Random Quote: One minute we're just laying into each other, and then the next minute... well, same thing. - Ted Mosby
