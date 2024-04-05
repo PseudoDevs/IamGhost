@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 12:02:05
-Random Quote: Quinn: "I have to pay $2,000 every time I gain a pound?"Barney: "Not every time. Just if it shows up at the weekly weigh-in." - Barney Stinson
+Last updated: 2024-04-05 12:02:38
+Random Quote: The average American consumes 55 pounds of beef per year. And then there’s Texas, where we can knock that off in a couple of months. Maybe faster if we’re talking about smoked brisket. - Sheldon
