@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 18:31:19
-Random Quote: Yes Barney, your submissions were recieved and no, we will not be attending any parties in your pants. - Ted Mosby
+Last updated: 2024-04-05 18:31:52
+Random Quote: I am Mr. Charity. I frequently sleep with sixes, chubsters, over thirty's. I am the Bill and Melinda Gates of the sympathy bang. - Barney Stinson
