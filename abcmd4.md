@@ -1,3 +1,2 @@
-Last updated: 2024-04-05 17:41:18
-Random Quote: Freddie: "If you want me out of Birmingham, it'll have to be in a wooden box."
-Polly: "You lay a hand on our Ada, I'll put you in a wooden box myself!" - Polly Gray
+Last updated: 2024-04-05 17:41:51
+Random Quote: We are the ironborn, and once we were conquerors.  Our writ ran everywhere the sound of the waves was heard.  My brother would have been content with the cold and dismal north, my niece with even less... but I shall give you Lannisport.  Highgarden.  The Arbor.  Oldtown.  The Riverlands and the Reach, the Kingswood and the Rainwood, Dorne and the Marches, the Mountains of the Moon and the Vale of Arryn, Tarth and the Stepstones.  I say we take it all!  I say, we take Westeros.  -  Euron Greyjoy
