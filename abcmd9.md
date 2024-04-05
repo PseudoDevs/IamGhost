@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 13:29:30
-Random Quote: Stacey, six kids in five years! The woman's basically a ride to the waterpark. - Ted Mosby
+Last updated: 2024-04-05 13:30:04
+Random Quote: My old septon used to say that books are dead men talking.  Dead men should keep quiet, is what I say.  No one wants to hear a dead man's yabber.  -  Dolorous Edd Tollett
