@@ -1,2 +1,3 @@
-Last updated: 2024-04-05 20:03:21
-Random Quote: I am scared, 'cause I don't know how to fly. But you're there at the bottom of the slide to catch me when I fall. - Hannah Baker
+Last updated: 2024-04-05 20:03:54
+Random Quote: The Deep: "What do we do? We can't just kill everyone."
+Billy Butcher: "That's exactly what we're gonna do!" - Billy Butcher
