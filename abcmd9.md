@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 11:48:12
-Random Quote: What the hell is the matter with you? You tryin' out for the retard Olympics? - George 'Pornstache' Mendez
+Last updated: 2024-04-05 11:48:45
+Random Quote: Whisky's good proofing water. Tells you who's real and who isn't. - Thomas Shelby
