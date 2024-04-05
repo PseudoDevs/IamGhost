@@ -1,2 +1,3 @@
-Last updated: 2024-04-05 19:42:28
-Random Quote: We all must choose.  Man or woman, young or old, lord or peasant, our choices are the same.  We choose light or we choose darkness.  -  Melisandre
+Last updated: 2024-04-05 19:43:02
+Random Quote: Wednesday: "So you were guided by latent chivalry, the tool of the patriarchy, to extract my undying gratitude?"
+Xavier: "Most people just say 'thank you'." - Xavier Thorpe
