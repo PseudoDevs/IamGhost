@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 19:50:27
-Random Quote: Welcome to the church of MathologyToday I'd like to talk about prime numbers and why they give us joy. - Sheldon
+Last updated: 2024-04-05 19:51:00
+Random Quote: Barney: "Fine, we'll just have a nice, tasteful rehearsal dinner. Maybe at a French restaurant, I know just the place."Robin: "What's the name of the restaurant?"Barney: "La Sertag." - Barney Stinson

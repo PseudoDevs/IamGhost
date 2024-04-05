@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 19:49:54
-Random Quote: I never asked for this crown.  Gold is cold and heavy on the head, but so long as I am the king, I have a duty... if I must sacrifice one child to the flames to save a million from the dark... sacrifice... is never easy, Davos.  Or it is no true sacrifice.  -  Stannis Baratheon
+Last updated: 2024-04-05 19:51:00
+Random Quote: Lord Seaworth is a man of humble birth, but he reminded me of my duty, when all I could think of was my rights.  I had the cart before the horse, Davos said.  I was trying to win the throne to save the kingdom, when I should have been trying to save the kingdom to win the throne.  -  Stannis Baratheon
