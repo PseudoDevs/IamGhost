@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 14:40:44
-Random Quote: The storms come and go, waves crash overhead, the big fish eat the little fish, and I keep on paddling.  -  Varys
+Last updated: 2024-04-05 14:41:18
+Random Quote: His blood ran black.  Made him my brother as much as yours.  -  Yoren of the Night's Watch
