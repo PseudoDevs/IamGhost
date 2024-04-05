@@ -1,3 +1,2 @@
-Last updated: 2024-04-05 18:53:06
-Random Quote: Summer: "Someone out there is trying to kill us."
-Rick: "Someone's always trying to kill us." - Rick Sanchez
+Last updated: 2024-04-05 18:53:39
+Random Quote: My old septon used to say that books are dead men talking.  Dead men should keep quiet, is what I say.  No one wants to hear a dead man's yabber.  -  Dolorous Edd Tollett

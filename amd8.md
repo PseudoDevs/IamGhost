@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 18:53:05
-Random Quote: We can only die.  Why else do we don these black cloaks, but to die in defense of the realm?  -  Qhorin Halfhand
+Last updated: 2024-04-05 18:53:39
+Random Quote: The frightened child who sheltered in my manse died on the Dothraki Sea, and was reborn in blood and fire.  This dragon queen who wears her name is a true Targaryen.  -  Illyrio Mopatis
