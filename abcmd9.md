@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 12:55:11
-Random Quote: It's not like anyone's 100% straight or 100% gay. - Maddy Perez
+Last updated: 2024-04-05 12:55:49
+Random Quote: Robert wanted smiles and cheers, always, so he went where he found them, to his friends and his whores.  Robert wanted to be loved.  My brother Tyrion has the same disease.  -  Cersei Lannister
