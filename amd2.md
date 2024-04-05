@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 18:04:15
-Random Quote: God. It's me, Barney. What up? I know we don't talk much, but I know a lot of girls call out your name because of me. Awesome! - Barney Stinson
+Last updated: 2024-04-05 18:04:48
+Random Quote: A man who sees nothing has no use for his eyes, cut them out and give them to your next outrider.  Tell him you hope that four eyes might see better than two... and if not, the man after him will have six.  -  Gregor Clegane
