@@ -1,2 +1,3 @@
-Last updated: 2024-04-05 17:40:16
-Random Quote: In the end, one cares about many things, and we should not give so much importance to things. - Professor
+Last updated: 2024-04-05 17:40:49
+Random Quote: Joel: "A deep breath in, slow breath out. You squeeze the trigger like you love it. Gentle, steady, nice and slow."
+Ellie: "You gonna shoot this thing or get it pregnant?" - Ellie Williams
