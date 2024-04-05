@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 16:59:18
-Random Quote: Ted: "When you leave someone at the altar, you always leave a note. It's common courtesy."Victoria: "I think common courtesy went out the window when I did." - Victoria
+Last updated: 2024-04-05 16:59:51
+Random Quote: If you keep all your treasures in one purse, you only make it easier for those who would rob you.  -  Robb Stark
