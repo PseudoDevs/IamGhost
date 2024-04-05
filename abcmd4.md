@@ -1,2 +1,5 @@
-Last updated: 2024-04-05 15:14:12
-Random Quote: February 13th. A magical night, where a ten has the self esteem of a four and the depraved enthusiasm of a two. - Barney Stinson
+Last updated: 2024-04-05 15:14:45
+Random Quote: Abby: "Do we have to go back this way?"
+Owen: "Consider it an opportunity to work on your fears."
+Abby: "How about I work my foot up your ass?"
+Owen: "Abby, stop flirting!" - Joel Miller
