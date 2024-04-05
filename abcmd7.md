@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 17:18:10
-Random Quote: Are you aware, that breaking a broath can have deadly- even fatal repercussions? - Barney Stinson
+Last updated: 2024-04-05 17:19:16
+Random Quote: I have never liked you, Cersei, but you were my own sister, so I never did you harm.  You've ended that.  I will hurt you for this.  I don't know how yet, but give me time.  A day will come when you think yourself safe and happy, and suddenly your joy will turn to ashes in your mouth, and you'll know the debt is paid.  -  Tyrion Lannister
