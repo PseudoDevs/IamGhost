@@ -1,3 +1,2 @@
-Last updated: 2024-04-05 16:41:01
-Random Quote: Lily: "I can't believe I unloaded like that on a high-school senior."
-Robin: "I can't believe a high-school senior unloaded like that on me." - Robin Scherbatsky
+Last updated: 2024-04-05 16:41:34
+Random Quote: You will never walk again... but you will fly.  -  Bloodraven
