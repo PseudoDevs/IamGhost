@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 15:37:20
-Random Quote: I told you once, there are old sellswords and there are bold sellswords, but there are no old bold sellswords.  -  Brown Ben Plumm
+Last updated: 2024-04-05 15:37:53
+Random Quote: Because there's no way watching it can be more fun than playing it yourself. - Oh Il-nam
