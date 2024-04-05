@@ -1,2 +1,3 @@
-Last updated: 2024-04-05 17:00:24
-Random Quote: You fight back with your spirit, little one. You stand up for yourself! - Devi Vishwakumar
+Last updated: 2024-04-05 17:00:57
+Random Quote: Jang Deok-su: "Tell me what you're good at?"
+Han Mi-nyeo: "Everything, except the things I can't do." - Oh Il-nam
