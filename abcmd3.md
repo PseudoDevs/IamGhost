@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 07:12:39
-Random Quote: You Westerosi are all the same.  You sew some beast upon a scrap of silk, and suddenly you are all lions or dragons or eagles.  -  Illyrio Mopatis
+Last updated: 2024-04-05 07:13:13
+Random Quote: The Burned Men fear nothing.  Timett, son of Timett will ride with the lions.  -  Timett, son of Timett
