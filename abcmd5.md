@@ -1,2 +1,3 @@
-Last updated: 2024-04-05 10:32:35
-Random Quote: From experience, it often takes a new perspective before one is able to see the light. - Elia Kane
+Last updated: 2024-04-05 10:33:08
+Random Quote: Freddie: "If you want me out of Birmingham, it'll have to be in a wooden box."
+Polly: "You lay a hand on our Ada, I'll put you in a wooden box myself!" - Polly Gray
