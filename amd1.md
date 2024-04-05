@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 19:27:40
-Random Quote: A guy opens his door and gets shot and you think that of me? No. I am the one who knocks! - Walter White
+Last updated: 2024-04-05 19:28:14
+Random Quote: Robert... he is in my dreams as well.  Laughing.  Drinking.  Boasting.  Those were the things he was best at.  Those, and fighting.  I never bested him at anything.  -  Stannis Baratheon
