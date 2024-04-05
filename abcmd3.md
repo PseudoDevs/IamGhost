@@ -1,3 +1,2 @@
-Last updated: 2024-04-05 13:51:15
-Random Quote: Morty: "I don't deserve this. I was just having fun."
-Rick: "So was Jeffrey Dahmer." - Rick Sanchez
+Last updated: 2024-04-05 13:51:50
+Random Quote: Best way to catch the smart ones? Get an idiot working for them. - Jaime Kuykendall
