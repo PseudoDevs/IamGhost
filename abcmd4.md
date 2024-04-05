@@ -1,3 +1,2 @@
-Last updated: 2024-04-05 16:13:57
-Random Quote: Jerry: "Why Florida?"
-Cat: "Because they don't ask questions. They play Volleyball, they party and they have fun." - Rick and Morty
+Last updated: 2024-04-05 16:14:30
+Random Quote: It's "The Little Engine with Wood", "The Whore-ient Express", "The Long Island Tail Road"! - Barney Stinson
