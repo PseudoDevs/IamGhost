@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 16:16:13
-Random Quote: I dream of a tree sometimes.  A weirwood, like the one in the godswood.  It calls to me.  The wolf dreams are better.  I smell things, and sometimes I can taste the blood.  -  Bran Stark
+Last updated: 2024-04-05 16:16:46
+Random Quote: My old septon used to say that books are dead men talking.  Dead men should keep quiet, is what I say.  No one wants to hear a dead man's yabber.  -  Dolorous Edd Tollett

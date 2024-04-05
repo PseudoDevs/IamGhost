@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 16:16:13
-Random Quote: They get in your head. People tell lies about you, and other people believe them. And it gets to the point where the lies might as well be the truth. - Tyler Down
+Last updated: 2024-04-05 16:16:46
+Random Quote: Gustavo. When I looked into your eyes... hate. A little bit's okay. As long as you never forget who's boss. - Don Eladio
