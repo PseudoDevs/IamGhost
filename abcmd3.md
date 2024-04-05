@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 08:54:13
-Random Quote: Ted: "I could end up marrying this woman; I want our first kiss to be special."Lily: "Oh, that's sweet. So you chickened out like a little bitch?" - Lily Aldrin
+Last updated: 2024-04-05 08:54:46
+Random Quote: No one had expected the broken boy to live.  The gods could not kill Bran, no more than I could.  It was a strange thought, and stranger still to remember that Bran might still be alive.  -  Theon Greyjoy
