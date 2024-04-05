@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 08:17:58
-Random Quote: Don Eladio, look into Fring's eyes. There you will see the truth. The Chicken Man hates you. He is our enemy. He plots against us. I demand blood for blood. - Hector Salamanca
+Last updated: 2024-04-05 08:18:31
+Random Quote: Lily: "A swordfight? On Monday I'm gonna have to tell my kindergarten class, who I teach not to run with scissors, that my fiancé ran me through with a freakin' broadsword."Marshall: "Well... just to be fair, it didn't go all the way through."Lily: "I'm sorry, is this a discussion of the degree to which you stabbed me?" - Lily Aldrin
