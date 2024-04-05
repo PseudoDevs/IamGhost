@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 16:39:39
-Random Quote: Tequila makes me wanna dance. - Jules Vaughn
+Last updated: 2024-04-05 16:40:45
+Random Quote: My uncle Kevan would make a passably good regent if someone pressed the duty on him, but he will never reach for it.  The gods shaped him to be a follower, not a leader.  -  Tyrion Lannister
