@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 08:32:36
-Random Quote: I asked him why he kept her close, if he thought her so grotesque.  He said that all his other knights wanted things of him, castles or honors or riches, but all that Brienne wanted was to die for him.  -  Loras Tyrell
+Last updated: 2024-04-05 08:33:08
+Random Quote: At least I know they didn't spot you. No one could stay that aroused with your mug peeking through the window. - Saul Goodman
