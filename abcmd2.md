@@ -1,3 +1,3 @@
-Last updated: 2024-04-05 19:16:51
-Random Quote: Billy: "Halloween's a magical holiday. All about family, friends, and the thrill of getting to be someone else for a day."
-Tommy: "Wrong! Halloween's about candy. And scaring people, but mostly candy." - Tommy Maximoff
+Last updated: 2024-04-05 19:17:24
+Random Quote: Ted: "So this is what you guys do? You invite other couples over for dinner, to judge them and feel superior?"
+Lily: "Oh, grow up, Ted, that's why any couple invites anyone over ever!" - Lily Aldrin
