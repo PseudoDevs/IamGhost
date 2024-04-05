@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 16:02:07
-Random Quote: I never wanted the throne, I only ever wanted to be your equal. - Thor
+Last updated: 2024-04-05 16:02:39
+Random Quote: Marshall: "Baby, you're like 20 slutty chicks all rolled into one."Lily: "Sweet-talk is not gonna change my mind!" - Lily Aldrin
