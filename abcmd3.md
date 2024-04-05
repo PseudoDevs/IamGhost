@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 11:04:51
-Random Quote: I don't take nothin' a drug addict says personally. 'Cause I don't believe nothin' a drug addict say. - Fezco
+Last updated: 2024-04-05 11:05:24
+Random Quote: Sometimes a truce is the most important part of a war. - Professor
