@@ -1,2 +1,3 @@
-Last updated: 2024-04-05 08:05:34
-Random Quote: Ted: "Robin, this show is so dirty, I don't know whether to hug you, or run a shower for you, so you can sit there alone, crying and clenching your knees."Robin: "It's just bad camera work, okay? Wayne, our camera guy - he wasn't that great."Marshall: "I don't know. I think he did a pretty good job, considering he was probably only using one hand." - Marshall Eriksen
+Last updated: 2024-04-05 08:06:07
+Random Quote: Neither one of us are gonna say, "Hey, how's it going?" or "Good to see you!"
+Because it really will be good to see you. - Barney Stinson
