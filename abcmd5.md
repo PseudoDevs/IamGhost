@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 13:30:31
-Random Quote: There is no stronger bond than that of the family you choose. - Miguel Angel Felix Gallardo
+Last updated: 2024-04-05 13:31:05
+Random Quote: Young I was, and vain, but the sea washed my follies and my vanities away.  That man drowned, nephew.  His lungs filled with seawater, and the fish ate the scales off his eyes.  When I rose again, I saw clearly.  -  Aeron Greyjoy
