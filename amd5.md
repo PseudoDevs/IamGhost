@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 20:02:36
-Random Quote: Did the boy charm you?  He has that gift.  He got it from his father, with the blood.  He knows he is a king's son, but chooses to forget that he is bastard - born. 
+Last updated: 2024-04-05 20:03:10
+Random Quote: I am not in danger, Skyler. I AM the danger! - Walter White
