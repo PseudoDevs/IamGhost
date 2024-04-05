@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 18:30:42
-Random Quote: Some dogs crawled atop me during the night.  My cloak was almost dry when one of them pissed in it.  Have you noticed that the rain stopped the instant I had a roof above me?  It will start again now that I'm back out.  Gods and dogs alike delight to piss on me.  -  Dolorous Edd Tollett
+Last updated: 2024-04-05 18:31:16
+Random Quote: There is a 83% correlation between times when men are wearing a boutonniere and when they are getting laid... proms, weddings, funerals... thanks for the redhead, grandma! By the way, did you know that "boutonniere" is french for "booty is near"? - Barney Stinson
