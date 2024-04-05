@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 16:08:30
-Random Quote: You think you're the only one he whispers secrets to?  He gives each of us just enough to convince us that we'd be helpless without him.  -  Cersei Lannister
+Last updated: 2024-04-05 16:09:03
+Random Quote: Your heart's talking to you, Barney. Do you have the guts to listen to it? - Lily Aldrin
