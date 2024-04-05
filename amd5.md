@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 16:55:41
-Random Quote: I don't care if you're so scared you foul your breeches, and I don't care if a thousand wildlings are coming over the walls howling for your blood, you get those birds off, or I swear I'll hunt you through all seven hells and make you damn sorry that you didn't.  -  Jeor Mormont
+Last updated: 2024-04-05 16:56:14
+Random Quote: Quinn: "What is an executive strategy coordinator?"Barney: "It's three corporate-sounding words which, when added together, equal a fake job for which you get a real paycheck." - Barney Stinson
