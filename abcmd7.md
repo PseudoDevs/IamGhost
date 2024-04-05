@@ -1,4 +1,2 @@
-Last updated: 2024-04-05 19:10:06
-Random Quote: Greef: "Be careful, my friend. They've got you outnumbered ten to one."
-Din: "I like these odds."
-Greef: "I bet you do." - Greef Karga
+Last updated: 2024-04-05 19:10:39
+Random Quote: Many hands make light work. And many mouths make good gossip. - Agatha Harkness
