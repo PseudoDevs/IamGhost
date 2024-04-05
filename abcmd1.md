@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 20:32:10
-Random Quote: Look at us, riding around in a limo, eating hot dogs... It's like we're the president. - Marshall Eriksen
+Last updated: 2024-04-05 20:33:17
+Random Quote: Omera: "You haven't shown your face to anyone since you were a kid?"Mando: "No. I was happy that they took me in. My parents were killed and the Mandalorians took care of me. This is the way." - Din Djarin
