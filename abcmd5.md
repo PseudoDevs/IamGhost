@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 12:07:38
-Random Quote: A reader lives a thousand lives before he dies.  The man who never reads lives only one.  -  Jojen Reed
+Last updated: 2024-04-05 12:08:11
+Random Quote: Winter will never come for the likes of us.  Should we die in battle, they will surely sing of us, and it's always summer in the songs.  In the songs all knights are gallant, all maids are beautiful, and the sun is always shining.  -  Brienne of Tarth
