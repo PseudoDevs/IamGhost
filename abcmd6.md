@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 16:13:28
-Random Quote: I told you once, there are old sellswords and there are bold sellswords, but there are no old bold sellswords.  -  Brown Ben Plumm
+Last updated: 2024-04-05 16:14:01
+Random Quote: You have your mother's common sense, but your father's devilment. I see them fighting. Let your mother win! - Polly Gray

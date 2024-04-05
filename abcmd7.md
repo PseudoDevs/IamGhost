@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 16:13:27
-Random Quote: Eight years ago I made an ass of myself chasing after you and I made an ass of myself chasing after you a bunch of times since then. And I have no regrets because it led me to something I wouldn't trade for the world, it led to you being my friend. So as your friend and a leading expert in the field of making an ass of yourself. I say to you, from the heart, get the hell out of this car! - Ted Mosby
+Last updated: 2024-04-05 16:14:01
+Random Quote: The Lord of Light cherishes the innocent.  There is no sacrifice more precious.  From his king's blood and his untainted fire, a dragon shall be born.  -  Melisandre
