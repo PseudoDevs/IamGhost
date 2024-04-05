@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 13:40:09
-Random Quote: Bad guys don't play by the rules. That's what makes them bad. - Steve Murphy
+Last updated: 2024-04-05 13:40:43
+Random Quote: A man will tell you poison is dishonorable, but a woman's honor is different.  The Mother shaped us to protect our children, and our only dishonor is failure.  -  Lysa Arryn
