@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 10:42:34
-Random Quote: I am the Watcher. I am your guide through these vast new realities. Follow me, and dare to face the unknown. And ponder the question, "What if...?" - The Watcher
+Last updated: 2024-04-05 10:43:07
+Random Quote: There have always been men who found it easier to speak vows than to keep them.  -  Arys Oakheart
