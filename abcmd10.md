@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 15:18:25
-Random Quote: Wherein I suggested that you take your head and store it within yourself, in a fashion that, while space-saving, might limit its exposure to sunshine. - Marshall Eriksen
+Last updated: 2024-04-05 15:18:58
+Random Quote: No voting, no debate. It's not a democracy - it's a Rickpublic! - Summer Smith
