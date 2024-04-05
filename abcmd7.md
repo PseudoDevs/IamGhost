@@ -1,3 +1,2 @@
-Last updated: 2024-04-05 20:12:46
-Random Quote: Freddie: "If you want me out of Birmingham, it'll have to be in a wooden box."
-Polly: "You lay a hand on our Ada, I'll put you in a wooden box myself!" - Polly Gray
+Last updated: 2024-04-05 20:13:19
+Random Quote: The more you move up in the world, the more enemies you make. - Rue Bennett

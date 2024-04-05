@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 20:12:46
-Random Quote: I will not be remembered as Set Arys the Unworthy.  I will not soil my cloak.  -  Arys Oakheart
+Last updated: 2024-04-05 20:13:19
+Random Quote: In the end, we will all get just what we deserve. - 
