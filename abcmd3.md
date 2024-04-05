@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 17:53:27
-Random Quote: So I will only ask you once, Lord Snow.  Are you a brother of the Night's Watch, or a bastard boy who wants to play at war?  -  Jeor Mormont
+Last updated: 2024-04-05 17:54:00
+Random Quote: If you don't think there's hope for the world, why bother going on? - Ellie Williams
