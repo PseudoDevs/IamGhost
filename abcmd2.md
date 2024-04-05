@@ -1,4 +1,2 @@
-Last updated: 2024-04-05 09:31:29
-Random Quote: Lorna Morello: "I need to start tightening up. You're making me feel like a cave."
-Nicky Nichols: "Baby, it's a c-nt, it stretches!"
-Lorna Morello: "Yeah, sometimes I feel like you're trying to climb inside my womb." - Lorna Morello
+Last updated: 2024-04-05 09:32:36
+Random Quote: I like her. She makes you try new things, it's good for you. I'm serious - you seem less afraid when you're with her. I like it and it also makes me kind of sad. - Hannah Baker
