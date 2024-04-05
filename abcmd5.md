@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 20:28:49
-Random Quote: There are moments in life we should just be able to have a damn remote control, so you could pause it. Even if just for five minutes. But sometimes things happen with irreverent obscenity and there’s nothing you can do to help it. - Tokyo
+Last updated: 2024-04-05 20:29:23
+Random Quote: Years ago, I bought a Betamax, good product, top of the line. Experts said it was better than a VHS. Turned out to be a complete waste of time and money. - Mike Ehrmantraut
