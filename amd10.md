@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 19:41:04
-Random Quote: If I hadn't buried my feelings so deep I would totally be tearing up right now. - Maritza Ramos
+Last updated: 2024-04-05 19:41:38
+Random Quote: Did the boy charm you?  He has that gift.  He got it from his father, with the blood.  He knows he is a king's son, but chooses to forget that he is bastard - born. 

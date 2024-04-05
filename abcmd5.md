@@ -1,6 +1,2 @@
-Last updated: 2024-04-05 19:39:22
-Random Quote: Morty: "Rick, when you say you made an exact replica of the house, did you mean, like, an exact replica?"
-Rick: "I know about the Yosemite T-Shirt, Morty."
-Morty: "Shit."
-Rick: "You know you can use tissues, right?"
-Morty: "I can't finish without it!" - Morty Smith
+Last updated: 2024-04-05 19:41:38
+Random Quote: If you love something, you can never let it go. Not even for a second. Or it's gone forever. - Ted Mosby
