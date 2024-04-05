@@ -1,2 +1,3 @@
-Last updated: 2024-04-05 16:56:37
-Random Quote: Yes, Lord Umber, leave me to the king.  He means to give me a scolding before he forgives me.  That's how he deals with treason, our King in the North.  Or should I call you the King Who Lost the North, your Grace?  -  Rickard Karstark
+Last updated: 2024-04-05 16:57:10
+Random Quote: Hey look, it's the New York City skyline.
+We built Chip City... we built Chip City on all your dough! - Ted Mosby

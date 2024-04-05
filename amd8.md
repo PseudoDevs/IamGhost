@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 16:56:36
-Random Quote: If there's one thing I've learned in the narco world, it's that life is more complicated than you think. Good and bad, they're relative concepts. - Steve Murphy
+Last updated: 2024-04-05 16:57:10
+Random Quote: Yes, Lord Umber, leave me to the king.  He means to give me a scolding before he forgives me.  That's how he deals with treason, our King in the North.  Or should I call you the King Who Lost the North, your Grace?  -  Rickard Karstark
