@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 07:04:19
-Random Quote: Marshall really took a two-flusher on that one! - Ted Mosby
+Last updated: 2024-04-05 07:04:53
+Random Quote: Lord Varys, sometimes I feel as though you are the best friend I have in King's Landing and sometimes I feel you are my worst enemy.  -  Tyrion Lannister
