@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 19:16:51
-Random Quote: Some of you cared. None of you cared enough. - Hannah Baker
+Last updated: 2024-04-05 19:17:25
+Random Quote: Pennsatucky: "It weren't my fault. I was just doing as the Spirit commanded."Pussey: "Fuck are you? Joan of Arc?"Pennsatucky: "No, I'm from Waynesboro, my name is Tiffany..." - Tiffany 'Pennsatucky' Doggett
