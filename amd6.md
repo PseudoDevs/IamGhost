@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 16:23:54
-Random Quote: Little did I know that I would be stepping into a nightmare full of mystery, mayhem and murder. I think I'm going to love it here. - Wednesday Addams
+Last updated: 2024-04-05 16:24:27
+Random Quote: It's okay to lose yourself in this, just as long as you can find yourself again. - Nina Locke
