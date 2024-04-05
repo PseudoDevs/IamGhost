@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 12:11:30
-Random Quote: Ted: "Every three years we sit down and Tril' it up big time, agreed?"Marshall: "Agreed-o!" - Marshall Eriksen
+Last updated: 2024-04-05 12:12:03
+Random Quote: Once, she had loved Prince Joffrey with all her heart, and admired and trusted his mother, the queen.  They had repaid that love and trust with her father's head.  Sansa would never make that mistake again.  -  Sansa Stark
