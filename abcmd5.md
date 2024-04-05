@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 18:40:45
-Random Quote: You're mine.  Mine, as I'm yours.  And if we die, we die.  All men must die, Jon Snow.  But first, we'll live.  -  Ygritte
+Last updated: 2024-04-05 18:41:18
+Random Quote: Your pain defines who you are but it no longer holds power on you - Noah
