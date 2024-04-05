@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 17:54:50
-Random Quote: I drank when I was pregnant with you, you turned out fine. There's everybody saying 'don't drink, don't smoke'. I swear - Texas is turning into California. - Meemaw
+Last updated: 2024-04-05 17:55:23
+Random Quote: Yes, I'm in a rotten mood. No, I don't want to talk about it. Yes, this has booze in it. No, it's not my first. - Lily Aldrin
