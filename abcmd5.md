@@ -1,2 +1,3 @@
-Last updated: 2024-04-05 19:41:38
-Random Quote: If you love something, you can never let it go. Not even for a second. Or it's gone forever. - Ted Mosby
+Last updated: 2024-04-05 19:42:45
+Random Quote: Ellie: "Everybody I've cared for, either died or left me."
+Joel: "You have no idea what loss is." - Joel Miller
