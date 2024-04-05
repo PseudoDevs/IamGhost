@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 16:24:43
-Random Quote: Kill the boy, Jon Snow.  Winter is almost upon us.  Kill the boy and let the man be born.  -  Aemon Targaryen
+Last updated: 2024-04-05 16:25:17
+Random Quote: Robert could piss in a cup and men would call it wine, but I offer them cold clear water and they squint in suspicion and mutter to each other about how queer it tastes.  -  Stannis Baratheon
