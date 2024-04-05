@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 09:06:05
-Random Quote: Don't believe everything you hear. Our enemies want to separate us. But Mandalorians are stronger together. - Bo-Katan
+Last updated: 2024-04-05 09:06:38
+Random Quote: What is lost, will be found. - Maura Franklin
