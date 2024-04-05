@@ -1,2 +1,3 @@
-Last updated: 2024-04-05 15:32:49
-Random Quote: I wish my mental problems made me look like you. - Kat Hernandez
+Last updated: 2024-04-05 15:33:22
+Random Quote: Morty: "You were a teenager when dad got you pregnant!"
+Beth: "I was 17. That's at least 26 in boy years." - Beth Smith
