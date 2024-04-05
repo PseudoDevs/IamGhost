@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 18:50:15
-Random Quote: In the end, love is a good reason for everything to fall apart. - Tokyo
+Last updated: 2024-04-05 18:51:23
+Random Quote: Barney: "On your tombstone, it will be, 'Lily Aldrin. Caring wife. Loving friend. Slapbet-Commissioner.'"Marshall: "And your tombstone will read, 'Got slapped by Marhsall so hard he died.'" - Marshall Eriksen
