@@ -1,3 +1,2 @@
-Last updated: 2024-04-05 19:40:28
-Random Quote: Larissa: "So you automatically assume a Nevermore student is the murderer, even though there's no evidence a crime was even committed."
-Donovan: "I'm sorry. I forgot, you only teach the good outcasts here, right?" - Donovan Galpin
+Last updated: 2024-04-05 19:41:03
+Random Quote: Whenever I feel good I think it will last forever. But it's not like that. - Rue Bennett

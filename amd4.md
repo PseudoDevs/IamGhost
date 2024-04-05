@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 19:40:28
-Random Quote: I never met a real Mandalorian. Heard stories. I know you're good at killing. - Cobb Vanth
+Last updated: 2024-04-05 19:41:03
+Random Quote: He climbed onto his throne over the corpses of children, though I will grant you he was no Joffrey.  -  Arianne Martell
