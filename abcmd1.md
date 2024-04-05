@@ -1,3 +1,2 @@
-Last updated: 2024-04-05 16:30:31
-Random Quote: Morty: "So, time moves faster in there? Is it like a Narnia thing?"
-Rick: "I'm not a beaver who believes in Jesus Christ, Morty. But yeah, it's pretty much a Narnia thing." - Rick Sanchez
+Last updated: 2024-04-05 16:31:04
+Random Quote: Put me on your magical boat, man, and sail me down your chocolaty river of meth! - Badger
