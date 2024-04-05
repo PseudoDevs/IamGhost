@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 18:32:23
-Random Quote: You better go to your room before I give you a smack. Smacking is still an acceptable punishment in many minority cultures. - Nalini Vishwakumar
+Last updated: 2024-04-05 18:32:57
+Random Quote: The truth is always there, whether we see it or not - whether we choose to or not. The truth doesn't care about our needs or wants. It doesn't care about our governments, our ideologies, our religions. - Valery Legasov

@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 18:32:23
-Random Quote: She's gotta start working on tightening her pussy muscles, 'cause her fiance's dick is so small, it's like a hot dog in a hallway. - Nicky Nichols
+Last updated: 2024-04-05 18:32:57
+Random Quote: Ted: "Luckily, you are friends with a former Boy Scout and a Boy Scout is always what?"Robin: "Unpopular?"Lily: "Beaten up?"Barney: "Going to the movies with his mom?"Ted: "A Boy Scout is always prepared..."Robin: "...prepared to spend lunch in his locker?"Marshall: "...prepared to die a virgin?"Barney: "...prepared to paint his sister's nails?" - Ted Mosby
