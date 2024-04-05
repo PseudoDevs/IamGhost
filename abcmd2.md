@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 12:29:47
-Random Quote: All I wanted was to eat the chicken that is smarter than other chickens and to absorb it's power. - Galina 'Red' Reznikov
+Last updated: 2024-04-05 12:30:26
+Random Quote: Being a Mandalorian is not just learning about how to fight. You also have to know how to navigate the Galaxy. That way you'll never be lost. - Din Djarin
