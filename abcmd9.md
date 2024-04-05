@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 08:35:49
-Random Quote: Never give power to the big man. - Alfie Solomons
+Last updated: 2024-04-05 08:36:22
+Random Quote: Let them keep believing I'm dead. So much the better. It was the chicken man. That coward sat up there in the north while his paramilitaries came into my home. - Lalo Salamanca
