@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 20:29:31
-Random Quote: Woman: "How can you not remember my name? it rhymes with your name?"Barney: "And I said my name was...?" - Barney Stinson
+Last updated: 2024-04-05 20:30:04
+Random Quote: We can only die.  Why else do we don these black cloaks, but to die in defense of the realm?  -  Qhorin Halfhand
