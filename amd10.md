@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 18:14:13
-Random Quote: Freeways have exits, so do relationships. The first exit, my personal favourite, is six hours in: You meet, you talk, you have sex, you exit when she's in the shower. - Barney Stinson
+Last updated: 2024-04-05 18:14:45
+Random Quote: Gustavo. When I looked into your eyes... hate. A little bit's okay. As long as you never forget who's boss. - Don Eladio
