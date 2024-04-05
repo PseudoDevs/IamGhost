@@ -1,3 +1,2 @@
-Last updated: 2024-04-05 09:37:33
-Random Quote: Enid Sinclair: "Want to take a stab at being social?"
-Wednesday: "I do like stabbing. The social part, not so much." - Wednesday Addams
+Last updated: 2024-04-05 09:38:39
+Random Quote: Client: "Please lower your blaster."Mando: "Tell them to lower theirs first."Stormtrooper: "We have you four to one."Mando: "I like those odds." - Din Djarin
