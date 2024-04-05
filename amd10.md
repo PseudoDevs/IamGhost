@@ -1,4 +1,2 @@
-Last updated: 2024-04-05 15:54:51
-Random Quote: Greef: "Nevarro is a very fine planet. And now that the scum and villainy have been washed away, it's very respectable again."
-Mando: "As a bounty hunter hive?"
-Greef: "Some of my favorite people are bounty hunters." - Greef Karga
+Last updated: 2024-04-05 15:55:24
+Random Quote: His blood ran black.  Made him my brother as much as yours.  -  Yoren of the Night's Watch
