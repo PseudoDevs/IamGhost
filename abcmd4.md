@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 19:06:44
-Random Quote: Archeology. One big mess of obsessive bookworms. - Arthur Harrow
+Last updated: 2024-04-05 19:07:52
+Random Quote: You wear your honor like a suit of armor, Stark.  You think it keeps you safe, but all it does is weigh you down and make it hard for you to move.  -  Petyr Baelish

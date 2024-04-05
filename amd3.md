@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 19:07:18
-Random Quote: You have a passing clever father, Devan.  He makes me wish I had more smugglers in my service.  And fewer lords.  -  Stannis Baratheon
+Last updated: 2024-04-05 19:07:52
+Random Quote: The pain is his vessel, desire his compass. It is all that man is capable of. - 
