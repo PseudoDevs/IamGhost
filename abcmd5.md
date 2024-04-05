@@ -1,2 +1,4 @@
-Last updated: 2024-04-05 14:01:18
-Random Quote: Barney: "You avoiding the family too?"James: "I'm gay, I'm black and I'm getting a divorce. Those walking skeletons are gonna have more questions for me than their pharmacists." - James Stinson
+Last updated: 2024-04-05 14:01:52
+Random Quote: Stark: "Red, green, blue... who paints a button blue?"
+Carter: "Don't tell me the American playboy needs help pushing buttons."
+Stark: "Hedy Lamarr and I spent a weekend together, but she wasn't teaching me German." - Howard Stark
