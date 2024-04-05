@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 17:25:53
-Random Quote: Barney: "I cannot stop staring at that girl's face."Ted: "Face, huh? That's your weirdest nickname for boobs yet." - Ted Mosby
+Last updated: 2024-04-05 17:26:26
+Random Quote: You don't parley when you're on the back foot. We'll strike a blow back first. - Thomas Shelby
