@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 19:47:08
-Random Quote: Desperation Day has come and gone and you have neither gone nor come. - Robin Scherbatsky
+Last updated: 2024-04-05 19:47:42
+Random Quote: Knowledge is a weapon, Jon.  Arm yourself well before you ride forth to battle.  -  Maester Aemon

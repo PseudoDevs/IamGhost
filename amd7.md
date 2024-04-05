@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 19:46:35
-Random Quote: That's not a law, just a sword.  Happens I got one too.  -  Yoren of the Night's Watch
+Last updated: 2024-04-05 19:47:42
+Random Quote: I never wanted the throne, I only ever wanted to be your equal. - Thor
