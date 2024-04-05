@@ -1,5 +1,2 @@
-Last updated: 2024-04-05 16:22:18
-Random Quote: Marshall: "What the hell happened?"
-Barney: "I said no questions asked."
-Marshall: "Star, clover, horseshoe... Barney, did you swallow real versions of all the Lucky Charms items?"
-Barney: "No questions asked! Now come on. Let's hit the bar. I'm buying. I just won 50 bucks from a little Irish guy on a dare." - Barney Stinson
+Last updated: 2024-04-05 16:22:51
+Random Quote: Morty, he's not gonna donate. You're pitching the police men's ball to a black teenager here. - Rick Sanchez
