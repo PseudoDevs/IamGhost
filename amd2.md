@@ -1,2 +1,4 @@
-Last updated: 2024-04-05 20:20:35
-Random Quote: Ted, you know who's a million times hotter than the hottest girl I've ever slept with? Her okay-looking friend I haven't seen naked. Why? Because new is always better. - Barney Stinson
+Last updated: 2024-04-05 20:21:09
+Random Quote: Joel: "You keep going for family."
+Ellie: "I'm not family?"
+Joel: "No. You're cargo." - Joel Miller
