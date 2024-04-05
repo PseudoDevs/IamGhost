@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 14:07:24
-Random Quote: He would see this country burn if he could be king of the ashes.  -  Varys
+Last updated: 2024-04-05 14:07:58
+Random Quote: The Mandalorian. His armor alone is worth more than my bounty. - Fennec Shand
