@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 20:21:08
-Random Quote: Elia Martell, Princess of Dorne.  You raped her!  You murdered her!  You killed her children!  -  Oberyn Martell
+Last updated: 2024-04-05 20:21:41
+Random Quote: Men of honor will do things for their children that they would never consider doing for themselves.  -  Petyr Baelish
