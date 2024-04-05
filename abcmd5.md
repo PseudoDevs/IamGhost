@@ -1,3 +1,2 @@
-Last updated: 2024-04-05 14:44:39
-Random Quote: "Everybody else can see Ben, right?"
-"Yeah, and he's a complete d-ckhead." - Allison Hargreeves
+Last updated: 2024-04-05 14:45:46
+Random Quote: Most people are nothing but pawns on a chessboard led by an unknown hand - Noah
