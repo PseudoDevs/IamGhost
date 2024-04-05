@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 17:22:47
-Random Quote: The men of Westeros are ever rushing.  What good is this, I ask you?  He who hurries through life hurries to his grave.  -  Salladhor Saan
+Last updated: 2024-04-05 17:23:20
+Random Quote: Wherein I suggested that you take your head and store it within yourself, in a fashion that, while space-saving, might limit its exposure to sunshine. - Marshall Eriksen
