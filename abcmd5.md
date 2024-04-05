@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 10:48:40
-Random Quote: When something seems too perfect, it's usually anything but. - Allison Hargreeves
+Last updated: 2024-04-05 10:49:13
+Random Quote: The Boltons have always been as cruel as they are cunning, but this one seems a beast in human skin.  -  Robett Glover
