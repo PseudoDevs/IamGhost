@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 20:14:58
-Random Quote: There is only one god, and his name is Death.  And there is only one thing we say to Death: not today.  -  Syrio Forel
+Last updated: 2024-04-05 20:15:31
+Random Quote: Barney: "Tell me more. Tell me more. Like did he have a car?"Marshall: "So is he the guy who... how shall I say this like a gentleman? Robin, did he take your maple leaf?"Barney: "Sounds to me like he gave you your first 'O Canada' face!" - Barney Stinson

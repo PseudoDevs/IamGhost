@@ -1,2 +1,3 @@
-Last updated: 2024-04-05 20:14:58
-Random Quote: Young I was, and vain, but the sea washed my follies and my vanities away.  That man drowned, nephew.  His lungs filled with seawater, and the fish ate the scales off his eyes.  When I rose again, I saw clearly.  -  Aeron Greyjoy
+Last updated: 2024-04-05 20:15:31
+Random Quote: Morty: "You were a teenager when dad got you pregnant!"
+Beth: "I was 17. That's at least 26 in boy years." - Beth Smith
