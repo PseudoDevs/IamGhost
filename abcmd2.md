@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 17:34:11
-Random Quote: Barney: "I only smoke in certain situations. Postcoital, when I'm with Germans, sometimes those two overlap, coital, birthdays, to annoy my mom, precoital, on a sailboat, the day the Mets are mathematically eliminated every year and pregnancy scares."Ted: "Why are you smoking right now?"Barney: "I'm always precoital, Ted." - Barney Stinson
+Last updated: 2024-04-05 17:35:17
+Random Quote: There are dreamers and there are realists in this world. You'd think the dreamers would find the dreamers and the realists would find the realists, but more often than not the opposite is true. You see, the dreamers need the realists to keep them from soaring too close to the sun. And the realists, well without the dreamers, they might not ever get off the ground. - Cameron Tucker
