@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 16:17:52
-Random Quote: A grievous wound, aye, but Thoros healed it.  There's never been no better healer.  -  Lem Lemoncloak
+Last updated: 2024-04-05 16:18:26
+Random Quote: If ever a man deserved to die screaming, it was Gregor Clegane.  -  Doran Martell
