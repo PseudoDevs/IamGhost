@@ -1,3 +1,3 @@
-Last updated: 2024-04-05 16:30:15
-Random Quote: "How do you take your tea?"
-Ted: "Well, normally right back to the counter because there's been a terrible mistake." - Jim Hopper
+Last updated: 2024-04-05 16:30:49
+Random Quote: Larissa: "So you automatically assume a Nevermore student is the murderer, even though there's no evidence a crime was even committed."
+Donovan: "I'm sorry. I forgot, you only teach the good outcasts here, right?" - Donovan Galpin
