@@ -1,6 +1,2 @@
-Last updated: 2024-04-05 17:33:38
-Random Quote: Sam: "They might be a part of the big three."
-Bucky: "What big three?"
-Sam: "Androids, aliens and wizards."
-Bucky: "That's not a thing."
-Sam: "That's definitely a thing." - Sam Wilson
+Last updated: 2024-04-05 17:34:44
+Random Quote: Everything will be okay in the end. If it's not okay, it's not the end. - Yuk Je

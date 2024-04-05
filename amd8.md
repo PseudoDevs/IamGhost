@@ -1,2 +1,3 @@
-Last updated: 2024-04-05 17:34:11
-Random Quote: Lily: "Your job is very simple. At the wedding, do not sleep with anyone even remotely related to me."Barney: "Yeah. Lily, you know I can't promise that" - Barney Stinson
+Last updated: 2024-04-05 17:34:44
+Random Quote: Give it a week, you'll get her back. And her front.
+Oh! Did you feel that? I think we just had a "what up?"-quake! - Barney Stinson
