@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 20:15:01
-Random Quote: I don't wanna be choosing between two girls, I wanna be a complete head over heels idiot for one! - Ted Mosby
+Last updated: 2024-04-05 20:15:34
+Random Quote: Many good men have been bad kings, and some bad men have been good kings.  -  Maester Aemon
