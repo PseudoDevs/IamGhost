@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 13:54:29
-Random Quote: They get in your head. People tell lies about you, and other people believe them. And it gets to the point where the lies might as well be the truth. - Tyler Down
+Last updated: 2024-04-05 13:55:04
+Random Quote: You want to be a bounty hunter? Make the best deal for yourself and survive! - Fennec Shand
