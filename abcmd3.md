@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 09:31:05
-Random Quote: That's the weird thing about the Internet. Ten people can feel like the whole world. - Rue Bennett
+Last updated: 2024-04-05 09:31:38
+Random Quote: You are her perfect prince, agreed, bright and bold and comely as any maid could wish.  Daenerys Targaryen is no maid, however.  She is the widow of a Dothraki Khal, a mother of dragons and sacker of cities, Aegon the Conquereror with teats.  She may not prove as willing as you wish.  -  Tyrion Lannister
