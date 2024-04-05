@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 12:03:12
-Random Quote: 'Damn, you look like hell, Chief."Jim Hopper: "Oh yeah? Well, I looked better than your wife when I left her this morning." - Jim Hopper
+Last updated: 2024-04-05 12:03:45
+Random Quote: Even brave men blind themselves sometimes, when they are afraid to see.  -  Beric Dondarrian
