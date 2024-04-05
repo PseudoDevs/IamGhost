@@ -1,2 +1,3 @@
-Last updated: 2024-04-05 18:17:55
-Random Quote: I swear on my name. And the names of the Ancestors, that I shall walk the way of the Mand'alor and the words of the Creed shall be forever forged in my heart. - Din Djarin
+Last updated: 2024-04-05 18:18:28
+Random Quote: Morty: "I have English homework."
+Rick: "You're still learning English? It's the language you speak. How dumb are you?" - Rick Sanchez
