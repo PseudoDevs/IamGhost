@@ -1,4 +1,2 @@
-Last updated: 2024-04-05 18:02:54
-Random Quote: Oh Il-nam: "As a kid, I'm willing to bet you got spanked a lot."
-Seong Gi-hun: "How did you know?"
-Oh Il-nam: "My son did too. He was just like you, friend." - Oh Il-nam
+Last updated: 2024-04-05 18:03:27
+Random Quote: A feeling of unresolved resentment against injustices suffered, a sense of helplessness because of the overwhelming odds against one, a feeling of acute pain in one's guts and bowels, making the whole body writhe and squirm, and an obstinate urge to take revenge and to right the wrong - all these combined. - Seong Gi-hun
