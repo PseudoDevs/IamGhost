@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 10:37:35
-Random Quote: Ted: "I could end up marrying this woman; I want our first kiss to be special."Lily: "Oh, that's sweet. So you chickened out like a little bitch?" - Lily Aldrin
+Last updated: 2024-04-05 10:38:07
+Random Quote: A craven's knife can slay a queen as easily as a hero's.  -  Xaro Xhoan Daxos
