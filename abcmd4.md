@@ -1,2 +1,3 @@
-Last updated: 2024-04-05 07:55:48
-Random Quote: I have been called many things, my lord, byt kind is seldom one of them.  -  Maester Aemon
+Last updated: 2024-04-05 07:56:21
+Random Quote: Sal: "Does Lily have any other plates? I don't let Sammy eat off this plastic."
+Pepper: "How does she breastfeed him if she doesn't let him near plastic?" - Pepper Saltzman
