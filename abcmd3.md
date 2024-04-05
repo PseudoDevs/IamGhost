@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 17:37:27
-Random Quote: Old gods or new, it makes no matter, no man is so accursed as the kinslayer.  -  Rickard Karstark
+Last updated: 2024-04-05 17:38:00
+Random Quote: Just because I don't have fear, doesn't make me irrational. - Kinsey Locke
