@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 17:22:02
-Random Quote: My son lies here broken and dying, Luwin, and you wish to discuss a new master of horse?  Do you think I care what happens in the stables?  Do you think it matters to me one whit?  I would gladly butcher every horse in Winterfell with my own hands if it would open Bran's eyes, do you understand that?  Do you?  -  Catelyn Stark
+Last updated: 2024-04-05 17:23:41
+Random Quote: Sometimes, even when you know something's a mistake, you gotta make it anyway. - Ted Mosby
