@@ -1,3 +1,2 @@
-Last updated: 2024-04-05 20:02:14
-Random Quote: I hired a decorator and I asked him: "What would the inside of Tinkerbell's vagina look like?"
-And the kid just ran with it! - Quinn Garvey
+Last updated: 2024-04-05 20:03:22
+Random Quote: If we're together long enough I hope that one day you see yourself like I do. - Kevin
