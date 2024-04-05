@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 08:36:25
-Random Quote: Give me back my spear, Uncle.  Cersei sent us a head.  We should send her back a bag of them.  -  Obara Sand
+Last updated: 2024-04-05 08:36:58
+Random Quote: Larry Bloom: "Piper, you put a pee stick in my rinsing cup."Piper Chapman: "Well, you put your pee stick in my vagina. And that's why we're in this situation." - Piper Chapman
