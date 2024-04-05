@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 16:32:44
-Random Quote: A face took shape within the hearth.  Stannis?  she thought, for just a moment... but no, these were not his features.  A wooden face, corpse white.  Was this the enemy?  A thousand red eyes floated in the rising flames.  He sees me.  Beside him, a boy with a wolf's face threw back his head and howled.  -  Melisandre
+Last updated: 2024-04-05 16:33:17
+Random Quote: You want to know what's really interesting? Aristotle thought that the sound of thunder was due to a collision between two cloudsHe believed the clouds were expelling air, in the way a log on a fire crackles. - Sheldon
