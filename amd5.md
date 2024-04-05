@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 18:40:49
-Random Quote: That is nostalgia: finding out that things from the past you didn’t even expectwere happiness…. actually were - Tokyo
+Last updated: 2024-04-05 18:41:23
+Random Quote: She studied Theon Greyjoy's sly smile, wondering what it meant.  That young man had a way of looking as though he knew some secret jest that only he was privy to; Catelyn had never liked it.  -  Catelyn Stark
