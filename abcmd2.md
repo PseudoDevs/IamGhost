@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 11:48:45
-Random Quote: But every now and then it’s good to question those who question things. - Noah
+Last updated: 2024-04-05 11:49:18
+Random Quote: You and I are opposites but also just the same. Like an image in a mirror. We hate people and they in turn hate us. And fear us. - Chester Campbell
