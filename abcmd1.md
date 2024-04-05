@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 08:17:58
-Random Quote: Do it. If you ever want to see these boobs again, crawl, you son of a me. - Lily Aldrin
+Last updated: 2024-04-05 08:18:32
+Random Quote: My father never bellowed like the Greatjon, but he was no less dangerous in his wroth.  -  Alys Karstark
