@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 13:13:02
-Random Quote: Barney: "I scoured the dating sites, using my own personal logarithms, factoring in a broad spectrum of variables, filtering out undesirable high-risk negatives, guaranteeing a success-rate of eighty-thr..."Ted: "...you picked the girls that showed the most boob." - Ted Mosby
+Last updated: 2024-04-05 13:13:37
+Random Quote: I like my testicles attached to my body, rather than rolling around next to some eyeliner in Robin's purse. Stinson out! - Barney Stinson
