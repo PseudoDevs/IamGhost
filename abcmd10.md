@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 07:23:01
-Random Quote: We all must choose.  Man or woman, young or old, lord or peasant, our choices are the same.  We choose light or we choose darkness.  -  Melisandre
+Last updated: 2024-04-05 07:24:09
+Random Quote: I waited, and so can he.  I waited half my life.  She had played the dutiful daughter, the blushing bride, the pliant wife.  She had suffered Robert's drunken groping, Jaime's jealousy, Renly's mockery, Varys with his titters, Stannis endlessly grinding his teeth.  She had contended with Jon Arryn, Need Stark, and her vile, treacherous, murderous dwarf brother, all the while promising herself that one day it would be her turn.  If Margaery Tyrell thinks to cheat me of my hour in the sun, she had bloody well think again.  -  Cersei Lannister
