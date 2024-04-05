@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 16:31:04
-Random Quote: Put me on your magical boat, man, and sail me down your chocolaty river of meth! - Badger
+Last updated: 2024-04-05 16:31:37
+Random Quote: It's not Aerys I rue, it's Robert... Why is it no one names Robert oathbreaker?  He tore the realm apart, yet I am the one with shit for honor.  -  Jaime Lannister
