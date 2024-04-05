@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 17:20:35
-Random Quote: You can never tell with men. They go for whoever their dcks point at and there's no changing their minds. - Polly Gray
+Last updated: 2024-04-05 17:21:08
+Random Quote: The bad guys need to get lucky every time. The good guys just need to get lucky once. - Steve Murphy
