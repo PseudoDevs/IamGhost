@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 15:52:40
-Random Quote: Let's have a toast. For the hits life throws our way. With time, they're what make you stronger, young man. - Don Neto
+Last updated: 2024-04-05 15:53:13
+Random Quote: You grew up with actors.  You learned their craft and you learned it well.  I grew up with soldiers.  I learned how to die a long time ago.  -  Eddard Stark
