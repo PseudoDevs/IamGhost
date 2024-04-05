@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 20:11:59
-Random Quote: I think I literally have a better understanding of who killed Kennedy than what is offside. - Rebecca Welton
+Last updated: 2024-04-05 20:12:32
+Random Quote: Know the men who follow you and let them know you.  Don't ask your men to die for a stranger.  -  Eddard Stark
