@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 13:50:27
-Random Quote: Very nice, Lily. You know, she is a guest in this country. So while you may choose to turn your back on her, I choose... to turn my front on her. What up! - Barney Stinson
+Last updated: 2024-04-05 13:51:02
+Random Quote: I guess, if we're splitting hairs, then technically... there was a plurality to the times I've lied to women for sex-having-purposes. - Barney Stinson
