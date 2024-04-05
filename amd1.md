@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 17:50:57
-Random Quote: When the snows fall and the white winds blow, the lone wolf dies, but the pack survives.  -  Eddard Stark
+Last updated: 2024-04-05 17:52:04
+Random Quote: War. Such a fascinating concept. A temporary salve for a permanent human flaw. - The Handler

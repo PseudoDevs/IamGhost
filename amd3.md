@@ -1,3 +1,2 @@
-Last updated: 2024-04-05 17:51:31
-Random Quote: Journalist: "Mr. Stark, were you injured in the attack?"
-Tony Stark: "No, but I did spill my drink, and it was a '26 Macallan, so I'm pretty sure that's a war crime." - Iron Man
+Last updated: 2024-04-05 17:52:04
+Random Quote: When the sun has set, no candle can replace it.  -  Loras Tyrell
