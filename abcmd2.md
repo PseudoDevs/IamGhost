@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 18:50:13
-Random Quote: Nobody takes an intro class to get on any other path, but the path to not being hungover anymore. I learned that in my intro to something-ology class. - Marshall Eriksen
+Last updated: 2024-04-05 18:50:46
+Random Quote: Cara: "It's gonna break his little heart."Mando: "He'll get over it. We all do." - Din Djarin
