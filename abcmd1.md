@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 10:40:20
-Random Quote: I don't need a calculator, dad. I am one. - Sheldon Cooper
+Last updated: 2024-04-05 10:40:53
+Random Quote: Place was overrun with rats when we moved in.  The spearwives killed the nasty buggers.  Now the place is overrun with spearwives.  There's days I want the rats back.  -  Dolorous Edd Tollett
