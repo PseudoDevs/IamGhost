@@ -1,2 +1,3 @@
-Last updated: 2024-04-05 09:57:19
-Random Quote: You need to figure out what the fuck you want. - Nicky Nichols
+Last updated: 2024-04-05 09:57:52
+Random Quote: Freddie: "You think I can't handle Tommy Shelby?"
+Polly: "You can't. I am having trouble these days and I'm twice the man you are." - Polly Gray
