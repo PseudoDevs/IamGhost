@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 15:59:58
-Random Quote: I'll never find that kind of love. There's just no darkness. It's just sweet. I don't know if that would ever be enough for me. - Maddy Perez
+Last updated: 2024-04-05 16:00:38
+Random Quote: Mitchell: "It's been five years now and he still does this thing were he announces himself before walking into any room we're in, just to make sure he doesn't ever see us kiss."Cameron: "Wish my mother had that system. Remember?" - Cameron Tucker
