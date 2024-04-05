@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 16:06:46
-Random Quote: Of course, nobody I knew in East-Texas in 1989 cared about Newtonian Physics. The only Newtons they cared about were Wayne and Fig. - Sheldon Cooper
+Last updated: 2024-04-05 16:07:20
+Random Quote: No man has ever died from bending his knee.  He who kneels may rise again, blade in hand.  He who will not kneel stays dead, stiff legs and all.  -  Balon Greyjoy
