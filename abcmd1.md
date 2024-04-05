@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 19:17:25
-Random Quote: Pennsatucky: "It weren't my fault. I was just doing as the Spirit commanded."Pussey: "Fuck are you? Joan of Arc?"Pennsatucky: "No, I'm from Waynesboro, my name is Tiffany..." - Tiffany 'Pennsatucky' Doggett
+Last updated: 2024-04-05 19:17:58
+Random Quote: I feel like her sobriety is completely dependent on how available I am to her. - Jules Vaughn
