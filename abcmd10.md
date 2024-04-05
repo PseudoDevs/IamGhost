@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 13:28:51
-Random Quote: If you die before you say her name, Set, I will hunt you through the seven hells.  -  Oberyn Martell
+Last updated: 2024-04-05 13:29:24
+Random Quote: You don't parley when you're on the back foot. We'll strike a blow back first. - Thomas Shelby
