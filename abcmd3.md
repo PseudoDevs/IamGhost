@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 14:44:05
-Random Quote: Ted: "So, you are mad about me and Robin holding hands."Barney: "Of course I'm mad Ted. Holding hands is like the fourth grade equivalent of banging. Well in your case, twelfth grade. Self-five!" - Barney Stinson
+Last updated: 2024-04-05 14:44:39
+Random Quote: Because you're so broken you don't even trust yourself. And that's scary. - Nate Jacobs
