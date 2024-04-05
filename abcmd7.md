@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 19:17:46
-Random Quote: The storms come and go, waves crash overhead, the big fish eat the little fish, and I keep on paddling.  -  Varys
+Last updated: 2024-04-05 19:18:19
+Random Quote: If there's one thing I've learned in the narco world, it's that life is more complicated than you think. Good and bad, they're relative concepts. - Steve Murphy
