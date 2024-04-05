@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 13:20:02
-Random Quote: Mitchell: "We didn't just go to Vietnam for pleasure. We kinda have some big news."Jay: "Oh God, if Cam comes out there with boobs, I'm leaving." - Jay Pritchett
+Last updated: 2024-04-05 13:20:38
+Random Quote: All the decisions we made in the past leads us inexorably into the future. - Tokyo
