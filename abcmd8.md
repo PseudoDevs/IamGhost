@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 16:48:11
-Random Quote: I'm a simple man making his way through the galaxy. Like my father before me. - Boba Fett
+Last updated: 2024-04-05 16:48:44
+Random Quote: You are slow to learn, Lord Eddard.  Distrusting me was the wisest thing you've don since you climbed down off your horse.  -  Petyr Baelish
