@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 19:10:39
-Random Quote: Many hands make light work. And many mouths make good gossip. - Agatha Harkness
+Last updated: 2024-04-05 19:11:11
+Random Quote: Treason is a noxious weed.  It must be torn up, root and stem and seed, lest new traitors sprout from every roadside.  -  Grand Maester Pycelle
