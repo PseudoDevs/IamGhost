@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 20:30:12
-Random Quote: You're my free pass... bitch! - Jesse Pinkman
+Last updated: 2024-04-05 20:30:45
+Random Quote: When a maester donned his collar, he put aside the hope of children, yet Cressen had oft felt a father nonetheless.  Robert, Stannis, Renly: three sons he had raised after the angry sea claimed Lord Steffon.  -  Maester Cressen
