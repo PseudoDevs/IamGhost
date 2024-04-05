@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 16:08:39
-Random Quote: Old gods or new, it makes no matter, no man is so accursed as the kinslayer.  -  Rickard Karstark
+Last updated: 2024-04-05 16:09:12
+Random Quote: We all must choose.  Man or woman, young or old, lord or peasant, our choices are the same.  We choose light or we choose darkness.  -  Melisandre
