@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 16:01:29
-Random Quote: It's not just football. It's life. - Cal Jacobs
+Last updated: 2024-04-05 16:02:02
+Random Quote: Asha Greyjoy did not intend to be taken alive.  She would die as she had lived, with an axe in her hand and a laugh upon her lips.  -  Asha Greyjoy
