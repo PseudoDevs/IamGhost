@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 14:37:21
-Random Quote: A family is like a small business. And with a small business, at times, there comes a bit of transition. - Marty Byrde
+Last updated: 2024-04-05 14:37:54
+Random Quote: Not all Mandalorians are bounty hunters. Some of us serve a higher purpose. - Bo-Katan
