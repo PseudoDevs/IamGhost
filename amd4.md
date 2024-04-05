@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 19:41:03
-Random Quote: He climbed onto his throne over the corpses of children, though I will grant you he was no Joffrey.  -  Arianne Martell
+Last updated: 2024-04-05 19:41:36
+Random Quote: He would see this country burn if he could be king of the ashes.  -  Varys
