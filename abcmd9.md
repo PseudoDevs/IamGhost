@@ -1,2 +1,3 @@
-Last updated: 2024-04-05 16:31:41
-Random Quote: Brother, you're driving the "I-wanna-have-sex-with-her-truck" and its got a huge blind spot. - Marshall Eriksen
+Last updated: 2024-04-05 16:32:14
+Random Quote: Man: "Hello, sir. Can I talk to you?"
+Gi-hun: "I don't believe in Jesus." - Seong Gi-hun
