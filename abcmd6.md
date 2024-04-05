@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 12:27:46
-Random Quote: I've lost a hand, a father, a son, a sister, and a lover, and soon enough I will lose a brother.  And yet they keep telling me House Lannister has won this war.  -  Jaime Lannister
+Last updated: 2024-04-05 12:28:20
+Random Quote: The years pass in their hundreds and their thousands, and what does any man see of life but a few summers, a few winters?  -  Maester Luwin
