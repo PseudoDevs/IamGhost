@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 10:08:18
-Random Quote: Marshall, you being 18 isn't a bad thing. It just means you get to spend even more of your life with her. - Ted Mosby
+Last updated: 2024-04-05 10:08:52
+Random Quote: When you date someone, it's like you're taking one long course in who that person is and then, when you break up, all that stuff becomes useless. It's the emotional equivalent of an English degree... - Ted Mosby
