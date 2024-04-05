@@ -1,2 +1,5 @@
-Last updated: 2024-04-05 16:59:23
-Random Quote: I do have an angle, Craig. It's an angle called justice. - Saul Goodman
+Last updated: 2024-04-05 16:59:56
+Random Quote: Bo-Katan: "I haven't seen battle droids since the Clone Wars."
+Din: "I have."
+Bo-Katan: "Any of 'em look suspicious?"
+Din: "They all look suspicious." - Din Djarin
