@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 16:27:16
-Random Quote: I want you to allow yourself to aknowledge the pain that you so clearly feel. - Fabiola Torres
+Last updated: 2024-04-05 16:27:49
+Random Quote: Lies are necessary, when the truth is too difficult to believe. - Pablo Escobar
