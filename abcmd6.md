@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 16:28:23
-Random Quote: People are making apocalypse jokes like there's no tomorrow. - Will Livingston
+Last updated: 2024-04-05 16:28:55
+Random Quote: There are moments when we must understand that the decisions we make influence more than just our own fates. - 
