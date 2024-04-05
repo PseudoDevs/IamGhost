@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 16:17:49
-Random Quote: Then odds are he'll be near a settlement, probably close to another city out there. Ain't too many of 'em in Wyoming. - Joel Miller
+Last updated: 2024-04-05 16:18:23
+Random Quote: War. Such a fascinating concept. A temporary salve for a permanent human flaw. - The Handler
