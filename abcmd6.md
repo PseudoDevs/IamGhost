@@ -1,2 +1,3 @@
-Last updated: 2024-04-05 13:31:13
-Random Quote: I only have one rule. For every three 10's you bang, throw a bone to a 5. They're grateful and hard working and let's face it, sometimes you just want to lay there. - Barney Stinson
+Last updated: 2024-04-05 13:31:46
+Random Quote: Stark: "Can I give you a piece of advice?"
+Carter: "I'd rather you didn't." - Peggy Carter
