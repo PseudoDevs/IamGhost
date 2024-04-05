@@ -1,2 +1,3 @@
-Last updated: 2024-04-05 13:02:38
-Random Quote: I've lost a hand, a father, a son, a sister, and a lover, and soon enough I will lose a brother.  And yet they keep telling me House Lannister has won this war.  -  Jaime Lannister
+Last updated: 2024-04-05 13:03:14
+Random Quote: Freddie: "You think I can't handle Tommy Shelby?"
+Polly: "You can't. I am having trouble these days and I'm twice the man you are." - Polly Gray
