@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 08:08:19
-Random Quote: I think maybe you're the only person who really knows who I am and still likes me anyway. - Allison Hargreeves
+Last updated: 2024-04-05 08:08:51
+Random Quote: Make it easier for those whose vote you can count on. Make it harder for those you can't. That's how you rig an election without leaving a lick of evidence. - Walt Breslin
