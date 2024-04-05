@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 14:36:48
-Random Quote: The singers of the forest had no books.  No ink, no parchment, no written language.  Instead they had the trees, and the weirwoods above all.  When they died, they went into the wood, into leaf and limb and root, and the trees remembered.  All their songs and spells, their histories and prayers, everything they knew about this world.  Maesters will tell you that the weirwoods are sacred to the old gods.  The singers believe they are the old gods.  When singers die they become part of that godhood.  -  Jojen Reed
+Last updated: 2024-04-05 14:37:21
+Random Quote: A family is like a small business. And with a small business, at times, there comes a bit of transition. - Marty Byrde
