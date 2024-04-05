@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 16:47:22
-Random Quote: You know who's into dragons, Morty? Nerds who refuse to admit they're Christian. - Rick Sanchez
+Last updated: 2024-04-05 16:47:56
+Random Quote: Make it easier for those whose vote you can count on. Make it harder for those you can't. That's how you rig an election without leaving a lick of evidence. - Walt Breslin
