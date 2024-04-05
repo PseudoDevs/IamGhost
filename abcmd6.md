@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 10:57:03
-Random Quote: I'm honest.  It's the world that's awful.  -  Sandor Clegane
+Last updated: 2024-04-05 10:57:36
+Random Quote: Men call me Darkstar, and I am of the night.  -  Gerold Dayne
