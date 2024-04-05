@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 19:15:10
-Random Quote: I never asked for this, no more than I asked to be king.  Yet dare I disregard her?  We do not choose our destinies.  Yet we must... we must do our duty, no?  Great or small, we must do our duty.  -  Stannis Baratheon
+Last updated: 2024-04-05 19:15:44
+Random Quote: What is honor compared to a woman's love?  What is duty against the feel of a newborn son in your arms, or the memory of a brother's smile.  Wind and words.  Wind and words.  We are only human, and the gods have fashioned us for love.  That is our great glory and our great tragedy.  -  Aemon Targaryen
