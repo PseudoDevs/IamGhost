@@ -1,2 +1,4 @@
-Last updated: 2024-04-05 15:47:58
-Random Quote: Not all final girls make it to the end by fighting the monster. Some of them hide. They stay quiet when their family needs them. They're not waiting for their moment. They don't even know if another moment's coming. They just close their eyes and wait for it to be over. Truth is, some final girls are cowards. - Kinsey Locke
+Last updated: 2024-04-05 15:48:31
+Random Quote: Morticia: "Please excuse Wednesday. She's allergic to color."
+Enid: "Wow, what happens to you?"
+Wednesday: "I break out into hives, and then the flesh peels off my bones." - Wednesday Addams
