@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 16:33:34
-Random Quote: There is no such thing as magic, just illusion. Things only change when we change them. But you have to do it skillfully, in secret. Then it seems like magic. - Mikkel Nielsen
+Last updated: 2024-04-05 16:34:07
+Random Quote: The only person who gets to torture my brother is me. - Wednesday Addams
