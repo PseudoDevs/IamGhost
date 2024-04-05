@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 11:17:48
-Random Quote: Serve, Obey, Protect.  Simple vows for a simple man.  -  Areo Hotah
+Last updated: 2024-04-05 11:18:21
+Random Quote: Take the foundling to the city of Calodan on the forest planet Corvus. There, you will find Ahsoka Tano. Tell her you were sent by Bo-Katan. - Bo-Katan
