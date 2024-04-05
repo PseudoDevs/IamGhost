@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 09:21:01
-Random Quote: Jaime, sweetling, I have known you since you were a babe at Joanna's breast.  You smile like Gerion and fight like Tyg and there's some of Keven in you, else you would not wear that cloak... but Tyrion is Tywin's son, not you.  I said that once to your father's face, and he would not speak to me for half a year.  -  Genna Lannister
+Last updated: 2024-04-05 09:21:34
+Random Quote: That's where The Boys come in: Spank the bastards when they get out of line. - Billy Butcher
