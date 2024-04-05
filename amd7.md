@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 19:18:38
-Random Quote: If the cancer doesn't get him, it'll be the cops or a bullet to the head. - Mike Ehrmantraut
+Last updated: 2024-04-05 19:19:11
+Random Quote: The only thing The Umbrella Academy knows about love is how to screw it up. - Klaus Hargreeves
