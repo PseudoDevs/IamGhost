@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 16:49:51
-Random Quote: America, Freddie. They've already had their revolution, you won't have to bother. - Ada Thorne
+Last updated: 2024-04-05 16:50:24
+Random Quote: Do you think I can't tell Lord Stannis from Lord Tywin?  They're both bungholes who think they're too noble to shit, but never mind about that, I know the difference.  -  Walder Frey
