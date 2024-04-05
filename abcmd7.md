@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 15:20:04
-Random Quote: A dog who bites every owner he's had can only be disciplined with a firm hand. Or put down. - Gustavo Fring
+Last updated: 2024-04-05 15:20:38
+Random Quote: A true man does what he will, not what he must.  -  Cersei Lannister
