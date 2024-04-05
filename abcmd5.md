@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 13:16:35
-Random Quote: Career has been trouncing romance for years. It's like the Globetrotters versus the Generals: Career's sinking hook shots from half court, romance is just a bunch of slow white guys, who couldn't make it in the Italian league. - Ted Mosby
+Last updated: 2024-04-05 13:17:10
+Random Quote: Yes! Tonight is gonna be Legen... wait, are we sure it's a good idea to go to a strip club? Shut up, Lily! I'm in charge now... Dary! - Barney Stinson
