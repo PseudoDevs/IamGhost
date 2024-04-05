@@ -1,3 +1,2 @@
-Last updated: 2024-04-05 19:27:07
-Random Quote: Morty: "You're really this pissed about my mum making sure I'm okay with our adventures?"
-Rick: "What's next, Morty? What if I want you to jump off the Empire State Building? I have to ask?" - Rick Sanchez
+Last updated: 2024-04-05 19:27:40
+Random Quote: My Lords!  Here is what I say to these two kings!  Renly Baratheon is nothing to me, nor Stannis neither.  Why should they rule over me and mine, from some flowery seat in Highgarden or Dorne?  What do they know of the Wall or the wolfswood or the barrows of the First Men?  Even their gods are wrong.  The Others take the Lannisters too, I've had a bellyful of them.  Why shouldn't we rule ourselves again?  It was the dragons we married, and the dragons are all dead!  There sits the only king I mean to bow my knee to, m'lords.  The King in the North!  -  Greatjon Umber
