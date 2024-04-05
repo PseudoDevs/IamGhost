@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 18:15:51
-Random Quote: Barney: "Looks like that bee got busy."Ted: "Looks like that French maid didn't turn down somebody's bed."Marshall: "Oh, looks like Pocahontas has a couple of wounded knees." - Marshall Eriksen
+Last updated: 2024-04-05 18:16:25
+Random Quote: Knights?  Dondarrion's a knight, but the rest of you are the sorriest lot of outlaws and broken men I've ever seen.  -  Sandor Clegane
