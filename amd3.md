@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 17:06:44
-Random Quote: The title was but a courtesy due him as a council member; Varys was lord of nothing but the spiderweb, the master of none but his whispers.  -  Catelyn Stark
+Last updated: 2024-04-05 17:07:18
+Random Quote: I'm not in the meth business. I'm in the empire business. - Walter White
