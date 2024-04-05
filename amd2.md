@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 19:37:31
-Random Quote: God. It's me, Barney. What up? I know we don't talk much, but I know a lot of girls call out your name because of me. Awesome! - Barney Stinson
+Last updated: 2024-04-05 19:38:04
+Random Quote: No man has ever died from bending his knee.  He who kneels may rise again, blade in hand.  He who will not kneel stays dead, stiff legs and all.  -  Balon Greyjoy
