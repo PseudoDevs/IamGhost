@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 07:17:12
-Random Quote: Shagg, son of Dolf will chop off their manhoods and feed them to the crows.  -  Shagga, son of Dolf
+Last updated: 2024-04-05 07:17:46
+Random Quote: If we're together long enough I hope that one day you see yourself like I do. - Kevin
