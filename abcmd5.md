@@ -1,3 +1,2 @@
-Last updated: 2024-04-05 17:50:09
-Random Quote: The good news is, Luke has his bike.
-More good news, I taught some random kid a valuable lesson by stealing his bike. - Phil Dunphy
+Last updated: 2024-04-05 17:51:15
+Random Quote: Dude, ditch Tiffany and join the Barnacle in the Pharma-Girl-Free-For-All. Side effects may include: loss of clothing, rug burns, shortness of breath and soar abdominals the next morning. What in the world is up! - Barney Stinson
