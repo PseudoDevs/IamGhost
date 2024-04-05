@@ -1,3 +1,2 @@
-Last updated: 2024-04-05 18:08:28
-Random Quote: Lily: "We're going to Atlantic City to elope - right now!"
-Barney: "Oh, congratulations Lily! Marshall, you're getting married? What the hell?" - Barney Stinson
+Last updated: 2024-04-05 18:09:02
+Random Quote: Better the butcher than the meat.  All kings are butchers.  Are queens so different?  -  Daario Naharis
