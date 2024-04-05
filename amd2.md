@@ -1,2 +1,3 @@
-Last updated: 2024-04-05 19:43:35
-Random Quote: There have always been men who found it easier to speak vows than to keep them.  -  Arys Oakheart
+Last updated: 2024-04-05 19:44:09
+Random Quote: Mi-nyeo: "Deok-su. You betray me... I'll kill you. Okay?"
+Deok-su: "You're the reason that I think I might die tonight." - Jang Deok-su
