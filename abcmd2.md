@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 08:24:15
-Random Quote: Here's the secret, kids: none of us can vow to be perfect. In the end, all we can do is promise to love each other with everything we've got. Because love's the best thing we do. - Ted Mosby
+Last updated: 2024-04-05 08:24:48
+Random Quote: Why didn't you say this to me when I was alive? - Hannah Baker
