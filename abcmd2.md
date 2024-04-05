@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 10:44:47
-Random Quote: Barney: "Ted what is my one rule?"Ted: "You can tell how old a girl is by her elbows?"Barney: "My other one rule."Ted: "Flax seed relieves upset stomach?"Barney: "My other one rule."Ted: "Always have a fake pair of concert tickets in your pocket in case Lily invites you to something stupid?"Barney: "My other one rule."Ted: "Labanese girls sprint to third base and then stay there."Barney: "My other one rule."Ted: "New is always better?"Barney: "New is always better!" - Barney Stinson
+Last updated: 2024-04-05 10:45:20
+Random Quote: Robin: "Our boy's back in the game."Lily: "Thank God, it's been a hundred years since Mosby scored a dame."Marshall: "The last time he saw boobies was the screen-test scene in 'Fame'."Robin: "The last girl he dated, I think 'Righty' was her name." - Robin Scherbatsky
