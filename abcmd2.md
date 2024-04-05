@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 17:30:52
-Random Quote: Ramsay.  Snow, my wife called me before she ate her fingers, but I say Bolton.  -  Ramsay Bolton
+Last updated: 2024-04-05 17:31:25
+Random Quote: I've only known one other being like this. A wise Jedi Master named Yoda. - Ahsoka Tano
