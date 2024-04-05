@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 13:33:19
-Random Quote: You can have all the intelligence in the world, but if nobody's there to act on it, what's it worth? Nothing. - Steve Murphy
+Last updated: 2024-04-05 13:33:53
+Random Quote: The bad guys need to get lucky every time. The good guys just need to get lucky once. - Steve Murphy
