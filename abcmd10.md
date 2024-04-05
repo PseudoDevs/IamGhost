@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 19:55:35
-Random Quote: The men of always aren't interested in the children of never. - Pablo Escobar
+Last updated: 2024-04-05 19:56:08
+Random Quote: I asked him why he kept her close, if he thought her so grotesque.  He said that all his other knights wanted things of him, castles or honors or riches, but all that Brienne wanted was to die for him.  -  Loras Tyrell
