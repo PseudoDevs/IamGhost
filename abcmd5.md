@@ -1,2 +1,3 @@
-Last updated: 2024-04-05 11:05:24
-Random Quote: Get the f out of here and don't stop walking until you hear them speak English! - Guillermo Gonzalez Calderoni
+Last updated: 2024-04-05 11:05:58
+Random Quote: The Deep: "What do we do? We can't just kill everyone."
+Billy Butcher: "That's exactly what we're gonna do!" - Billy Butcher
