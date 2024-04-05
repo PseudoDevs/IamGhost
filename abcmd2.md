@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 19:19:39
-Random Quote: I fear the only sorcerer strong enough to stop Dr. Strange is you, Dr. Strange. - Ancient One
+Last updated: 2024-04-05 19:20:13
+Random Quote: I was a better smuggler than a knight, he had written to his wife, a better knight than a King's hand, a better King's hand than a husband.  I am so sorry Marya, I have loved you.  Please forgive the wrongs I did you.  -  Davos Seaworth
