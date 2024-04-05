@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 08:39:41
-Random Quote: Death, he knew, but slow.  I still have time.  A year.  Two years.  Five.  Some stone men live for ten.  Time enough to cross the sea, to see Griffin's Roost again.  To end the Usurper's line for good and all, and put Rhaegar's son upon the Iron Throne.  Then Lord Jon Connington could die content.  -  Jon Connington
+Last updated: 2024-04-05 08:40:14
+Random Quote: Nuncle always had a fondness for freaks and fools.  My father used to fight with him about it.  Let the wizards call upon their gods.  The Damphair will call on ours, and drown them.  -  Asha Greyjoy

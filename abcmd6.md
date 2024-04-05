@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 08:39:41
-Random Quote: If you don't push, I will shove that baby up your throat and pull it out of your mouth! - Dr. Sonya
+Last updated: 2024-04-05 08:40:14
+Random Quote: What I came to realise is that fear, that’s the worst of it. That’s the real enemy. So, get up, get out in the real world and you kick that bastard as hard you can right in the teeth. - Walter White
