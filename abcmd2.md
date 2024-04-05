@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 13:38:32
-Random Quote: No one had expected the broken boy to live.  The gods could not kill Bran, no more than I could.  It was a strange thought, and stranger still to remember that Bran might still be alive.  -  Theon Greyjoy
+Last updated: 2024-04-05 13:39:05
+Random Quote: If we're together long enough I hope that one day you see yourself like I do. - Kevin
