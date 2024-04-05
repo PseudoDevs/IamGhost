@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 12:28:29
-Random Quote: They're all weighing the beskar in their minds, but not me. No. I for one, I celebrate your success, because it is my success as well. Hell, even I'm rich. - Greef Karga
+Last updated: 2024-04-05 12:29:05
+Random Quote: I don't want to be good. I am going to be great. - Pablo Escobar
