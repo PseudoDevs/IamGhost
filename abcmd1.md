@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 15:05:12
-Random Quote: Stannis Baratheon with a grievance was like a mastiff with a bone; he gnawed it down to splinters.  -  Jon Snow
+Last updated: 2024-04-05 15:06:52
+Random Quote: My daughter has taken an axe for a lover.  I will not have my son bedeck himself like a whore.  It is as I feared.  The green lands have made you soft, and the Starks have made you theirs.  -  Balon Greyjoy
