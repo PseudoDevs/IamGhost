@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 13:02:56
-Random Quote: At night, I fall asleep to you, and in the morning, I wake up to you. I kind of feel closer to you than I do anyone in the world. - Nate Jacobs
+Last updated: 2024-04-05 13:03:31
+Random Quote: Good men and true will fight for Joffrey, wrongly believing him the true king.  A northman might even say the same of Robb Stark.  But these lords who flocked to my brother's banners knew him for an usurper.  They turned their backs on their rightful king for no better reason than dreams of power and glory, and I have marked them for what they are.  Pardoned them, yes.  Forgiven, but not forgotten.  -  Stannis Baratheon
