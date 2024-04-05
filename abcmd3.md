@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 20:21:55
-Random Quote: All I know is, life is not a Nicholas Sparks novel. - Rue Bennett
+Last updated: 2024-04-05 20:22:28
+Random Quote: You grew up with actors.  You learned their craft and you learned it well.  I grew up with soldiers.  I learned how to die a long time ago.  -  Eddard Stark
