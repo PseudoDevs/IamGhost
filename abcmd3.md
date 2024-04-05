@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 08:58:37
-Random Quote: The number two guy doesn't solve problems. He just points them out. - Don Neto
+Last updated: 2024-04-05 08:59:42
+Random Quote: We all must choose.  Man or woman, young or old, lord or peasant, our choices are the same.  We choose light or we choose darkness.  -  Melisandre
