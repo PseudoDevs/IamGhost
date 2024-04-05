@@ -1,5 +1,2 @@
-Last updated: 2024-04-05 12:12:03
-Random Quote: "What's love to you?"
-Flaca: "It's like getting into a bath, but the water is like warm chocolate pudding. And the Smiths are playing. There Is A Light That Never Goes Out.' There's mood lighting all over, and there's like five dudes massaging you."
-Maritza: "And you have a pizza!"
-Flaca: "She's right. You also have a pizza." - Marisol 'Flaca' Gonzales & Maritza Ramos
+Last updated: 2024-04-05 12:12:37
+Random Quote: What do you think a knight is for, girl?  You think it's all taking favors from ladies and looking fine in gold plate?  Knights are for killing.  I killed my first man at twelve.  I've lost count of how many I've killed since then.  High lords with old names, fat rich men dressed in velvet, knights puffed up like bladders with their honors, yes, and women and children too... they're all meat, and I'm the butcher.  -  Sandor Clegane
