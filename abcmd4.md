@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 15:25:42
-Random Quote: Power resides where men believe it resides... It's a trick, a shadow on the wall.  -  Varys
+Last updated: 2024-04-05 15:26:15
+Random Quote: I can't tell the difference between my waking life and dreams. - Arthur Harrow
