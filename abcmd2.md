@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 12:18:34
-Random Quote: I'll never find that kind of love. There's just no darkness. It's just sweet. I don't know if that would ever be enough for me. - Maddy Perez
+Last updated: 2024-04-05 12:19:13
+Random Quote: Ted: "Oh hey, where are you guys?"Barney: "We're in a fundraiser, helping young women raise money for community college."Ted: "Stripclub... nice!" - Barney Stinson
