@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 19:23:39
-Random Quote: You can never tell with men. They go for whoever their dcks point at and there's no changing their minds. - Polly Gray
+Last updated: 2024-04-05 19:24:48
+Random Quote: You're like Hitler! But even Hitler cared about Germany or something. - Morty Smith
