@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 18:46:52
-Random Quote: Client: "Please lower your blaster."Mando: "Tell them to lower theirs first."Stormtrooper: "We have you four to one."Mando: "I like those odds." - Din Djarin
+Last updated: 2024-04-05 18:47:25
+Random Quote: Get the keys and remove those chains from him, before you make me rue the day I raped your mother.  -  Roose Bolton
