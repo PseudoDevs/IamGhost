@@ -1,2 +1,3 @@
-Last updated: 2024-04-05 10:03:59
-Random Quote: Power resides where men believe it resides... It's a trick, a shadow on the wall.  -  Varys
+Last updated: 2024-04-05 10:04:32
+Random Quote: Elliot: "I'm not sure it's a good thing we met."
+Rue: "What are you talking about? You're my new favorite person." - Rue Bennett
