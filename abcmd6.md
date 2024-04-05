@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 11:12:07
-Random Quote: Despite the stupidity, the lies, you're compelled. The problem has been assigned and you'll stop at nothing until you find an answer. Because that is who you are. - Valery Legasov
+Last updated: 2024-04-05 11:13:13
+Random Quote: You'd have been the last lawyer I'd have gone to. - Walter White
