@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 11:27:07
-Random Quote: That's where The Boys come in: Spank the bastards when they get out of line. - Billy Butcher
+Last updated: 2024-04-05 11:27:40
+Random Quote: The more you give a king, the more he wants.  We are walking on a bridge of ice with an abyss on either side.  Pleasing one king is difficult enough.  Pleasing two is hardly possible.  -  Jon Snow
