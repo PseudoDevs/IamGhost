@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 18:13:06
-Random Quote: I told you once, there are old sellswords and there are bold sellswords, but there are no old bold sellswords.  -  Brown Ben Plumm
+Last updated: 2024-04-05 18:13:39
+Random Quote: Only Renly could vex me so with a piece of fruit.  He brought his doom on himself with his treason, but I did love him, Davos.  I know that now.  I swear, I will go to my grave thinking of my brother's peach.  -  Stannis Baratheon
