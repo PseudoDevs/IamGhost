@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 10:05:33
-Random Quote: Young I was, and vain, but the sea washed my follies and my vanities away.  That man drowned, nephew.  His lungs filled with seawater, and the fish ate the scales off his eyes.  When I rose again, I saw clearly.  -  Aeron Greyjoy
+Last updated: 2024-04-05 10:06:06
+Random Quote: There are things out there that our little minds will never comprehend - 
