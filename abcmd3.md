@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 18:51:09
-Random Quote: It's like, I think about sex 24/7, but I don't really know how to do it. In the movies, you always see the girl kiss her way down the guy's body, but then, she moves off-screen. Is she stopping at the penis or kissing all the way to the foot? - Devi Vishwakumar
+Last updated: 2024-04-05 18:51:41
+Random Quote: I've known good criminals and bad cops. Bad priests, honorable thieves. You can be on one side of the law or the other. But if you make a deal with somebody, you keep your word. You can go home today with your money and never do this again. But you took something that wasn't yours. And you sold it for a profit. You're now a criminal. Good one, bad one? That's up to you. - Mike Ehrmantraut
