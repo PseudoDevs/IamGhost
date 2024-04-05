@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 10:39:47
-Random Quote: I asked him why he kept her close, if he thought her so grotesque.  He said that all his other knights wanted things of him, castles or honors or riches, but all that Brienne wanted was to die for him.  -  Loras Tyrell
+Last updated: 2024-04-05 10:40:20
+Random Quote: When things go well, people start thinking it's because they're so fing smart. - Walt Breslin
