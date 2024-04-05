@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 11:27:07
-Random Quote: Breast-feeding... hot!When those things swell up to three times their normal size, so do I. - Barney Stinson
+Last updated: 2024-04-05 11:27:40
+Random Quote: My old septon used to say that books are dead men talking.  Dead men should keep quiet, is what I say.  No one wants to hear a dead man's yabber.  -  Dolorous Edd Tollett
