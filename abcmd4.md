@@ -1,2 +1,4 @@
-Last updated: 2024-04-05 11:10:59
-Random Quote: No, that you think you'll graduate High-School. - Meemaw
+Last updated: 2024-04-05 11:11:33
+Random Quote: Greef: "Be careful, my friend. They've got you outnumbered ten to one."
+Din: "I like these odds."
+Greef: "I bet you do." - Greef Karga
