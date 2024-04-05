@@ -1,2 +1,3 @@
-Last updated: 2024-04-05 17:05:39
-Random Quote: Ted: "Robin! I just had a great idea!"Robin: "Oh, do whatever you want to me, just don't wake me up." - Robin Scherbatsky
+Last updated: 2024-04-05 17:06:12
+Random Quote: Joel: "A deep breath in, slow breath out. You squeeze the trigger like you love it. Gentle, steady, nice and slow."
+Ellie: "You gonna shoot this thing or get it pregnant?" - Ellie Williams
