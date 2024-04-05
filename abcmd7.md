@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 10:37:02
-Random Quote: Barney: "How's the single life?"Ted: "I wouldn't know. After this whole Robin thing, I'm laying low."Barney: "Laying low as in sleeping with a really short chick? You guys doing thirty-nine?" - Barney Stinson
+Last updated: 2024-04-05 10:37:35
+Random Quote: The end of a rope has been this man's destiny since the night he was born. - Chester Campbell
