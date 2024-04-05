@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 09:56:47
-Random Quote: The World is going to come to an end tonight. Yes think about it. End of the World, Nostradamus, Notre Dame, Fighting Irish, Irish, St. Patrick's Day. This is it Bro. Bro-calypse Now... Bro-Mageddon. - Barney Stinson
+Last updated: 2024-04-05 09:57:19
+Random Quote: You need to figure out what the fuck you want. - Nicky Nichols
