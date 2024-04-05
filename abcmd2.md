@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 14:18:12
-Random Quote: Well, I'm just gonna go jerk off then. For the 500th time today. - Larry Bloom
+Last updated: 2024-04-05 14:18:46
+Random Quote: There is a savage beast in every man, and it stirs when you put a sword in his hand.  -  Jorah Mormont
