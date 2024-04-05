@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 07:48:23
-Random Quote: You're a beautiful, sweet girl. Fuck this guy! - Nicky Nichols
+Last updated: 2024-04-05 07:48:57
+Random Quote: One minute we're just laying into each other, and then the next minute... well, same thing. - Ted Mosby
