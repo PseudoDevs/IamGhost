@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 11:49:51
-Random Quote: All you Westerosi make a shame of loving.  Ther is no shame in loving.  If your septons say there is, your seven gods must be demons.  In the isles we know better.  Our gods gave us legs to run with, noses to smell with, hands to touch and feel.  What mad cruel god would give a man eyes and tell him he must forever keep them shut, and never look at all the beauty in the world?  Only a monster god, a demon of the darkness.  -  Kojja Mo
+Last updated: 2024-04-05 11:50:57
+Random Quote: It's only once you've stopped, that you realize how hard it is to start again. So you force yourself not to want it. - Ted Mosby
