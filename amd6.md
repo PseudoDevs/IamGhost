@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 17:42:25
-Random Quote: Some of you cared. None of you cared enough. - Hannah Baker
+Last updated: 2024-04-05 17:42:59
+Random Quote: It's only once you've stopped, that you realize how hard it is to start again. So you force yourself not to want it. - Ted Mosby
