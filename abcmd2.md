@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 12:56:59
-Random Quote: He would have killed me but for Howland Reed.  -  Eddard Stark
+Last updated: 2024-04-05 12:57:37
+Random Quote: Many good men have been bad kings, and some bad men have been good kings.  -  Maester Aemon
