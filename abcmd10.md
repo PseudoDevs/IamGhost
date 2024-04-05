@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 15:08:31
-Random Quote: The world is one great web, and no man dare not touch a single strand lest all the others tremble.  -  Illyrio Mopatis
+Last updated: 2024-04-05 15:09:04
+Random Quote: Pennsatucky: "It weren't my fault. I was just doing as the Spirit commanded."Pussey: "Fuck are you? Joan of Arc?"Pennsatucky: "No, I'm from Waynesboro, my name is Tiffany..." - Tiffany 'Pennsatucky' Doggett
