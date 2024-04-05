@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 11:13:13
-Random Quote: I think the word you're looking for is 'audacious'. - Kim Wexler
+Last updated: 2024-04-05 11:14:20
+Random Quote: What is the cost of lies? It's not that we mistake them for the truth. The real danger is that if we hear enough lies, then we no longer recognize the truth at all. - Valery Legasov
