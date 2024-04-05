@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 20:16:41
-Random Quote: Birds are lost, messages stolen or sold... there are things I might tell you of that eunuch that would chill your blood...  -  Grand Maester Pycelle
+Last updated: 2024-04-05 20:18:21
+Random Quote: Robin: "Sometimes in life you have to be assertive and stand up for yourself."Ted: "You called her a whore!"Robin: "Who wears that much make up?"Ted: "Old ladies!"Robin: "Who take money for sex, exactly!" - Robin Scherbatsky
