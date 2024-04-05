@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 18:38:31
-Random Quote: Need found it hard to imagine what could frighten Stannis Baratheon, who had once held Storm's End through a year of siege, surviving on rats and boot leather while the Lords Tyrell and Redwyne sat outside with their hosts, banqueting in sight of his walls.  -  Eddard Stark
+Last updated: 2024-04-05 18:39:05
+Random Quote: If we're together long enough I hope that one day you see yourself like I do. - Kevin
