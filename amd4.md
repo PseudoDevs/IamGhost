@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 19:06:43
-Random Quote: Ted: "In a city of eight million people, you happened to walk into the club where she works? Maybe it's destiny."Barney: "No, Destiny strips at 'The Melon Patch'. They're people, Ted. Try to keep them straight!" - Barney Stinson
+Last updated: 2024-04-05 19:07:16
+Random Quote: She studied Theon Greyjoy's sly smile, wondering what it meant.  That young man had a way of looking as though he knew some secret jest that only he was privy to; Catelyn had never liked it.  -  Catelyn Stark
