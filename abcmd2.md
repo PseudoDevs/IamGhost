@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 17:54:06
-Random Quote: When you date someone, it's like you're taking one long course in who that person is and then, when you break up, all that stuff becomes useless. It's the emotional equivalent of an English degree... - Ted Mosby
+Last updated: 2024-04-05 17:54:39
+Random Quote: Many years later, my brother would use the same argument in front of a judge. He was still convicted for urinating in a phone booth. - Sheldon Cooper
