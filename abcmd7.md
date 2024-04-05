@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 11:47:05
-Random Quote: No, that you think you'll graduate High-School. - Meemaw
+Last updated: 2024-04-05 11:47:38
+Random Quote: Think of me as Yoda - only, instead of being little and green, I wear suits and I'm awesome. I'm your bro. I'm Broda. - Barney Stinson
