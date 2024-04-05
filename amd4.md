@@ -1,2 +1,3 @@
-Last updated: 2024-04-05 17:33:51
-Random Quote: Asha Greyjoy did not intend to be taken alive.  She would die as she had lived, with an axe in her hand and a laugh upon her lips.  -  Asha Greyjoy
+Last updated: 2024-04-05 17:34:24
+Random Quote: Morty: "You were a teenager when dad got you pregnant!"
+Beth: "I was 17. That's at least 26 in boy years." - Beth Smith
