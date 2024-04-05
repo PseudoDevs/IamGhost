@@ -1,7 +1,2 @@
-Last updated: 2024-04-05 18:03:41
-Random Quote: Bo-Katan: "You are a disgrace to your armor."
-Boba Fett: "This armor belonged to my father."
-Bo-Katan: "Don't you mean your donor?"
-Boba Fett: "Careful, princess."
-Bo-Katan: "You are a clone. I've heard your voice thousands of times."
-Boba Fett: "Mine might be the last one you hear." - Boba Fett
+Last updated: 2024-04-05 18:04:15
+Random Quote: God. It's me, Barney. What up? I know we don't talk much, but I know a lot of girls call out your name because of me. Awesome! - Barney Stinson
