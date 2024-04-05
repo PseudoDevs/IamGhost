@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 08:19:26
-Random Quote: My lady, I have seen how you look at my brother.  Loras is valiant and handsome, and we all love him dearly... but your Imp will make a better husband.  He is a bigger man than he seems, I think.  -  Garlan Tyrell
+Last updated: 2024-04-05 08:19:59
+Random Quote: The only difference between us is, when I made bad decisions in life, I didn't get caught. - Susan Fischer
