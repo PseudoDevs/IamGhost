@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 09:49:06
-Random Quote: A craven's knife can slay a queen as easily as a hero's.  -  Xaro Xhoan Daxos
+Last updated: 2024-04-05 09:50:12
+Random Quote: She hated her life, not because it was bad, but because when you hate your brain and your body, it's hard to enjoy the rest. - Rue Bennett
