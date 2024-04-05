@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 15:24:36
-Random Quote: Power tastes best when sweetened by courtesy; you had best learn that if you ever hope to rule.  -  Roose Bolton
+Last updated: 2024-04-05 15:25:10
+Random Quote: There's kids playing hockey in the back. It's like you want us to make fun of you! - Barney Stinson
