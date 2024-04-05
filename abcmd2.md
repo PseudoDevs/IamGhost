@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 14:25:32
-Random Quote: Ran: "Mayfeld, he's one of the best triggermen I've ever seen. Former Imperial sharpshooter."Mando: "That's not saying much." - Din Djarin
+Last updated: 2024-04-05 14:26:39
+Random Quote: We’re wanderers in the darkness. - 
