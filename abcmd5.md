@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 15:46:48
-Random Quote: I will see, and hear, and learn, and when I have I will carry the word back to the Wall.  The wildlings had taken him for an oathbreaker, but in his heart he was still a man of the Night's Watch, doing the last duty that Qhorin Halfhand had laid on him.  Before I killed him.  -  Jon Snow
+Last updated: 2024-04-05 15:47:21
+Random Quote: The Lion does not concern itself with the opinions of sheep.  -  Tywin Lannister
