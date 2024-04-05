@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 16:17:16
-Random Quote: Death is always inevitable. destiny is nothing but the connection between cause and effect. In light, in shadow. - 
+Last updated: 2024-04-05 16:17:49
+Random Quote: The bad guys need to get lucky every time. The good guys just need to get lucky once. - Steve Murphy
