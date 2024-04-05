@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 17:11:11
-Random Quote: This is the one that you saved? You are as its father. A clan of two. But you have removed your helmet. Then you are a Mandalorian no more. - The Armorer
+Last updated: 2024-04-05 17:11:44
+Random Quote: When the sun has set, no candle can replace it.  -  Loras Tyrell
