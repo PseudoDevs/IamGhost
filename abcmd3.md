@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 09:59:04
-Random Quote: Oberyn was ever the viper.  Deadly, dangerous, unpredictable.  No man dared tread on him.  I was the grass.  Pleasant, complaisant, sweet - smelling, swaying with every breeze.  Who fears to walk upon the grass?  But it is the grass that hides the viper from his enemies and shelters him until he strikes. 
+Last updated: 2024-04-05 09:59:36
+Random Quote: Ted: "So, you are mad about me and Robin holding hands."Barney: "Of course I'm mad Ted. Holding hands is like the fourth grade equivalent of banging. Well in your case, twelfth grade. Self-five!" - Barney Stinson
