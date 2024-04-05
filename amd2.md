@@ -1,2 +1,3 @@
-Last updated: 2024-04-05 19:51:51
-Random Quote: In King's Landing, there are two sorts of people.  The players and the pieces.  -  Petyr Baelish
+Last updated: 2024-04-05 19:52:24
+Random Quote: Tommy: "I'll have some men watch her house 'til the danger passes."
+Polly: "'Til the danger passes. That'll be the bloody day." - Polly Gray

@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 19:51:51
-Random Quote: Until the Mountain crushed my brother's skull, no Dornishmen had died in this War of the Five Kings.  Tell me, Captain, is that my shame or my glory?  -  Doran Martell
+Last updated: 2024-04-05 19:52:24
+Random Quote: Judging from how many clients that hooker has serviced, I'd say we've been here almost an hour. - Robin Scherbatsky
