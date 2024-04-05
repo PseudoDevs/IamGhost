@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 15:23:24
-Random Quote: We're done when I say we're done. - Walter White
+Last updated: 2024-04-05 15:23:57
+Random Quote: Hush, Alerie, don't take that tone with me.  And don't call me mother.  If I'd given birth to you, I'm sure I'd remember.  I'm only to blame for your husband, the lord oaf of Highgarden.  -  Olenna Tyrell
