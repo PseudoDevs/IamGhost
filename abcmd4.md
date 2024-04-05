@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 18:59:57
-Random Quote: I believe the world's a bad place. And I don't think I'm much better. But we have to try. - Walt Breslin
+Last updated: 2024-04-05 19:00:33
+Random Quote: You have a passing clever father, Devan.  He makes me wish I had more smugglers in my service.  And fewer lords.  -  Stannis Baratheon
