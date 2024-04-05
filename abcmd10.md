@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 14:03:57
-Random Quote: Growing up, I'd always lose my umbrella so my mom would get angry. So then, she gave me broken ones to bring to school. - Seong Gi-hun
+Last updated: 2024-04-05 14:04:31
+Random Quote: Lies are necessary, when the truth is too difficult to believe. - Pablo Escobar
