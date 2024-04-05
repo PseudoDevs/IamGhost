@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 20:01:30
-Random Quote: Penrose chose to die rather than give him up.  It still angers me.  How could he think I would hurt the boy?  I chose Robert, did I not?  When that hard day came, I chose blood over honor.  -  Stannis Baratheon
+Last updated: 2024-04-05 20:02:03
+Random Quote: I'm KFC baby - you don't mess with the Colonel's recipe! - Barney Stinson
