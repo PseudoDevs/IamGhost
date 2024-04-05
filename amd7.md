@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 19:54:19
-Random Quote: The world is full of such paradoxes we simply choose to ignore them most of the time. - 
+Last updated: 2024-04-05 19:54:52
+Random Quote: Knights?  Dondarrion's a knight, but the rest of you are the sorriest lot of outlaws and broken men I've ever seen.  -  Sandor Clegane
