@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 15:40:35
-Random Quote: 'You leaving already, Chief?"Jim Hopper: "Oh, come on, you think I actually wanted to come to this thing? I was just hungry."'Oh, yeah, that's the spirit."Jim Hopper: "Well, your wife doesn't have time to cook for me, you know what I'm saying." - Jim Hopper
+Last updated: 2024-04-05 15:41:08
+Random Quote: Then hear me.  If we are taken, you will go over to them, as the wildling girl you captured once urged you.  They may demand that you cut your cloak to ribbons, that you swear them an oath on your father's grave, that you curse your brothers and your Lord Commander.  You must not balk, whatever is asked of you.  Do as they bid you... but in your heart, remember who and what you are.  Ride with them, eat with them, fight with them, for as long as it takes.  And watch.  -  Qhorin Halfhand
