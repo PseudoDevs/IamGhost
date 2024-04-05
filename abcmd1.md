@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 13:15:53
-Random Quote: Take the foundling to the city of Calodan on the forest planet Corvus. There, you will find Ahsoka Tano. Tell her you were sent by Bo-Katan. - Bo-Katan
+Last updated: 2024-04-05 13:16:29
+Random Quote: Everything will be okay in the end. If it's not okay, it's not the end. - Yuk Je
