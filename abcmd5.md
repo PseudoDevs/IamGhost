@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 13:55:04
-Random Quote: You want to be a bounty hunter? Make the best deal for yourself and survive! - Fennec Shand
+Last updated: 2024-04-05 13:55:37
+Random Quote: If you had to fall into a woman's arms, my son, why couldn't they have been Margaery Tyrell's?  -  Catelyn Stark
