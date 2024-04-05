@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 18:37:59
-Random Quote: No one had expected the broken boy to live.  The gods could not kill Bran, no more than I could.  It was a strange thought, and stranger still to remember that Bran might still be alive.  -  Theon Greyjoy
+Last updated: 2024-04-05 18:38:32
+Random Quote: There are so many great things to do with the human mouth, why waste it on talking? - Barney Stinson
