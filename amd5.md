@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 16:33:05
-Random Quote: Dismissing Selmy, where was the sense in that?  Yes, the man was old, but the name of Barristan the Bold still has meaning in the realm.  He lent honor to any man he served.  -  Tywin Lannister
+Last updated: 2024-04-05 16:33:38
+Random Quote: Larry: "She's guilty she's leaving. It's a guilt pig roasting box."Pete: "At least you get something. I'm not getting laid for a year too. But what do I get?"Larry: "A baby?"Pete: "You can't eat it." - Pete Harper
