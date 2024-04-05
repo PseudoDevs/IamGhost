@@ -1,2 +1,3 @@
-Last updated: 2024-04-05 08:50:09
-Random Quote: Why should I go running to my aunt as if I were a beggar?  My claim is better than her own.  Let her come to me... in Westeros.  -  Aegon Targaryen
+Last updated: 2024-04-05 08:51:15
+Random Quote: Wyatt Langmore: "This job's my old man's idea. Something about 'calluses and character'."
+Charlotte Byrde: "Yeah, well, you're blowing leaves, not hiding Anne Frank." - Charlotte Byrde

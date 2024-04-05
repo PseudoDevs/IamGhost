@@ -1,2 +1,5 @@
-Last updated: 2024-04-05 08:50:42
-Random Quote: February 13th. A magical night, where a ten has the self esteem of a four and the depraved enthusiasm of a two. - Barney Stinson
+Last updated: 2024-04-05 08:51:15
+Random Quote: Morty: "I'm dying, Rick!"
+Rick: "People who are really dying don't keep bringing it up."
+Morty: "Is that true?"
+Rick: "I don't know. I'm just usually around people that die faster." - Rick Sanchez
