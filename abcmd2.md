@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 13:50:04
-Random Quote: See, lad, that's why he's the king and I'm not.  I can outdrink, outfight, and outsing him, and my member's thrice the size o' his, but Mance has cunning.  -  Tormund Giantsbane
+Last updated: 2024-04-05 13:50:39
+Random Quote: When treating with liars, even an honest man must lie.  -  Wyman Manderly
