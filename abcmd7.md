@@ -1,3 +1,2 @@
-Last updated: 2024-04-05 16:36:41
-Random Quote: Bo-Katan: "You are not a Mandalorian."
-Boba: "Never said I was." - Boba Fett
+Last updated: 2024-04-05 16:38:20
+Random Quote: The farther you go, the sharper their blade. Just don't ever give them an opening. - Cal Jacobs
