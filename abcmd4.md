@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 12:53:01
-Random Quote: Nancy Wheeler: "You're supposed to hit the cans, right?"Jonathan Byers: "No, actually - you see the spaces in between the cans? I'm aiming for those." - Jonathan Byers
+Last updated: 2024-04-05 12:53:36
+Random Quote: You're a freak, but what? Do you wanna be normal? Do you wanna be just like everyone else? - Jonathan Byers
