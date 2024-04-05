@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 13:59:28
-Random Quote: Dance, until your feet hurt. Sing, until your lungs hurt. Act, until you're William Hurt. - Phil Dunphy
+Last updated: 2024-04-05 14:00:02
+Random Quote: You want to know if I was ever really in love with you? Every morning, I wake up wishing I wasn't. You are a constant reminder of what I can't have. A life. Love. You. - Lucien
