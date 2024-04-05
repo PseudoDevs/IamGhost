@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 10:21:00
-Random Quote: It's just, I know I can be a jerk like him sometimes, and I do not want to be like him. Ever. - Max Mayfield
+Last updated: 2024-04-05 10:21:33
+Random Quote: I wouldn't lie to you. Well... that's a lie. - Rick Sanchez
