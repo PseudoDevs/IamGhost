@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 15:42:49
-Random Quote: Well, I'm just gonna go jerk off then. For the 500th time today. - Larry Bloom
+Last updated: 2024-04-05 15:43:22
+Random Quote: In the game of thrones, even the humblest pieces have wills of their own.  Sometimes they refuse to make the moves you've planned for them.  Mark that well, Alayne.  It's a lesson that Cersei Lannister still has yet to learn.  -  Petyr Baelish
