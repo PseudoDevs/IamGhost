@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 07:49:31
-Random Quote: Smoking marijuana, eating cheetos, and masturbating do not constitute plans in my book. - Walter White
+Last updated: 2024-04-05 07:50:38
+Random Quote: It's not Aerys I rue, it's Robert... Why is it no one names Robert oathbreaker?  He tore the realm apart, yet I am the one with shit for honor.  -  Jaime Lannister
