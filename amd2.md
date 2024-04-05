@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 18:28:33
-Random Quote: Friends tell the truth. - Eleven
+Last updated: 2024-04-05 18:30:12
+Random Quote: Make it easier for those whose vote you can count on. Make it harder for those you can't. That's how you rig an election without leaving a lick of evidence. - Walt Breslin
