@@ -1,2 +1,3 @@
-Last updated: 2024-04-05 18:06:28
-Random Quote: Robin, if you asked a hundred people: "Who's the worst person you could possibly date?" They'd all say "your therapist", except the ones saying "Barney". - Ted Mosby
+Last updated: 2024-04-05 18:07:01
+Random Quote: Joel: "A deep breath in, slow breath out. You squeeze the trigger like you love it. Gentle, steady, nice and slow."
+Ellie: "You gonna shoot this thing or get it pregnant?" - Ellie Williams
