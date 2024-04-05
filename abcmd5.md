@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 10:59:16
-Random Quote: Rattleshirt, we called him.  Treacherous and bloodthirsty.  If there's honor in him, he hides it down beneath his suit of bones.  -  Jon Snow
+Last updated: 2024-04-05 11:00:58
+Random Quote: It's like, I think about sex 24/7, but I don't really know how to do it. In the movies, you always see the girl kiss her way down the guy's body, but then, she moves off-screen. Is she stopping at the penis or kissing all the way to the foot? - Devi Vishwakumar
