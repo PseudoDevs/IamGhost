@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 13:23:35
-Random Quote: This story is about to take a dark turn. Usually, I love dark turns. Like when the carousel brakes myteriously failed at my eighth birthdays party. - Wednesday Addams
+Last updated: 2024-04-05 13:24:09
+Random Quote: This is my own private domicile and I will not be harassed…bitch! - Jesse Pinkman
