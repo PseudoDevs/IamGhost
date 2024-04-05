@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 09:25:59
-Random Quote: We are not husband and wife... anymore. We're just business partners. And our job is to raise those kids. - Marty Byrde
+Last updated: 2024-04-05 09:26:32
+Random Quote: We've always been a trio! We're right up there with Batman and Robin and Alfred. Romeo and Juliet and the apothecary. Salt and pepper and cumin. - Ted Mosby
