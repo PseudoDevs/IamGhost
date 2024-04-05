@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 11:10:59
-Random Quote: His size, Gregor is a very large man.  Also a very stupid one.  Too stupid to know when he should die, it seems.  -  Cersei Lannister
+Last updated: 2024-04-05 11:11:33
+Random Quote: I didn't give up on my dream house, because that's the thing about stupid decisions - we all make them, but time is funny and sometimes a little magical. It can take a stupid decision, and turn it into something else entirely. - Ted Mosby

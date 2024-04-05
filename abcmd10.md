@@ -1,2 +1,3 @@
-Last updated: 2024-04-05 11:10:59
-Random Quote: The only difference between us is, when I made bad decisions in life, I didn't get caught. - Susan Fischer
+Last updated: 2024-04-05 11:11:33
+Random Quote: Miguel: "Would you have really fed me to those hippos?"
+Pablo: "No. Hippos don't like Mexicans either." - Pablo Escobar
