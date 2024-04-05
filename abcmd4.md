@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 15:12:00
-Random Quote: Woman: "How can you not remember my name? it rhymes with your name?"Barney: "And I said my name was...?" - Barney Stinson
+Last updated: 2024-04-05 15:12:33
+Random Quote: Everyone pretend podcasting isn't boring! - Rick Sanchez
