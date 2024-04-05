@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 07:45:25
-Random Quote: I find Social Media to be a soul-sucking void of meaningless affirmation. - Wednesday Addams
+Last updated: 2024-04-05 07:45:59
+Random Quote: Spare me your empty little compliments, girl... and your ser's.  I am no knight.  I spit on them and their vows.  My brother is a knight.  -  Sandor Clegane
