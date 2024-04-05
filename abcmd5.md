@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 18:18:28
-Random Quote: Robin: "I wouldn't go to Cleveland for 125 million dollars, paid over six years."Ted: "Still with the LeBron jokes? Where's that ring he's supposed to have by now?" - Robin Scherbatsky
+Last updated: 2024-04-05 18:20:41
+Random Quote: Women aren't soldiers, and they sure as hell don't fight on the front lines. They might break a nail. - John Flynn
