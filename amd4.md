@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 16:23:37
-Random Quote: This is New York City, don't get close to the neighbours. You nod at them politely in the hall, you call the cops if you haven't seen them in a while and you smell something funny and that's it! - Ted Mosby
+Last updated: 2024-04-05 16:24:10
+Random Quote: My only aim is to take many lives. The more the better I feel. - 
