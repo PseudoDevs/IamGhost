@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 16:00:08
-Random Quote: Sometimes a truce is the most important part of a war. - Professor
+Last updated: 2024-04-05 16:00:41
+Random Quote: Here's the secret, kids: none of us can vow to be perfect. In the end, all we can do is promise to love each other with everything we've got. Because love's the best thing we do. - Ted Mosby
