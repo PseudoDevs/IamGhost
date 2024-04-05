@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 20:13:18
-Random Quote: They are children, Sansa thought.  They are silly little girls, even Elinor.  They've never seen a battle, they've never seen a man die, they know nothing.  Their dreams were full of songs and stories, the way hers had been before Joffrey cut her father's head off.  Sansa pitied them.  Sansa envied them.  -  Sansa Stark
+Last updated: 2024-04-05 20:13:51
+Random Quote: Quinn: "What is an executive strategy coordinator?"Barney: "It's three corporate-sounding words which, when added together, equal a fake job for which you get a real paycheck." - Barney Stinson
