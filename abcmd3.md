@@ -1,2 +1,3 @@
-Last updated: 2024-04-05 20:30:46
-Random Quote: Years ago, I bought a Betamax, good product, top of the line. Experts said it was better than a VHS. Turned out to be a complete waste of time and money. - Mike Ehrmantraut
+Last updated: 2024-04-05 20:31:19
+Random Quote: Jerry: "Why Florida?"
+Cat: "Because they don't ask questions. They play Volleyball, they party and they have fun." - Rick and Morty
