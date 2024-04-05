@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 16:02:54
-Random Quote: Ted: "Trying to get them interested in architecture as a career."Barney: "Why? Are we running out of buildings?"Robin: "Are we running out of boring people?" - Robin Scherbatsky
+Last updated: 2024-04-05 16:03:27
+Random Quote: Qhorin was my enemy.  But also my brother, once.  So... shall I thank you for killing him, Jon Snow?  Or curse you?  -  Mance Rayder
