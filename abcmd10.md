@@ -1,2 +1,3 @@
-Last updated: 2024-04-05 12:39:00
-Random Quote: In the end, a gentle heart may be worth more than pride or valor.  -  Doran Martell
+Last updated: 2024-04-05 12:40:19
+Random Quote: Sal: "Does Lily have any other plates? I don't let Sammy eat off this plastic."
+Pepper: "How does she breastfeed him if she doesn't let him near plastic?" - Pepper Saltzman
