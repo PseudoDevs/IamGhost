@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 19:07:48
-Random Quote: Well, if there is something wrong with him, it ain't constipation. - Meemaw
+Last updated: 2024-04-05 19:08:21
+Random Quote: Knights?  Dondarrion's a knight, but the rest of you are the sorriest lot of outlaws and broken men I've ever seen.  -  Sandor Clegane
