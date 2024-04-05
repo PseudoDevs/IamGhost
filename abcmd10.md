@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 09:00:02
-Random Quote: No matter how much we fight it we are connected by our blood. We can feel estranged from our families and not understand what they do. And still, in the end, we will do anything for them. - Adam
+Last updated: 2024-04-05 09:00:35
+Random Quote: You don't parley when you're on the back foot. We'll strike a blow back first. - Thomas Shelby
