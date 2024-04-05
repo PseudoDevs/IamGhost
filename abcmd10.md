@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 09:58:26
-Random Quote: Seriously? "Hello Kitty"? - Jesse Pinkman
+Last updated: 2024-04-05 09:58:59
+Random Quote: The longer Cersei waits, the angrier she'll become, and anger makes her stupid.  I much prefer angry and stupid to composed and cunning.  -  Tyrion Lannister
