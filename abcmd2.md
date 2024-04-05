@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 11:52:38
-Random Quote: Beware, Thor, for thy brother shall free himself from our father's wrath And then shall you know the vengeance of Loki! - Thor
+Last updated: 2024-04-05 11:53:11
+Random Quote: Power resides where men believe it resides... It's a trick, a shadow on the wall.  -  Varys
