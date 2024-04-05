@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 10:52:35
-Random Quote: Marshall: "Excuse me, miss. When you get a chance, could you bring over a hundred shots of tequila please?"Barney: "I'll have the same." - Marshall Eriksen
+Last updated: 2024-04-05 10:53:08
+Random Quote: What is dead may never die, but rises again, harder and stronger  -  Words of the Drowned God
