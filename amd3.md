@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 18:45:13
-Random Quote: I've had shits that I've liked better than Walder Frey.  -  Brynden Tully
+Last updated: 2024-04-05 18:46:20
+Random Quote: Dad, you can be in all of the fights that you want, but don't get hurt too bad. - Seong Gi-hun
