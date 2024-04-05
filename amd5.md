@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 17:07:51
-Random Quote: Never forget what you are, for surely the world will not.  Make it your strength.  Then it can never be your weakness.  Armor yourself in it, and it will never be used to hurt you.  -  Tyrion Lannister
+Last updated: 2024-04-05 17:08:24
+Random Quote: If somehow the Lord gave me a second chance at that moment... I would do it all over again. - Joel Miller
