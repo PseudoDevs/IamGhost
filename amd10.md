@@ -1,3 +1,5 @@
-Last updated: 2024-04-05 17:08:57
-Random Quote: Joel: "You got any advice on the best way west?"
-Man: "Yeah. Go east." - Ellie Williams
+Last updated: 2024-04-05 17:09:31
+Random Quote: Morty: "I'm dying, Rick!"
+Rick: "People who are really dying don't keep bringing it up."
+Morty: "Is that true?"
+Rick: "I don't know. I'm just usually around people that die faster." - Rick Sanchez
