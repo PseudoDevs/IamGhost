@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 11:49:51
-Random Quote: What we know is a drop. What we don’t know is an ocean - 
+Last updated: 2024-04-05 11:50:24
+Random Quote: I don't care if you're so scared you foul your breeches, and I don't care if a thousand wildlings are coming over the walls howling for your blood, you get those birds off, or I swear I'll hunt you through all seven hells and make you damn sorry that you didn't.  -  Jeor Mormont
