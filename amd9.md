@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 20:10:20
-Random Quote: There are only two reasons to date a girl you've already dated: breast implants. - Barney Stinson
+Last updated: 2024-04-05 20:10:53
+Random Quote: Dismissing Selmy, where was the sense in that?  Yes, the man was old, but the name of Barristan the Bold still has meaning in the realm.  He lent honor to any man he served.  -  Tywin Lannister
