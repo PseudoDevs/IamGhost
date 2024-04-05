@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 10:29:49
-Random Quote: What did the mermaid wear to her math class? An algae bra! - Will Livingston
+Last updated: 2024-04-05 10:30:23
+Random Quote: The wolf will prove the boy is who we say he is, should the Dreadfort attempt to deny him.  That is my price, Lord Davos.  Smuggle me back my liege lord, and I will take Stannis Baratheon as my king.  -  Wyman Manderly
