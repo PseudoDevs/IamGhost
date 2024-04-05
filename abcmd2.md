@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 09:20:28
-Random Quote: I have served six kings, but here before us lies the greatest man I ever knew.  Lord Tywin wore no crown, yet he was all a king should be.  -  Grand Maester Pycelle
+Last updated: 2024-04-05 09:21:01
+Random Quote: No man has ever died from bending his knee.  He who kneels may rise again, blade in hand.  He who will not kneel stays dead, stiff legs and all.  -  Balon Greyjoy
