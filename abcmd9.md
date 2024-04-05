@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 15:30:42
-Random Quote: Robin, I'm his best friend, that's a commitment. Girlfriend, that's like a bad flu. Out of your system after a couple of weeks in bed. - Barney Stinson
+Last updated: 2024-04-05 15:31:15
+Random Quote: The septons preach about the seven hells.  What do they know?  Only a man who's been burned knows what hell is truly like.  -  Sandor Clegane
