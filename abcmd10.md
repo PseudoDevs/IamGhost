@@ -1,2 +1,3 @@
-Last updated: 2024-04-05 10:25:58
-Random Quote: Love's not always wise, I've learned.  It can lead us to great folly, but we follow our hearts... wherever they take us.  -  Robb Stark
+Last updated: 2024-04-05 10:26:31
+Random Quote: George: "I love what you done with the place. Did you do it yourself, or did you get some pouf to help ya?"
+Rebecca: "I could ask the same of your hair." - Rebecca Welton
