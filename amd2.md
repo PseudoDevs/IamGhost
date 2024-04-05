@@ -1,2 +1,3 @@
-Last updated: 2024-04-05 17:40:26
-Random Quote: I wish you could live to see the world we make. - Arthur Harrow
+Last updated: 2024-04-05 17:40:59
+Random Quote: Lily: "Swear on the lifes of your unborn boy and girl!"
+Ted: "I swear... on Luke and Leia!" - Ted Mosby
