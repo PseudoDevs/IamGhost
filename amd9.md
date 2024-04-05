@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 16:28:56
-Random Quote: Freeways have exits, so do relationships. The first exit, my personal favourite, is six hours in: You meet, you talk, you have sex, you exit when she's in the shower. - Barney Stinson
+Last updated: 2024-04-05 16:29:29
+Random Quote: Summer: "It is a hot photo. I think grief flushes her cheeks. Dad, you hardly put any sirup on."Beth: "Honey, stop raising your father's colesterol so you can take a hot funeral selfie."Summer: "I never get to do anything." - Summer Smith
