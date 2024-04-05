@@ -1,3 +1,2 @@
-Last updated: 2024-04-05 15:01:20
-Random Quote: I hired a decorator and I asked him: "What would the inside of Tinkerbell's vagina look like?"
-And the kid just ran with it! - Quinn Garvey
+Last updated: 2024-04-05 15:01:53
+Random Quote: Ted: "Why wouldn't she just come right out and say what she wants?"Marshall: "Men. It's like, if there weren't pickle jars to open and spiders to kill and computers to back up, what would be their point?"Lily: "Mmh-hmm!"Ted: "Okay, when did Marshall become a slightly more feminine you?" - Ted Mosby
