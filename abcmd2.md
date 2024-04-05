@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 06:57:13
-Random Quote: Eventually, Nick's groin will heal and you'll be back in Sexville, where all the crossword puzzles only have one box to fill. - Lily Aldrin
+Last updated: 2024-04-05 06:57:47
+Random Quote: Think of me as Yoda - only, instead of being little and green, I wear suits and I'm awesome. I'm your bro. I'm Broda. - Barney Stinson
