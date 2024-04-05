@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 17:00:57
-Random Quote: Ted: "Where does this girl live?"Robin: "We're talking about a woman who's gotten Barney to commit. I'm guessing Narnia." - Robin Scherbatsky
+Last updated: 2024-04-05 17:01:31
+Random Quote: Aunties are older Indian women who have no blood-relation to you. But are allowed to have opinions about your life and all your shortcomings. And you have to be nice to them because you're Indian. - John McEnroe
