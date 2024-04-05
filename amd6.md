@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 18:27:56
-Random Quote: Robert could piss in a cup and men would call it wine, but I offer them cold clear water and they squint in suspicion and mutter to each other about how queer it tastes.  -  Stannis Baratheon
+Last updated: 2024-04-05 18:28:29
+Random Quote: Let's hit a motel, jam in a quickie and get you back to your wedding. - Ted Mosby
