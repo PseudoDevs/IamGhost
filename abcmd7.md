@@ -1,3 +1,2 @@
-Last updated: 2024-04-05 20:17:44
-Random Quote: Morticia: "That boy's family was going to file attempted murder charges. How would that have looked on your record?"
-Wednesday: "Terrible. Everyone would know I failed to get the job done." - Wednesday Addams
+Last updated: 2024-04-05 20:18:17
+Random Quote: Since when did "hopeful" and "naive" become the same thing? I mean, why would you get into this business if not to save the world? That’s all I have ever wanted. - Starlight
