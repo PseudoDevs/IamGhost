@@ -1,3 +1,2 @@
-Last updated: 2024-04-05 11:31:34
-Random Quote: Alex: "What's Jagermeister?"
-Phil: "Well, you know how in a fairytale there's always a potion that makes the princess fall asleep and then the guys start kissing her? Well, this is like that, except you don't wake up in a castle, you wake up in a frat house with a bad reputation." - Phil Dunphy
+Last updated: 2024-04-05 11:32:07
+Random Quote: When I rode home the next morning, the city looked the same. The people looked the same. It all looked the same. But it wasn't. In just one night, everything had changed. - Ted Mosby
