@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 09:41:24
-Random Quote: Animal instinct. When faced with danger, seek refuge in the herd. - Seong Gi-hun
+Last updated: 2024-04-05 09:41:57
+Random Quote: Godless?  Why, Aeron, I am the godliest man ever to raise sail!  You serve one god, Damphair, but I have served ten thousand.  From Ib to Asshai, when men see my sails, they pray.  -  Euron Greyjoy
