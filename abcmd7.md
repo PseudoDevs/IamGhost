@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 13:17:11
-Random Quote: Make it easier for those whose vote you can count on. Make it harder for those you can't. That's how you rig an election without leaving a lick of evidence. - Walt Breslin
+Last updated: 2024-04-05 13:17:47
+Random Quote: I'm KFC baby - you don't mess with the Colonel's recipe! - Barney Stinson
