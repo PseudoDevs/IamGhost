@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 18:17:48
-Random Quote: There are worse ways to die than warm and drunk.  I knew a brother drowned himself in wine once.  It was a poor vintage, though, and his corpse did not improve it.  -  Dolorous Edd Tollett
+Last updated: 2024-04-05 18:18:54
+Random Quote: I wouldn't lie to you. Well... that's a lie. - Rick Sanchez
