@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 16:55:40
-Random Quote: Even if I meet the girl of my dreams right the second, I'm still one night and nine months away, from having a family on my own. And that's assuming the mother of my childern is just a huge slut. - Ted Mosby
+Last updated: 2024-04-05 16:56:13
+Random Quote: I never wanted the throne, I only ever wanted to be your equal. - Thor
