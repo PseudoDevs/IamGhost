@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 20:22:42
-Random Quote: Now don't be a p-ssy, laser my f-cking t-ts! - Stormfront
+Last updated: 2024-04-05 20:23:16
+Random Quote: You don't bring a date to a wedding, that's like taking a deer carcass on a hunting trip. - Barney Stinson
