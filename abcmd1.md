@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 15:32:16
-Random Quote: Ted: "Oh, screw 'The One'!"Barney: "What?"Ted: "Every date I've been on lately has been brutal. Last week, I went out with a girl whose favorite band was Glee. Plus, it's almost Valentine's Day and I'm alone without anything close to a girlfriend. So... all aboard!"Barney: "I have never been more proud of you." - Barney Stinson
+Last updated: 2024-04-05 15:32:49
+Random Quote: Jaime, sweetling, I have known you since you were a babe at Joanna's breast.  You smile like Gerion and fight like Tyg and there's some of Keven in you, else you would not wear that cloak... but Tyrion is Tywin's son, not you.  I said that once to your father's face, and he would not speak to me for half a year.  -  Genna Lannister
