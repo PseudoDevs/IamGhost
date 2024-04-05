@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 20:05:54
-Random Quote: Ted: "The road to this day has had a few twists and turns, hasn't it?"Marshall: "Yeah... just a few. In a weird way, it all makes sense though, doesn't it?" - Marshall Eriksen
+Last updated: 2024-04-05 20:06:27
+Random Quote: Brandon Stark was never shy about taking what he wanted.  I am old now, a dried - up thing, too long a widow, but I still remember the look of my maiden's blood on his cock the night he claimed me.  I think Brandon liked the sight as well.  A bloody sword is a beautiful thing, yes.  It hurt, but it was a sweet pain. 
