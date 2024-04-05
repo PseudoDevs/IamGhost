@@ -1,3 +1,2 @@
-Last updated: 2024-04-05 11:42:39
-Random Quote: "How do you take your tea?"
-Ted: "Well, normally right back to the counter because there's been a terrible mistake." - Jim Hopper
+Last updated: 2024-04-05 11:43:12
+Random Quote: You've been a hell of a wingman. And even though I think it's kind of gross when you pleasure yourself orally, don't ever think that means I'm not impressed. - Barney Stinson
