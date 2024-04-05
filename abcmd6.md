@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 14:33:28
-Random Quote: Marshall: "Dude, if we fail this econ final, for the rest of our lives we're not gonna be able to... we won't know how to... do you even know what 'econ' is?"Ted: "No idea. We're screwed." - Ted Mosby
+Last updated: 2024-04-05 14:34:03
+Random Quote: A guy opens his door and gets shot and you think that of me? No. I am the one who knocks! - Walter White
