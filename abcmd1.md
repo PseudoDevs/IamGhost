@@ -1,2 +1,3 @@
-Last updated: 2024-04-05 15:38:22
-Random Quote: Good and evil are a question of perspective - Mikkel
+Last updated: 2024-04-05 15:38:56
+Random Quote: Alien: "I was just reading you."
+Rick: "Congratulations on making it into print media. Real bright future there." - Rick Sanchez
