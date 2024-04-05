@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 16:01:14
-Random Quote: What a man wants does not define him. What a man needs is what defines him. - Juan Nepomuceno Guerra
+Last updated: 2024-04-05 16:01:47
+Random Quote: Ted: "Want to know what I looked like at age 15? There it is."Robin: "I don't get it, that guy wasn't masturbating."Barney: "Yeah, and the waistband of his undies wasn't pulled up to his Cub Scouts neckerchief." - Robin Scherbatsky

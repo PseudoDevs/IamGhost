@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 16:01:14
-Random Quote: There's chaos in you. Embrace the chaos! - Arthur Harrow
+Last updated: 2024-04-05 16:01:47
+Random Quote: The brain drives our thoughts, our behavior. It holds all of the secrets of the universe. There's a whole hidden world inside each of us which only needs to be deciphered. - Maura Franklin
