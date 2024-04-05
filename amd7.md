@@ -1,2 +1,4 @@
-Last updated: 2024-04-05 16:42:24
-Random Quote: You look like an Indian Kardashian. - Fabiola Torres
+Last updated: 2024-04-05 16:42:57
+Random Quote: Oh Il-nam: "As a kid, I'm willing to bet you got spanked a lot."
+Seong Gi-hun: "How did you know?"
+Oh Il-nam: "My son did too. He was just like you, friend." - Oh Il-nam
