@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 19:38:47
-Random Quote: The only way Ralph would remember our anniversary is if there was a beer named "June 2nd". - Agatha Harkness
+Last updated: 2024-04-05 19:39:21
+Random Quote: I understand that if any more words come pouring out of your cunt mouth I'm going to have to eat every fucking chicken in this room.  -  Sandor Clegane
