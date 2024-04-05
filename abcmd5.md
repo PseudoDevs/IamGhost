@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 15:07:58
-Random Quote: There is a time to fight and there is a time to be clever. - Pablo Escobar
+Last updated: 2024-04-05 15:08:31
+Random Quote: I will not be remembered as Set Arys the Unworthy.  I will not soil my cloak.  -  Arys Oakheart
