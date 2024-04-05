@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 12:38:21
-Random Quote: It's only once you've stopped, that you realize how hard it is to start again. So you force yourself not to want it. - Ted Mosby
+Last updated: 2024-04-05 12:38:56
+Random Quote: Serve, Obey, Protect.  Simple vows for a simple man.  -  Areo Hotah
