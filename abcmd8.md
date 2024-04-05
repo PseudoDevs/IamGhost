@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 16:18:23
-Random Quote: War. Such a fascinating concept. A temporary salve for a permanent human flaw. - The Handler
+Last updated: 2024-04-05 16:20:02
+Random Quote: Be careful who you put your faith in. The only people who can betray us, are the ones we trust. - Maria Miller
