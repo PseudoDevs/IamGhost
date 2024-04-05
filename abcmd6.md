@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 12:30:04
-Random Quote: Young or old, a true knight is sworn to protect those who are weaker than himself, or die in the attempt.  -  Brienne of Tarth
+Last updated: 2024-04-05 12:30:38
+Random Quote: There is no stronger bond than that of the family you choose. - Miguel Angel Felix Gallardo
