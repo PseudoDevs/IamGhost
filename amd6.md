@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 16:18:56
-Random Quote: You and I are opposites but also just the same. Like an image in a mirror. We hate people and they in turn hate us. And fear us. - Chester Campbell
+Last updated: 2024-04-05 16:19:29
+Random Quote: So how do you take down a crook who's at the top of his game? Who has every cop in town in his pocket? Well, you hold your breath and you hope you get lucky. - Walt Breslin
