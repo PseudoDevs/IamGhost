@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 13:47:48
-Random Quote: This sacred text was eventually brought to the New World in 1776 by none other than Christopher Brolumbus. And that's why he got to bang Pocahontas. - Barney Stinson
+Last updated: 2024-04-05 13:48:22
+Random Quote: My lady, I have seen how you look at my brother.  Loras is valiant and handsome, and we all love him dearly... but your Imp will make a better husband.  He is a bigger man than he seems, I think.  -  Garlan Tyrell
