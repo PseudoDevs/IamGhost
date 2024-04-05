@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 15:58:00
-Random Quote: You better go to your room before I give you a smack. Smacking is still an acceptable punishment in many minority cultures. - Nalini Vishwakumar
+Last updated: 2024-04-05 15:58:33
+Random Quote: If you don't push, I will shove that baby up your throat and pull it out of your mouth! - Dr. Sonya
