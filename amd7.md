@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 17:40:27
-Random Quote: Just 'cause you fall on your *ss doesn't mean you have to stay there. - Hughie Campbell
+Last updated: 2024-04-05 17:41:00
+Random Quote: They say the king loved to hunt.  The things we love destroy us every time, lad.  Remember that.  -  Jeor Mormont
