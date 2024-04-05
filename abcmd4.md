@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 10:00:05
-Random Quote: It's not just football. It's life. - Cal Jacobs
+Last updated: 2024-04-05 10:00:38
+Random Quote: Strip off their skins.  Lord Bolton, he used to say a naked man has few secrets, but a flayed man's got none.  -  Ramsay Bolton
