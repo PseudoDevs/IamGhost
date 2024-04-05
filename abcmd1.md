@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 10:40:53
-Random Quote: Place was overrun with rats when we moved in.  The spearwives killed the nasty buggers.  Now the place is overrun with spearwives.  There's days I want the rats back.  -  Dolorous Edd Tollett
+Last updated: 2024-04-05 10:41:26
+Random Quote: Believe me, I’ve had five divorces. Do you know what five divorces are? Five times I believed in love. - Berlin
