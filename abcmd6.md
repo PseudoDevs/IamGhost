@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 17:59:06
-Random Quote: Why have average when you can have extraordinary? - Madelyn Stillwell
+Last updated: 2024-04-05 17:59:39
+Random Quote: Your innocence may be as plain as the scar on your face, but it will not save you.  No more than your father will.  But I might.  Not as your judge.  As your champion.  -  Oberyn Martell
