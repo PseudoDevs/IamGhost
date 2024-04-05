@@ -1,3 +1,2 @@
-Last updated: 2024-04-05 13:23:21
-Random Quote: Gor Koresh: "This is no place for a child."
-Mando: "Wherever I go, he goes. I've been quested to bring him to his kind." - Din Djarin
+Last updated: 2024-04-05 13:23:57
+Random Quote: Kuiil: "They really don't like you for some reason."Mandalorian: "Well, I did disintegrate a few of them." - Din Djarin
