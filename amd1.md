@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 20:18:16
-Random Quote: Do you know what it is like to be sold, squire?  I do.  My brother sold me to Khal Drogo for the promise of a golden crown.  Well, Drogo crowned him in gold, though not as he had wished, and I... my sun - and
+Last updated: 2024-04-05 20:18:50
+Random Quote: You're my free pass... bitch! - Jesse Pinkman
