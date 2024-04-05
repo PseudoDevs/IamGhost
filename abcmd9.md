@@ -1,2 +1,3 @@
-Last updated: 2024-04-05 14:36:45
-Random Quote: The best pie you have ever tasted, my lords.  Wash it down with Arbor gold and savor every bite.  I know I shall.  -  Wyman Manderly
+Last updated: 2024-04-05 14:37:19
+Random Quote: This woman has a hold on my heart that I could not break if I wanted to, and there have been times that I wanted to.
+It has been overwhelming and humbling and even painful at times, but I could not stop loving her any more than I could stop breathing. - Barney Stinson
