@@ -1,3 +1,2 @@
-Last updated: 2024-04-05 07:32:43
-Random Quote: Morty: "What are they mad at you for, anyway?"
-Rick: "Well, we're talking about me. It could be anything." - Rick Sanchez
+Last updated: 2024-04-05 07:33:17
+Random Quote: Many good men have been bad kings, and some bad men have been good kings.  -  Maester Aemon
