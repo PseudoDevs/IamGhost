@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 15:10:10
-Random Quote: I watched Jane die. I was there. And I watched her die. - Walter White
+Last updated: 2024-04-05 15:10:43
+Random Quote: War. Such a fascinating concept. A temporary salve for a permanent human flaw. - The Handler

@@ -1,2 +1,3 @@
-Last updated: 2024-04-05 15:10:10
-Random Quote: In the game of thrones, even the humblest pieces have wills of their own.  Sometimes they refuse to make the moves you've planned for them.  Mark that well, Alayne.  It's a lesson that Cersei Lannister still has yet to learn.  -  Petyr Baelish
+Last updated: 2024-04-05 15:10:43
+Random Quote: Sam: "How do you know about Gandalf?"
+Bucky: "I read 'The Hobbit' in 1937, when it first came out." - Bucky Barnes
