@@ -1,7 +1,2 @@
-Last updated: 2024-04-05 09:51:22
-Random Quote: Bo-Katan: "You are a disgrace to your armor."
-Boba Fett: "This armor belonged to my father."
-Bo-Katan: "Don't you mean your donor?"
-Boba Fett: "Careful, princess."
-Bo-Katan: "You are a clone. I've heard your voice thousands of times."
-Boba Fett: "Mine might be the last one you hear." - Boba Fett
+Last updated: 2024-04-05 09:51:55
+Random Quote: Ted: "Trying to get them interested in architecture as a career."Barney: "Why? Are we running out of buildings?"Robin: "Are we running out of boring people?" - Robin Scherbatsky
