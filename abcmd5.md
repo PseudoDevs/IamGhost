@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 17:37:27
-Random Quote: The big bro in the sky had answered my prayers. Allmighty five! - Barney Stinson
+Last updated: 2024-04-05 17:38:00
+Random Quote: I have served six kings, but here before us lies the greatest man I ever knew.  Lord Tywin wore no crown, yet he was all a king should be.  -  Grand Maester Pycelle
