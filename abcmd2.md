@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 13:53:33
-Random Quote: The baby slide right out, huh? It's like a 'whoosh', like a waterslide. [Lily screaming] Slightly painful waterslide. - Dr. Sonya
+Last updated: 2024-04-05 13:54:08
+Random Quote: Barney: "I met a girl last night. So perky and full of life and not at all fake."Ted: "You're talking about her boobs, right?"Barney: "Si. And that wasn't Spanish, that was cup size. What up?!" - Barney Stinson
