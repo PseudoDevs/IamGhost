@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 19:52:06
-Random Quote: Tell the Crow's Eye he's afraid of kinslaying and he'll murder one of his own sons just to prove you wrong.  -  Asha Greyjoy
+Last updated: 2024-04-05 19:52:39
+Random Quote: Nuncle always had a fondness for freaks and fools.  My father used to fight with him about it.  Let the wizards call upon their gods.  The Damphair will call on ours, and drown them.  -  Asha Greyjoy
