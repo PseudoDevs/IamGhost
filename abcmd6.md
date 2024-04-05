@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 07:47:15
-Random Quote: Geniuses are always branded as crazy. - Pablo Escobar
+Last updated: 2024-04-05 07:47:49
+Random Quote: The men of Westeros are ever rushing.  What good is this, I ask you?  He who hurries through life hurries to his grave.  -  Salladhor Saan
