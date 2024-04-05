@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 19:17:59
-Random Quote: In short, the god mankind has prayed to for thousands of years the god that everything is bound with, this god exists as nothing other than time itself. - 
+Last updated: 2024-04-05 19:18:32
+Random Quote: In my head, it's like If I can conquer men, then I can conquer femininity. - Jules Vaughn
