@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 16:20:02
-Random Quote: I feel like love is super dark and no one ever talks about it. - Cassie Howard
+Last updated: 2024-04-05 16:20:35
+Random Quote: For the night is dark and full of terrors.  -  Words of R'hllor
