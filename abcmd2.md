@@ -1,2 +1,4 @@
-Last updated: 2024-04-05 14:09:39
-Random Quote: What you have to do is show these suckers what you’re capable of. Show them you’re not scared. - Nairobi
+Last updated: 2024-04-05 14:10:13
+Random Quote: Ted: "It's freezing out there. Where's your coat?"
+Robin: "Ted, I'm Canadian. I don't need a coat. This kind of weather is nothing for me."
+Marshall: "Yeah. This is like a spring day back in Minnesota." - Marshall Eriksen
