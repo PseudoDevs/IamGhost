@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 10:56:29
-Random Quote: Harry and Meghan, move over! This is what fairy tales are made of. They'd been together for two whole weeks, which for teenagers is basically a lifetime of monogamy. Although between us, it had been a surprisingly PG-13 two weeks. - John McEnroe
+Last updated: 2024-04-05 10:57:02
+Random Quote: Everyone wants something, Alayne.  And when you know what a man wants you know who he is, and how to move him.  -  Petyr Baelish
