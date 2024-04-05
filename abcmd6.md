@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 16:04:38
-Random Quote: Knowledge is power, power is status and status means popular. - Eric Effiong
+Last updated: 2024-04-05 16:05:11
+Random Quote: Marshall: "Lily dream-banged someone we know."Barney: "Okay, you caught me vermilion-handed. The truth is, I've spent the last five years trying to inception your wife."Marshall: "That movie only came out two years ago."Barney: "What movie?" - Barney Stinson
