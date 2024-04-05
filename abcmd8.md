@@ -1,3 +1,2 @@
-Last updated: 2024-04-05 20:23:55
-Random Quote: The Deep: "What do we do? We can't just kill everyone."
-Billy Butcher: "That's exactly what we're gonna do!" - Billy Butcher
+Last updated: 2024-04-05 20:24:43
+Random Quote: Out there, I don't stand a chance. I do in here. - Jang Deok-su
