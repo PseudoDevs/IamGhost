@@ -1,2 +1,3 @@
-Last updated: 2024-04-05 10:29:50
-Random Quote: It's easier when you're a kid anyway. You don't have anybody else relying on you. That's the hardest part. - Joel Miller
+Last updated: 2024-04-05 10:30:23
+Random Quote: Joel: "A deep breath in, slow breath out. You squeeze the trigger like you love it. Gentle, steady, nice and slow."
+Ellie: "You gonna shoot this thing or get it pregnant?" - Ellie Williams
