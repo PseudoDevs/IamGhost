@@ -1,2 +1,3 @@
-Last updated: 2024-04-05 07:48:14
-Random Quote: Larry Bloom: "Piper, you put a pee stick in my rinsing cup."Piper Chapman: "Well, you put your pee stick in my vagina. And that's why we're in this situation." - Piper Chapman
+Last updated: 2024-04-05 07:48:48
+Random Quote: Summer: "Someone out there is trying to kill us."
+Rick: "Someone's always trying to kill us." - Rick Sanchez
