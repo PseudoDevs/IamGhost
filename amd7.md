@@ -1,3 +1,2 @@
-Last updated: 2024-04-05 20:32:25
-Random Quote: Miguel: "Would you have really fed me to those hippos?"
-Pablo: "No. Hippos don't like Mexicans either." - Pablo Escobar
+Last updated: 2024-04-05 20:32:58
+Random Quote: The truth can free you, if you let it. - Hannah Baker
