@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 13:17:11
-Random Quote: Marshall: "I don't care if the dishes aren't done, okay? If you care, you do it."Lily: "Great, then I don't care if you have an orgasm. If you care, you do it." - Lily Aldrin
+Last updated: 2024-04-05 13:17:47
+Random Quote: You look like an Indian Kardashian. - Fabiola Torres
