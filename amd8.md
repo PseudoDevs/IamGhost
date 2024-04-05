@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 16:11:48
-Random Quote: In commemoration of Barney's induction into the "Hall of Game", this tie, worn on the seventh night of his perfect week, is hereby retired. - Lily Aldrin
+Last updated: 2024-04-05 16:12:21
+Random Quote: Because you're so broken you don't even trust yourself. And that's scary. - Nate Jacobs
