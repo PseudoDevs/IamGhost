@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 19:13:29
-Random Quote: All men are fools, if truth be told, but the ones in motley are more amusing than the ones with crowns.  -  Olenna Tyrell
+Last updated: 2024-04-05 19:14:02
+Random Quote: Now don't be a p-ssy, laser my f-cking t-ts! - Stormfront
