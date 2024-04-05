@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 07:30:45
-Random Quote: Client: "Please lower your blaster."Mando: "Tell them to lower theirs first."Stormtrooper: "We have you four to one."Mando: "I like those odds." - Din Djarin
+Last updated: 2024-04-05 07:31:19
+Random Quote: Droids are not good or bad. They are neutral reflections of those who imprint them. - Kuiil
