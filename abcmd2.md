@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 18:59:01
-Random Quote: Men call me Darkstar, and I am of the night.  -  Gerold Dayne
+Last updated: 2024-04-05 18:59:35
+Random Quote: By "entertainment" they mean "table-shuffle-board", Makramee classes and other non-stimulating activities which are only used in Manhatten to calm down drug-addicts and the criminaly insane. - Robin Scherbatsky
