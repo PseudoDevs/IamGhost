@@ -1,4 +1,2 @@
-Last updated: 2024-04-05 18:10:53
-Random Quote: Ted: "Okay, time to get the horn back to the bistro."
-Robin: "Oh Ted, I don't know if I can go again, that tuckered me out."
-Ted: "No euphemism." - Robin Scherbatsky
+Last updated: 2024-04-05 18:11:26
+Random Quote: Do it. If you ever want to see these boobs again, crawl, you son of a me. - Lily Aldrin
