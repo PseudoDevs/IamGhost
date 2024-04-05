@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 15:28:24
-Random Quote: Birds are lost, messages stolen or sold... there are things I might tell you of that eunuch that would chill your blood...  -  Grand Maester Pycelle
+Last updated: 2024-04-05 15:28:57
+Random Quote: Look at this setup! What, you two drive around like Mister Softee, and scooping out drugs for all the good boys and girls? - Saul Goodman
