@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 14:18:46
-Random Quote: There is a savage beast in every man, and it stirs when you put a sword in his hand.  -  Jorah Mormont
+Last updated: 2024-04-05 14:19:21
+Random Quote: I hide in plain sight, same as you. - Gustavo Fring
