@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 11:04:51
-Random Quote: I guess, if we're splitting hairs, then technically... there was a plurality to the times I've lied to women for sex-having-purposes. - Barney Stinson
+Last updated: 2024-04-05 11:05:25
+Random Quote: When I'm king in my own right, I'm going to outlaw beets.  -  Tommen Baratheon
