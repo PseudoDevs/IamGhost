@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 17:45:59
-Random Quote: Nick: "So, I went to this fortune teller today and she said there was a curse on me."Robin: "Did she sell you something to ward off the curse?"Nick: "It's like you're a fortune teller, too." - Nick
+Last updated: 2024-04-05 17:47:05
+Random Quote: I wouldn't lie to you. Well... that's a lie. - Rick Sanchez
