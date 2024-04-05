@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 19:25:57
-Random Quote: Every hookup at a weekend wedding is decided at Friday Night Drinks. Get stuck with the wrong girl tonight, the only action you'll be getting all weekend is a self five and I don't mean the cool kind. Self-five! That's the cool kind. - Barney Stinson
+Last updated: 2024-04-05 19:27:06
+Random Quote: Ted: "You name a chubby white kid LeBron and he's the one getting stuffed in the basketball hoop."Marshall: "Then I'm also crossing off Shaquille, Hakeem and Dikembe." - Ted Mosby
