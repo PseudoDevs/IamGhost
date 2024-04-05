@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 20:16:24
-Random Quote: This is the one that you saved? You are as its father. A clan of two. But you have removed your helmet. Then you are a Mandalorian no more. - The Armorer
+Last updated: 2024-04-05 20:16:57
+Random Quote: The Burned Men fear nothing.  Timett, son of Timett will ride with the lions.  -  Timett, son of Timett
