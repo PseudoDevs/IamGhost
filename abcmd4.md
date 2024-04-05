@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 08:57:18
-Random Quote: This story is about to take a dark turn. Usually, I love dark turns. Like when the carousel brakes myteriously failed at my eighth birthdays party. - Wednesday Addams
+Last updated: 2024-04-05 08:57:51
+Random Quote: Barney: "You have no reason to be nervous. And I'm going to tell you why in one word."Ted: "And what's that word?"Barney: "Dibs!" - Barney Stinson
