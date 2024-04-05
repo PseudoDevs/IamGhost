@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 16:31:42
-Random Quote: Dude, ditch Tiffany and join the Barnacle in the Pharma-Girl-Free-For-All. Side effects may include: loss of clothing, rug burns, shortness of breath and soar abdominals the next morning. What in the world is up! - Barney Stinson
+Last updated: 2024-04-05 16:32:15
+Random Quote: Never bring a knife to a sword fight. Unless it's concealed. - Wednesday Addams
