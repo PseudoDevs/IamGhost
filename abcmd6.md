@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 16:02:26
-Random Quote: It's not just football. It's life. - Cal Jacobs
+Last updated: 2024-04-05 16:02:58
+Random Quote: The Lord of Light cherishes the innocent.  There is no sacrifice more precious.  From his king's blood and his untainted fire, a dragon shall be born.  -  Melisandre
