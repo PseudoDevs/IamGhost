@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 12:10:57
-Random Quote: Larry Bloom: "Are we at least gonna talk about other options?"Piper Chapman: "You mean..."Larry Bloom: "It's not Voldemort, you can say it. Abortion." - Larry Bloom
+Last updated: 2024-04-05 12:11:30
+Random Quote: Many hands make light work. And many mouths make good gossip. - Agatha Harkness
