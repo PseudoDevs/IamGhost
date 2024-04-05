@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 18:09:36
-Random Quote: Robin: "Our boy's back in the game."Lily: "Thank God, it's been a hundred years since Mosby scored a dame."Marshall: "The last time he saw boobies was the screen-test scene in 'Fame'."Robin: "The last girl he dated, I think 'Righty' was her name." - Robin Scherbatsky
+Last updated: 2024-04-05 18:10:09
+Random Quote: Barney: "I am so sorry, Cornelius. You deserve a better end than this."Lily: "You got ketchup on a red tie, you can't even see it!" - Lily Aldrin
