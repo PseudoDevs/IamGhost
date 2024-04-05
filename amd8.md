@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 20:12:47
-Random Quote: I swear on my name. And the names of the Ancestors, that I shall walk the way of the Mand'alor and the words of the Creed shall be forever forged in my heart. - Din Djarin
+Last updated: 2024-04-05 20:13:21
+Random Quote: What we know is a drop. What we don’t know is an ocean - 
