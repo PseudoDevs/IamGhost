@@ -1,6 +1,2 @@
-Last updated: 2024-04-05 16:38:16
-Random Quote: Rick: "Just do a Die Hard!"
-Summer: "What does that mean?"
-Rick: "Sneak around! Use air vents! You've never seen Die Hard?"
-Summer: "I'm 17. No, I've never seen Die Hard."
-Rick: "Well, neither did the guy in Die Hard." - Rick Sanchez
+Last updated: 2024-04-05 16:38:49
+Random Quote: I did it for me. I liked it. I was good at it. And I was really... I was alive. - Walter White
