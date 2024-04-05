@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 19:08:58
-Random Quote: I asked him why he kept her close, if he thought her so grotesque.  He said that all his other knights wanted things of him, castles or honors or riches, but all that Brienne wanted was to die for him.  -  Loras Tyrell
+Last updated: 2024-04-05 19:09:31
+Random Quote: Space. Time. Reality. It's more than a linear path. It's a prism of endless possibility. - The Watcher
