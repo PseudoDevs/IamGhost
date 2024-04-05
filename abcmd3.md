@@ -1,2 +1,3 @@
-Last updated: 2024-04-05 11:56:33
-Random Quote: There are only two reasons to date a girl you've already dated: breast implants. - Barney Stinson
+Last updated: 2024-04-05 11:57:06
+Random Quote: Jessica: "I miss you."
+Morty: "You miss the old me. You miss someone that loved you so much, you never had to love him back." - Morty Smith
