@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 09:20:37
-Random Quote: My daughter has taken an axe for a lover.  I will not have my son bedeck himself like a whore.  It is as I feared.  The green lands have made you soft, and the Starks have made you theirs.  -  Balon Greyjoy
+Last updated: 2024-04-05 09:21:43
+Random Quote: Hey, want to come to my house and play telephone? I got the string, you got the cans. - Barney Stinson

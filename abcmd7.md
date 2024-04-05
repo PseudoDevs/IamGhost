@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 09:21:10
-Random Quote: I count no day as lived unless I have loved a woman, slain a foeman, and eaten a fine meal.  -  Daario Naharis
+Last updated: 2024-04-05 09:21:44
+Random Quote: The Red God has his due, sweet girl, and only death may pay for life.  This girl took three that were his.  This girl must give three in their places.  Speak the names, and a man will do the rest.  -  Jaqen H'ghar
