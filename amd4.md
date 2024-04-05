@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 17:20:05
-Random Quote: You and I are opposites but also just the same. Like an image in a mirror. We hate people and they in turn hate us. And fear us. - Chester Campbell
+Last updated: 2024-04-05 17:20:38
+Random Quote: Italy doesn't need something that is wrinkled, red and leaky, and smells like booze and narcotics. They've already got former Prime Minister Silvio Berlusconi. - Marshall Eriksen
