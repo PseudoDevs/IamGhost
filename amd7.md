@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 16:04:48
-Random Quote: The only way that entire car is worth 500 bucks, is if there's a $300 hook-r sitting in it. - Saul Goodman
+Last updated: 2024-04-05 16:05:21
+Random Quote: Did the boy charm you?  He has that gift.  He got it from his father, with the blood.  He knows he is a king's son, but chooses to forget that he is bastard - born. 
