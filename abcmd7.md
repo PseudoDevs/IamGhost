@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 12:44:33
-Random Quote: Pennsatucky: "It weren't my fault. I was just doing as the Spirit commanded."Pussey: "Fuck are you? Joan of Arc?"Pennsatucky: "No, I'm from Waynesboro, my name is Tiffany..." - Tiffany 'Pennsatucky' Doggett
+Last updated: 2024-04-05 12:45:07
+Random Quote: The good thing about relationships is that you finally forget how they started. - Tokyo
