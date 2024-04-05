@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 11:08:12
-Random Quote: People are oblivious to reality. They only see what they want to see, when all they have to do is shift their perspective to see the full scope of things. - Yuk Je
+Last updated: 2024-04-05 11:09:19
+Random Quote: Whatever happens next, it's not gonna go down the way you think it is. - Mike Ehrmantraut
