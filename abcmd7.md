@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 08:19:37
-Random Quote: My Lords!  Here is what I say to these two kings!  Renly Baratheon is nothing to me, nor Stannis neither.  Why should they rule over me and mine, from some flowery seat in Highgarden or Dorne?  What do they know of the Wall or the wolfswood or the barrows of the First Men?  Even their gods are wrong.  The Others take the Lannisters too, I've had a bellyful of them.  Why shouldn't we rule ourselves again?  It was the dragons we married, and the dragons are all dead!  There sits the only king I mean to bow my knee to, m'lords.  The King in the North!  -  Greatjon Umber
+Last updated: 2024-04-05 08:20:10
+Random Quote: Red: "Black girls hear about a chicken, of course this will happen."Piper: "Why, because all black people love chicken?"Red: "Don't be racist. Because they're all on heroin, and somebody's been telling them there's heroin in the chicken." - Galina 'Red' Reznikov
