@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 20:10:01
-Random Quote: When things go well, people start thinking it's because they're so fing smart. - Walt Breslin
+Last updated: 2024-04-05 20:10:34
+Random Quote: Always keep your foes confused.  If they are never certain who you are or what you want, they cannot know what you are like to do next.  Sometimes the best way to baffle them is to make moves that have no purpose, or even seem to work against you.  Remember that, Sansa, when you come to play the game.  -  Petyr Baelish
