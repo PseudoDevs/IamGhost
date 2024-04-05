@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 18:34:18
-Random Quote: Barney: "Canada sucks."Robin: "Okay, well, you're one-quarter Canadian, so by that logic you one-quarter suck!"Barney: "I'm 100% awesome and you know it!"Robin: "Yeah, I do." - Robin Scherbatsky
+Last updated: 2024-04-05 18:34:50
+Random Quote: Some of you cared. None of you cared enough. - Hannah Baker
