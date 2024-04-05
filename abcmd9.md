@@ -1,2 +1,3 @@
-Last updated: 2024-04-05 08:38:34
-Random Quote: Destined? Aren't you tired of waiting for destiny, Ted? Isn't it time to make your own destiny? - Robin Scherbatsky
+Last updated: 2024-04-05 08:39:07
+Random Quote: Robin: "I'm drinking 'til I forget the 1999 NFC Championship?"
+Marshall: "The Vikings were two minutes away from going to the Super Bowl, when our kicker, who hadn't missed all year, shanked a field goal, and we lost in overtime. Damn!" - Marshall Eriksen
