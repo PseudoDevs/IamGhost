@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 15:42:49
-Random Quote: I liked the way I dressed you, but I'm worried I f'ed with your gender expression. - Jules Vaughn
+Last updated: 2024-04-05 15:43:22
+Random Quote: Khaleesi, better a man should swallow scorpions than trust in the spawn of shadows, who dare not show their face beneath the sun.  It is known.  -  Rakharo
