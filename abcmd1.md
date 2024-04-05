@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 16:51:31
-Random Quote: Lord Varys, sometimes I feel as though you are the best friend I have in King's Landing and sometimes I feel you are my worst enemy.  -  Tyrion Lannister
+Last updated: 2024-04-05 16:52:05
+Random Quote: I'm just saying, love is a million things. - Maddy Perez
