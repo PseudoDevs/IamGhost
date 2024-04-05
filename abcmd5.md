@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 11:21:01
-Random Quote: Larry Bloom: "Are we at least gonna talk about other options?"Piper Chapman: "You mean..."Larry Bloom: "It's not Voldemort, you can say it. Abortion." - Larry Bloom
+Last updated: 2024-04-05 11:21:34
+Random Quote: New Mexico. It's another state. I mean, it's like California, just less traffic. - Lalo Salamanca
