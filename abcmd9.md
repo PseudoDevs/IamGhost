@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 19:47:31
-Random Quote: Marshall Eriksen, put a baby in my belly. - Lily Aldrin
+Last updated: 2024-04-05 19:48:04
+Random Quote: New York! Home of the Mets, the Chrysler Building, those ladies from Sex and the City and now, the zombie apocalypse. If you can make it here, you can make it anywhere - but first, you have to not get eaten. - Spider-Man
