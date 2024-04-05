@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 17:45:26
-Random Quote: I heard enough to know she saved your a-s. - Mike Ehrmantraut
+Last updated: 2024-04-05 17:45:59
+Random Quote: Nick: "So, I went to this fortune teller today and she said there was a curse on me."Robin: "Did she sell you something to ward off the curse?"Nick: "It's like you're a fortune teller, too." - Nick
