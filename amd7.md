@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 20:25:47
-Random Quote: Even if I meet the girl of my dreams right the second, I'm still one night and nine months away, from having a family on my own. And that's assuming the mother of my childern is just a huge slut. - Ted Mosby
+Last updated: 2024-04-05 20:26:21
+Random Quote: Best way to catch the smart ones? Get an idiot working for them. - Jaime Kuykendall
