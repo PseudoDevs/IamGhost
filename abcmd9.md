@@ -1,2 +1,3 @@
-Last updated: 2024-04-05 11:55:26
-Random Quote: Why stop at one world, when we can show you all of them? - Yondu Udonta
+Last updated: 2024-04-05 11:56:00
+Random Quote: Lily: "We don't wanna burden our little angel with all kinds of gender-specific expectations. Boys can do ballet, girls can play football."
+Marshall: "Hell, the Green Bay Packers have been proving that for years." - Marshall Eriksen
