@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 11:49:18
-Random Quote: The longer Cersei waits, the angrier she'll become, and anger makes her stupid.  I much prefer angry and stupid to composed and cunning.  -  Tyrion Lannister
+Last updated: 2024-04-05 11:51:31
+Random Quote: Once, she had loved Prince Joffrey with all her heart, and admired and trusted his mother, the queen.  They had repaid that love and trust with her father's head.  Sansa would never make that mistake again.  -  Sansa Stark
