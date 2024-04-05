@@ -1,4 +1,2 @@
-Last updated: 2024-04-05 14:02:17
-Random Quote: Rick: "Guests are fans, Morty, which we are not. We'd like professional badges."
-"Do you have a crew?"
-Rick: "Yes. He's a getaway driver with Asperger's and my butt is a demolitions expert." - Rick Sanchez
+Last updated: 2024-04-05 14:02:51
+Random Quote: Mike: "A friend is someone that you'd do anything for."Dustin: "You lend them your cool stuff, like comic books and trading cards."Mike: "And they never break a promise." - Mike Wheeler
