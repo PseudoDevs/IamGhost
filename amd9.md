@@ -1,4 +1,2 @@
-Last updated: 2024-04-05 19:10:07
-Random Quote: Oh Il-nam: "As a kid, I'm willing to bet you got spanked a lot."
-Seong Gi-hun: "How did you know?"
-Oh Il-nam: "My son did too. He was just like you, friend." - Oh Il-nam
+Last updated: 2024-04-05 19:10:41
+Random Quote: Just keep your nose out of my business and up the teacher's butt where it usually is. - Devi Vishwakumar
