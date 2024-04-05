@@ -1,2 +1,3 @@
-Last updated: 2024-04-05 18:56:49
-Random Quote: If you had to fall into a woman's arms, my son, why couldn't they have been Margaery Tyrell's?  -  Catelyn Stark
+Last updated: 2024-04-05 18:57:22
+Random Quote: Planetina: "Your acid rain is an acid pain... in the butt, Diesel Wiesel!"
+Rick: "Yikes! Who's the chick in need of a dialogue pass?" - Rick Sanchez
