@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 19:23:06
-Random Quote: So I will only ask you once, Lord Snow.  Are you a brother of the Night's Watch, or a bastard boy who wants to play at war?  -  Jeor Mormont
+Last updated: 2024-04-05 19:24:13
+Random Quote: If there was any shame in a dude getting a pedicure I don't think there would've been a feature about it in Details magazine. - Barney Stinson
