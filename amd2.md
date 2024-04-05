@@ -1,2 +1,3 @@
-Last updated: 2024-04-05 20:14:28
-Random Quote: What's a bigger feeling than love? - Elliot
+Last updated: 2024-04-05 20:15:01
+Random Quote: Wyatt Langmore: "This job's my old man's idea. Something about 'calluses and character'."
+Charlotte Byrde: "Yeah, well, you're blowing leaves, not hiding Anne Frank." - Charlotte Byrde
