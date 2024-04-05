@@ -1,2 +1,3 @@
-Last updated: 2024-04-05 20:32:43
-Random Quote: Lily: "Okay, stop! Every time he lands, that chair farts out ten-year-old Dorito dust."Marshall: "Yeah, it's the chair..." - Marshall Eriksen
+Last updated: 2024-04-05 20:33:16
+Random Quote: Lily: "We don't wanna burden our little angel with all kinds of gender-specific expectations. Boys can do ballet, girls can play football."
+Marshall: "Hell, the Green Bay Packers have been proving that for years." - Marshall Eriksen
