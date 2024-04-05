@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 11:28:14
-Random Quote: They may separate us, but they'll never be able to destroy us. - Pablo Escobar
+Last updated: 2024-04-05 11:28:47
+Random Quote: Robb Stark won the war on the battlefield and lost it in a bedchamber.  -  Jaime Lannister
