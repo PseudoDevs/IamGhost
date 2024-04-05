@@ -1,4 +1,3 @@
-Last updated: 2024-04-05 09:46:54
-Random Quote: It could be for a brother or maybe her sick dad.
-[reads] "And then I want you to do me on the couch."
-Okay, maybe not a sick dad. Or a very sick dad, am I right? - Robin Scherbatsky
+Last updated: 2024-04-05 09:47:27
+Random Quote: Robin: "I can't believe my great grandparents still do that."
+Barney: "And I never imagined a walker being used for anything other than walking." - Barney Stinson
