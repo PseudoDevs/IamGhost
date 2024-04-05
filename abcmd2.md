@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 10:14:55
-Random Quote: Barney: "You avoiding the family too?"James: "I'm gay, I'm black and I'm getting a divorce. Those walking skeletons are gonna have more questions for me than their pharmacists." - James Stinson
+Last updated: 2024-04-05 10:15:28
+Random Quote: There is a savage beast in every man, and it stirs when you put a sword in his hand.  -  Jorah Mormont
