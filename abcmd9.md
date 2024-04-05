@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 17:04:54
-Random Quote: Spare me your empty little compliments, girl... and your ser's.  I am no knight.  I spit on them and their vows.  My brother is a knight.  -  Sandor Clegane
+Last updated: 2024-04-05 17:05:28
+Random Quote: When I'm king in my own right, I'm going to outlaw beets.  -  Tommen Baratheon
