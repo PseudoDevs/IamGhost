@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 06:57:54
-Random Quote: In his chainmail shirt with a sword in his hand, Gendry looked almost a man grown, and dangerous.  Hot Pie looked like Hot Pie.  -  Arya Stark
+Last updated: 2024-04-05 06:58:28
+Random Quote: When something seems too perfect, it's usually anything but. - Allison Hargreeves
