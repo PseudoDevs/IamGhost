@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 20:00:02
-Random Quote: There's no such thing as a bad idea, Morty. It's about execution. - Rick Sanchez
+Last updated: 2024-04-05 20:00:35
+Random Quote: I can teach you history, healing, herblore.  I can teach you the speech of ravens, and how to build a castle, and the way a sailor steers his ship by the stars I can teach you to measure the days and marks the seasons, and at the Citadel in Oldtown they can teach you a thousand things more.  But, Bran, no man can teach you magic.  -  Maester Luwin
