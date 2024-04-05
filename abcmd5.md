@@ -1,4 +1,3 @@
-Last updated: 2024-04-05 12:14:17
-Random Quote: Ted: "It's freezing out there. Where's your coat?"
-Robin: "Ted, I'm Canadian. I don't need a coat. This kind of weather is nothing for me."
-Marshall: "Yeah. This is like a spring day back in Minnesota." - Marshall Eriksen
+Last updated: 2024-04-05 12:14:51
+Random Quote: Ravonna: "You really believe in this Loki variant?"
+Mobius: "Luckily, he believes in himself enough for the both of us." - Mobius M. Mobius
