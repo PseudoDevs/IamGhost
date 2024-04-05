@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 14:44:40
-Random Quote: We all wear masks. We all pretend. Presenting a perfect illusion on the outside, while we desperately try to hide who we are on the inside. - Ángel
+Last updated: 2024-04-05 14:45:14
+Random Quote: The world was full of cravens who pretended to be heroes; it took a queer sort of courage to admit to cowardice as Samwell Tarly had.  -  Jon Snow
