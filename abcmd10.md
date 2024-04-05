@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 07:11:44
-Random Quote: One does not speak unless one knows. - Din Djarin
+Last updated: 2024-04-05 07:12:18
+Random Quote: Robert wanted smiles and cheers, always, so he went where he found them, to his friends and his whores.  Robert wanted to be loved.  My brother Tyrion has the same disease.  -  Cersei Lannister
