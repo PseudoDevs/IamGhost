@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 11:41:32
-Random Quote: I was weaned on venom, Dalt.  Any viper takes a bite of me will rue it.  -  Gerold Dayne
+Last updated: 2024-04-05 11:42:05
+Random Quote: Weddings are basically funerals with cake. - Rick Sanchez
