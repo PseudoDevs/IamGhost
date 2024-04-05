@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 19:58:31
-Random Quote: 'Damn, you look like hell, Chief."Jim Hopper: "Oh yeah? Well, I looked better than your wife when I left her this morning." - Jim Hopper
+Last updated: 2024-04-05 19:59:04
+Random Quote: Marshall: "Yes, i want a ball-room and I want a band and I want shoes. I've been dreaming about this day since I was... like...Lily: "...a little girl?" - Lily Aldrin
