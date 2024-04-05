@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 07:37:11
-Random Quote: Ted: "My mother is not one-night-stand material!"Barney: "Yeah, you're right. It wasn't night and we weren't standing." - Barney Stinson
+Last updated: 2024-04-05 07:37:45
+Random Quote: Once, she had loved Prince Joffrey with all her heart, and admired and trusted his mother, the queen.  They had repaid that love and trust with her father's head.  Sansa would never make that mistake again.  -  Sansa Stark
