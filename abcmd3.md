@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 15:32:50
-Random Quote: They may separate us, but they'll never be able to destroy us. - Pablo Escobar
+Last updated: 2024-04-05 15:33:23
+Random Quote: There is only one god, and his name is Death.  And there is only one thing we say to Death: not today.  -  Syrio Forel
