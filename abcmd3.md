@@ -1,2 +1,3 @@
-Last updated: 2024-04-05 15:09:04
-Random Quote: Presumptuous... that's a good thing, right? - Dustin Henderson
+Last updated: 2024-04-05 15:09:37
+Random Quote: Jerry: "Well, traditionally, science faires are a father-son thing."
+Rick: "Well, scientifically, traditions are an idiot thing." - Rick Sanchez
