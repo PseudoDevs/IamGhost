@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 18:42:21
-Random Quote: So you do have a plan? Yeah, Mr. White! Yeah, science! - Jesse Pinkman
+Last updated: 2024-04-05 18:42:54
+Random Quote: Spare me your empty little compliments, girl... and your ser's.  I am no knight.  I spit on them and their vows.  My brother is a knight.  -  Sandor Clegane
