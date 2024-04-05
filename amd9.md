@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 20:19:43
-Random Quote: Marshall: "Open your eyes, ref! That's not a pregnant lady..."Ted: "...it's a basketball under his shirt. Blow the freakin' whistle!" - Ted Mosby
+Last updated: 2024-04-05 20:20:16
+Random Quote: The "no more surprises"-thing is the best part of being married. - Lily Aldrin
