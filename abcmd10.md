@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 14:42:23
-Random Quote: The less talk, the better. - Mike Ehrmantraut
+Last updated: 2024-04-05 14:42:57
+Random Quote: Good men and true will fight for Joffrey, wrongly believing him the true king.  A northman might even say the same of Robb Stark.  But these lords who flocked to my brother's banners knew him for an usurper.  They turned their backs on their rightful king for no better reason than dreams of power and glory, and I have marked them for what they are.  Pardoned them, yes.  Forgiven, but not forgotten.  -  Stannis Baratheon
