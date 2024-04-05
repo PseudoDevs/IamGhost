@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 08:50:09
-Random Quote: Khaleesi, better a man should swallow scorpions than trust in the spawn of shadows, who dare not show their face beneath the sun.  It is known.  -  Rakharo
+Last updated: 2024-04-05 08:50:42
+Random Quote: (Love is) pain, horrible pain, that you want again and again. - Sophia Burset
