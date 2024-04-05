@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 15:10:43
-Random Quote: Name one thing in this world that is non negotiable. - Walter White
+Last updated: 2024-04-05 15:11:17
+Random Quote: We're going to Buffalo... and I've seen women from there; the city's aptly named. - Barney Stinson
