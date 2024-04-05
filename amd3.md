@@ -1,2 +1,3 @@
-Last updated: 2024-04-05 16:36:53
-Random Quote: The world is full of such paradoxes we simply choose to ignore them most of the time. - 
+Last updated: 2024-04-05 16:37:26
+Random Quote: Robin: "I'm drinking 'til I forget the 1999 NFC Championship?"
+Marshall: "The Vikings were two minutes away from going to the Super Bowl, when our kicker, who hadn't missed all year, shanked a field goal, and we lost in overtime. Damn!" - Marshall Eriksen
