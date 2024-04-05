@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 16:45:10
-Random Quote: 14 seconds! And already some dingdong is stepping up, thinking he can get some of this broke off. - Robin Scherbatsky
+Last updated: 2024-04-05 16:45:43
+Random Quote: And there's this other band, led by this woman Stoneheart... Lord Beric's lover, according to one tale.  Supposedly she was hanged by the Freys, but Dondarrion kissed her and brought her back to life, and now she cannot die, no more than he.  -  Set Hyle Hunt

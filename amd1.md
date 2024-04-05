@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 16:45:10
-Random Quote: It's easier when you're a kid anyway. You don't have anybody else relying on you. That's the hardest part. - Joel Miller
+Last updated: 2024-04-05 16:45:43
+Random Quote: Pardon my French, f-ck those f-ckers! - Billy Butcher
