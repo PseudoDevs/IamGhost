@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 11:31:33
-Random Quote: Ted: "No, seriously Robin, you should get the slap. I mean, you're a great slapper. In fact, I want to study slapping under your tutelage. I want to be your slap-prentice."Robin: "Don't sell yourself short there, Teddy. You're a slapping rock star. Your name should be Eric Slapton." - Robin Scherbatsky
+Last updated: 2024-04-05 11:32:40
+Random Quote: There is only one god, and his name is Death.  And there is only one thing we say to Death: not today.  -  Syrio Forel
