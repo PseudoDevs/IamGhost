@@ -1,3 +1,2 @@
-Last updated: 2024-04-05 18:22:54
-Random Quote: Wanda: "I had a brother. His name was Pietro."
-Geraldine: "He was killed by Ultron, wasn't he?" - Monica "Geraldine" Rambeau
+Last updated: 2024-04-05 18:23:28
+Random Quote: Perhaps we can fly.  All of us.  How will we ever know unless we leap from some tall tower?  No man ever truly knows what he can do unless he dares to leap.  -  Euron Greyjoy
