@@ -1,3 +1,2 @@
-Last updated: 2024-04-05 12:49:08
-Random Quote: Morty: "I don't deserve this. I was just having fun."
-Rick: "So was Jeffrey Dahmer." - Rick Sanchez
+Last updated: 2024-04-05 12:49:42
+Random Quote: There's no shame in fear, my father told me, what matters is how we face it.  -  Jon Snow
