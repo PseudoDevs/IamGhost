@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 07:02:23
-Random Quote: You see, ladies? When you're out with a Blinder, you don't have to queue. - Arthur Shelby
+Last updated: 2024-04-05 07:03:30
+Random Quote: There is entirely too much tut - tutting in this realm, if you ask me.  All these kings would do a deal better if they put down their swords and listended to their mothers. 
