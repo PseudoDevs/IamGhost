@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 15:10:10
-Random Quote: Barney: "I only smoke in certain situations. Postcoital, when I'm with Germans, sometimes those two overlap, coital, birthdays, to annoy my mom, precoital, on a sailboat, the day the Mets are mathematically eliminated every year and pregnancy scares."Ted: "Why are you smoking right now?"Barney: "I'm always precoital, Ted." - Barney Stinson
+Last updated: 2024-04-05 15:10:43
+Random Quote: I can teach you history, healing, herblore.  I can teach you the speech of ravens, and how to build a castle, and the way a sailor steers his ship by the stars I can teach you to measure the days and marks the seasons, and at the Citadel in Oldtown they can teach you a thousand things more.  But, Bran, no man can teach you magic.  -  Maester Luwin
