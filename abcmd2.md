@@ -1,2 +1,3 @@
-Last updated: 2024-04-05 16:52:11
-Random Quote: If I now change my past, I will change who I am right now - The Stranger
+Last updated: 2024-04-05 16:52:44
+Random Quote: Tommy: "I'll have some men watch her house 'til the danger passes."
+Polly: "'Til the danger passes. That'll be the bloody day." - Polly Gray
