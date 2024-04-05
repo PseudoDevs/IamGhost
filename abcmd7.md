@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 17:07:40
-Random Quote: Dinner's a very intimate activity. It requires a level of connection and eye contact, that sex just doesn't. Call me old-fashioned, but I need to have sex with a girl at least three times before I'll even consider having dinner with her. - Barney Stinson
+Last updated: 2024-04-05 17:08:13
+Random Quote: Make it easier for those whose vote you can count on. Make it harder for those you can't. That's how you rig an election without leaving a lick of evidence. - Walt Breslin
