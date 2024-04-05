@@ -1,4 +1,2 @@
-Last updated: 2024-04-05 16:06:18
-Random Quote: It could be for a brother or maybe her sick dad.
-[reads] "And then I want you to do me on the couch."
-Okay, maybe not a sick dad. Or a very sick dad, am I right? - Robin Scherbatsky
+Last updated: 2024-04-05 16:06:51
+Random Quote: We all face the same end. Those above have long forgotten us. They do not judge us. In death, I am all alone, and my only judge… is me. - Martha
