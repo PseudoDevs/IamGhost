@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 15:30:04
-Random Quote: When I have kids, and I tell them how I met their mother, I'm gonna tell them everything. The whole damn story. - Ted Mosby
+Last updated: 2024-04-05 15:30:37
+Random Quote: My father never bellowed like the Greatjon, but he was no less dangerous in his wroth.  -  Alys Karstark
