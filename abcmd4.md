@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 18:49:30
-Random Quote: Do you think I can't tell Lord Stannis from Lord Tywin?  They're both bungholes who think they're too noble to shit, but never mind about that, I know the difference.  -  Walder Frey
+Last updated: 2024-04-05 18:50:03
+Random Quote: The good thing about relationships is that you finally forget how they started. - Tokyo
