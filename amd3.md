@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 18:41:18
-Random Quote: Robin: "I just finished a seven-day cleanse."Marshall: "I thought you just started that yesterday."Robin: "I finished early, okay?" - Robin Scherbatsky
+Last updated: 2024-04-05 18:42:25
+Random Quote: Death, he knew, but slow.  I still have time.  A year.  Two years.  Five.  Some stone men live for ten.  Time enough to cross the sea, to see Griffin's Roost again.  To end the Usurper's line for good and all, and put Rhaegar's son upon the Iron Throne.  Then Lord Jon Connington could die content.  -  Jon Connington
