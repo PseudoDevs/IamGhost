@@ -1,2 +1,5 @@
-Last updated: 2024-04-05 17:34:44
-Random Quote: So you do have a plan? Yeah, Mr. White! Yeah, science! - Jesse Pinkman
+Last updated: 2024-04-05 17:35:17
+Random Quote: Bo-Katan: "I haven't seen battle droids since the Clone Wars."
+Din: "I have."
+Bo-Katan: "Any of 'em look suspicious?"
+Din: "They all look suspicious." - Din Djarin
