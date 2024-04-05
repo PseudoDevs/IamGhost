@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 16:00:46
-Random Quote: His blood ran black.  Made him my brother as much as yours.  -  Yoren of the Night's Watch
+Last updated: 2024-04-05 16:01:20
+Random Quote: Someone has to protect this family from the man who protects this family. - Skyler White
