@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 11:03:11
-Random Quote: You want to rule?  This is what ruling is; lying on a bed of weeds, ripping them out by the root, one by one, before they strangle you in your sleep.  -  Cersei Lannister
+Last updated: 2024-04-05 11:03:44
+Random Quote: I think I literally have a better understanding of who killed Kennedy than what is offside. - Rebecca Welton
