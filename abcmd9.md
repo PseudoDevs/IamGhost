@@ -1,2 +1,4 @@
-Last updated: 2024-04-05 14:31:04
-Random Quote: The name is Thor, with a "T" and an "R" and an "O" and a "H". But not in that order. - Thor
+Last updated: 2024-04-05 14:31:39
+Random Quote: Joel: "Long way or short way?"
+Tess: "I mean, it's the long way or the 'we're fuckin' dead' way."
+Ellie: "Well, I vote long way just based on that limited information." - Ellie Williams
