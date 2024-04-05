@@ -1,4 +1,2 @@
-Last updated: 2024-04-05 08:24:23
-Random Quote: Tony Stark: "Lieutenant Killmonger? What is that? German?"
-Killmonger: "A nickname."
-Tony Stark: "That's clearly a good fit." - Killmonger
+Last updated: 2024-04-05 08:24:55
+Random Quote: That was the night I was born. I rose like a phoenix from her mentholated bosom and strode into the world, Armani-clad and fully awesome. - Barney Stinson
