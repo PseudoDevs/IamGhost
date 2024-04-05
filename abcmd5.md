@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 17:20:19
-Random Quote: Why stop at one world, when we can show you all of them? - Yondu Udonta
+Last updated: 2024-04-05 17:20:52
+Random Quote: I never asked for this crown.  Gold is cold and heavy on the head, but so long as I am the king, I have a duty... if I must sacrifice one child to the flames to save a million from the dark... sacrifice... is never easy, Davos.  Or it is no true sacrifice.  -  Stannis Baratheon
