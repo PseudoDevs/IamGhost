@@ -1,4 +1,2 @@
-Last updated: 2024-04-05 19:46:35
-Random Quote: Ted: "Okay, time to get the horn back to the bistro."
-Robin: "Oh Ted, I don't know if I can go again, that tuckered me out."
-Ted: "No euphemism." - Robin Scherbatsky
+Last updated: 2024-04-05 19:47:08
+Random Quote: Dance, until your feet hurt. Sing, until your lungs hurt. Act, until you're William Hurt. - Phil Dunphy
