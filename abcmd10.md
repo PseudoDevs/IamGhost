@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 14:43:30
-Random Quote: Why didn't you say this to me when I was alive? - Hannah Baker
+Last updated: 2024-04-05 14:44:04
+Random Quote: Give me back my spear, Uncle.  Cersei sent us a head.  We should send her back a bag of them.  -  Obara Sand
