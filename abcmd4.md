@@ -1,3 +1,2 @@
-Last updated: 2024-04-05 14:16:39
-Random Quote: Morty: "You're really this pissed about my mum making sure I'm okay with our adventures?"
-Rick: "What's next, Morty? What if I want you to jump off the Empire State Building? I have to ask?" - Rick Sanchez
+Last updated: 2024-04-05 14:17:49
+Random Quote: By "entertainment" they mean "table-shuffle-board", Makramee classes and other non-stimulating activities which are only used in Manhatten to calm down drug-addicts and the criminaly insane. - Robin Scherbatsky
