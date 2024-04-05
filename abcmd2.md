@@ -1,3 +1,2 @@
-Last updated: 2024-04-05 10:00:04
-Random Quote: Grace Burgess: "You think I am a wh-re?"
-Tommy Shelby: "Everyone's a wh-re, Grace. We just sell different parts of ourselves." - Thomas Shelby
+Last updated: 2024-04-05 10:00:37
+Random Quote: Time is crucial in a kidnapping. The sooner action's taken, the better your chances of things working out, and everybody coming home in one piece. They put that in the handbook nowadays. - Walt Breslin
