@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 15:20:05
-Random Quote: They are children, Sansa thought.  They are silly little girls, even Elinor.  They've never seen a battle, they've never seen a man die, they know nothing.  Their dreams were full of songs and stories, the way hers had been before Joffrey cut her father's head off.  Sansa pitied them.  Sansa envied them.  -  Sansa Stark
+Last updated: 2024-04-05 15:20:38
+Random Quote: Or I look single, 34 and single, which must mean there's something wrong with me. Like, you keep large reptiles in tanks, or I have a very special relationship with my mother. - Larry Bloom
