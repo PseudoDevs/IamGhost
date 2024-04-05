@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 16:57:22
-Random Quote: Tell the Crow's Eye he's afraid of kinslaying and he'll murder one of his own sons just to prove you wrong.  -  Asha Greyjoy
+Last updated: 2024-04-05 16:57:56
+Random Quote: Whisky's good proofing water. Tells you who's real and who isn't. - Thomas Shelby
