@@ -1,3 +1,2 @@
-Last updated: 2024-04-05 08:59:30
-Random Quote: Ellie: "Everybody I've cared for, either died or left me."
-Joel: "You have no idea what loss is." - Joel Miller
+Last updated: 2024-04-05 09:00:03
+Random Quote: There are dreamers and there are realists in this world. You'd think the dreamers would find the dreamers and the realists would find the realists, but more often than not the opposite is true. You see, the dreamers need the realists to keep them from soaring too close to the sun. And the realists, well without the dreamers, they might not ever get off the ground. - Cameron Tucker
