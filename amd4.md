@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 15:50:31
-Random Quote: I think the word you're looking for is 'audacious'. - Kim Wexler
+Last updated: 2024-04-05 15:51:04
+Random Quote: My lady, I have seen how you look at my brother.  Loras is valiant and handsome, and we all love him dearly... but your Imp will make a better husband.  He is a bigger man than he seems, I think.  -  Garlan Tyrell
