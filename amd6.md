@@ -1,2 +1,3 @@
-Last updated: 2024-04-05 20:00:41
-Random Quote: Because you're so broken you don't even trust yourself. And that's scary. - Nate Jacobs
+Last updated: 2024-04-05 20:01:14
+Random Quote: The Deep: "What do we do? We can't just kill everyone."
+Billy Butcher: "That's exactly what we're gonna do!" - Billy Butcher
