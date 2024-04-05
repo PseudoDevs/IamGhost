@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 20:17:44
-Random Quote: A guy opens his door and gets shot and you think that of me? No. I am the one who knocks! - Walter White
+Last updated: 2024-04-05 20:18:16
+Random Quote: Do you know what it is like to be sold, squire?  I do.  My brother sold me to Khal Drogo for the promise of a golden crown.  Well, Drogo crowned him in gold, though not as he had wished, and I... my sun - and
