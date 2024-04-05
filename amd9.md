@@ -1,3 +1,2 @@
-Last updated: 2024-04-05 19:39:55
-Random Quote: Wyatt Langmore: "This job's my old man's idea. Something about 'calluses and character'."
-Charlotte Byrde: "Yeah, well, you're blowing leaves, not hiding Anne Frank." - Charlotte Byrde
+Last updated: 2024-04-05 19:41:37
+Random Quote: Doesn't matter what you did or what you were, you are an Avenger! - Agatha Harkness
