@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 17:08:09
-Random Quote: Khaleesi, better a man should swallow scorpions than trust in the spawn of shadows, who dare not show their face beneath the sun.  It is known.  -  Rakharo
+Last updated: 2024-04-05 17:08:42
+Random Quote: I did it for me. I liked it. I was good at it. And I was really... I was alive. - Walter White
