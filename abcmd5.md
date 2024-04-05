@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 16:07:53
-Random Quote: A thousand eyes, a hundred skins, wisdom deep as the roots of ancient trees.  Greenseers.  -  Bloodraven
+Last updated: 2024-04-05 16:08:26
+Random Quote: There's no shame in fear, my father told me, what matters is how we face it.  -  Jon Snow
