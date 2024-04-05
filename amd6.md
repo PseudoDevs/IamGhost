@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 19:04:26
-Random Quote: By what right does the wolf judge the lion?  -  Jaime Lannister
+Last updated: 2024-04-05 19:05:00
+Random Quote: That's where The Boys come in: Spank the bastards when they get out of line. - Billy Butcher
