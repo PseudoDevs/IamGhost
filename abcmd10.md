@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 19:35:57
-Random Quote: You're a freak, but what? Do you wanna be normal? Do you wanna be just like everyone else? - Jonathan Byers
+Last updated: 2024-04-05 19:37:05
+Random Quote: Serve, Obey, Protect.  Simple vows for a simple man.  -  Areo Hotah
