@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 14:46:19
-Random Quote: Lily: "It's nine weeks 'til the wedding, at this point, I'd say yes to just about anything."Barney: "Well..."Lily: "No, Barney." - Lily Aldrin
+Last updated: 2024-04-05 14:46:55
+Random Quote: Mrs. Buckminster was a spoonful of sugar. But so far, everyone we can afford on this website HeyNannyNanny.com is "Scary Poppins". - Lily Aldrin

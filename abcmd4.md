@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 14:46:19
-Random Quote: I understand that if any more words come pouring out of your cunt mouth I'm going to have to eat every fucking chicken in this room.  -  Sandor Clegane
+Last updated: 2024-04-05 14:46:55
+Random Quote: Well, Amanda is going to make Lily a cake, she's a chef! We met when I was at a restaurant last week and I sent some soup back. Luckily she's got such pretty hair I didn't mind eating a little bit of it. - Ted Mosby
