@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 08:43:32
-Random Quote: They shall come day and night to see the wonder that has been born again into the world, and when they see they shall lust.  For dragons are fire made flesh, and fire is power.  -  Quaithe
+Last updated: 2024-04-05 08:44:06
+Random Quote: Folly and desperation are ofttimes hard to tell apart.  -  Maester Luwin
