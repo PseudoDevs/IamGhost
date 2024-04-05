@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 16:32:28
-Random Quote: You don't parley when you're on the back foot. We'll strike a blow back first. - Thomas Shelby
+Last updated: 2024-04-05 16:33:01
+Random Quote: From experience, it often takes a new perspective before one is able to see the light. - Elia Kane
