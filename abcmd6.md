@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 12:05:59
-Random Quote: My real father died in King's Landing.  I made a choice, and I chose wrong.  -  Theon Greyjoy
+Last updated: 2024-04-05 12:06:32
+Random Quote: If you don't make it back, there's one thing that I need to tell you... - Klaus Hargreeves
