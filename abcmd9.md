@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 16:15:39
-Random Quote: Pardon my French, f-ck those f-ckers! - Billy Butcher
+Last updated: 2024-04-05 16:16:12
+Random Quote: For the night is dark and full of terrors.  -  Words of R'hllor
