@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 17:57:04
-Random Quote: So you're the therapist. You know it's one thing to pretend to be a shrink and bang your patients, that's normal. But to do it for real? Little creepy bro. - Barney Stinson
+Last updated: 2024-04-05 17:58:10
+Random Quote: Barney: "You have no reason to be nervous. And I'm going to tell you why in one word."Ted: "And what's that word?"Barney: "Dibs!" - Barney Stinson
