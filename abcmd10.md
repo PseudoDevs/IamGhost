@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 16:44:21
-Random Quote: Ted: "Do not pretend you're not the kind of guy, who keeps a list of all the girls he slept with."Marshall: "I have one. It's called my marriage-license." - Marshall Eriksen
+Last updated: 2024-04-05 16:44:54
+Random Quote: Hey, it's me again. Look, who are we kidding? You and I are both attracted to each other. We're young, we're drunk, half of us anyway. And we only get one life, so why don't you come over to my apartment and we'll think of something stupid to do together? - Ted Mosby
