@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 08:02:38
-Random Quote: That's the weird thing about the Internet. Ten people can feel like the whole world. - Rue Bennett
+Last updated: 2024-04-05 08:03:11
+Random Quote: People are oblivious to reality. They only see what they want to see, when all they have to do is shift their perspective to see the full scope of things. - Yuk Je
