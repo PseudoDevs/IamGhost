@@ -1,2 +1,3 @@
-Last updated: 2024-04-05 08:09:57
-Random Quote: I'm KFC baby - you don't mess with the Colonel's recipe! - Barney Stinson
+Last updated: 2024-04-05 08:10:30
+Random Quote: Jerry: "Well, traditionally, science faires are a father-son thing."
+Rick: "Well, scientifically, traditions are an idiot thing." - Rick Sanchez
