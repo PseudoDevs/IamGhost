@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 12:47:18
-Random Quote: There's three rules of cheating:1st: It's not cheating if you're not the one who's married.2nd: It's not cheating if her name has two adjacent vowels.3rd: And it's not cheating if she's from a different area code. You're fine on all three counts. - Barney Stinson
+Last updated: 2024-04-05 12:47:52
+Random Quote: I have never liked you, Cersei, but you were my own sister, so I never did you harm.  You've ended that.  I will hurt you for this.  I don't know how yet, but give me time.  A day will come when you think yourself safe and happy, and suddenly your joy will turn to ashes in your mouth, and you'll know the debt is paid.  -  Tyrion Lannister
