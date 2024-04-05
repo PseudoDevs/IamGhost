@@ -1,2 +1,3 @@
-Last updated: 2024-04-05 16:22:51
-Random Quote: You know how sometimes you'll meet a girl and there'll be that one bewitching little detail that'll make you fall in love with her instantly? You know, a little freckle on the nose, the lilt of her laugh, the way she pronounces a certain word or phrase... - Ted Mosby
+Last updated: 2024-04-05 16:23:24
+Random Quote: Mr. Nimbus: "Say goodbye to your precious dry land! For soon it will be wet!"
+Rick: "Yeah, global warming is already doing that. But sure, yeah, go for it. Make us slightly more wet." - Rick Sanchez
