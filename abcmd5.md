@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 18:48:34
-Random Quote: There is no creature on earth half so terrifying as a truly just man.  -  Varys
+Last updated: 2024-04-05 18:50:15
+Random Quote: I want you to allow yourself to aknowledge the pain that you so clearly feel. - Fabiola Torres
