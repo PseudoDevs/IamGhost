@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 14:23:19
-Random Quote: Nick: "So, I went to this fortune teller today and she said there was a curse on me."Robin: "Did she sell you something to ward off the curse?"Nick: "It's like you're a fortune teller, too." - Nick
+Last updated: 2024-04-05 14:23:53
+Random Quote: When you tear out a man's tongue, you are not proving him a liar, you're only telling the world that you fear what he might say.  -  Tyrion Lannister
