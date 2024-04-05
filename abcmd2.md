@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 10:17:08
-Random Quote: I can not believe that a woman who was brave enough to travel halfway around the world to pursue her dreams would allow anyone to dictate who she can be with. - Fabiola Torres
+Last updated: 2024-04-05 10:17:41
+Random Quote: In King's Landing, there are two sorts of people.  The players and the pieces.  -  Petyr Baelish
