@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 14:04:31
-Random Quote: Lies are necessary, when the truth is too difficult to believe. - Pablo Escobar
+Last updated: 2024-04-05 14:05:04
+Random Quote: The wolf will prove the boy is who we say he is, should the Dreadfort attempt to deny him.  That is my price, Lord Davos.  Smuggle me back my liege lord, and I will take Stannis Baratheon as my king.  -  Wyman Manderly
