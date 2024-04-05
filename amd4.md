@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 20:06:27
-Random Quote: A bag of dragons buys a man's silence for a while, but a well - placed quarrel buys it forever. 
+Last updated: 2024-04-05 20:07:00
+Random Quote: When you date someone, it's like you're taking one long course in who that person is and then, when you break up, all that stuff becomes useless. It's the emotional equivalent of an English degree... - Ted Mosby
