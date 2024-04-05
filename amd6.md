@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 17:35:47
-Random Quote: Whoever the hell that is. But the Crystal Ship definitely travels. - Jesse Pinkman
+Last updated: 2024-04-05 17:36:20
+Random Quote: I have worked at the downfall of Tywin Lannister since the day they told me of Elia and her children.  -  Doran Martell
