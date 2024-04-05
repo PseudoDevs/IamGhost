@@ -1,2 +1,3 @@
-Last updated: 2024-04-05 17:01:15
-Random Quote: My uncle Kevan would make a passably good regent if someone pressed the duty on him, but he will never reach for it.  The gods shaped him to be a follower, not a leader.  -  Tyrion Lannister
+Last updated: 2024-04-05 17:01:48
+Random Quote: Jerry: "Space sperm? Sperm from... space?"
+Rick: "Very impressive verbal forensic work, Jerry." - Rick Sanchez
