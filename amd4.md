@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 19:44:22
-Random Quote: The wheels of bureaucracy tend to move at their own speed. - Walt Breslin
+Last updated: 2024-04-05 19:44:55
+Random Quote: New York! Home of the Mets, the Chrysler Building, those ladies from Sex and the City and now, the zombie apocalypse. If you can make it here, you can make it anywhere - but first, you have to not get eaten. - Spider-Man
