@@ -1,4 +1,2 @@
-Last updated: 2024-04-05 20:29:56
-Random Quote: Rick: "F you, Summer! And f the government. And f me for letting my car down, which I will never do again."
-Morty: "Jeez, Rick. You can't say FU to your grand-daughter!"
-Rick: "I just did, Morty. Here's dessert: F you!" - Rick Sanchez
+Last updated: 2024-04-05 20:31:03
+Random Quote: I have let you come wash my dishes. I said my oven needed cleaning, I invited you to a p-rno! - Victoria
