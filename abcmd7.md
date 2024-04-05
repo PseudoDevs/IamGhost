@@ -1,2 +1,4 @@
-Last updated: 2024-04-05 19:09:33
-Random Quote: There's proving and there's knowing. -  Bill Oakley
+Last updated: 2024-04-05 19:10:06
+Random Quote: Greef: "Be careful, my friend. They've got you outnumbered ten to one."
+Din: "I like these odds."
+Greef: "I bet you do." - Greef Karga
