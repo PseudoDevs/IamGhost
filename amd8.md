@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 16:47:45
-Random Quote: I told you once, there are old sellswords and there are bold sellswords, but there are no old bold sellswords.  -  Brown Ben Plumm
+Last updated: 2024-04-05 16:48:18
+Random Quote: Oh, Cersei is lovely to look at, truly, but cold... the way she guards her cunt, you'd think she had all the gold of Casterly Rock between her legs.  -  Robert Baratheon
