@@ -1,3 +1,2 @@
-Last updated: 2024-04-05 19:17:24
-Random Quote: Ted: "So this is what you guys do? You invite other couples over for dinner, to judge them and feel superior?"
-Lily: "Oh, grow up, Ted, that's why any couple invites anyone over ever!" - Lily Aldrin
+Last updated: 2024-04-05 19:18:31
+Random Quote: Marshall: "Lily, you snooped through her stuff?"Lily: "No, it's like the first thing you see when you jimmy open her desk-drawer with the letter opener her grandfather left her, according to her diary." - Lily Aldrin
