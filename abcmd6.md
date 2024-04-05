@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 15:43:55
-Random Quote: I asked him why he kept her close, if he thought her so grotesque.  He said that all his other knights wanted things of him, castles or honors or riches, but all that Brienne wanted was to die for him.  -  Loras Tyrell
+Last updated: 2024-04-05 15:44:29
+Random Quote: Robin: "Can you guys keep a secret?"Lily: "Yeah."Marshall: "Well, some of us can..." - Marshall Eriksen
