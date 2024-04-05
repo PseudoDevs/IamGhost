@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 13:29:36
-Random Quote: He climbed onto his throne over the corpses of children, though I will grant you he was no Joffrey.  -  Arianne Martell
+Last updated: 2024-04-05 13:30:10
+Random Quote: Past a certain point, all the dates grow hazy and confused, and the clarity of history becomes the fog of legend.  -  Hoster Blackwood
