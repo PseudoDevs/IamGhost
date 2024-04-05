@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 20:26:13
-Random Quote: You could turn King's Landing upside down and not find a single man with a mockingbird sewn over his heart but that does not mean I am friendless.  -  Petyr Baelish
+Last updated: 2024-04-05 20:26:46
+Random Quote: Because I say so. - Walter White
