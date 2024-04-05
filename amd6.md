@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 19:32:08
-Random Quote: Power resides where men believe it resides... It's a trick, a shadow on the wall.  -  Varys
+Last updated: 2024-04-05 19:35:19
+Random Quote: Take the foundling to the city of Calodan on the forest planet Corvus. There, you will find Ahsoka Tano. Tell her you were sent by Bo-Katan. - Bo-Katan
