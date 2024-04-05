@@ -1,3 +1,2 @@
-Last updated: 2024-04-05 14:58:33
-Random Quote: Morty: "I don't deserve this. I was just having fun."
-Rick: "So was Jeffrey Dahmer." - Rick Sanchez
+Last updated: 2024-04-05 14:59:07
+Random Quote: No voting, no debate. It's not a democracy - it's a Rickpublic! - Summer Smith
