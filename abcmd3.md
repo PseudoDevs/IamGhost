@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 13:24:34
-Random Quote: She don't speak.  You bloody bastards cut her throat too deep for that.  But she remembers.  -  Lem Lemoncloack
+Last updated: 2024-04-05 13:25:12
+Random Quote: F*ck you! And your eyebrows! - Walter White
