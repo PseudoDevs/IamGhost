@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 12:29:06
-Random Quote: I just want to stand on top of the Wall and piss off the edge of the world.  -  Tyrion Lannister
+Last updated: 2024-04-05 12:30:22
+Random Quote: It's not just football. It's life. - Cal Jacobs
