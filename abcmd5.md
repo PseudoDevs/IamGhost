@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 20:12:32
-Random Quote: You've been a hell of a wingman. And even though I think it's kind of gross when you pleasure yourself orally, don't ever think that means I'm not impressed. - Barney Stinson
+Last updated: 2024-04-05 20:13:05
+Random Quote: I'm from Minnesota, where there's plenty hot-dogs for everyone. Perhaps even too many... - Marshall Eriksen
