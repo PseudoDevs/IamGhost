@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 08:13:49
-Random Quote: You two suck at peddling meth. - Saul Goodman
+Last updated: 2024-04-05 08:14:22
+Random Quote: I have won every battle, yet somehow I'm losing the war.  -  Robb Stark
