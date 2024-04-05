@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 09:06:05
-Random Quote: God has a plan for every human being. - 
+Last updated: 2024-04-05 09:06:38
+Random Quote: Once, she had loved Prince Joffrey with all her heart, and admired and trusted his mother, the queen.  They had repaid that love and trust with her father's head.  Sansa would never make that mistake again.  -  Sansa Stark
