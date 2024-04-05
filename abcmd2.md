@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 13:20:14
-Random Quote: I'm going out of this world the same way I came into it: Buck-naked. Yeah. It's gonna be awesome. Open bar for the guys, open casket for the ladies. What up? - Barney Stinson
+Last updated: 2024-04-05 13:20:52
+Random Quote: Weddings are basically funerals with cake. - Rick Sanchez
