@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 19:36:31
-Random Quote: To go north, you must go south.  To reach the west, you must go east.  To go forward you must go back, and to touch the light you must pass beneath the shadow.  -  Quaithe
+Last updated: 2024-04-05 19:37:05
+Random Quote: Some battles are won with swords and spears, others with quills and ravens.  -  Tywin Lannister
