@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 15:59:07
-Random Quote: I guess we all have things we try to hide. But they can't stay hidden forever. - Hannah Baker
+Last updated: 2024-04-05 15:59:40
+Random Quote: Never fear the darkness, Bran.  The strongest trees are rooted in the dark places of the earth.  Darkness will be your cloak, your shield, your mother's milk.  Darkness will make you strong.  -  Bloodraven
