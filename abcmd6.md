@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 20:05:35
-Random Quote: Did you think your dad was the only Mandalorian? - Bo-Katan
+Last updated: 2024-04-05 20:06:08
+Random Quote: Lily: "Whenever we board a flight, you lick the plane!"Marshall: "Have we crashed even once?" - Marshall Eriksen
