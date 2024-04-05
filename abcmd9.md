@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 13:30:39
-Random Quote: Balon was mad, Aeron is madder, and Euron is maddest of them all.  -  Baelor Blacktyde
+Last updated: 2024-04-05 13:31:13
+Random Quote: Anyone who goes after him is gonna have to come through me. - Mike Ehrmantraut
