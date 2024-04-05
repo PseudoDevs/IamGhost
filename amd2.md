@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 20:01:16
-Random Quote: Barney: "The Disappearing Salami... Mr. Flanagan's wife shot him before he could ever tell me what the trick was."Quinn: "Yeah, that guy was banging your mom!" - Quinn Garvey
+Last updated: 2024-04-05 20:01:49
+Random Quote: To go north, you must go south.  To reach the west, you must go east.  To go forward you must go back, and to touch the light you must pass beneath the shadow.  -  Quaithe
