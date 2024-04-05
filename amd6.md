@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 18:25:42
-Random Quote: Your car's gonna be fine, this is the best auto-shop around. Look at this certificate, one of the mechanics here...[reads the certificate]...finished a 64 ounce steak. - Ted Mosby
+Last updated: 2024-04-05 18:26:15
+Random Quote: Drugs are kind of cool. I mean, they're cool before they wreck your skin. And your life. And your family. That's when they get uncool. It's actually a very narrow window of cool. - Rue Bennett
