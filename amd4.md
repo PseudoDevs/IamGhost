@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 18:36:18
-Random Quote: I'm also pleased to announce The Bro Code is now available in select airlines across the country. And Lufthansa. 'Der Bro Code' is, like, huge in Germany. - Barney Stinson
+Last updated: 2024-04-05 18:36:51
+Random Quote: You are not the guy. You're not capable of being the guy. I had a guy but now I don't. You are not the guy. - Mike Ehrmantraut
