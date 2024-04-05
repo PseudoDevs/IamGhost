@@ -1,2 +1,5 @@
-Last updated: 2024-04-05 09:56:51
-Random Quote: This is my own private domicile and I will not be harassed…bitch! - Jesse Pinkman
+Last updated: 2024-04-05 09:57:24
+Random Quote: John Flynn: "Rogers, get in there!"
+Peggy Carter: "He can't."
+John Flynn: "Stark, you go in!"
+Howard Stark: "What? Are you crazy? I push the buttons. I'm the buttons guy." - Howard Stark
