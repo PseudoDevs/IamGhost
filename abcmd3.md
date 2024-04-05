@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 13:43:38
-Random Quote: She don't speak.  You bloody bastards cut her throat too deep for that.  But she remembers.  -  Lem Lemoncloack
+Last updated: 2024-04-05 13:44:14
+Random Quote: My name is ASAC Schrader, and you can go f*ck yourself. - Hank Schrader
