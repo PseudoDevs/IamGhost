@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 12:26:45
-Random Quote: That's the thing with guys like Nate. They don't actually want a person. They want something they can own and possess. - Rue Bennett
+Last updated: 2024-04-05 12:27:20
+Random Quote: So I will only ask you once, Lord Snow.  Are you a brother of the Night's Watch, or a bastard boy who wants to play at war?  -  Jeor Mormont
