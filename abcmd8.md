@@ -1,2 +1,3 @@
-Last updated: 2024-04-05 07:23:34
-Random Quote: Being alone like that shows you what kind of a person you are. - Maura Franklin
+Last updated: 2024-04-05 07:24:08
+Random Quote: Mi-nyeo: "Deok-su. You betray me... I'll kill you. Okay?"
+Deok-su: "You're the reason that I think I might die tonight." - Jang Deok-su
