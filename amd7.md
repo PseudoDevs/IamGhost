@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 16:56:47
-Random Quote: Do you know what it is like to be sold, squire?  I do.  My brother sold me to Khal Drogo for the promise of a golden crown.  Well, Drogo crowned him in gold, though not as he had wished, and I... my sun - and
+Last updated: 2024-04-05 16:57:21
+Random Quote: I will go to my grave thinking of my brother's peach.  -  Stannis Baratheon
