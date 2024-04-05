@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 10:24:52
-Random Quote: The Scarlet Witch is not born, she is forged. She has no coven, no need for incantation. - Agatha Harkness
+Last updated: 2024-04-05 10:25:25
+Random Quote: I guess we all have things we try to hide. But they can't stay hidden forever. - Hannah Baker
