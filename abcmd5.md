@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 08:17:47
-Random Quote: Once, she had loved Prince Joffrey with all her heart, and admired and trusted his mother, the queen.  They had repaid that love and trust with her father's head.  Sansa would never make that mistake again.  -  Sansa Stark
+Last updated: 2024-04-05 08:18:53
+Random Quote: You don’t want a criminal lawyer. You want a criminal lawyer. - Jesse Pinkman
