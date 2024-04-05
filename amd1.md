@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 17:02:54
-Random Quote: When one chooses to walk the way of the Mandalore, you are both hunter and prey. How can one be a coward if one chooses this way of life? - The Armorer
+Last updated: 2024-04-05 17:03:27
+Random Quote: We're done when I say we're done. - Walter White
