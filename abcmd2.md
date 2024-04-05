@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 19:10:41
-Random Quote: You know what they say about relationships. Every waking moment's a battle. - Barney Stinson
+Last updated: 2024-04-05 19:11:47
+Random Quote: What if God doesn’t know what he’s doing? If the plan is wrong? If God is wrong? - 
