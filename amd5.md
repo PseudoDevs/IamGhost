@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 18:34:47
-Random Quote: Love can’t be timed. It has to be lived. - Berlin
+Last updated: 2024-04-05 18:35:20
+Random Quote: The more you give a king, the more he wants.  We are walking on a bridge of ice with an abyss on either side.  Pleasing one king is difficult enough.  Pleasing two is hardly possible.  -  Jon Snow
