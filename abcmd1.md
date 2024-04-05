@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 20:20:29
-Random Quote: The title was but a courtesy due him as a council member; Varys was lord of nothing but the spiderweb, the master of none but his whispers.  -  Catelyn Stark
+Last updated: 2024-04-05 20:21:02
+Random Quote: I will go to my grave thinking of my brother's peach.  -  Stannis Baratheon
