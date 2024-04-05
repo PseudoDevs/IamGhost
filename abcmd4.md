@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 13:29:59
-Random Quote: Power resides where men believe it resides... It's a trick, a shadow on the wall.  -  Varys
+Last updated: 2024-04-05 13:30:32
+Random Quote: Fire in the hole, bitch! - Jesse Pinkman
