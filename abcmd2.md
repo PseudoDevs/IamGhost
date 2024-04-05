@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 10:28:11
-Random Quote: Have you been arrested in a mall?Dumped in a mall?Turned out you're Canadian in a mall? - Ted Mosby
+Last updated: 2024-04-05 10:28:44
+Random Quote: You need to figure out what the fuck you want. - Nicky Nichols
