@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 18:36:17
-Random Quote: You could turn King's Landing upside down and not find a single man with a mockingbird sewn over his heart but that does not mean I am friendless.  -  Petyr Baelish
+Last updated: 2024-04-05 18:36:50
+Random Quote: How do you keep a girl from becoming your girlfriend?1. Never get them wet. In other words, don't let her take a shower at your place.2. Keep them away from sunlight - i. e. don't ever see them during the day.3. Never feed them after midnight. Meaning she doesn't sleep over and you don't have breakfast. - Barney Stinson
