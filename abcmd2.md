@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 15:15:40
-Random Quote: Emotion equals weakness. - Wednesday Addams
+Last updated: 2024-04-05 15:16:13
+Random Quote: Ran: "We were all young, tryin' to make a name for ourselves. But runnin' with a Mandalorian, that brought us some reputation."Mayfeld: "Oh, yeah? What did he get out of it?"Ran: "I asked him that one time. You remember what you said, Mando? Target Practice." - Din Djarin
