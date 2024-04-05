@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 07:10:21
-Random Quote: In commemoration of Barney's induction into the "Hall of Game", this tie, worn on the seventh night of his perfect week, is hereby retired. - Lily Aldrin
+Last updated: 2024-04-05 07:10:56
+Random Quote: You don't get to blame your problems on anyone but yourself. - Allison Hargreeves
