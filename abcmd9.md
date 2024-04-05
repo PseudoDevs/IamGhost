@@ -1,3 +1,2 @@
-Last updated: 2024-04-05 09:51:18
-Random Quote: Billy: "Halloween's a magical holiday. All about family, friends, and the thrill of getting to be someone else for a day."
-Tommy: "Wrong! Halloween's about candy. And scaring people, but mostly candy." - Tommy Maximoff
+Last updated: 2024-04-05 09:51:51
+Random Quote: I'm a good boyfriend in my sleep. I can rock a killer foot rub with one hand and brew a kick-ass pot of chamomile in the other, that would make you weep. Hell, I've forgotten more about microwaving fat-free popcorn and watching Sandra Bullock movies than you'll ever know, but: thanks for your concern, rook! - Marshall Eriksen
