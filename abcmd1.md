@@ -1,3 +1,2 @@
-Last updated: 2024-04-05 08:08:07
-Random Quote: Morty: "I don't like how meta this is getting, Rick."
-Rick: "Shut up, Morty, you're 14. You watch videos of people on YouTube reacting to fing YouTube. I'll be the judge of when we get too meta." - Rick Sanchez
+Last updated: 2024-04-05 08:08:40
+Random Quote: Roose Bolton's cold and cunning, aye, but a man can deal with Roose.  We've all known worse.  But this bastard son of his... they say he's mad and cruel, a monster.  -  Locke
