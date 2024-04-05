@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 17:54:17
-Random Quote: Barney: "How's the single life?"Ted: "I wouldn't know. After this whole Robin thing, I'm laying low."Barney: "Laying low as in sleeping with a really short chick? You guys doing thirty-nine?" - Barney Stinson
+Last updated: 2024-04-05 17:55:24
+Random Quote: How do you keep a girl from becoming your girlfriend?1. Never get them wet. In other words, don't let her take a shower at your place.2. Keep them away from sunlight - i. e. don't ever see them during the day.3. Never feed them after midnight. Meaning she doesn't sleep over and you don't have breakfast. - Barney Stinson
