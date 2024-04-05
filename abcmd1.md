@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 07:22:22
-Random Quote: Lord Seaworth is a man of humble birth, but he reminded me of my duty, when all I could think of was my rights.  I had the cart before the horse, Davos said.  I was trying to win the throne to save the kingdom, when I should have been trying to save the kingdom to win the throne.  -  Stannis Baratheon
+Last updated: 2024-04-05 07:22:56
+Random Quote: He would have killed me but for Howland Reed.  -  Eddard Stark
