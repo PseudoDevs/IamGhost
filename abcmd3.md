@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 17:57:53
-Random Quote: The Lord of Light cherishes the innocent.  There is no sacrifice more precious.  From his king's blood and his untainted fire, a dragon shall be born.  -  Melisandre
+Last updated: 2024-04-05 17:58:27
+Random Quote: Baby, can we grow sandwiches behind the garage? - Marshall Eriksen
