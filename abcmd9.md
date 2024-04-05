@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 09:14:23
-Random Quote: This is New York City, don't get close to the neighbours. You nod at them politely in the hall, you call the cops if you haven't seen them in a while and you smell something funny and that's it! - Ted Mosby
+Last updated: 2024-04-05 09:14:56
+Random Quote: Ted: "Oh, screw 'The One'!"Barney: "What?"Ted: "Every date I've been on lately has been brutal. Last week, I went out with a girl whose favorite band was Glee. Plus, it's almost Valentine's Day and I'm alone without anything close to a girlfriend. So... all aboard!"Barney: "I have never been more proud of you." - Barney Stinson
