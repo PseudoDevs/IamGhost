@@ -1,2 +1,3 @@
-Last updated: 2024-04-05 15:48:36
-Random Quote: Those men sitting in Mexico City might be done with me, but I'm not done with them. - Miguel Angel Felix Gallardo
+Last updated: 2024-04-05 15:49:09
+Random Quote: Journalist: "Mr. Stark, were you injured in the attack?"
+Tony Stark: "No, but I did spill my drink, and it was a '26 Macallan, so I'm pretty sure that's a war crime." - Iron Man
