@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 08:18:46
-Random Quote: This guy he's done everything right. He's been loving and devoted since he was 18 years old. There are only a few truly great people on this planet and he is one of them. - Barney Stinson
+Last updated: 2024-04-05 08:19:19
+Random Quote: They know.  The gods know.  They saw what I did.  And for one strange moment it seemed as if it were Bran's face carved into the pale trunk of the weirwood, staring down at him with eyes red and wise and sad.  Bran's ghost, he thought, but that was madness.  Why should Bran want to haunt him?  He had been fond of the boy, had never done him any harm.  It was not Bran we killed.  It was not Rickon.  They were only miller's sons, from the mill by the Acorn Water.  -  Theon Greyjoy
