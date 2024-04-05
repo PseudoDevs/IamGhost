@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 06:52:59
-Random Quote: You're wrong.  Need Stark was my gaoler, but my blood is still salt and iron.  -  Theon Greyjoy
+Last updated: 2024-04-05 06:53:33
+Random Quote: The pain is his vessel, desire his compass. It is all that man is capable of. - 
