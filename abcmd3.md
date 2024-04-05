@@ -1,2 +1,3 @@
-Last updated: 2024-04-05 12:20:32
-Random Quote: People taking power who don't deserve it. It never ends well. - Jérôme
+Last updated: 2024-04-05 12:21:09
+Random Quote: Summer: "Someone out there is trying to kill us."
+Rick: "Someone's always trying to kill us." - Rick Sanchez
