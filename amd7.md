@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 20:15:18
-Random Quote: Doesn't matter what you did or what you were, you are an Avenger! - Agatha Harkness
+Last updated: 2024-04-05 20:15:51
+Random Quote: No tales were ever told of me.  Do you think I would be sitting here if it were otherwise?  Your amusements are your own, I will not chide you on that count, but you must be more discreet.  A peaceful land, a quiet people.  That has always been my rule.  Make it yours.  -  Roose Bolton
