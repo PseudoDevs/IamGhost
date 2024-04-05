@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 16:39:06
-Random Quote: Elia Martell, Princess of Dorne.  You raped her!  You murdered her!  You killed her children!  -  Oberyn Martell
+Last updated: 2024-04-05 16:39:39
+Random Quote: When I rode home the next morning, the city looked the same. The people looked the same. It all looked the same. But it wasn't. In just one night, everything had changed. - Ted Mosby
