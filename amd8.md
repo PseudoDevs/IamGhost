@@ -1,2 +1,3 @@
-Last updated: 2024-04-05 17:56:18
-Random Quote: You Westerosi are all the same.  You sew some beast upon a scrap of silk, and suddenly you are all lions or dragons or eagles.  -  Illyrio Mopatis
+Last updated: 2024-04-05 17:56:50
+Random Quote: Journalist: "Mr. Stark, were you injured in the attack?"
+Tony Stark: "No, but I did spill my drink, and it was a '26 Macallan, so I'm pretty sure that's a war crime." - Iron Man
