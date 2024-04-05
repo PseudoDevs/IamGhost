@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 13:45:24
-Random Quote: Help was not promised, lovely girl.  Only death.  -  Jaqen H'ghar
+Last updated: 2024-04-05 13:46:00
+Random Quote: Birds are lost, messages stolen or sold... there are things I might tell you of that eunuch that would chill your blood...  -  Grand Maester Pycelle
