@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 20:09:59
-Random Quote: Run the montage of people who died this year until I get back and add Sandy, because when I find him, I'm gonna kill him. - Robin Scherbatsky
+Last updated: 2024-04-05 20:10:32
+Random Quote: Treason is a noxious weed.  It must be torn up, root and stem and seed, lest new traitors sprout from every roadside.  -  Grand Maester Pycelle
