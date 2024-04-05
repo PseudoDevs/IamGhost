@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 15:31:43
-Random Quote: What is honor compared to a woman's love?  What is duty against the feel of a newborn son in your arms, or the memory of a brother's smile.  Wind and words.  Wind and words.  We are only human, and the gods have fashioned us for love.  That is our great glory and our great tragedy.  -  Aemon Targaryen
+Last updated: 2024-04-05 15:32:17
+Random Quote: The Drowned God gives every man a gift, even him; no man could piss longer or farther than Aeron Greyjoy, as he proved at every feast.  Once he bet his new longship against a herd of goats that he could quench a hearthfire with no more than his cock.  Aeron feasted on goat for a year, and named the longship Golden Storm, though Balon threatened to hang him from her mast when he heard what sort of ram his brother proposed to mount upon her prow.  -  Aeron Greyjoy
