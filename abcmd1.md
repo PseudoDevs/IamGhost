@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 17:07:02
-Random Quote: Science fact: Sisters are the worst. - Sheldon
+Last updated: 2024-04-05 17:07:35
+Random Quote: Until the Mountain crushed my brother's skull, no Dornishmen had died in this War of the Five Kings.  Tell me, Captain, is that my shame or my glory?  -  Doran Martell
