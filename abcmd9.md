@@ -1,4 +1,2 @@
-Last updated: 2024-04-05 09:22:41
-Random Quote: Morty: "Mom told me she wanted me to stay here to make sure you didn't die."
-Jerry: "Well, you tell your mother that I'm gonna be fine."
-Rick: "Don't train your child to lie, Jerry." - Rick Sanchez
+Last updated: 2024-04-05 09:23:14
+Random Quote: Wylla.  Did you see how brave she was.  Even when I threatened to have her tongue out, she reminded me of the debt White Harbor owes to the Starks of Winterfell, a debt that can never be repaid.  Wylla spoke from the heart... not every woman can be as brave as my Wylla.  -  Wyman Manderly
