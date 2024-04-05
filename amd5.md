@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 16:30:54
-Random Quote: I let each man cut me once, before I kill him.  Count the cuts and you will know how many Strong Belwas has slain.  -  Strong Belwas
+Last updated: 2024-04-05 16:31:26
+Random Quote: If you wish to give up on playing, the 25.5 billion won will be sent to the bereaved families of the late players. - Jang Deok-su
