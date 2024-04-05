@@ -1,4 +1,2 @@
-Last updated: 2024-04-05 08:52:02
-Random Quote: Bro McDonald had a farm, E-I-E-I-bro
-And on that farm he had some chicks, E-I-E-I-bro
-With a hot chick here and a dumb chick there... - Barney Stinson
+Last updated: 2024-04-05 08:52:35
+Random Quote: What is honor compared to a woman's love?  What is duty against the feel of a newborn son in your arms, or the memory of a brother's smile.  Wind and words.  Wind and words.  We are only human, and the gods have fashioned us for love.  That is our great glory and our great tragedy.  -  Aemon Targaryen
