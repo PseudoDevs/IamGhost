@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 14:03:22
-Random Quote: I've heard so many stories about me now that I don't know which one is the most popular. But I do know which is the least popular: the truth. - Hannah Baker
+Last updated: 2024-04-05 14:03:56
+Random Quote: Old stories are like old friends, Old Nan used to say.  You have to visit them from time to time.  -  Bran Stark
