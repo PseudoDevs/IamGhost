@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 19:28:15
-Random Quote: Robin: "Have plans with Don on Saturday, he's making me Chinese."Lily: "I'll assume you're talking about food, otherwise, I have some follow-up-questions." - Lily Aldrin
+Last updated: 2024-04-05 19:28:56
+Random Quote: Only Renly could vex me so with a piece of fruit.  He brought his doom on himself with his treason, but I did love him, Davos.  I know that now.  I swear, I will go to my grave thinking of my brother's peach.  -  Stannis Baratheon

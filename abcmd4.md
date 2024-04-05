@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 19:28:15
-Random Quote: I think sometimes we aren't keeping secrets to hide from other people. I think sometimes we're keeping them to protect those people. - Tony Padilla
+Last updated: 2024-04-05 19:28:56
+Random Quote: (Love is) pain, horrible pain, that you want again and again. - Sophia Burset
