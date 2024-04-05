@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 17:29:41
-Random Quote: If ever a man deserved to die screaming, it was Gregor Clegane.  -  Doran Martell
+Last updated: 2024-04-05 17:30:15
+Random Quote: Barney: "Canada sucks."Robin: "Okay, well, you're one-quarter Canadian, so by that logic you one-quarter suck!"Barney: "I'm 100% awesome and you know it!"Robin: "Yeah, I do." - Robin Scherbatsky
