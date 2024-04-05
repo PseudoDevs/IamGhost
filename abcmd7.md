@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 08:08:07
-Random Quote: If the cancer doesn't get him, it'll be the cops or a bullet to the head. - Mike Ehrmantraut
+Last updated: 2024-04-05 08:08:40
+Random Quote: She had seen Bronn fight on the high road; it was no accident that he had survived the journey while other men had died.  He moved like a panther, and that ugly sword of his seemed a part of his arm.  -  Catelyn Stark
