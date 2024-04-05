@@ -1,2 +1,3 @@
-Last updated: 2024-04-05 15:54:38
-Random Quote: Ted: "That beer looks a little flat."Robin: "Yeah.. it's scotch." - Robin Scherbatsky
+Last updated: 2024-04-05 15:55:12
+Random Quote: Marylin Thornhill: "I trust Enid has given you the old Nevermore welcome."
+Wednesday: "She's been smothering me with hospitality. I hope to return the favor... in her sleep." - Wednesday Addams
