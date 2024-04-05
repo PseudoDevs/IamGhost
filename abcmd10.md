@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 15:59:40
-Random Quote: Never fear the darkness, Bran.  The strongest trees are rooted in the dark places of the earth.  Darkness will be your cloak, your shield, your mother's milk.  Darkness will make you strong.  -  Bloodraven
+Last updated: 2024-04-05 16:00:13
+Random Quote: The storms come and go, waves crash overhead, the big fish eat the little fish, and I keep on paddling.  -  Varys
