@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 13:04:31
-Random Quote: I could keep you safe.  They're all afraid of me.  No one would hurt you again, or I'd kill them.  -  Sandor Clegane
+Last updated: 2024-04-05 13:05:40
+Random Quote: Sometimes it just feels better not to talk. At All. About Anything. To Anyone. - Walter White
