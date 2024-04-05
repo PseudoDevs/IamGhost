@@ -1,2 +1,3 @@
-Last updated: 2024-04-05 16:23:57
-Random Quote: Quinn: "In the event of divorce, Miss Garvey shall get full custody of Mr. Stinson's suits."Barney: "Why? What would you do with them?"Quinn: "Nothing. I'd just sit around and watch them go out of style." - Quinn Garvey
+Last updated: 2024-04-05 16:25:04
+Random Quote: Lily: "Swear on the lifes of your unborn boy and girl!"
+Ted: "I swear... on Luke and Leia!" - Ted Mosby
