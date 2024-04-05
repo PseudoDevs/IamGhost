@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 19:23:20
-Random Quote: You know what the happiest animal in the world is? It's a goldfish. It's got a 10 second memory. Be a goldfish! - Rebecca Welton
+Last updated: 2024-04-05 19:23:53
+Random Quote: A craven's knife can slay a queen as easily as a hero's.  -  Xaro Xhoan Daxos
