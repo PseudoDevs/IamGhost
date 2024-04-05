@@ -1,2 +1,4 @@
-Last updated: 2024-04-05 19:52:48
-Random Quote: A man will tell you poison is dishonorable, but a woman's honor is different.  The Mother shaped us to protect our children, and our only dishonor is failure.  -  Lysa Arryn
+Last updated: 2024-04-05 19:53:22
+Random Quote: Rick: "Wait a minute! Is that Mountain Dew in my quantum-transport-solution?"
+Morty: "I saw you were marking the level so I had to top it off."
+Rick: "Top it off? Do you know how dangerously toxic this stuff is? And you added it to my portal fluid?" - Rick Sanchez
