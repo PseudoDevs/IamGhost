@@ -1,2 +1,4 @@
-Last updated: 2024-04-05 09:10:30
-Random Quote: Past a certain point, all the dates grow hazy and confused, and the clarity of history becomes the fog of legend.  -  Hoster Blackwood
+Last updated: 2024-04-05 09:11:03
+Random Quote: Bo-Katan: "I've scugged off a lot of Imperial warlords."
+Din: "They tend to get mad when you hijack their ships."
+Bo-Katan: "Now you tell me." - Bo-Katan
