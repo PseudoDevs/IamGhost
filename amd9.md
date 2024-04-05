@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 18:34:38
-Random Quote: No.  You were the betrayer.  You turned against me, against your own blood.  They cheated me.  Your horsey husband and his stinking savages.  They were cheats and liars.  They promised me a golden crown and gave me this.  -  Viserys Targaryen
+Last updated: 2024-04-05 18:35:11
+Random Quote: You know what the happiest animal in the world is? It's a goldfish. It's got a 10 second memory. Be a goldfish! - Rebecca Welton
