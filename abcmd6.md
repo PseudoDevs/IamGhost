@@ -1,4 +1,2 @@
-Last updated: 2024-04-05 20:28:49
-Random Quote: Tony Stark: "Lieutenant Killmonger? What is that? German?"
-Killmonger: "A nickname."
-Tony Stark: "That's clearly a good fit." - Killmonger
+Last updated: 2024-04-05 20:29:22
+Random Quote: Young or old, a true knight is sworn to protect those who are weaker than himself, or die in the attempt.  -  Brienne of Tarth
