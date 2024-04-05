@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 11:37:06
-Random Quote: The beauty of a moment, is that it's fleeting. - Ted Mosby
+Last updated: 2024-04-05 11:37:39
+Random Quote: Barney: "On your tombstone, it will be, 'Lily Aldrin. Caring wife. Loving friend. Slapbet-Commissioner.'"Marshall: "And your tombstone will read, 'Got slapped by Marhsall so hard he died.'" - Marshall Eriksen
