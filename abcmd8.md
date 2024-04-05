@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 19:16:18
-Random Quote: Catelyn would sooner Lord Umber had seen fit to stay sober, but telling the Greatjon not to drink was like telling him not to breathe for a few hours.  -  Catelyn Stark
+Last updated: 2024-04-05 19:16:52
+Random Quote: The truth can free you, if you let it. - Hannah Baker
