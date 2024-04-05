@@ -1,3 +1,4 @@
-Last updated: 2024-04-05 19:42:12
-Random Quote: Jay: "I got you a little gift to celebrate. I know it’s not much...-"
-Gloria: "It’s practically nothing!" - Gloria Pritchett
+Last updated: 2024-04-05 19:42:45
+Random Quote: Joel: "Where'd you get the money for this?"
+Sarah: "Drugs. I sell hardcore drugs."
+Joel: "It's better than what I do." - Joel Miller
