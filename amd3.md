@@ -1,2 +1,3 @@
-Last updated: 2024-04-05 18:54:46
-Random Quote: Robin: "We're like sisters."Ted: "You've never gotten through even one exchange without screaming at her."Robin: "Sisters fight, Ted!" - Robin Scherbatsky
+Last updated: 2024-04-05 18:55:20
+Random Quote: Steven Grant: "I'm not trying to slag off marketing, but there's been a major blunder. Because they've got seven gods here, and the Ennead has nine."
+Donna: "I fired two of them for bein' late. Listen, if you don't stop natterin' at me, I swear I'll shove you in a sarcophagus. You can tell the pharaoh in there what's wrong with them and all." - Arthur Harrow
