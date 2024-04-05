@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 17:01:31
-Random Quote: They're minerals, Marie! Jesus! - Hank Schrader
+Last updated: 2024-04-05 17:02:04
+Random Quote: In the United States, the Mafia makes witnesses disappear so they can't testify in court. In Colombia, Pablo Escobar made the whole court disappear. - Steve Murphy
