@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 07:55:26
-Random Quote: There is one difference between you and me: I'm not saying any of this to get in your pants. - How I Met Your Mother
+Last updated: 2024-04-05 07:55:59
+Random Quote: Place was overrun with rats when we moved in.  The spearwives killed the nasty buggers.  Now the place is overrun with spearwives.  There's days I want the rats back.  -  Dolorous Edd Tollett
