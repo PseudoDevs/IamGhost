@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 17:45:59
-Random Quote: Ah, Arya.  You have a wildness in you, child.  The 'wolf blood', my father used to call it.  Lyanna had a touch of it, and my brother Brandon more than a touch.  It brought them both to an early grave.  Lyanna might have carried a sword, if my lord father had allowed it.  You remind me of her sometimes.  You even look like her.  -  Eddard Stark
+Last updated: 2024-04-05 17:47:06
+Random Quote: Lily, I think we made a mistake moving out to the suburbs. I miss our home. I miss our booth with our friends. And I'm pretty sure I have a drumstick... somewhere bad. - Marshall Eriksen
