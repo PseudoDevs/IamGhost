@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 08:03:44
-Random Quote: Larry Bloom: "Piper, you put a pee stick in my rinsing cup."Piper Chapman: "Well, you put your pee stick in my vagina. And that's why we're in this situation." - Piper Chapman
+Last updated: 2024-04-05 08:04:17
+Random Quote: If you get pulled over for speeding, tell the policeman your spouse has diarrhea. - Phil Dunphy
