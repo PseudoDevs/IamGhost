@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 07:24:09
-Random Quote: People deserve a second chance, just like businesses. - Marty Byrde
+Last updated: 2024-04-05 07:24:43
+Random Quote: Don Eladio, look into Fring's eyes. There you will see the truth. The Chicken Man hates you. He is our enemy. He plots against us. I demand blood for blood. - Hector Salamanca
