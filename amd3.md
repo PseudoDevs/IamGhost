@@ -1,3 +1,2 @@
-Last updated: 2024-04-05 19:08:26
-Random Quote: The Deep: "What do we do? We can't just kill everyone."
-Billy Butcher: "That's exactly what we're gonna do!" - Billy Butcher
+Last updated: 2024-04-05 19:09:00
+Random Quote: Silver or lead. You decide. - Pablo Escobar
