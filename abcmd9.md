@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 17:18:10
-Random Quote: I keep making mistakes and not learning from them. - Cassie Howard
+Last updated: 2024-04-05 17:18:43
+Random Quote: Lily, I think we made a mistake moving out to the suburbs. I miss our home. I miss our booth with our friends. And I'm pretty sure I have a drumstick... somewhere bad. - Marshall Eriksen
