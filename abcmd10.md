@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 12:10:23
-Random Quote: No man has ever died from bending his knee.  He who kneels may rise again, blade in hand.  He who will not kneel stays dead, stiff legs and all.  -  Balon Greyjoy
+Last updated: 2024-04-05 12:10:57
+Random Quote: People are making apocalypse jokes like there's no tomorrow. - Will Livingston
