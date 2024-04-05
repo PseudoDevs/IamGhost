@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 18:37:26
-Random Quote: The distinction between past, present, and future is only a stubbornly persistent illusion. - 
+Last updated: 2024-04-05 18:37:59
+Random Quote: No one had expected the broken boy to live.  The gods could not kill Bran, no more than I could.  It was a strange thought, and stranger still to remember that Bran might still be alive.  -  Theon Greyjoy
