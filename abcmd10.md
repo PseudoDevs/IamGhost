@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 13:36:08
-Random Quote: You know what else is scary? Walking home alone at night. But us women keep doing it. Take fear by the hand and keep living. Because you have to live, gentlemen! You have to live until the end! - Nairobi
+Last updated: 2024-04-05 13:36:41
+Random Quote: (Love is) pain, horrible pain, that you want again and again. - Sophia Burset
