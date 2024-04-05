@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 07:29:51
-Random Quote: The common people pray for rain, healthy children, and a summer that never ends.  It is no matter to them if the high lords play their game of thrones, so long as they are left in peace.  They never are.  -  Jorah Mormont
+Last updated: 2024-04-05 07:30:24
+Random Quote: I'm missing half my zucchini. These girls don't realize I'm here to provide food, not dildos. - Galina 'Red' Reznikov
