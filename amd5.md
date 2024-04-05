@@ -1,3 +1,3 @@
-Last updated: 2024-04-05 16:59:33
-Random Quote: Jerry: "Why Florida?"
-Cat: "Because they don't ask questions. They play Volleyball, they party and they have fun." - Rick and Morty
+Last updated: 2024-04-05 17:00:06
+Random Quote: Kids, you can't talk yourself into falling in love. It doesn't take days of deliberation. When it's real, you know pretty quickly and with absolute certainty.
+I had forgotten that, but I was about to be reminded... - Ted Mosby
