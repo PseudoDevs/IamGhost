@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 16:00:46
-Random Quote: She had seen Bronn fight on the high road; it was no accident that he had survived the journey while other men had died.  He moved like a panther, and that ugly sword of his seemed a part of his arm.  -  Catelyn Stark
+Last updated: 2024-04-05 16:01:19
+Random Quote: I want you to wanna kiss me so bad that you don't even ask. - Jules Vaughn
