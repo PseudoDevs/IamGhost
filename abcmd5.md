@@ -1,2 +1,5 @@
-Last updated: 2024-04-05 07:27:23
-Random Quote: That went surprisingly well. You came off like a naive idiot - and naive idiots are not a threat. - Viktor Bryukhanov
+Last updated: 2024-04-05 07:27:57
+Random Quote: Dina: "You're infuriating."
+Ellie: "Have you met you?"
+Dina: "You make me want to go back outside into that blizzard."
+Ellie: "No one is stopping you." - Joel Miller
