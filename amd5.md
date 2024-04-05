@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 19:14:36
-Random Quote: Woman: "How can you not remember my name? it rhymes with your name?"Barney: "And I said my name was...?" - Barney Stinson
+Last updated: 2024-04-05 19:15:09
+Random Quote: My lady, I have seen how you look at my brother.  Loras is valiant and handsome, and we all love him dearly... but your Imp will make a better husband.  He is a bigger man than he seems, I think.  -  Garlan Tyrell
