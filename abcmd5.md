@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 12:17:54
-Random Quote: I'm not sure whose twisted idea it was to put hundreds of adolescents in underfunded schools run by people whose dreams were crushed years ago... but I admire the sadism. - Wednesday Addams
+Last updated: 2024-04-05 12:18:35
+Random Quote: It is R'hllor who brings you back, my lord.  The Lord of Light.  I am only his instrument.  -  Thoros of Myr
