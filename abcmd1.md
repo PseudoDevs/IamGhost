@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 08:10:52
-Random Quote: In my body, where the shame gland should be, there is a second awesome gland. True story! - Barney Stinson
+Last updated: 2024-04-05 08:11:25
+Random Quote: What you have to do is show these suckers what you’re capable of. Show them you’re not scared. - Nairobi
