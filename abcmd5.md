@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 17:58:27
-Random Quote: He made me kill a rabbit. I guess he thought it would make me into more of a man or something. I cried for a week. - Jonathan Byers
+Last updated: 2024-04-05 17:59:00
+Random Quote: I have worked at the downfall of Tywin Lannister since the day they told me of Elia and her children.  -  Doran Martell
