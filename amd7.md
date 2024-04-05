@@ -1,4 +1,2 @@
-Last updated: 2024-04-05 17:55:24
-Random Quote: Bro McDonald had a farm, E-I-E-I-bro
-And on that farm he had some chicks, E-I-E-I-bro
-With a hot chick here and a dumb chick there... - Barney Stinson
+Last updated: 2024-04-05 17:55:57
+Random Quote: I wouldn't lie to you. Well... that's a lie. - Rick Sanchez
