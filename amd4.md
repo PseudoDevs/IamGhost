@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 18:14:12
-Random Quote: I can not believe that a woman who was brave enough to travel halfway around the world to pursue her dreams would allow anyone to dictate who she can be with. - Fabiola Torres
+Last updated: 2024-04-05 18:14:45
+Random Quote: A family is like a small business. And with a small business, at times, there comes a bit of transition. - Marty Byrde
