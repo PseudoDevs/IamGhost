@@ -1,2 +1,3 @@
-Last updated: 2024-04-05 18:52:32
-Random Quote: What if everything that came from the past was influenced by the future. - H.G. Tannhaus
+Last updated: 2024-04-05 18:53:06
+Random Quote: Lily: "We're going to Atlantic City to elope - right now!"
+Barney: "Oh, congratulations Lily! Marshall, you're getting married? What the hell?" - Barney Stinson
