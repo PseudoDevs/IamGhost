@@ -1,4 +1,2 @@
-Last updated: 2024-04-05 10:59:50
-Random Quote: Greef: "Nevarro is a very fine planet. And now that the scum and villainy have been washed away, it's very respectable again."
-Mando: "As a bounty hunter hive?"
-Greef: "Some of my favorite people are bounty hunters." - Greef Karga
+Last updated: 2024-04-05 11:00:24
+Random Quote: All men are fools, if truth be told, but the ones in motley are more amusing than the ones with crowns.  -  Olenna Tyrell
