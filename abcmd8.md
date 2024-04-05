@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 17:21:25
-Random Quote: Marshall: "The tiniest little burger joint you ever saw. Tucked between a taxidermist and a XXX bookstore."Barney: "Name two places where things get stuffed." - Barney Stinson
+Last updated: 2024-04-05 17:21:58
+Random Quote: Ted: "My mother is not one-night-stand material!"Barney: "Yeah, you're right. It wasn't night and we weren't standing." - Barney Stinson
