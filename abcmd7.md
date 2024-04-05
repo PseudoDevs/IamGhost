@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 12:45:07
-Random Quote: The good thing about relationships is that you finally forget how they started. - Tokyo
+Last updated: 2024-04-05 12:45:42
+Random Quote: I only have one rule. For every three 10's you bang, throw a bone to a 5. They're grateful and hard working and let's face it, sometimes you just want to lay there. - Barney Stinson
