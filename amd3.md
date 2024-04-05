@@ -1,3 +1,2 @@
-Last updated: 2024-04-05 20:32:43
-Random Quote: Wanda: "I had a brother. His name was Pietro."
-Geraldine: "He was killed by Ultron, wasn't he?" - Monica "Geraldine" Rambeau
+Last updated: 2024-04-05 20:33:17
+Random Quote: The Citadel took my chain, but they could not take my knowledge.  -  Qyburn
