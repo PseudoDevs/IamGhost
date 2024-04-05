@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 17:45:49
-Random Quote: Walter Jr., you’re my big man. There are going to be some things that you’ll come to learn about me in the next few days. But just know that no matter how it may look, I only had you in my heart. Goodbye! - Walter White
+Last updated: 2024-04-05 17:46:23
+Random Quote: He'd led me in war, hunted with a king, won honor in tourney melees, ridden with Brynden Blackfish and Greatjon Umber, fought in the Whispering Wood, bedded more girls than he could name, and yet his uncle was treating him as though he were still a child of ten.  -  Theon Greyjoy

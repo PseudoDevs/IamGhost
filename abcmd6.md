@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 17:45:49
-Random Quote: I am on a curiosity voyage and I need my paddles to travel. These books - these books are my paddles. I need my paddles. - Dustin Henderson
+Last updated: 2024-04-05 17:46:23
+Random Quote: It's not Aerys I rue, it's Robert... Why is it no one names Robert oathbreaker?  He tore the realm apart, yet I am the one with shit for honor.  -  Jaime Lannister
