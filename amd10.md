@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 16:56:47
-Random Quote: Anyone who goes after him is gonna have to come through me. - Mike Ehrmantraut
+Last updated: 2024-04-05 16:57:20
+Random Quote: Robert was the true steel.  Stannis is pure iron, black and hard and strong, yes, but brittle, the way iron gets.  He'll break before he bends.  And Renly, that one, he's copper, bright and shiny, pretty to look at but not worth all that much at the end of the day.  -  Donal Noye
