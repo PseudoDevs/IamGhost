@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 15:23:24
-Random Quote: Have you ever been told you're different, odd, or simply don't belong? In a world full of normies, do you feel like an outcast? Me too. But I'm pleased to tell you there's a very special place for people like us. Nevermore Academy. - Wednesday Addams
+Last updated: 2024-04-05 15:23:57
+Random Quote: Believe me, I’ve had five divorces. Do you know what five divorces are? Five times I believed in love. - Berlin
