@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 18:25:09
-Random Quote: If you get pulled over for speeding, tell the policeman your spouse has diarrhea. - Phil Dunphy
+Last updated: 2024-04-05 18:25:42
+Random Quote: Bad guys don't play by the rules. That's what makes them bad. - Steve Murphy
