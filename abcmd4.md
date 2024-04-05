@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 12:23:42
-Random Quote: I like my testicles attached to my body, rather than rolling around next to some eyeliner in Robin's purse. Stinson out! - Barney Stinson
+Last updated: 2024-04-05 12:24:18
+Random Quote: Rattleshirt, we called him.  Treacherous and bloodthirsty.  If there's honor in him, he hides it down beneath his suit of bones.  -  Jon Snow
