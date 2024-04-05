@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 20:25:47
-Random Quote: I understand that if any more words come pouring out of your cunt mouth I'm going to have to eat every fucking chicken in this room.  -  Sandor Clegane
+Last updated: 2024-04-05 20:26:20
+Random Quote: They are knights now, all three, and your sister has promised them further advancement.  And the eldest, Set Osmund of the Kingsguard, dreams of certain other... favors... as well.  You can match the queen coin for coin, I have no doubt, but she has a second purse that is quite inexhaustible.  -  Varys
