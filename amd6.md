@@ -1,3 +1,2 @@
-Last updated: 2024-04-05 19:07:51
-Random Quote: The boobs on the bus go up and down, up and down, up and down
-The boobs on the bus go up and down, all through the town - Barney Stinson
+Last updated: 2024-04-05 19:08:24
+Random Quote: Fine I'll fill her in and I am so angry I am not even goin' to make a joke about "filling her in"... which I did three times last night. Self-five! - Barney Stinson
