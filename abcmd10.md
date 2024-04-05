@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 07:53:58
-Random Quote: Pardon me, but you really hurt my feelings. - Hannah Baker
+Last updated: 2024-04-05 07:54:31
+Random Quote: We can only die.  Why else do we don these black cloaks, but to die in defense of the realm?  -  Qhorin Halfhand
