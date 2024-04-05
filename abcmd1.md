@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 15:58:26
-Random Quote: We've discussed this, mornings are for coffee and contemplation. - Jim Hopper
+Last updated: 2024-04-05 15:58:59
+Random Quote: Did the boy charm you?  He has that gift.  He got it from his father, with the blood.  He knows he is a king's son, but chooses to forget that he is bastard - born. 
