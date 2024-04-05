@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 20:17:14
-Random Quote: Friendships are the foundation that we stand on. - Nina Locke
+Last updated: 2024-04-05 20:17:48
+Random Quote: Marshall: "Yes, i want a ball-room and I want a band and I want shoes. I've been dreaming about this day since I was... like...Lily: "...a little girl?" - Lily Aldrin
