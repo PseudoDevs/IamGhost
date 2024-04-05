@@ -1,2 +1,4 @@
-Last updated: 2024-04-05 07:06:36
-Random Quote: The world was full of cravens who pretended to be heroes; it took a queer sort of courage to admit to cowardice as Samwell Tarly had.  -  Jon Snow
+Last updated: 2024-04-05 07:07:10
+Random Quote: Ted: "It's freezing out there. Where's your coat?"
+Robin: "Ted, I'm Canadian. I don't need a coat. This kind of weather is nothing for me."
+Marshall: "Yeah. This is like a spring day back in Minnesota." - Marshall Eriksen
