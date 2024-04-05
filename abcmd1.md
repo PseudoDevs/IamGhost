@@ -1,2 +1,4 @@
-Last updated: 2024-04-05 17:09:49
-Random Quote: No sword is strong until it's been tempered.  The Stark boy is a child.  No doubt he likes the sound of warhorns well enough, and the sight of his banners fluttering in the wind, but in the end it comes down to butcher's work.  I doubt he has the stomach for it.  -  Tywin Lannister
+Last updated: 2024-04-05 17:10:22
+Random Quote: Barney: "Ted, I'm gonna teach you how to live. Barney... we met at the urinal. Lesson 1: Loose the goatee it doesn't go with your suit!"
+Ted: "I'm not wearing a suit."
+Barney: "Lesson 2: Get a suit, suits are cool. Exhibit A. Lesson 3: "Don't even think about getting married until your 30." - Barney Stinson
