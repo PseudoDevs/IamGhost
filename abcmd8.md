@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 07:33:46
-Random Quote: The stone is strong... the roots of the trees grow deep, and under the ground the Kings of Winter sit their thrones.  So long as those remained, Winterfell remained.  It was not dead, just broken.  Like me... I'm not dead either.  -  Bran Stark
+Last updated: 2024-04-05 07:34:53
+Random Quote: I have my own ghosts, Bran.  A brother that I loved, a brother that I hated, a woman I desired.  Through the trees, I see them still, but no word of mine has ever reached them.  The past remains the past.  We can learn from it, but we cannot change it.  -  Bloodraven
