@@ -1,2 +1,4 @@
-Last updated: 2024-04-05 11:09:19
-Random Quote: You're not gonna believe this because it usually never happens, but I made a mistake! - Rick Sanchez
+Last updated: 2024-04-05 11:09:53
+Random Quote: Greef: "Nevarro is a very fine planet. And now that the scum and villainy have been washed away, it's very respectable again."
+Mando: "As a bounty hunter hive?"
+Greef: "Some of my favorite people are bounty hunters." - Greef Karga
