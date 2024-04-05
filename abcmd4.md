@@ -1,2 +1,3 @@
-Last updated: 2024-04-05 08:28:45
-Random Quote: My arm hasn't been this sore, since I was 13 years old and figured out how to lock a bathroom. - Barney Stinson
+Last updated: 2024-04-05 08:29:18
+Random Quote: May: "May Carleton. I breed racehorses and train them. What is it you do?"
+Thommy: "I rarely answer questions is what I do." - Thomas Shelby
