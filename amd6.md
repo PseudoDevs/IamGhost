@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 18:11:15
-Random Quote: I'm a simple man making his way through the galaxy. Like my father before me. - Boba Fett
+Last updated: 2024-04-05 18:11:49
+Random Quote: Demons made of snow and ice and cold.  The ancient enemy.  The only enemy that matters.  -  Stannis Baratheon
