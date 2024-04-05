@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 15:02:26
-Random Quote: Some had been heroes, some weaklings, knaves, or cravens.  Most were only men, quicker and stronger than most, more skilled with sword and shield, but still prey to pride, ambition, lust, love, anger, jealousy, greed for gold, hunger for power, and all the other failings that afflicted lesser mortals.  The best of them overcame their flaws, did their duty, and died with their swords in their hands.  The worst... the worst were those who played the game of thrones.  -  Barristan Selmy
+Last updated: 2024-04-05 15:02:59
+Random Quote: I saw a couple riding a tandem bike, and it made me think of how you don't know how to ride a bike. - Kamala
