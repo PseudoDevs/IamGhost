@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 16:08:40
-Random Quote: If a song makes a maid want to slip off her clothes and feel the good warm sun kiss her skin, why is that the singer's fault?  -  Tom of Sevenstreams
+Last updated: 2024-04-05 16:09:13
+Random Quote: You Westerosi are all the same.  You sew some beast upon a scrap of silk, and suddenly you are all lions or dragons or eagles.  -  Illyrio Mopatis
