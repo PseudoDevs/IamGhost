@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 12:18:35
-Random Quote: It is R'hllor who brings you back, my lord.  The Lord of Light.  I am only his instrument.  -  Thoros of Myr
+Last updated: 2024-04-05 12:20:34
+Random Quote: If that’s true, if you don’t know who I am, then maybe your best course… would be to tread lightly. - Walter White
