@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 12:10:34
-Random Quote: God wasn't protecting you. The kid had shitty aim. - Grace Young
+Last updated: 2024-04-05 12:11:07
+Random Quote: You don’t love anyone? Of course you don’t, darling. You don’t have the balls for it. To love, you need courage. - Nairobi
