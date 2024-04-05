@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 20:19:29
-Random Quote: Enjoy your mai-tai, because soon you will be wearing my tie! - Marshall Eriksen
+Last updated: 2024-04-05 20:20:02
+Random Quote: The best pie you have ever tasted, my lords.  Wash it down with Arbor gold and savor every bite.  I know I shall.  -  Wyman Manderly
