@@ -1,4 +1,2 @@
-Last updated: 2024-04-05 12:49:44
-Random Quote: Joel: "Long way or short way?"
-Tess: "I mean, it's the long way or the 'we're fuckin' dead' way."
-Ellie: "Well, I vote long way just based on that limited information." - Ellie Williams
+Last updated: 2024-04-05 12:50:17
+Random Quote: If you die before you say her name, Set, I will hunt you through the seven hells.  -  Oberyn Martell
