@@ -1,3 +1,2 @@
-Last updated: 2024-04-05 17:31:36
-Random Quote: The Deep: "What do we do? We can't just kill everyone."
-Billy Butcher: "That's exactly what we're gonna do!" - Billy Butcher
+Last updated: 2024-04-05 17:32:09
+Random Quote: Want to know what God thinks of money? Take a look at who he gives it to. - Pacho Herrera
