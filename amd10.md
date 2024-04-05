@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 16:13:37
-Random Quote: Not only are you wrong... but you are belligerently sticking to your guns and insulting me in the process. Robin Scherbatsky, you are an American. - Barney Stinson
+Last updated: 2024-04-05 16:14:44
+Random Quote: Rickard Karstark killed more than a Frey and a Lannister.  He killed my honor.  -  Robb Stark
