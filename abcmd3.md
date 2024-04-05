@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 08:46:34
-Random Quote: Some things are more important than doing math problems. - Bode Locke
+Last updated: 2024-04-05 08:47:07
+Random Quote: We all have things we keep hidden. Sometimes, keeping secrets is how you survive. Because in High School, one rumor, one picture, one incident, can define you forever. - Hannah Baker
