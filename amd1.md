@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 18:29:06
-Random Quote: Sometimes a truce is the most important part of a war. - Professor
+Last updated: 2024-04-05 18:29:39
+Random Quote: I don't know what kind of fed up sht you got going inside of your head. I don't know how to help, but I could tell you one thing: This drug sht - it's not the answer. - Fezco
