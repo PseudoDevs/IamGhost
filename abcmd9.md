@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 19:45:52
-Random Quote: Most people are nothing but pawns on a chessboard led by an unknown hand - Noah
+Last updated: 2024-04-05 19:46:25
+Random Quote: He'd led me in war, hunted with a king, won honor in tourney melees, ridden with Brynden Blackfish and Greatjon Umber, fought in the Whispering Wood, bedded more girls than he could name, and yet his uncle was treating him as though he were still a child of ten.  -  Theon Greyjoy
