@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 15:50:15
-Random Quote: My father never bellowed like the Greatjon, but he was no less dangerous in his wroth.  -  Alys Karstark
+Last updated: 2024-04-05 15:50:48
+Random Quote: Men of honor will do things for their children that they would never consider doing for themselves.  -  Petyr Baelish
