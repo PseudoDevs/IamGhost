@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 12:59:36
-Random Quote: The stone is strong... the roots of the trees grow deep, and under the ground the Kings of Winter sit their thrones.  So long as those remained, Winterfell remained.  It was not dead, just broken.  Like me... I'm not dead either.  -  Bran Stark
+Last updated: 2024-04-05 13:00:12
+Random Quote: Time is different for a tree than for a man.  Sun and soil and water, these are the things a weirwood understands, not days and years and centuries.  For men, time is a river.  We are trapped in its flow, hurtling from past to present, always in the same direction.  The lives of trees are different.  They root and grow and die in one place, and that river does not move them.  The oak is the acorn, the acorn is the oak.  And the weirwood... a thousand human years are a moment to a weirwood, and through such gates you and I may gaze into the past.  -  Bloodraven
