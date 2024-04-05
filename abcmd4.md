@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 18:00:07
-Random Quote: Why didn't you say this to me when I was alive? - Hannah Baker
+Last updated: 2024-04-05 18:00:40
+Random Quote: They get in your head. People tell lies about you, and other people believe them. And it gets to the point where the lies might as well be the truth. - Tyler Down
