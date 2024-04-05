@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 18:53:39
-Random Quote: The frightened child who sheltered in my manse died on the Dothraki Sea, and was reborn in blood and fire.  This dragon queen who wears her name is a true Targaryen.  -  Illyrio Mopatis
+Last updated: 2024-04-05 18:54:13
+Random Quote: The Scarlet Witch is not born, she is forged. She has no coven, no need for incantation. - Agatha Harkness

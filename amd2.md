@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 18:53:39
-Random Quote: My old septon used to say that books are dead men talking.  Dead men should keep quiet, is what I say.  No one wants to hear a dead man's yabber.  -  Dolorous Edd Tollett
+Last updated: 2024-04-05 18:54:13
+Random Quote: The truth is, our weakness is the same as anyone’s. It’s people. The people we care about. So I say, cut them loose. For your good and for theirs. That way you’re really bulletproof. - Maeve
