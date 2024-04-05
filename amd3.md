@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 18:46:54
-Random Quote: None will be free until the old ways are gone forever. - Kuiil
+Last updated: 2024-04-05 18:47:27
+Random Quote: They shall come day and night to see the wonder that has been born again into the world, and when they see they shall lust.  For dragons are fire made flesh, and fire is power.  -  Quaithe
