@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 18:44:40
-Random Quote: Everyone wants something, Alayne.  And when you know what a man wants you know who he is, and how to move him.  -  Petyr Baelish
+Last updated: 2024-04-05 18:45:47
+Random Quote: You're a freak, but what? Do you wanna be normal? Do you wanna be just like everyone else? - Jonathan Byers

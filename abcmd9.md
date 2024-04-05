@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 18:44:39
-Random Quote: They pray to trees and golden idols and goat - headed abominations.  False gods... just so, and for that sin I kill them all.  I spill their blood upon the sea and sow their screaming women with my seed.  Their little gods cannot stop me, so plainly they are false gods.  I am more devout than even you, Aeron.  Perhaps it should be you who kneels to me for blessing. 
+Last updated: 2024-04-05 18:45:47
+Random Quote: Fellas, I was enjoying the Laurel and Hardy vibe, but I'm not such a fan of the Bickersons. - Saul Goodman
