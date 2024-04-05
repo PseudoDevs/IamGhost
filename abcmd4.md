@@ -1,5 +1,2 @@
-Last updated: 2024-04-05 10:59:17
-Random Quote: Morty: "Mom, I have a friend coming over. Is that cool?"
-Beth: "I told your sister no parties."
-Morty: "It's one friend."
-Beth: "That's a party to you." - Beth Smith
+Last updated: 2024-04-05 10:59:51
+Random Quote: Barney: "I had a drinking game based on Robin. But it was actually ON Robin: I'd pour peach schnapps in her belly button..."Ted: "Dude, we agreed we wouldn't do this."Barney: "Sorry. You're right. She didn't like it anyway. Said it woke her up." - Barney Stinson

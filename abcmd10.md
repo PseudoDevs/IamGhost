@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 10:59:17
-Random Quote: Everything will be okay in the end. If it's not okay, it's not the end. - Yuk Je
+Last updated: 2024-04-05 10:59:51
+Random Quote: You must be blind as well as maimed, Set.  Lift your eyes, and you will see the direwolf still flies above our walls.  -  Brynden Tully
