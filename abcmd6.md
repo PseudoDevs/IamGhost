@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 12:23:02
-Random Quote: If the cancer doesn't get him, it'll be the cops or a bullet to the head. - Mike Ehrmantraut
+Last updated: 2024-04-05 12:23:39
+Random Quote: Ted: "When you leave someone at the altar, you always leave a note. It's common courtesy."Victoria: "I think common courtesy went out the window when I did." - Victoria
