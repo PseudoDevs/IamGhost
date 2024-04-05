@@ -1,2 +1,3 @@
-Last updated: 2024-04-05 16:39:38
-Random Quote: Jaime and I are more than brother and sister.  We are one person in two bodies.  We shared a womb together.  He came into this world holding my foot, our old maester said.  When he is in me, I feel... whole.  -  Cersei Lannister
+Last updated: 2024-04-05 16:40:11
+Random Quote: Billy: "Halloween's a magical holiday. All about family, friends, and the thrill of getting to be someone else for a day."
+Tommy: "Wrong! Halloween's about candy. And scaring people, but mostly candy." - Tommy Maximoff
