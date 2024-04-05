@@ -1,2 +1,5 @@
-Last updated: 2024-04-05 10:13:51
-Random Quote: It's okay to lose yourself in this, just as long as you can find yourself again. - Nina Locke
+Last updated: 2024-04-05 10:14:24
+Random Quote: Abby: "Do we have to go back this way?"
+Owen: "Consider it an opportunity to work on your fears."
+Abby: "How about I work my foot up your ass?"
+Owen: "Abby, stop flirting!" - Joel Miller
