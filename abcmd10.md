@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 19:00:27
-Random Quote: I don’t need a calculator, dad. I am one. - Sheldon
+Last updated: 2024-04-05 19:01:02
+Random Quote: Think of me as Yoda - only, instead of being little and green, I wear suits and I'm awesome. I'm your bro. I'm Broda. - Barney Stinson
