@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 13:57:54
-Random Quote: Godless?  Why, Aeron, I am the godliest man ever to raise sail!  You serve one god, Damphair, but I have served ten thousand.  From Ib to Asshai, when men see my sails, they pray.  -  Euron Greyjoy
+Last updated: 2024-04-05 13:58:28
+Random Quote: Ted: "We can do it against the door. It will be hot. It will be like a three-way: you, me and the door."Stella: "Yeah, but then it's going to be weird between me and the door tomorrow." - Stella Zinman
