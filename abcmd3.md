@@ -1,3 +1,2 @@
-Last updated: 2024-04-05 12:50:54
-Random Quote: Sam: "How do you know about Gandalf?"
-Bucky: "I read 'The Hobbit' in 1937, when it first came out." - Bucky Barnes
+Last updated: 2024-04-05 12:51:28
+Random Quote: Everyone wants something, Alayne.  And when you know what a man wants you know who he is, and how to move him.  -  Petyr Baelish
