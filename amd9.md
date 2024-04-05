@@ -1,4 +1,2 @@
-Last updated: 2024-04-05 18:46:54
-Random Quote: Marshall: "Except the flames of Lucifer keep singein our back bumper as we drive through this hellish, cheese-infected wasteland."
-Lily: "Wisconsin?"
-Marshall: "Wisconsin!" - Marshall Eriksen
+Last updated: 2024-04-05 18:48:00
+Random Quote: Finally, you will be among pears who understand you. Maybe you'll even make some friends. - Morticia Addams
