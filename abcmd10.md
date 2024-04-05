@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 17:47:57
-Random Quote: Get the f out of here and don't stop walking until you hear them speak English! - Guillermo Gonzalez Calderoni
+Last updated: 2024-04-05 17:48:30
+Random Quote: No one had expected the broken boy to live.  The gods could not kill Bran, no more than I could.  It was a strange thought, and stranger still to remember that Bran might still be alive.  -  Theon Greyjoy
