@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 18:05:21
-Random Quote: Lily: "We'll all have a wedding dress camp-out. It'll be fun!"Barney: "I can't go. I've got this thing."Lily: "What thing?"Barney: "A penis!" - Barney Stinson
+Last updated: 2024-04-05 18:05:54
+Random Quote: Dance, until your feet hurt. Sing, until your lungs hurt. Act, until you're William Hurt. - Phil Dunphy
