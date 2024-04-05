@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 15:56:53
-Random Quote: It's okay to lose yourself in this, just as long as you can find yourself again. - Nina Locke
+Last updated: 2024-04-05 15:58:00
+Random Quote: Old gods or new, it makes no matter, no man is so accursed as the kinslayer.  -  Rickard Karstark
