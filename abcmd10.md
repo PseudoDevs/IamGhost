@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 12:49:09
-Random Quote: The Citadel took my chain, but they could not take my knowledge.  -  Qyburn
+Last updated: 2024-04-05 12:49:44
+Random Quote: If you keep all your treasures in one purse, you only make it easier for those who would rob you.  -  Robb Stark
