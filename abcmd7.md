@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 15:12:55
-Random Quote: Because family is forever. - Wanda Maximoff
+Last updated: 2024-04-05 15:13:28
+Random Quote: You Westerosi are all the same.  You sew some beast upon a scrap of silk, and suddenly you are all lions or dragons or eagles.  -  Illyrio Mopatis
