@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 19:38:14
-Random Quote: Marshall: "I don't care if the dishes aren't done, okay? If you care, you do it."Lily: "Great, then I don't care if you have an orgasm. If you care, you do it." - Lily Aldrin
+Last updated: 2024-04-05 19:38:48
+Random Quote: I'm going out of this world the same way I came into it: Buck-naked. Yeah. It's gonna be awesome. Open bar for the guys, open casket for the ladies. What up? - Barney Stinson
