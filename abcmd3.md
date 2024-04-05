@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 15:05:12
-Random Quote: Perhaps magic was once a mighty force in the world, but no longer.  What little remains is no more than the wisp of smoke that lingers in the air after a great fire has burned out, and even that is fading.  Valyria was the last ember, and Valyria is gone.  -  Maester Luwin
+Last updated: 2024-04-05 15:05:45
+Random Quote: That's what they do, don't they? They show you the world, and then they tell you you can't have it. - Virginia Wilson
