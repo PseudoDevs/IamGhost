@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 15:11:49
-Random Quote: The beautiful thing about getting high is that time ceases to exist. - Rue Bennett
+Last updated: 2024-04-05 15:12:22
+Random Quote: So I will only ask you once, Lord Snow.  Are you a brother of the Night's Watch, or a bastard boy who wants to play at war?  -  Jeor Mormont
