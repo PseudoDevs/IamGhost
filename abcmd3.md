@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 10:13:18
-Random Quote: Ted, honey, I want you to go outside and bite the curb. I'll be out in a minute. - Lily Aldrin
+Last updated: 2024-04-05 10:13:51
+Random Quote: I swear on my name. And the names of the Ancestors, that I shall walk the way of the Mand'alor and the words of the Creed shall be forever forged in my heart. - Din Djarin
