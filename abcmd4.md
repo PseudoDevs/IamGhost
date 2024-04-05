@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 09:39:12
-Random Quote: Is it your fault that Bronn's an insolent black - hearted rogue?  He's always been an insolent black
+Last updated: 2024-04-05 09:39:45
+Random Quote: You cannot change the nature of things. I am who I am. And you are who you are. Nothing will change that. - Ángel
