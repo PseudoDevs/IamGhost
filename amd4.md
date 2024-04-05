@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 17:44:19
-Random Quote: Ran: "Mayfeld, he's one of the best triggermen I've ever seen. Former Imperial sharpshooter."Mando: "That's not saying much." - Din Djarin
+Last updated: 2024-04-05 17:44:53
+Random Quote: All the tales agreed that the green men had strange magic powers.  Maybe they could help him walk again, even turn him into a knight.  They turned the little crannogman into a knight, even if it was only for a day, he thought.  A day would be enough.  -  Bran Stark
