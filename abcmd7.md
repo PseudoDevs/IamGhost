@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 16:43:19
-Random Quote: Hey, it's me again. Look, who are we kidding? You and I are both attracted to each other. We're young, we're drunk, half of us anyway. And we only get one life, so why don't you come over to my apartment and we'll think of something stupid to do together? - Ted Mosby
+Last updated: 2024-04-05 16:43:53
+Random Quote: I know about the promiese... Maester Theomore, tell them!  A thousand years before the Conquest, a promise was made, and oaths were sworn in the Wolf's Den before the Old Gods and the new.  When we were sore beset and friendless, hounded from our homes and in peril of our lives, the wolves took us in and nourished us and protected us against our enemies.  The city is built upon the land they gave us.  In return we swore that we should always be their men.  Stark men!  -  Wylla Manderly
