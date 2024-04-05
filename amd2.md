@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 17:19:28
-Random Quote: Marshall: "Are you sure this poo-poo didn't happen on your watch and you just ran out the clock until it was my problem?"Lily: "Oh, yeah. Yeah, yeah, right. What kind of mother lets her son sit in his own filth for an extra nine minutes and 42 seconds?" - Lily Aldrin
+Last updated: 2024-04-05 17:20:35
+Random Quote: A good lord comforts and protects the weak and helpless.  -  Maester Luwin
