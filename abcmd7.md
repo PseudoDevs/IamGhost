@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 12:27:20
-Random Quote: I feel like love is super dark and no one ever talks about it. - Cassie Howard
+Last updated: 2024-04-05 12:27:54
+Random Quote: The Burned Men fear nothing.  Timett, son of Timett will ride with the lions.  -  Timett, son of Timett
