@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 15:54:38
-Random Quote: All three of you were being a buch of little a-sholes. I was the only reasonable one. - Dustin Henderson
+Last updated: 2024-04-05 15:56:19
+Random Quote: Because you're so broken you don't even trust yourself. And that's scary. - Nate Jacobs
