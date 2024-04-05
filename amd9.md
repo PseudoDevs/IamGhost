@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 19:02:44
-Random Quote: I think my soul just threw up a little bit. - Lily Aldrin
+Last updated: 2024-04-05 19:03:18
+Random Quote: Kingthlayer... you are my captifth.  -  Vargo Hoat
