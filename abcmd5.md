@@ -1,3 +1,2 @@
-Last updated: 2024-04-05 13:29:58
-Random Quote: Freddie: "You think I can't handle Tommy Shelby?"
-Polly: "You can't. I am having trouble these days and I'm twice the man you are." - Polly Gray
+Last updated: 2024-04-05 13:30:31
+Random Quote: There is no stronger bond than that of the family you choose. - Miguel Angel Felix Gallardo

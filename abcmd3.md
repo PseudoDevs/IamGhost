@@ -1,6 +1,2 @@
-Last updated: 2024-04-05 13:29:58
-Random Quote: Polly: "Six."
-John: "Six what?"
-Polly: "Six questions since you walked through that door. Soon you'll have to start being the man with the answers."
-John: "Why?"
-Polly: "Seven." - Polly Gray
+Last updated: 2024-04-05 13:30:32
+Random Quote: Best way to catch the smart ones? Get an idiot working for them. - Jaime Kuykendall
