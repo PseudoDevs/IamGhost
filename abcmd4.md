@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 15:43:56
-Random Quote: You two suck at peddling meth. - Saul Goodman
+Last updated: 2024-04-05 15:45:02
+Random Quote: There is a 83% correlation between times when men are wearing a boutonniere and when they are getting laid... proms, weddings, funerals... thanks for the redhead, grandma! By the way, did you know that "boutonniere" is french for "booty is near"? - Barney Stinson
