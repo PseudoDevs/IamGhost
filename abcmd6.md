@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 12:48:35
-Random Quote: They're all running away from something. Why else would someone want to go somewhere different? - Virginia Wilson
+Last updated: 2024-04-05 12:49:09
+Random Quote: When you play the game of thrones, you win or you die.  There is no middle ground.  -  Cersei Lannister
