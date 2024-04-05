@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 10:05:39
-Random Quote: There's always hope tomorrow'll be taco night. - Nicky Nichols
+Last updated: 2024-04-05 10:06:12
+Random Quote: Birds are lost, messages stolen or sold... there are things I might tell you of that eunuch that would chill your blood...  -  Grand Maester Pycelle
