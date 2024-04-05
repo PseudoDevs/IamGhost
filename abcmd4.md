@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 12:16:35
-Random Quote: Sometimes you gotta do bad things to catch bad people. - Javier Pe�a
+Last updated: 2024-04-05 12:17:11
+Random Quote: Now you may be asking yourself why is sports icon John McEnroe narrating this tale? It'll make sense later I promise. - John McEnroe
