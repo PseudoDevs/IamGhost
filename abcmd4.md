@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 10:51:27
-Random Quote: Barney: "I love how she was this wise, old, chilled out, lesbian farmer."Robin: "No, no, no. She's not a lesbian, nor does she farm them. No, that woman she lives with, that's just her special friend Maureen. They've lived together for... Oh!" - Robin Scherbatsky
+Last updated: 2024-04-05 10:52:01
+Random Quote: The title was but a courtesy due him as a council member; Varys was lord of nothing but the spiderweb, the master of none but his whispers.  -  Catelyn Stark
