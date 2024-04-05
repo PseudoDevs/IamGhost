@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 14:17:06
-Random Quote: What is the cost of lies? It's not that we mistake them for the truth. The real danger is that if we hear enough lies, then we no longer recognize the truth at all. - Valery Legasov
+Last updated: 2024-04-05 14:17:40
+Random Quote: Tormund Giantsbane seemed to me the sort of man who would make a good friend and a bad enemy, your Grace.  -  Jon Snow
