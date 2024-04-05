@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 18:38:41
-Random Quote: We’re not free in what we do because we’re not free in what we want. We can’t overcome what’s deep within us - The Stranger
+Last updated: 2024-04-05 18:39:14
+Random Quote: A Dothraki wedding without at least three deaths is considered a dull affair.  -  Illyrio Mopatis
