@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 15:04:06
-Random Quote: Listen, you have a choice, okay? You can pay up now or bleed to death in court. - Saul Goodman
+Last updated: 2024-04-05 15:04:39
+Random Quote: Everyone was yelling stuff.  Hot Pie yelled hot pie.  He must have yelled it a hundred times.  -  Arya Stark
