@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 18:49:39
-Random Quote: Treason is a noxious weed.  It must be torn up, root and stem and seed, lest new traitors sprout from every roadside.  -  Grand Maester Pycelle
+Last updated: 2024-04-05 18:50:13
+Random Quote: Nobody takes an intro class to get on any other path, but the path to not being hungover anymore. I learned that in my intro to something-ology class. - Marshall Eriksen
