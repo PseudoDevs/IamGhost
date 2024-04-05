@@ -1,5 +1,2 @@
-Last updated: 2024-04-05 07:40:57
-Random Quote: Marshall: "What the hell happened?"
-Barney: "I said no questions asked."
-Marshall: "Star, clover, horseshoe... Barney, did you swallow real versions of all the Lucky Charms items?"
-Barney: "No questions asked! Now come on. Let's hit the bar. I'm buying. I just won 50 bucks from a little Irish guy on a dare." - Barney Stinson
+Last updated: 2024-04-05 07:41:31
+Random Quote: Dismissing Selmy, where was the sense in that?  Yes, the man was old, but the name of Barristan the Bold still has meaning in the realm.  He lent honor to any man he served.  -  Tywin Lannister
