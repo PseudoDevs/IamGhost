@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 07:27:30
-Random Quote: Robin: "I wouldn't go to Cleveland for 125 million dollars, paid over six years."Ted: "Still with the LeBron jokes? Where's that ring he's supposed to have by now?" - Robin Scherbatsky
+Last updated: 2024-04-05 07:28:04
+Random Quote: They are knights now, all three, and your sister has promised them further advancement.  And the eldest, Set Osmund of the Kingsguard, dreams of certain other... favors... as well.  You can match the queen coin for coin, I have no doubt, but she has a second purse that is quite inexhaustible.  -  Varys
