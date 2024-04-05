@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 17:33:34
-Random Quote: You gotta move...The fuck...On! - Gloria Mendoza
+Last updated: 2024-04-05 17:34:41
+Random Quote: There is a savage beast in every man, and it stirs when you put a sword in his hand.  -  Jorah Mormont
