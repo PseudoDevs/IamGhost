@@ -1,3 +1,2 @@
-Last updated: 2024-04-05 17:40:59
-Random Quote: Lily: "Swear on the lifes of your unborn boy and girl!"
-Ted: "I swear... on Luke and Leia!" - Ted Mosby
+Last updated: 2024-04-05 17:41:33
+Random Quote: In this world, everything is governed by balance. There’s what you stand to gain and what you stand to lose. And when you think you’ve got nothing to lose, you become overconfident - Professor
