@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 18:28:49
-Random Quote: You need to figure out what the fuck you want. - Nicky Nichols
+Last updated: 2024-04-05 18:29:21
+Random Quote: My uncle Kevan would make a passably good regent if someone pressed the duty on him, but he will never reach for it.  The gods shaped him to be a follower, not a leader.  -  Tyrion Lannister
