@@ -1,3 +1,2 @@
-Last updated: 2024-04-05 12:31:41
-Random Quote: Bro, bro, bro your broat, gently to the bar
-Hit on sluts, then do ten shots and... - Barney Stinson
+Last updated: 2024-04-05 12:32:17
+Random Quote: Is it your fault that Bronn's an insolent black - hearted rogue?  He's always been an insolent black
