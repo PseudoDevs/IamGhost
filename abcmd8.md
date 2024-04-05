@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 20:13:54
-Random Quote: I'm not him, I'm not the turncloak, he died at Winterfell.  My name is Reek.  It rhymes with freak.  -  Reek
+Last updated: 2024-04-05 20:14:27
+Random Quote: You will never walk again... but you will fly.  -  Bloodraven
