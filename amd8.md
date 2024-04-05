@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 20:14:27
-Random Quote: Larry Bloom: "Piper, you put a pee stick in my rinsing cup."Piper Chapman: "Well, you put your pee stick in my vagina. And that's why we're in this situation." - Piper Chapman
+Last updated: 2024-04-05 20:15:34
+Random Quote: I think my soul just threw up a little bit. - Lily Aldrin
