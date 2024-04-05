@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 17:30:18
-Random Quote: I got more second-story guys in my book than pimples at a junior prom. - Saul Goodman
+Last updated: 2024-04-05 17:30:52
+Random Quote: Ramsay.  Snow, my wife called me before she ate her fingers, but I say Bolton.  -  Ramsay Bolton
