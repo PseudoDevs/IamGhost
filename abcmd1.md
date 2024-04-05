@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 18:50:49
-Random Quote: Because sometimes, even when you know how something's gonna end, that doesn't mean you can't enjoy the ride. - Ted Mosby
+Last updated: 2024-04-05 18:51:57
+Random Quote: I'm a Mandalorian. Weapons are part of my religion. - Din Djarin
