@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 08:49:03
-Random Quote: I can bring you in warm, or I can bring you in cold. - Din Djarin
+Last updated: 2024-04-05 08:49:36
+Random Quote: Make it easier for those whose vote you can count on. Make it harder for those you can't. That's how you rig an election without leaving a lick of evidence. - Walt Breslin
