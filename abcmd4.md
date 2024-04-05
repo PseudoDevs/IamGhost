@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 12:06:31
-Random Quote: Sheldon, can you hear me? It's your twin sister, MissyEverything's all right here, but I think Mom misses you real badAll right, I can't hear you, so I'm gonna hang up now. - Missy
+Last updated: 2024-04-05 12:07:04
+Random Quote: Come with me to the House of the Undying, and you shall drink of truth and wisdom.  -  Pyat Pree
