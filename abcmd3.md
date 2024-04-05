@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 14:42:57
-Random Quote: You can tell a lot about a person from his biography. - Phil Dunphy
+Last updated: 2024-04-05 14:43:31
+Random Quote: There are moments when we must understand that the decisions we make influence more than just our own fates. - 
