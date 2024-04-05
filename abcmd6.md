@@ -1,6 +1,2 @@
-Last updated: 2024-04-05 13:51:52
-Random Quote: Beth: "Do you want homeless people to have homes?"
-Jerry: "Yes."
-Beth: "Are you gonna build them?"
-Jerry: "No."
-Beth: "Then what good was the 'yes'?" - Beth Smith
+Last updated: 2024-04-05 13:52:27
+Random Quote: Sticky's even sent me a boob-shaped hand-sanitizer dispenser. It's clean and dirty at the same time. - Barney Stinson
