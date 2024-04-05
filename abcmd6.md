@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 19:16:18
-Random Quote: There was this sadness in his eyes. The kind you sometimes see in those who want to die, but life won’t let them - Noah
+Last updated: 2024-04-05 19:16:52
+Random Quote: People are oblivious to reality. They only see what they want to see, when all they have to do is shift their perspective to see the full scope of things. - Yuk Je
