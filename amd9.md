@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 17:12:38
-Random Quote: I’m just a tiny section of a huge tumor that is much bigger than any of us can imagine. - 
+Last updated: 2024-04-05 17:13:11
+Random Quote: Love is poison.  A sweet poison, yes, but it will kill you all the same.  -  Cersei Lannister
