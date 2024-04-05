@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 07:51:02
-Random Quote: I poured my blood, sweat and tears into that building. Though, to be fair, a lot of that happened the day I accidentally fell down the elevator shaft. - Ted Mosby
+Last updated: 2024-04-05 07:51:36
+Random Quote: Yes, it's you who ought to run, you and Lord Tywin and the Mountain and Set Addam and Set Amory and stupid Set Lyonel whoever he is, all of you better run or my brother will kill you, he's a Stark, he's more wolf than man, and so am I.  -  Arya Stark
