@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 07:53:25
-Random Quote: Stop crying. Remember? Crying makes you ugly and weak. - Dayanara Diaz
+Last updated: 2024-04-05 07:53:58
+Random Quote: She had seen Bronn fight on the high road; it was no accident that he had survived the journey while other men had died.  He moved like a panther, and that ugly sword of his seemed a part of his arm.  -  Catelyn Stark
