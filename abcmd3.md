@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 16:13:23
-Random Quote: Robin: "Our boy's back in the game."Lily: "Thank God, it's been a hundred years since Mosby scored a dame."Marshall: "The last time he saw boobies was the screen-test scene in 'Fame'."Robin: "The last girl he dated, I think 'Righty' was her name." - Robin Scherbatsky
+Last updated: 2024-04-05 16:13:57
+Random Quote: I have always wanted to have one mahogany desk, but crime and office don’t get along. - Berlin
