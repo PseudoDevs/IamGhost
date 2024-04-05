@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 19:45:00
-Random Quote: Larry Bloom: "Are we at least gonna talk about other options?"Piper Chapman: "You mean..."Larry Bloom: "It's not Voldemort, you can say it. Abortion." - Larry Bloom
+Last updated: 2024-04-05 19:45:33
+Random Quote: For a joke to work, it has to have part of truth and part of pain. - Berlin
