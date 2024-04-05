@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 16:30:35
-Random Quote: What do a bunch o' bloody peasants know about a lord's honor?  We know some about murder, though.  -  Lem Lemoncloak
+Last updated: 2024-04-05 16:31:08
+Random Quote: Nick: "So, I went to this fortune teller today and she said there was a curse on me."Robin: "Did she sell you something to ward off the curse?"Nick: "It's like you're a fortune teller, too." - Nick
