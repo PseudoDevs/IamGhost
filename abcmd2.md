@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 10:39:47
-Random Quote: Qhorin was my enemy.  But also my brother, once.  So... shall I thank you for killing him, Jon Snow?  Or curse you?  -  Mance Rayder
+Last updated: 2024-04-05 10:40:20
+Random Quote: I hate it when you talk sometimes. No... all the time. - Nicky Nichols
