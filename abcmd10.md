@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 17:17:33
-Random Quote: I hate kids. They don't drink, they haven't travelled... - Nicky Nichols
+Last updated: 2024-04-05 17:18:06
+Random Quote: Qhorin was my enemy.  But also my brother, once.  So... shall I thank you for killing him, Jon Snow?  Or curse you?  -  Mance Rayder

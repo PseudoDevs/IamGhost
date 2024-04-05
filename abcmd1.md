@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 17:17:33
-Random Quote: Ted: "[to Marshall, lying next to him] Marshall, are you still thinking about Lily?"Marshall: "Yeah."Ted: "Please stop!" - Ted Mosby
+Last updated: 2024-04-05 17:18:06
+Random Quote: Do you know what it is like to be sold, squire?  I do.  My brother sold me to Khal Drogo for the promise of a golden crown.  Well, Drogo crowned him in gold, though not as he had wished, and I... my sun - and
