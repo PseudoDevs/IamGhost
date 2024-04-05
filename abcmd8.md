@@ -1,2 +1,5 @@
-Last updated: 2024-04-05 16:50:57
-Random Quote: Some of you cared. None of you cared enough. - Hannah Baker
+Last updated: 2024-04-05 16:51:30
+Random Quote: Morty: "Mom, I have a friend coming over. Is that cool?"
+Beth: "I told your sister no parties."
+Morty: "It's one friend."
+Beth: "That's a party to you." - Beth Smith
