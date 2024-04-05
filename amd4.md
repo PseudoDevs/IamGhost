@@ -1,2 +1,6 @@
-Last updated: 2024-04-05 20:23:01
-Random Quote: Quinn: "I have to pay $2,000 every time I gain a pound?"Barney: "Not every time. Just if it shows up at the weekly weigh-in." - Barney Stinson
+Last updated: 2024-04-05 20:23:35
+Random Quote: Beth: "Do you want homeless people to have homes?"
+Jerry: "Yes."
+Beth: "Are you gonna build them?"
+Jerry: "No."
+Beth: "Then what good was the 'yes'?" - Beth Smith
