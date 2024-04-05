@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 08:43:33
-Random Quote: The title was but a courtesy due him as a council member; Varys was lord of nothing but the spiderweb, the master of none but his whispers.  -  Catelyn Stark
+Last updated: 2024-04-05 08:44:06
+Random Quote: The Stranger: We’re not free in what we do, because we’re not free in what we want. We can’t overcome what’s deep within us. - 
