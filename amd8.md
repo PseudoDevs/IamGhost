@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 16:57:43
-Random Quote: I knew quite a few Jedi, you know. I don't know what they taught you about us, but there was a time we actually got along quite well. Fought side by side. - Bo-Katan
+Last updated: 2024-04-05 16:58:16
+Random Quote: The number two guy doesn't solve problems. He just points them out. - Don Neto
