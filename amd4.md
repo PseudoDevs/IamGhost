@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 20:15:51
-Random Quote: Robin: "Can you guys keep a secret?"Lily: "Yeah."Marshall: "Well, some of us can..." - Marshall Eriksen
+Last updated: 2024-04-05 20:16:24
+Random Quote: Marshall: "Lily, you snooped through her stuff?"Lily: "No, it's like the first thing you see when you jimmy open her desk-drawer with the letter opener her grandfather left her, according to her diary." - Lily Aldrin
