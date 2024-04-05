@@ -1,4 +1,2 @@
-Last updated: 2024-04-05 16:48:12
-Random Quote: Bo-Katan: "I've scugged off a lot of Imperial warlords."
-Din: "They tend to get mad when you hijack their ships."
-Bo-Katan: "Now you tell me." - Bo-Katan
+Last updated: 2024-04-05 16:48:45
+Random Quote: Words are wind, and the only good wind is that which fills our sails.  -  Victarion Greyjoy
