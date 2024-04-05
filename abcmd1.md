@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 13:35:41
-Random Quote: Bring on your storm, my lord... and recall, if you do, the name of this castle.  -  Cortnay Penrose
+Last updated: 2024-04-05 13:36:48
+Random Quote: Penrose chose to die rather than give him up.  It still angers me.  How could he think I would hurt the boy?  I chose Robert, did I not?  When that hard day came, I chose blood over honor.  -  Stannis Baratheon
