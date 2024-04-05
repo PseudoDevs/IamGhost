@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 20:11:06
-Random Quote: Yes, Lord Umber, leave me to the king.  He means to give me a scolding before he forgives me.  That's how he deals with treason, our King in the North.  Or should I call you the King Who Lost the North, your Grace?  -  Rickard Karstark
+Last updated: 2024-04-05 20:11:39
+Random Quote: The Lion does not concern itself with the opinions of sheep.  -  Tywin Lannister
