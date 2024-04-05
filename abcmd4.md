@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 18:09:02
-Random Quote: Better the butcher than the meat.  All kings are butchers.  Are queens so different?  -  Daario Naharis
+Last updated: 2024-04-05 18:09:36
+Random Quote: My skin has gone from porcelain, to ivory, to steel.  -  Sansa Stark
