@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 20:10:02
-Random Quote: This is the one that you saved? You are as its father. A clan of two. But you have removed your helmet. Then you are a Mandalorian no more. - The Armorer
+Last updated: 2024-04-05 20:10:35
+Random Quote: A guy opens his door and gets shot and you think that of me? No. I am the one who knocks! - Walter White
