@@ -1,3 +1,2 @@
-Last updated: 2024-04-05 18:58:11
-Random Quote: Summer: "Someone out there is trying to kill us."
-Rick: "Someone's always trying to kill us." - Rick Sanchez
+Last updated: 2024-04-05 18:58:45
+Random Quote: I rose too high, loved too hard, dared too much. I tried to grasp a star, overreached, and fell.  -  Jon Connington
