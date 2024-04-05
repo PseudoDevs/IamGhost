@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 19:51:22
-Random Quote: Breast-feeding... hot!When those things swell up to three times their normal size, so do I. - Barney Stinson
+Last updated: 2024-04-05 19:51:55
+Random Quote: Think of the pickup plays we can run as a father-son duo. There's the "Father Knows Breast", there's the "Bush Dynasty", the "Lick Father, Lick Son". - Barney Stinson
