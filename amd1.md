@@ -1,3 +1,2 @@
-Last updated: 2024-04-05 19:39:21
-Random Quote: Elliot: "I'm not sure it's a good thing we met."
-Rue: "What are you talking about? You're my new favorite person." - Rue Bennett
+Last updated: 2024-04-05 19:41:38
+Random Quote: I am one far more accustomed to demanding answers, fool, than to giving them. - Thor
