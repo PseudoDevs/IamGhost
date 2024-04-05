@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 19:19:56
-Random Quote: Always look people in the eye. Even if they're blind. Just say, 'I am looking you in the eye.' - Phil Dunphy
+Last updated: 2024-04-05 19:20:29
+Random Quote: A war is coming. I'm afraid your friends at Hawkins are very much in the eye of the storm. I don't know how to say this other than just to say it: without you, we can't win this war. - Sam Owens
