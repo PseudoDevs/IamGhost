@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 07:10:33
-Random Quote: The best pie you have ever tasted, my lords.  Wash it down with Arbor gold and savor every bite.  I know I shall.  -  Wyman Manderly
+Last updated: 2024-04-05 07:11:07
+Random Quote: When the truth offends me, we lie and we lie until we can no longer remember it is even there. Every lie we tell incurs a debt to the truth. Sooner or later, that debt is paid. - Valery Legasov
