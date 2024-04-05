@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 17:50:24
-Random Quote: Sometimes our best decisions are the ones that don't make any sense at all. - Ted Mosby
+Last updated: 2024-04-05 17:50:58
+Random Quote: A queen must listen to all.  The highborn and the low, the strong and the weak, the noble and the venal.  One voice may speak you false, but in many there is always truth to be found.  -  Daenerys Targaryen
