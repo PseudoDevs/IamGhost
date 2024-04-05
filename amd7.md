@@ -1,2 +1,3 @@
-Last updated: 2024-04-05 18:00:55
-Random Quote: Fire in the hole, bitch! - Jesse Pinkman
+Last updated: 2024-04-05 18:01:28
+Random Quote: Summer: "I think it's in our best interest to work as a team."
+Morty: "Yeah, most people would call that 'family'." - Morty Smith
