@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 13:53:55
-Random Quote: I don't have a phone. I refuse to be a slave to technology. - Wednesday Addams
+Last updated: 2024-04-05 13:54:29
+Random Quote: They get in your head. People tell lies about you, and other people believe them. And it gets to the point where the lies might as well be the truth. - Tyler Down
