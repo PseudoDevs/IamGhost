@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 10:53:42
-Random Quote: Sometimes one has to adjust to a situation as it unfolds. With every calamity comes opportunity. - Virginia Wilson
+Last updated: 2024-04-05 10:54:15
+Random Quote: You Westerosi are all the same.  You sew some beast upon a scrap of silk, and suddenly you are all lions or dragons or eagles.  -  Illyrio Mopatis

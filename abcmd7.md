@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 10:53:09
-Random Quote: When you get too close to the sun, your dreams may melt away. - Steve Murphy
+Last updated: 2024-04-05 10:54:15
+Random Quote: Bronn was no knight, that was true.  Bronn was a battle - hardened killer. 
