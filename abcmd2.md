@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 16:47:12
-Random Quote: I just want to stand on top of the Wall and piss off the edge of the world.  -  Tyrion Lannister
+Last updated: 2024-04-05 16:47:45
+Random Quote: Lily, I think we made a mistake moving out to the suburbs. I miss our home. I miss our booth with our friends. And I'm pretty sure I have a drumstick... somewhere bad. - Marshall Eriksen
