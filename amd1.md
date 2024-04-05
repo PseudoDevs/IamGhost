@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 17:57:36
-Random Quote: Colombians say, God made our land so beautiful it was unfair to the rest of the world. So to even the score, God populated the land with a race of evil men. - C� sar Gaviria
+Last updated: 2024-04-05 17:58:10
+Random Quote: No tales were ever told of me.  Do you think I would be sitting here if it were otherwise?  Your amusements are your own, I will not chide you on that count, but you must be more discreet.  A peaceful land, a quiet people.  That has always been my rule.  Make it yours.  -  Roose Bolton
