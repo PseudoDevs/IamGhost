@@ -1,2 +1,3 @@
-Last updated: 2024-04-06 09:38:57
-Random Quote: Send him to Belize? I'll send YOU to Belize. - Walter White
+Last updated: 2024-04-06 09:39:30
+Random Quote: Billy: "Halloween's a magical holiday. All about family, friends, and the thrill of getting to be someone else for a day."
+Tommy: "Wrong! Halloween's about candy. And scaring people, but mostly candy." - Tommy Maximoff
