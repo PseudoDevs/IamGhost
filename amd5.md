@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 11:27:52
-Random Quote: It's probably his... I've spent years, training my boys to swim the other way. - Barney Stinson
+Last updated: 2024-04-06 11:28:25
+Random Quote: He'd led me in war, hunted with a king, won honor in tourney melees, ridden with Brynden Blackfish and Greatjon Umber, fought in the Whispering Wood, bedded more girls than he could name, and yet his uncle was treating him as though he were still a child of ten.  -  Theon Greyjoy
