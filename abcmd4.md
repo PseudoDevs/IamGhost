@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 12:04:19
-Random Quote: She's gotta start working on tightening her pussy muscles, 'cause her fiance's dick is so small, it's like a hot dog in a hallway. - Nicky Nichols
+Last updated: 2024-04-06 12:05:25
+Random Quote: I've only known one other being like this. A wise Jedi Master named Yoda. - Ahsoka Tano
