@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 10:40:00
-Random Quote: I’m not saying it’s not bad. It’s bad. But it could be worse. - Saul Goodman
+Last updated: 2024-04-06 10:40:33
+Random Quote: No one had expected the broken boy to live.  The gods could not kill Bran, no more than I could.  It was a strange thought, and stranger still to remember that Bran might still be alive.  -  Theon Greyjoy
