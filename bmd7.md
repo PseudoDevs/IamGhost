@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 07:41:49
-Random Quote: Ted: "Barney, I don't know if the oven is deep enough. Plus, it's a display made of cardboard."Barney: "Huh. I should probably disconnect the gas." - Barney Stinson
+Last updated: 2024-04-06 07:42:22
+Random Quote: The Lord of Light cherishes the innocent.  There is no sacrifice more precious.  From his king's blood and his untainted fire, a dragon shall be born.  -  Melisandre
