@@ -1,2 +1,3 @@
-Last updated: 2024-04-06 06:27:12
-Random Quote: Where some choose to look at this bra half-empty, I choose to look at this bra half-full. - Barney Stinson
+Last updated: 2024-04-06 06:27:45
+Random Quote: Lily: "We don't wanna burden our little angel with all kinds of gender-specific expectations. Boys can do ballet, girls can play football."
+Marshall: "Hell, the Green Bay Packers have been proving that for years." - Marshall Eriksen
