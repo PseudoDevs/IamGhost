@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 12:02:40
-Random Quote: Sometimes people make decisions, shit happens, and we gotta act accordingly. - Marty Byrde
+Last updated: 2024-04-06 12:03:13
+Random Quote: He would have killed me but for Howland Reed.  -  Eddard Stark
