@@ -1,2 +1,4 @@
-Last updated: 2024-04-06 12:09:02
-Random Quote: Even brave men blind themselves sometimes, when they are afraid to see.  -  Beric Dondarrian
+Last updated: 2024-04-06 12:09:36
+Random Quote: Joel: "You keep going for family."
+Ellie: "I'm not family?"
+Joel: "No. You're cargo." - Joel Miller
