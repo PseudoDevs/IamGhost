@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 10:27:06
-Random Quote: You think you've lost everything? You have no idea! - Kim Wexler
+Last updated: 2024-04-06 10:27:40
+Random Quote: My uncle Kevan would make a passably good regent if someone pressed the duty on him, but he will never reach for it.  The gods shaped him to be a follower, not a leader.  -  Tyrion Lannister
