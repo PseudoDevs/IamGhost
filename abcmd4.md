@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 07:19:20
-Random Quote: Barney: "I love how she was this wise, old, chilled out, lesbian farmer."Robin: "No, no, no. She's not a lesbian, nor does she farm them. No, that woman she lives with, that's just her special friend Maureen. They've lived together for... Oh!" - Robin Scherbatsky
+Last updated: 2024-04-06 07:19:54
+Random Quote: You give me one hour of phone-free bro time, during which we, and by we I mean you, get magnificently, mythologically drunk. I'm talking needing-subtitles-when-you-speak drunk. - Barney Stinson
