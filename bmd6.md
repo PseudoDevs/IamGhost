@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 10:50:49
-Random Quote: I don't know what kind of fed up sht you got going inside of your head. I don't know how to help, but I could tell you one thing: This drug sht - it's not the answer. - Fezco
+Last updated: 2024-04-06 10:51:22
+Random Quote: I am IRONBORN!  I laugh at death.  -  Victarion Greyjoy
