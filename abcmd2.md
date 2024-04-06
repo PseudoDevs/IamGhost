@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 10:14:51
-Random Quote: I don't want to be good. I am going to be great. - Pablo Escobar
+Last updated: 2024-04-06 10:15:58
+Random Quote: What you have to do is show these suckers what you’re capable of. Show them you’re not scared. - Nairobi
