@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 10:38:05
-Random Quote: Marshall: "When a woman puts on an engagement ring, it's like when Bilbo Baggins wears the One Ring in The Hobbit."Robin: "Okay, can you say that again, but not in nerd?"Marshall: "Sure. Uh, the ring is like the cloak that Harry Potter wears to sneak around Hogwarts."Robin: "Yeah, I don't speak virgin either." - Robin Scherbatsky
+Last updated: 2024-04-06 10:38:38
+Random Quote: I was a better smuggler than a knight, he had written to his wife, a better knight than a King's hand, a better King's hand than a husband.  I am so sorry Marya, I have loved you.  Please forgive the wrongs I did you.  -  Davos Seaworth
