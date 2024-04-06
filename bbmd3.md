@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 08:24:45
-Random Quote: That changes everything, how do you know who to trust? - Meemaw
+Last updated: 2024-04-06 08:26:26
+Random Quote: Power resides where men believe it resides... It's a trick, a shadow on the wall.  -  Varys
