@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 11:36:10
-Random Quote: Lily: "Just give me his name!"Robin: "Fine. It's Bill Pepper."Lily: "Kind of a coincidence there happens to be a bill and a pepper shaker here on the table. Any chance you and Bill had a three-way with Fork Napkin?" - Lily Aldrin
+Last updated: 2024-04-06 11:37:16
+Random Quote: Ted: "You're not gonna do it at your wedding?"Lily: "Hell, yeah! I'm gonna take that flower-grenade and chuck it to the crowd and scream, 'Crawl for it, bitches!'" - Lily Aldrin
