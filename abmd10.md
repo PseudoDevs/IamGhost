@@ -1,2 +1,4 @@
-Last updated: 2024-04-06 08:28:24
-Random Quote: Robin: "That was not cool, Ted."Lily: "Contraction!"Robin: "That wasn't cool, Ted?" - Robin Scherbatsky
+Last updated: 2024-04-06 08:28:57
+Random Quote: Rick: "F you, Summer! And f the government. And f me for letting my car down, which I will never do again."
+Morty: "Jeez, Rick. You can't say FU to your grand-daughter!"
+Rick: "I just did, Morty. Here's dessert: F you!" - Rick Sanchez
