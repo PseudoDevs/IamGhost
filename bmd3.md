@@ -1,5 +1,2 @@
-Last updated: 2024-04-06 09:08:09
-Random Quote: Morty: "Mom, I have a friend coming over. Is that cool?"
-Beth: "I told your sister no parties."
-Morty: "It's one friend."
-Beth: "That's a party to you." - Beth Smith
+Last updated: 2024-04-06 09:09:22
+Random Quote: Bad guys don't play by the rules. That's what makes them bad. - Steve Murphy
