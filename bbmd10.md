@@ -1,2 +1,3 @@
-Last updated: 2024-04-06 10:29:13
-Random Quote: You know, it's funny. Almost every woman I've ever met was wrong to give me a chance. You're the first woman who's wrong not to. - Barney Stinson
+Last updated: 2024-04-06 10:29:47
+Random Quote: Jerry: "Rick! Beth! You love me after all!"
+Rick: "Eh, I love her, she loves you. Those credits don't transfer." - Rick Sanchez
