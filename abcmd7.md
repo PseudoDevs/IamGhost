@@ -1,2 +1,3 @@
-Last updated: 2024-04-06 07:30:31
-Random Quote: Shut the f*ck up and let me die in peace. - Mike Ehrmantraut
+Last updated: 2024-04-06 07:31:38
+Random Quote: Freddie: "You think I can't handle Tommy Shelby?"
+Polly: "You can't. I am having trouble these days and I'm twice the man you are." - Polly Gray
