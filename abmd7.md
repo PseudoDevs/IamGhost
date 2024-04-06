@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 06:51:05
-Random Quote: Have you been arrested in a mall?Dumped in a mall?Turned out you're Canadian in a mall? - Ted Mosby
+Last updated: 2024-04-06 06:52:13
+Random Quote: I understand that if any more words come pouring out of your cunt mouth I'm going to have to eat every fucking chicken in this room.  -  Sandor Clegane
