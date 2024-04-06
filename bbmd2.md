@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 08:07:42
-Random Quote: Come on, baby, do the magic hand thing! - Greef Karga
+Last updated: 2024-04-06 08:09:21
+Random Quote: Knights?  Dondarrion's a knight, but the rest of you are the sorriest lot of outlaws and broken men I've ever seen.  -  Sandor Clegane
