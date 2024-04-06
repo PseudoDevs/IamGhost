@@ -1,7 +1,2 @@
-Last updated: 2024-04-06 07:49:21
-Random Quote: Bo-Katan: "You are a disgrace to your armor."
-Boba Fett: "This armor belonged to my father."
-Bo-Katan: "Don't you mean your donor?"
-Boba Fett: "Careful, princess."
-Bo-Katan: "You are a clone. I've heard your voice thousands of times."
-Boba Fett: "Mine might be the last one you hear." - Boba Fett
+Last updated: 2024-04-06 07:50:33
+Random Quote: You are slow to learn, Lord Eddard.  Distrusting me was the wisest thing you've don since you climbed down off your horse.  -  Petyr Baelish
