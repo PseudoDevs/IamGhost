@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 06:27:05
-Random Quote: Rule Number One: Don't ever fall in love with a straight girl. - Alex Vause
+Last updated: 2024-04-06 06:27:38
+Random Quote: A war is coming. I'm afraid your friends at Hawkins are very much in the eye of the storm. I don't know how to say this other than just to say it: without you, we can't win this war. - Sam Owens
