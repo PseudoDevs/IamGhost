@@ -1,4 +1,2 @@
-Last updated: 2024-04-06 07:15:56
-Random Quote: Greef: "Nevarro is a very fine planet. And now that the scum and villainy have been washed away, it's very respectable again."
-Mando: "As a bounty hunter hive?"
-Greef: "Some of my favorite people are bounty hunters." - Greef Karga
+Last updated: 2024-04-06 07:17:03
+Random Quote: What I'm doing here... is building an empire. - Miguel Angel Felix Gallardo
