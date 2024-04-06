@@ -1,3 +1,2 @@
-Last updated: 2024-04-06 11:13:04
-Random Quote: Ellie: "Everybody I've cared for, either died or left me."
-Joel: "You have no idea what loss is." - Joel Miller
+Last updated: 2024-04-06 11:13:37
+Random Quote: It's probably his... I've spent years, training my boys to swim the other way. - Barney Stinson
