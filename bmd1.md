@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 06:46:11
-Random Quote: Lucas: "Mike's not gonna like it."Dustin: "Last time I checked our party is not a dictatorship, it's a democracy." - Dustin Henderson
+Last updated: 2024-04-06 06:46:45
+Random Quote: If you think this has a happy ending, you haven't been paying attention.  -  Ramsay Bolton
