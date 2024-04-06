@@ -1,2 +1,3 @@
-Last updated: 2024-04-06 07:50:30
-Random Quote: Because family is forever. - Wanda Maximoff
+Last updated: 2024-04-06 07:51:03
+Random Quote: Lily: "Swear on the lifes of your unborn boy and girl!"
+Ted: "I swear... on Luke and Leia!" - Ted Mosby
