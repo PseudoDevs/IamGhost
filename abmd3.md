@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 09:46:18
-Random Quote: We all must choose.  Man or woman, young or old, lord or peasant, our choices are the same.  We choose light or we choose darkness.  -  Melisandre
+Last updated: 2024-04-06 09:46:51
+Random Quote: It was the white cloak that soiled me, not the other way around.  -  Jaime Lannister
