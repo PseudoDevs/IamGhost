@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 08:24:42
-Random Quote: Lily: "We'll all have a wedding dress camp-out. It'll be fun!"Barney: "I can't go. I've got this thing."Lily: "What thing?"Barney: "A penis!" - Barney Stinson
+Last updated: 2024-04-06 08:25:49
+Random Quote: I have my own ghosts, Bran.  A brother that I loved, a brother that I hated, a woman I desired.  Through the trees, I see them still, but no word of mine has ever reached them.  The past remains the past.  We can learn from it, but we cannot change it.  -  Bloodraven
