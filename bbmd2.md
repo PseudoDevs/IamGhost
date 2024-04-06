@@ -1,4 +1,2 @@
-Last updated: 2024-04-06 12:10:26
-Random Quote: It's going to be legen...
-wait for it - and I hope you're not lactose-intolerant cause the second half of that word is
-...dary! - Barney Stinson
+Last updated: 2024-04-06 12:11:00
+Random Quote: Do you think I can't tell Lord Stannis from Lord Tywin?  They're both bungholes who think they're too noble to shit, but never mind about that, I know the difference.  -  Walder Frey
