@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 08:29:34
-Random Quote: They may separate us, but they'll never be able to destroy us. - Pablo Escobar
+Last updated: 2024-04-06 08:30:07
+Random Quote: If you die before you say her name, Set, I will hunt you through the seven hells.  -  Oberyn Martell
