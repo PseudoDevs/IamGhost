@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 11:09:57
-Random Quote: America, Freddie. They've already had their revolution, you won't have to bother. - Ada Thorne
+Last updated: 2024-04-06 11:10:30
+Random Quote: Barney: "Check it out, I made a little game."Lottery Girl: "And tonight's lotto numbers are: 19..."Barney: "...age you moved to New York after a photographer 'discovered' you at a food court and said he would get you into Vogue Magazine."Lotto Girl: "53..."Barney: "...number of semi-nude pictures he took of you before you realized he had no connection to Vogue Magazine."Lotto Girl: "22..."Barney: "...age you claim you are."Lotto Girl: "31..."Barney: "...age you actually are."Lotto Girl: "45..."Barney: "...number of minutes it would take me to get you into a cab, out of your dress and into my Jacuzzi."Lotto Girl: "And tonight's Super Big Ball is..."Barney: "...what happens after we get out of the Jacuzzi. What Up?!" - Barney Stinson
