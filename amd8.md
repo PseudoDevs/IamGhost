@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 07:21:29
-Random Quote: There are only two reasons to date a girl you've already dated: breast implants. - Barney Stinson
+Last updated: 2024-04-06 07:22:02
+Random Quote: I have served six kings, but here before us lies the greatest man I ever knew.  Lord Tywin wore no crown, yet he was all a king should be.  -  Grand Maester Pycelle
