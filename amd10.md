@@ -1,2 +1,3 @@
-Last updated: 2024-04-06 10:59:56
-Random Quote: I don't wanna be choosing between two girls, I wanna be a complete head over heels idiot for one! - Ted Mosby
+Last updated: 2024-04-06 11:00:29
+Random Quote: George: "I love what you done with the place. Did you do it yourself, or did you get some pouf to help ya?"
+Rebecca: "I could ask the same of your hair." - Rebecca Welton
