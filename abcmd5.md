@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 08:16:19
-Random Quote: Did the boy charm you?  He has that gift.  He got it from his father, with the blood.  He knows he is a king's son, but chooses to forget that he is bastard - born. 
+Last updated: 2024-04-06 08:17:26
+Random Quote: Stop crying. Remember? Crying makes you ugly and weak. - Dayanara Diaz
