@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 06:39:18
-Random Quote: This is Stannis Baratheon.  The man will fight to the bitter end and then some.  -  Tywin Lannister
+Last updated: 2024-04-06 06:39:52
+Random Quote: None will be free until the old ways are gone forever. - Kuiil
