@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 07:44:04
-Random Quote: In all the world, violent men are the easiest to deal with. - Irene O'Donnell
+Last updated: 2024-04-06 07:45:10
+Random Quote: The men of Westeros are ever rushing.  What good is this, I ask you?  He who hurries through life hurries to his grave.  -  Salladhor Saan
