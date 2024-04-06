@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 09:24:53
-Random Quote: Shut the f*ck up and let me die in peace. - Mike Ehrmantraut
+Last updated: 2024-04-06 09:25:28
+Random Quote: Make it easier for those whose vote you can count on. Make it harder for those you can't. That's how you rig an election without leaving a lick of evidence. - Walt Breslin
