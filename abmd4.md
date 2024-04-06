@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 11:11:25
-Random Quote: Old gods or new, it makes no matter, no man is so accursed as the kinslayer.  -  Rickard Karstark
+Last updated: 2024-04-06 11:11:58
+Random Quote: So you do have a plan? Yeah, Mr. White! Yeah, science! - Jesse Pinkman
