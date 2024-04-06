@@ -1,2 +1,4 @@
-Last updated: 2024-04-06 07:20:53
-Random Quote: A sorcerer is a wizard without a hat. - Sam Wilson
+Last updated: 2024-04-06 07:21:26
+Random Quote: Morticia: "Please excuse Wednesday. She's allergic to color."
+Enid: "Wow, what happens to you?"
+Wednesday: "I break out into hives, and then the flesh peels off my bones." - Wednesday Addams
