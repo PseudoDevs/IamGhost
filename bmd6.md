@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 06:59:25
-Random Quote: We just miss our old friend, but right now, you're not her. You just seem lost. - Devi Vishwakumar
+Last updated: 2024-04-06 07:00:42
+Random Quote: Elia of Dorne.  I killed her screaming whelp.  Then I raped her.  Then I smashed her fucking head in like this.  -  Gregor Clegane
