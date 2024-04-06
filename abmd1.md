@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 11:19:08
-Random Quote: Good and evil are a question of perspective - Mikkel
+Last updated: 2024-04-06 11:19:41
+Random Quote: Whats your prescription, Dr. Estrogen? Eat Haagen-Dazs and watch "Love... actually" until your periods sync up? - Barney Stinson
