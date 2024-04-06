@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 10:13:07
-Random Quote: Elia Martell, Princess of Dorne.  You raped her!  You murdered her!  You killed her children!  -  Oberyn Martell
+Last updated: 2024-04-06 10:14:14
+Random Quote: So roll me further bitch! - Jesse Pinkman
