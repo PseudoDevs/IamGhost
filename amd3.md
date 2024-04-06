@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 08:13:49
-Random Quote: I don't want to die, I've only kissed one boy so far. - Missy
+Last updated: 2024-04-06 08:14:22
+Random Quote: I feel like her sobriety is completely dependent on how available I am to her. - Jules Vaughn
