@@ -1,3 +1,2 @@
-Last updated: 2024-04-06 08:57:14
-Random Quote: What did the frustrated cannibal do?
-He threw up his hands. - Will Livingston
+Last updated: 2024-04-06 08:57:52
+Random Quote: I buried an axe so deep into Willem's skull, they had to bury him with it.  -  Yoren of the Knight's Watch
