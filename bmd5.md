@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 07:54:10
-Random Quote: When one chooses to walk the way of the Mandalore, you are both hunter and prey. How can one be a coward if one chooses this way of life? - The Armorer
+Last updated: 2024-04-06 07:54:44
+Random Quote: The most amazing things that can happen to a human being will happen to you, if you just lower your expectations. - Phil Dunphy
