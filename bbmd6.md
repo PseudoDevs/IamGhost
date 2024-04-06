@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 11:41:57
-Random Quote: Ted: "You know Robin? Been thinking about it. Guess it's kind of nice you're such a bad-ass."Robin: "It's pretty bad-ass you're so nice, Ted." - Robin Scherbatsky
+Last updated: 2024-04-06 11:42:30
+Random Quote: Career has been trouncing romance for years. It's like the Globetrotters versus the Generals: Career's sinking hook shots from half court, romance is just a bunch of slow white guys, who couldn't make it in the Italian league. - Ted Mosby
