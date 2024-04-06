@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 07:18:42
-Random Quote: Oberyn wanted vengeance for Elia.  Now the three of you want vengeance for him.  I have four daughters, I remind you.  Your sisters.  My Elia is fourteen, almost a woman.  Obella is twelve, on the brink of maiden - hood.  They worship you, as Dorea and Loreza worship them.  If you should die, must El and Obella seek vengeance for you, then Dorea and Loree for them?  Is that how it goes, round and round forever?  I ask again, where does it end? 
+Last updated: 2024-04-06 07:19:15
+Random Quote: Or I look single, 34 and single, which must mean there's something wrong with me. Like, you keep large reptiles in tanks, or I have a very special relationship with my mother. - Larry Bloom
