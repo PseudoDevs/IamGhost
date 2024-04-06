@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 08:25:49
-Random Quote: I don't care if you're so scared you foul your breeches, and I don't care if a thousand wildlings are coming over the walls howling for your blood, you get those birds off, or I swear I'll hunt you through all seven hells and make you damn sorry that you didn't.  -  Jeor Mormont
+Last updated: 2024-04-06 08:26:22
+Random Quote: What you're doing right now. I'm getting a de-rection! - Barney Stinson
