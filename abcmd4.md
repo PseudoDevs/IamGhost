@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 10:38:38
-Random Quote: Hush, Alerie, don't take that tone with me.  And don't call me mother.  If I'd given birth to you, I'm sure I'd remember.  I'm only to blame for your husband, the lord oaf of Highgarden.  -  Olenna Tyrell
+Last updated: 2024-04-06 10:39:11
+Random Quote: A guy opens his door and gets shot and you think that of me? No. I am the one who knocks! - Walter White
