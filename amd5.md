@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 07:51:39
-Random Quote: These old knights are more cunning than you think, or they would never have lived to see their first grey hair.  -  Dagmer Cleftjaw
+Last updated: 2024-04-06 07:52:13
+Random Quote: The more you move up in the world, the more enemies you make. - Rue Bennett
