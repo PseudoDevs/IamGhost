@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 10:38:53
-Random Quote: The only thing The Umbrella Academy knows about love is how to screw it up. - Klaus Hargreeves
+Last updated: 2024-04-06 10:39:27
+Random Quote: The "no more surprises"-thing is the best part of being married. - Lily Aldrin
