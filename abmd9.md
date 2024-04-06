@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 08:17:55
-Random Quote: It's not what you think, he just wants to have sex. Kidding. Just a little hand stuff. Ha, kidding again. Ted's more of a boob man. I seriously can't stop. - Robin Scherbatsky
+Last updated: 2024-04-06 08:18:28
+Random Quote: I'll have to take a page from Robert's book, not that he ever read one.  -  Stannis Baratheon
