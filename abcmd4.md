@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 09:09:48
-Random Quote: What is lost, will be found. - Maura Franklin
+Last updated: 2024-04-06 09:10:21
+Random Quote: No.  You were the betrayer.  You turned against me, against your own blood.  They cheated me.  Your horsey husband and his stinking savages.  They were cheats and liars.  They promised me a golden crown and gave me this.  -  Viserys Targaryen
