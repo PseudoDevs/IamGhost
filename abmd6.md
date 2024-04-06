@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 11:53:40
-Random Quote: Fool's blood, king's blood, blood on the maiden's thigh, but chains for the guests and chains for the bridegroom, aye aye aye.  -  Patchface
+Last updated: 2024-04-06 11:54:14
+Random Quote: Camping is just being homeless... without the change. - Summer Smith
