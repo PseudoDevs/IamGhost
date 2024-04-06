@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 11:07:01
-Random Quote: Khaleesi, better a man should swallow scorpions than trust in the spawn of shadows, who dare not show their face beneath the sun.  It is known.  -  Rakharo
+Last updated: 2024-04-06 11:07:34
+Random Quote: A Mandalorian and a Jedi? They'll never see it coming. - Din Djarin
