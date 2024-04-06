@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 08:06:53
-Random Quote: Apart, we're okay. But together we're poison. - Kim Wexler
+Last updated: 2024-04-06 08:07:27
+Random Quote: All men are fools, if truth be told, but the ones in motley are more amusing than the ones with crowns.  -  Olenna Tyrell
