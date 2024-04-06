@@ -1,3 +1,2 @@
-Last updated: 2024-04-06 09:21:06
-Random Quote: Freddie: "You think I can't handle Tommy Shelby?"
-Polly: "You can't. I am having trouble these days and I'm twice the man you are." - Polly Gray
+Last updated: 2024-04-06 09:21:39
+Random Quote: The best pie you have ever tasted, my lords.  Wash it down with Arbor gold and savor every bite.  I know I shall.  -  Wyman Manderly
