@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 06:31:41
-Random Quote: Ted: "I thought you said you got rid of everything your ex-boyfriends gave you?"Robin: "Well yeah, but not my dogs."Ted: "You said everything."Robin: "But not living things."Ted: "Tell that to the rare bolivian cactus i threw away!" - Ted Mosby
+Last updated: 2024-04-06 06:32:19
+Random Quote: By what right does the wolf judge the lion?  -  Jaime Lannister
