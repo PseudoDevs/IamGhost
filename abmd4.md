@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 06:40:02
-Random Quote: Ted: "Do not pretend you're not the kind of guy, who keeps a list of all the girls he slept with."Marshall: "I have one. It's called my marriage-license." - Marshall Eriksen
+Last updated: 2024-04-06 06:40:35
+Random Quote: Old stories are like old friends, Old Nan used to say.  You have to visit them from time to time.  -  Bran Stark
