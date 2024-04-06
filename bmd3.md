@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 09:37:12
-Random Quote: The farther you go, the sharper their blade. Just don't ever give them an opening. - Cal Jacobs
+Last updated: 2024-04-06 09:37:48
+Random Quote: Rattleshirt, we called him.  Treacherous and bloodthirsty.  If there's honor in him, he hides it down beneath his suit of bones.  -  Jon Snow

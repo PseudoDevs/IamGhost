@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 09:37:11
-Random Quote: Kids, I'm going to tell you an incredible story, the story of how I met your mother. - Ted Mosby
+Last updated: 2024-04-06 09:37:48
+Random Quote: So I will only ask you once, Lord Snow.  Are you a brother of the Night's Watch, or a bastard boy who wants to play at war?  -  Jeor Mormont
