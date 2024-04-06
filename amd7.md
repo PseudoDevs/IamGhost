@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 08:12:09
-Random Quote: What you're doing right now. I'm getting a de-rection! - Barney Stinson
+Last updated: 2024-04-06 08:12:42
+Random Quote: The more you give a king, the more he wants.  We are walking on a bridge of ice with an abyss on either side.  Pleasing one king is difficult enough.  Pleasing two is hardly possible.  -  Jon Snow
