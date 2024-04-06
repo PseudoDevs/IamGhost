@@ -1,2 +1,3 @@
-Last updated: 2024-04-06 09:20:33
-Random Quote: What we know is a drop. What we don’t know is an ocean - 
+Last updated: 2024-04-06 09:21:06
+Random Quote: Freddie: "You think I can't handle Tommy Shelby?"
+Polly: "You can't. I am having trouble these days and I'm twice the man you are." - Polly Gray
