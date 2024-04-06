@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 09:01:03
-Random Quote: You have to be as bad as them above in order to survive. - Polly Gray
+Last updated: 2024-04-06 09:01:36
+Random Quote: Piper: "Not every Hispanic person wants the same thing."Lorna: "Oh, sure they do. They all want to come to America."Nicky: "Jesus, your entire world view is based on 'West Side Story', isn't it?" - Nicky Nichols
