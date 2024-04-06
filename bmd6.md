@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 06:50:09
-Random Quote: That's not a law, just a sword.  Happens I got one too.  -  Yoren of the Night's Watch
+Last updated: 2024-04-06 06:50:43
+Random Quote: You want to hurt these guys, we gotta take down the ones calling the shots. - Jaime Kuykendall
