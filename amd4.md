@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 08:05:36
-Random Quote: Name one thing in this world that is non negotiable. - Walter White
+Last updated: 2024-04-06 08:06:42
+Random Quote: The god took me deep beneath the waves and drowned the worthless thing I was.  When he cast me forth again he gave me eyes to see, ears to hear, and a voice to spread his word, that I might be his prophet and teach his truth to those who have forgotten.  I was not made to sit upon the Seastone Chair... no more than Euron Crow's Eye.  For I have heard the god, who says, no godless man may sit my Seastone Chair.  -  Aeron Greyjoy
