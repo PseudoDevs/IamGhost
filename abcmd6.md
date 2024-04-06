@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 08:13:04
-Random Quote: The title was but a courtesy due him as a council member; Varys was lord of nothing but the spiderweb, the master of none but his whispers.  -  Catelyn Stark
+Last updated: 2024-04-06 08:13:37
+Random Quote: Ties and no playoffs? Why do you even do this? - Jim Hopper
