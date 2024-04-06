@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 06:41:00
-Random Quote: My old septon used to say that books are dead men talking.  Dead men should keep quiet, is what I say.  No one wants to hear a dead man's yabber.  -  Dolorous Edd Tollett
+Last updated: 2024-04-06 06:41:33
+Random Quote: You know what they say about relationships. Every waking moment's a battle. - Barney Stinson
