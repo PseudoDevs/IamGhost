@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 09:36:35
-Random Quote: Hush, Alerie, don't take that tone with me.  And don't call me mother.  If I'd given birth to you, I'm sure I'd remember.  I'm only to blame for your husband, the lord oaf of Highgarden.  -  Olenna Tyrell
+Last updated: 2024-04-06 09:37:10
+Random Quote: We will take them before last night's beer turns to piss. - Chester Campbell
