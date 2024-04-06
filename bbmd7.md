@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 11:04:48
-Random Quote: That's the thing with guys like Nate. They don't actually want a person. They want something they can own and possess. - Rue Bennett
+Last updated: 2024-04-06 11:05:54
+Random Quote: Dragons old and young, true and false, bright and dark.  And you.  A small man with a big shadow, snarling in the midst of it all.  -  Moqorro
