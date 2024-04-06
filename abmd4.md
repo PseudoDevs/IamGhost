@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 10:08:03
-Random Quote: In the end, one cares about many things, and we should not give so much importance to things. - Professor
+Last updated: 2024-04-06 10:08:37
+Random Quote: I swear to you, I was never so alive as when I was winning this throne, or so dead as now that I've won it.  -  Robert Baratheon
