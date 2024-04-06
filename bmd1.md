@@ -1,3 +1,2 @@
-Last updated: 2024-04-06 10:58:50
-Random Quote: What do I think love is? It's like when someone makes your stomach feel all tight, but floaty at the same time, you know? And your cheeks hurt from smiling. And you smile so much, that people think something's wrong with you.
-...And also fucking. Twenty-four seven, deep-dick, can't-walk-right fucking. - Aleida Diaz
+Last updated: 2024-04-06 10:59:56
+Random Quote: The man who passes the sentence should swing the sword.  If you would take a man's life, you owe it to him to look into his eyes and hear his final words.  And if you cannot bear to do that, then perhaps the man does not deserve to die.  -  Eddard Stark
