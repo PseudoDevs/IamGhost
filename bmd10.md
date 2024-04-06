@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 08:23:52
-Random Quote: The bride weeps... dressing her in grey and white serves no good if the girl is left to sob.  The Freys might not care, but the northmen... they fear the Dreadfort, but they love the Starks.  Not me, but the rest, yes.  Old Whoresbane is only here because the Freys hold the Greatjon captive.  And do you imagine the Hornwood men have forgotten the Bastard's last marriage, and how his lady wife was left to starve, chewing her own fingers?  What do you think passes through their heads when they hear the new bride weeping?  Valiant Ned's precious little girl.  Lady Arya's sobs do us more harm than all of Lord Stannis's swords and spears.  -  Barbrey Dustin
+Last updated: 2024-04-06 08:24:25
+Random Quote: Guard: "Inmate, step away from the machine."Larry: "He just called you 'inmate'."Guard: "You too, sir."Larry: "Sorry." - Larry Bloom
