@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 08:04:51
-Random Quote: There have always been men who found it easier to speak vows than to keep them.  -  Arys Oakheart
+Last updated: 2024-04-06 08:05:27
+Random Quote: I swear to you, I was never so alive as when I was winning this throne, or so dead as now that I've won it.  -  Robert Baratheon
