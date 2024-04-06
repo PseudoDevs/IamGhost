@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 09:31:16
-Random Quote: I dreamed of the man who came today, the one they call Reek.  You and your brother lay dead at his feet, and he was skinning off your faces with a long red blade.  -  Jojen Reed
+Last updated: 2024-04-06 09:31:49
+Random Quote: There's nothing more powerful than a fat girl who doesn't give a f. - Kat Hernandez
