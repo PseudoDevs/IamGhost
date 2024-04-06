@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 11:38:28
-Random Quote: His blood is bad.  He needs to be leeched.  The leeches suck away the bad blood, all the rage and pain.  No man can think so full of anger.  Ramsay, though... his tainted blood would poison even leeches, I fear.  -  Roose Bolton
+Last updated: 2024-04-06 11:39:01
+Random Quote: Ted: "You always kept your toothbrush in the bedroom. Also weird, by the way."Lily: "No. We kept it in the bathroom."Ted: "No, there was only one toothbrush in the bathroom, and it was mine..." - Ted Mosby
