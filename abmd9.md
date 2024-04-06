@@ -1,2 +1,3 @@
-Last updated: 2024-04-06 08:10:45
-Random Quote: Jesus was a fag! He said: 'This is my body. Eat me.' - Big Boo
+Last updated: 2024-04-06 08:11:18
+Random Quote: Mi-nyeo: "Deok-su. You betray me... I'll kill you. Okay?"
+Deok-su: "You're the reason that I think I might die tonight." - Jang Deok-su
