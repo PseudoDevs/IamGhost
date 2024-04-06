@@ -1,2 +1,3 @@
-Last updated: 2024-04-06 11:09:46
-Random Quote: Many good men have been bad kings, and some bad men have been good kings.  -  Maester Aemon
+Last updated: 2024-04-06 11:10:19
+Random Quote: Morty: "I don't like how meta this is getting, Rick."
+Rick: "Shut up, Morty, you're 14. You watch videos of people on YouTube reacting to fing YouTube. I'll be the judge of when we get too meta." - Rick Sanchez
