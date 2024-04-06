@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 06:47:49
-Random Quote: Grey Wind ate two of his fingers, and he laughed about it.  -  Robb Stark on Greatjon Umber
+Last updated: 2024-04-06 06:48:56
+Random Quote: Robert could piss in a cup and men would call it wine, but I offer them cold clear water and they squint in suspicion and mutter to each other about how queer it tastes.  -  Stannis Baratheon
