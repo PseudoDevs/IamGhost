@@ -1,4 +1,2 @@
-Last updated: 2024-04-06 08:39:57
-Random Quote: Marshall: "Except the flames of Lucifer keep singein our back bumper as we drive through this hellish, cheese-infected wasteland."
-Lily: "Wisconsin?"
-Marshall: "Wisconsin!" - Marshall Eriksen
+Last updated: 2024-04-06 08:40:30
+Random Quote: A bag of dragons buys a man's silence for a while, but a well - placed quarrel buys it forever. 
