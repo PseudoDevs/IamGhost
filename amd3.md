@@ -1,3 +1,2 @@
-Last updated: 2024-04-06 06:36:32
-Random Quote: Morty: "Rick, can we not leave without my sister?"
-Rick: "Ugh. You have infinite sisters, Morty. Not that I want to spend the rest of my day looking for another one. Sum-Sum, let's go! Grandpa's concern for your safety is fleeting." - Rick Sanchez
+Last updated: 2024-04-06 06:37:06
+Random Quote: Just as long as you're lakeside cheering us to victory on race day... or you can just glare uncomfortably. Whatever works for you. - Enid Sinclair
