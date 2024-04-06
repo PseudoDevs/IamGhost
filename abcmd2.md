@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 09:50:47
-Random Quote: You could turn King's Landing upside down and not find a single man with a mockingbird sewn over his heart but that does not mean I am friendless.  -  Petyr Baelish
+Last updated: 2024-04-06 09:51:22
+Random Quote: Robin: "This locket was my grandma's, she kept it hidden in her butt all through world war II."Lily: "What? Where was she?"Robin: "Winnipeg. Come on, Lily, that is a joke." - Robin Scherbatsky
