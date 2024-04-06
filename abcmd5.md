@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 08:30:15
-Random Quote: I'd say hump her brain out, but somebody obviously already has. - Ted Mosby
+Last updated: 2024-04-06 08:31:22
+Random Quote: Marshall: "I don't care if the dishes aren't done, okay? If you care, you do it."Lily: "Great, then I don't care if you have an orgasm. If you care, you do it." - Lily Aldrin
