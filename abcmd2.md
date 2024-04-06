@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 11:20:21
-Random Quote: Mitchell: "It's been five years now and he still does this thing were he announces himself before walking into any room we're in, just to make sure he doesn't ever see us kiss."Cameron: "Wish my mother had that system. Remember?" - Cameron Tucker
+Last updated: 2024-04-06 11:20:55
+Random Quote: Birds are lost, messages stolen or sold... there are things I might tell you of that eunuch that would chill your blood...  -  Grand Maester Pycelle
