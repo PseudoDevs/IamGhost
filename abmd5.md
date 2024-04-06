@@ -1,5 +1,2 @@
-Last updated: 2024-04-06 08:07:25
-Random Quote: Morty: "I'm dying, Rick!"
-Rick: "People who are really dying don't keep bringing it up."
-Morty: "Is that true?"
-Rick: "I don't know. I'm just usually around people that die faster." - Rick Sanchez
+Last updated: 2024-04-06 08:07:58
+Random Quote: Love is poison.  A sweet poison, yes, but it will kill you all the same.  -  Cersei Lannister
