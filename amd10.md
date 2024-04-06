@@ -1,3 +1,3 @@
-Last updated: 2024-04-06 08:22:09
-Random Quote: Mr. Nimbus: "Say goodbye to your precious dry land! For soon it will be wet!"
-Rick: "Yeah, global warming is already doing that. But sure, yeah, go for it. Make us slightly more wet." - Rick Sanchez
+Last updated: 2024-04-06 08:22:42
+Random Quote: Morticia: "That boy's family was going to file attempted murder charges. How would that have looked on your record?"
+Wednesday: "Terrible. Everyone would know I failed to get the job done." - Wednesday Addams
