@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 08:28:53
-Random Quote: I thought you where vomit-free since nintythree... so that was a lie? - Marshall Eriksen
+Last updated: 2024-04-06 08:29:26
+Random Quote: Nuncle always had a fondness for freaks and fools.  My father used to fight with him about it.  Let the wizards call upon their gods.  The Damphair will call on ours, and drown them.  -  Asha Greyjoy
