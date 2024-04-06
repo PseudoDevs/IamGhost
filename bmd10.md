@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 08:16:39
-Random Quote: I have worked at the downfall of Tywin Lannister since the day they told me of Elia and her children.  -  Doran Martell
+Last updated: 2024-04-06 08:17:12
+Random Quote: People are making apocalypse jokes like there's no tomorrow. - Will Livingston

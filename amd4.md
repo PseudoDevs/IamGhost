@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 08:16:06
-Random Quote: They may separate us, but they'll never be able to destroy us. - Pablo Escobar
+Last updated: 2024-04-06 08:17:12
+Random Quote: A Dothraki wedding without at least three deaths is considered a dull affair.  -  Illyrio Mopatis
