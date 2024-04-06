@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 09:55:06
-Random Quote: Bring on your storm, my lord... and recall, if you do, the name of this castle.  -  Cortnay Penrose
+Last updated: 2024-04-06 09:55:42
+Random Quote: Sometimes you gotta do bad things to catch bad people. - Javier Pe�a
