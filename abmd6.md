@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 11:31:00
-Random Quote: No voting, no debate. It's not a democracy - it's a Rickpublic! - Summer Smith
+Last updated: 2024-04-06 11:31:33
+Random Quote: What is the cost of lies? It's not that we mistake them for the truth. The real danger is that if we hear enough lies, then we no longer recognize the truth at all. - Valery Legasov
