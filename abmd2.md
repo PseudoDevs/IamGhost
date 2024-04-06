@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 09:43:04
-Random Quote: The gods be damned.  It was a hollow victory they gave me.  A crown... it was the girl I prayed them for.  Your sister, safe... and mine again, as she was meant to be.  I ask you, Need, what good is it to wear a crown?  The gods mock the prayers of kings and cowherds alike.  -  Robert Baratheon
+Last updated: 2024-04-06 09:43:38
+Random Quote: Do you still trust people? Even after what you've been through? - Oh Il-nam
