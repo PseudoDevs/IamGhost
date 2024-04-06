@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 07:27:46
-Random Quote: This little bogwing is what all the fuss was about. What a precious little creature! I can see why you didn't want to harm a hair on its wrinkled little head. - Greef Karga
+Last updated: 2024-04-06 07:29:27
+Random Quote: You want to be a bounty hunter? Make the best deal for yourself and survive! - Fennec Shand
