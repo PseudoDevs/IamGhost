@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 08:36:51
-Random Quote: Elia of Dorne.  I killed her screaming whelp.  Then I raped her.  Then I smashed her fucking head in like this.  -  Gregor Clegane
+Last updated: 2024-04-06 08:37:59
+Random Quote: I appreciate your help, but there's a reason your name is "Robin", not "Batman". - Ted Mosby
