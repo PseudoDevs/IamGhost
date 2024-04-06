@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 08:57:13
-Random Quote: Better the butcher than the meat.  All kings are butchers.  Are queens so different?  -  Daario Naharis
+Last updated: 2024-04-06 08:57:50
+Random Quote: The Peaky Blinders. The vicious, merciless gangs who blind those who see and cut out the tongues of those who talk. - Chester Campbell
