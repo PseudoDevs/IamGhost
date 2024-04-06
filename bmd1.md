@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 08:08:35
-Random Quote: In the end, one cares about many things, and we should not give so much importance to things. - Professor
+Last updated: 2024-04-06 08:09:42
+Random Quote: The title was but a courtesy due him as a council member; Varys was lord of nothing but the spiderweb, the master of none but his whispers.  -  Catelyn Stark
