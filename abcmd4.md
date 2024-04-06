@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 07:11:46
-Random Quote: Bulls are strong.  Bears.  I have seen my bastard fight.  He is not entirely to blame.  Reek was his tutor, the first Reek, and Reek was never trained at arms.  Ramsay is ferocious, I will grant you, but he swings that sword like a butcher hacking meat.  -  Roose Bolton
+Last updated: 2024-04-06 07:12:20
+Random Quote: So Robin? Guess who nailed the chick from "Metro News One" last night! - Barney Stinson
