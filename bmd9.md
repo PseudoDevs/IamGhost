@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 09:38:44
-Random Quote: Well, if there is something wrong with him, it ain't constipation. - Meemaw
+Last updated: 2024-04-06 09:39:17
+Random Quote: I've lost a hand, a father, a son, a sister, and a lover, and soon enough I will lose a brother.  And yet they keep telling me House Lannister has won this war.  -  Jaime Lannister
