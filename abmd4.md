@@ -1,2 +1,4 @@
-Last updated: 2024-04-06 10:44:52
-Random Quote: The man who passes the sentence should swing the sword.  If you would take a man's life, you owe it to him to look into his eyes and hear his final words.  And if you cannot bear to do that, then perhaps the man does not deserve to die.  -  Eddard Stark
+Last updated: 2024-04-06 10:45:26
+Random Quote: Five: "Help me with this crossword puzzle. I need a five letter word for 'disappointment'."
+Diego: "Klaus."
+Five: "It fits." - Number Five
