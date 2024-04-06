@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 08:00:05
-Random Quote: I find Social Media to be a soul-sucking void of meaningless affirmation. - Wednesday Addams
+Last updated: 2024-04-06 08:00:39
+Random Quote: The man who passes the sentence should swing the sword.  If you would take a man's life, you owe it to him to look into his eyes and hear his final words.  And if you cannot bear to do that, then perhaps the man does not deserve to die.  -  Eddard Stark
