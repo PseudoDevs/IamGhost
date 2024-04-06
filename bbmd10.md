@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 10:13:40
-Random Quote: Lily: "Anytime a single guy hangs out with a married woman there are rules that must be followed: Rule number one..."Barney: "Don't use the husband's condoms, that's just rude!" - Barney Stinson
+Last updated: 2024-04-06 10:14:14
+Random Quote: I swear to you, I was never so alive as when I was winning this throne, or so dead as now that I've won it.  -  Robert Baratheon
