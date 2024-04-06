@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 06:47:44
-Random Quote: No.  You were the betrayer.  You turned against me, against your own blood.  They cheated me.  Your horsey husband and his stinking savages.  They were cheats and liars.  They promised me a golden crown and gave me this.  -  Viserys Targaryen
+Last updated: 2024-04-06 06:48:17
+Random Quote: Barney: "Wow, Ted. You're gonna have to find a new member for yourself, cause I'm revoking your dude-membership."Ted: "Yeah, how was that manicure yesterday?"Barney: "Invigorating... thanks." - Barney Stinson
