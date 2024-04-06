@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 07:15:30
-Random Quote: I learned form Set Arthur Dayne, the Sword of the Morning, who could have slain all five of you with his left hand while he was taking a piss with the right.  -  Jaime Lannister
+Last updated: 2024-04-06 07:16:04
+Random Quote: Because they are the knights of summer, and winter is coming.  -  Catelyn Stark
