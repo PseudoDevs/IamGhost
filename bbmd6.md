@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 09:16:33
-Random Quote: Fear cuts deeper than swords.  -  Syrio Forel
+Last updated: 2024-04-06 09:17:07
+Random Quote: A queen must listen to all.  The highborn and the low, the strong and the weak, the noble and the venal.  One voice may speak you false, but in many there is always truth to be found.  -  Daenerys Targaryen
