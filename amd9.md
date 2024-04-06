@@ -1,3 +1,2 @@
-Last updated: 2024-04-06 10:27:52
-Random Quote: Neither one of us are gonna say, "Hey, how's it going?" or "Good to see you!"
-Because it really will be good to see you. - Barney Stinson
+Last updated: 2024-04-06 10:28:58
+Random Quote: I have a tender spot in my heart for cripples, bastards, and broken things.  -  Tyrion Lannister
