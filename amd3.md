@@ -1,3 +1,2 @@
-Last updated: 2024-04-06 09:06:56
-Random Quote: Ellie: "Everybody I've cared for, either died or left me."
-Joel: "You have no idea what loss is." - Joel Miller
+Last updated: 2024-04-06 09:09:23
+Random Quote: Early drinkin’ means quick drunken. - Jim Hopper
