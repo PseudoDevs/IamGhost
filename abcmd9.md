@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 08:05:27
-Random Quote: A Mandalorian and a Jedi? They'll never see it coming. - Din Djarin
+Last updated: 2024-04-06 08:05:59
+Random Quote: Place was overrun with rats when we moved in.  The spearwives killed the nasty buggers.  Now the place is overrun with spearwives.  There's days I want the rats back.  -  Dolorous Edd Tollett
