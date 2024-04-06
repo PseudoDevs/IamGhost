@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 09:43:37
-Random Quote: You want to rule?  This is what ruling is; lying on a bed of weeds, ripping them out by the root, one by one, before they strangle you in your sleep.  -  Cersei Lannister
+Last updated: 2024-04-06 09:44:12
+Random Quote: We all face the same end. Those above have long forgotten us. They do not judge us. In death, I am all alone, and my only judge… is me. - Martha
