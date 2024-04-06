@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 11:57:25
-Random Quote: I fear the only sorcerer strong enough to stop Dr. Strange is you, Dr. Strange. - Ancient One
+Last updated: 2024-04-06 11:57:58
+Random Quote: Do you know what it is like to be sold, squire?  I do.  My brother sold me to Khal Drogo for the promise of a golden crown.  Well, Drogo crowned him in gold, though not as he had wished, and I... my sun - and
