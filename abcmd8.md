@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 07:53:35
-Random Quote: Emotion equals weakness. - Wednesday Addams
+Last updated: 2024-04-06 07:54:09
+Random Quote: Treason is a noxious weed.  It must be torn up, root and stem and seed, lest new traitors sprout from every roadside.  -  Grand Maester Pycelle
