@@ -1,2 +1,3 @@
-Last updated: 2024-04-06 07:28:06
-Random Quote: And, you know, you just can't be mad at me for wanting you to be okay. - Rue Bennett
+Last updated: 2024-04-06 07:28:39
+Random Quote: Ellie: "Everybody I've cared for, either died or left me."
+Joel: "You have no idea what loss is." - Joel Miller
