@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 10:22:02
-Random Quote: Drugs are kind of cool. I mean, they're cool before they wreck your skin. And your life. And your family. That's when they get uncool. It's actually a very narrow window of cool. - Rue Bennett
+Last updated: 2024-04-06 10:22:35
+Random Quote: F*ck you! And your eyebrows! - Walter White
