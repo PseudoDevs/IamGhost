@@ -1,2 +1,3 @@
-Last updated: 2024-04-06 11:49:58
-Random Quote: I was in the desert. But if visiting the sands were a crime, the line of sinners would be longer than the Nile. - Arthur Harrow
+Last updated: 2024-04-06 11:50:31
+Random Quote: Lily: "We're going to Atlantic City to elope - right now!"
+Barney: "Oh, congratulations Lily! Marshall, you're getting married? What the hell?" - Barney Stinson
