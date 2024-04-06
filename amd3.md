@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 07:48:44
-Random Quote: Have you ever been told you're different, odd, or simply don't belong? In a world full of normies, do you feel like an outcast? Me too. But I'm pleased to tell you there's a very special place for people like us. Nevermore Academy. - Wednesday Addams
+Last updated: 2024-04-06 07:49:18
+Random Quote: Sometimes we have to let things go because we can't keep them forever. - Maura Franklin
