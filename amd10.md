@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 07:34:13
-Random Quote: Every time I go after a busty dullard who can't tell time or thinks I'm the ghost of Leonardo DiCaprio, I'm shallow. But somehow it's okay for Robin to date a guy who can't be trusted around outlets. - Barney Stinson
+Last updated: 2024-04-06 07:34:47
+Random Quote: Breast-feeding... hot!When those things swell up to three times their normal size, so do I. - Barney Stinson
