@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 06:35:51
-Random Quote: Beware, Thor, for thy brother shall free himself from our father's wrath And then shall you know the vengeance of Loki! - Thor
+Last updated: 2024-04-06 06:36:25
+Random Quote: If you had to fall into a woman's arms, my son, why couldn't they have been Margaery Tyrell's?  -  Catelyn Stark
