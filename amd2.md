@@ -1,4 +1,2 @@
-Last updated: 2024-04-06 08:36:57
-Random Quote: Greef: "Be careful, my friend. They've got you outnumbered ten to one."
-Din: "I like these odds."
-Greef: "I bet you do." - Greef Karga
+Last updated: 2024-04-06 08:37:30
+Random Quote: You have to be as bad as them above in order to survive. - Polly Gray
