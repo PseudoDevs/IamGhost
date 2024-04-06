@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 11:45:33
-Random Quote: Being alone like that shows you what kind of a person you are. - Maura Franklin
+Last updated: 2024-04-06 11:46:06
+Random Quote: Death is always inevitable. destiny is nothing but the connection between cause and effect. In light, in shadow. - 
