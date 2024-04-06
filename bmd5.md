@@ -1,5 +1,2 @@
-Last updated: 2024-04-06 08:34:25
-Random Quote: Bo-Katan: "I haven't seen battle droids since the Clone Wars."
-Din: "I have."
-Bo-Katan: "Any of 'em look suspicious?"
-Din: "They all look suspicious." - Din Djarin
+Last updated: 2024-04-06 08:34:59
+Random Quote: Yesterday, today and tomorrow are not consecutive, they are connected in a never-ending circle. Everything is connected - The Stranger
