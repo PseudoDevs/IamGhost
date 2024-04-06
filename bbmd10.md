@@ -1,3 +1,2 @@
-Last updated: 2024-04-06 10:51:55
-Random Quote: Freddie: "Are you mad?"
-Ada: "Yeah. Mad as hell with all of them." - Ada Thorne
+Last updated: 2024-04-06 10:52:28
+Random Quote: Kill the boy, Jon Snow.  Winter is almost upon us.  Kill the boy and let the man be born.  -  Aemon Targaryen
