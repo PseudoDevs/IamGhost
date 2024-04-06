@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 08:31:48
-Random Quote: In this fall - this is tough. In this fall I'm going to take my talents to Mouth Beach. - Barney Stinson
+Last updated: 2024-04-06 08:32:21
+Random Quote: Folly and desperation are ofttimes hard to tell apart.  -  Maester Luwin
