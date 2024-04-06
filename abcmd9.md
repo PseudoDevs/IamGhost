@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 06:36:25
-Random Quote: If you had to fall into a woman's arms, my son, why couldn't they have been Margaery Tyrell's?  -  Catelyn Stark
+Last updated: 2024-04-06 06:37:00
+Random Quote: If we're together long enough I hope that one day you see yourself like I do. - Kevin
