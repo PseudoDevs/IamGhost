@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 08:39:49
-Random Quote: Barney: "On your tombstone, it will be, 'Lily Aldrin. Caring wife. Loving friend. Slapbet-Commissioner.'"Marshall: "And your tombstone will read, 'Got slapped by Marhsall so hard he died.'" - Marshall Eriksen
+Last updated: 2024-04-06 08:40:23
+Random Quote: If you don’t know who I am, then maybe your best course would be to tread lightly. - Walter White
