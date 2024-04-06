@@ -1,6 +1,2 @@
-Last updated: 2024-04-06 12:01:49
-Random Quote: Morty: "Rick, when you say you made an exact replica of the house, did you mean, like, an exact replica?"
-Rick: "I know about the Yosemite T-Shirt, Morty."
-Morty: "Shit."
-Rick: "You know you can use tissues, right?"
-Morty: "I can't finish without it!" - Morty Smith
+Last updated: 2024-04-06 12:02:23
+Random Quote: The world was full of cravens who pretended to be heroes; it took a queer sort of courage to admit to cowardice as Samwell Tarly had.  -  Jon Snow
