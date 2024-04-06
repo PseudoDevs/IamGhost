@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 10:17:03
-Random Quote: When you date someone, it's like you're taking one long course in who that person is and then, when you break up, all that stuff becomes useless. It's the emotional equivalent of an English degree... - Ted Mosby
+Last updated: 2024-04-06 10:17:37
+Random Quote: When will you guys realize, that the only difference between my real life and a p0rn0 is, my real life has better lighting? - Barney Stinson
