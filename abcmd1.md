@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 07:16:00
-Random Quote: Jesus! Just grow some fucking balls! - Walter White
+Last updated: 2024-04-06 07:16:33
+Random Quote: A reader lives a thousand lives before he dies.  The man who never reads lives only one.  -  Jojen Reed
