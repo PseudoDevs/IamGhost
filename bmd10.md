@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 08:55:16
-Random Quote: Hey, takin' on a challenge is a lot like ridin' a horse. If you're comfortable while you're doin' it, you're probably doin' it wrong. - Jim Hopper
+Last updated: 2024-04-06 08:55:49
+Random Quote: Because you're so broken you don't even trust yourself. And that's scary. - Nate Jacobs
