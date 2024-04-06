@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 07:15:27
-Random Quote: I asked him why he kept her close, if he thought her so grotesque.  He said that all his other knights wanted things of him, castles or honors or riches, but all that Brienne wanted was to die for him.  -  Loras Tyrell
+Last updated: 2024-04-06 07:16:00
+Random Quote: I am IRONBORN!  I laugh at death.  -  Victarion Greyjoy
