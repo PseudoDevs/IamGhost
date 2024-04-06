@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 06:54:55
-Random Quote: You know, I hear you say things like that, and I wonder if maybe I did have a few too many whiskey sours when you were in my belly. - Meemaw
+Last updated: 2024-04-06 06:55:30
+Random Quote: That's where The Boys come in: Spank the bastards when they get out of line. - Billy Butcher
