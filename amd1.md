@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 06:21:25
-Random Quote: I just want to say to whoever is voting for me that I would certainly make an awful Lord Commander.  But so would all these others.  -  Dolorous Edd Tollett
+Last updated: 2024-04-06 06:21:47
+Random Quote: You want to rule?  This is what ruling is; lying on a bed of weeds, ripping them out by the root, one by one, before they strangle you in your sleep.  -  Cersei Lannister
