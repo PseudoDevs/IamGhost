@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 06:27:12
-Random Quote: The world was full of cravens who pretended to be heroes; it took a queer sort of courage to admit to cowardice as Samwell Tarly had.  -  Jon Snow
+Last updated: 2024-04-06 06:28:19
+Random Quote: This is the one that you saved? You are as its father. A clan of two. But you have removed your helmet. Then you are a Mandalorian no more. - The Armorer
