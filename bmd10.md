@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 09:36:36
-Random Quote: The common people pray for rain, healthy children, and a summer that never ends.  It is no matter to them if the high lords play their game of thrones, so long as they are left in peace.  They never are.  -  Jorah Mormont
+Last updated: 2024-04-06 09:37:11
+Random Quote: In all the world, violent men are the easiest to deal with. - Irene O'Donnell
