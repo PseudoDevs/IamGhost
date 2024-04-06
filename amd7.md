@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 10:43:46
-Random Quote: I feel like her sobriety is completely dependent on how available I am to her. - Jules Vaughn
+Last updated: 2024-04-06 10:44:52
+Random Quote: Lily: "I'm pregnant."Barney: "I've never seen that woman before in my life! Sorry - force of habit, congratulations!" - Barney Stinson
