@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 09:36:57
-Random Quote: Oberyn was ever the viper.  Deadly, dangerous, unpredictable.  No man dared tread on him.  I was the grass.  Pleasant, complaisant, sweet - smelling, swaying with every breeze.  Who fears to walk upon the grass?  But it is the grass that hides the viper from his enemies and shelters him until he strikes. 
+Last updated: 2024-04-06 09:37:30
+Random Quote: Kids, you may think your only choices are to swallow your anger or throw it in someone's face, but there's a third option: You can just let it go, and only when you do that is it really gone and you can move forward. - Ted Mosby
