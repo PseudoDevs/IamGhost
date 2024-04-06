@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 07:14:40
-Random Quote: Ties and no playoffs? Why do you even do this? - Jim Hopper
+Last updated: 2024-04-06 07:15:25
+Random Quote: Get the keys and remove those chains from him, before you make me rue the day I raped your mother.  -  Roose Bolton
