@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 10:58:00
-Random Quote: Some of you cared. None of you cared enough. - Hannah Baker
+Last updated: 2024-04-06 10:58:33
+Random Quote: This is Hawkins, okay? You wanna know the worst thing that's ever happened here in the four years I've been working here? It was when an owl attacked Eleanor Gillespie's head because it though that her hair was a nest. - Jim Hopper
