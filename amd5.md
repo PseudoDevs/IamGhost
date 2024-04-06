@@ -1,3 +1,3 @@
-Last updated: 2024-04-06 12:13:43
-Random Quote: Jang Deok-su: "Tell me what you're good at?"
-Han Mi-nyeo: "Everything, except the things I can't do." - Oh Il-nam
+Last updated: 2024-04-06 12:14:16
+Random Quote: Lily: "We're going to Atlantic City to elope - right now!"
+Barney: "Oh, congratulations Lily! Marshall, you're getting married? What the hell?" - Barney Stinson
