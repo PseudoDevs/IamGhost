@@ -1,2 +1,3 @@
-Last updated: 2024-04-06 07:51:00
-Random Quote: Hey, ref, check your voicemail! I think you've missed a few calls! - Ted Mosby
+Last updated: 2024-04-06 07:51:33
+Random Quote: Lily: "We don't wanna burden our little angel with all kinds of gender-specific expectations. Boys can do ballet, girls can play football."
+Marshall: "Hell, the Green Bay Packers have been proving that for years." - Marshall Eriksen
