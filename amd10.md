@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 09:46:36
-Random Quote: Barney: "This is one of those things you have to do before you turn 30."Ted: "Sleep with a prostitute?!"Barney: "No, lose your virginity!... What up?" - Barney Stinson
+Last updated: 2024-04-06 09:47:10
+Random Quote: I never asked for this, no more than I asked to be king.  Yet dare I disregard her?  We do not choose our destinies.  Yet we must... we must do our duty, no?  Great or small, we must do our duty.  -  Stannis Baratheon
