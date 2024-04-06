@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 11:50:54
-Random Quote: My real father died in King's Landing.  I made a choice, and I chose wrong.  -  Theon Greyjoy
+Last updated: 2024-04-06 11:51:27
+Random Quote: Honey, it's just the way your brain was hardwired. Plenty of great, intelligent, funny, interesting, and creative people have struggled with the same things you struggle with. - Leslie Bennett
