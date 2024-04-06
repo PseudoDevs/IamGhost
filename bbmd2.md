@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 07:01:17
-Random Quote: Hush, Alerie, don't take that tone with me.  And don't call me mother.  If I'd given birth to you, I'm sure I'd remember.  I'm only to blame for your husband, the lord oaf of Highgarden.  -  Olenna Tyrell
+Last updated: 2024-04-06 07:01:53
+Random Quote: There is a tool for every task, and a task for every tool.  -  Tywin Lannister
