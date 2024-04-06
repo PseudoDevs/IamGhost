@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 07:45:42
-Random Quote: Congratulations, you’ve just left your family a second-hand Subaru. - Saul Goodman
+Last updated: 2024-04-06 07:46:16
+Random Quote: Lord Balon's eldest brother had never given up the Old Way, even for a day.  His Silence, with its black sails and dark red hull, was infamous in every port from Ibben to Asshai, it was said.  -  Theon Greyjoy
