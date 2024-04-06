@@ -1,2 +1,3 @@
-Last updated: 2024-04-06 07:11:46
-Random Quote: The number two guy doesn't solve problems. He just points them out. - Don Neto
+Last updated: 2024-04-06 07:12:21
+Random Quote: Dragon: "My name is Balthromaw. Breaker of skies, slayer of mountain."
+Rick: "Rule 1: You're now scooper of your own poops, or I will take you down like the black-light poster you are." - Rick Sanchez
