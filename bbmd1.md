@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 07:29:47
-Random Quote: She had seen Bronn fight on the high road; it was no accident that he had survived the journey while other men had died.  He moved like a panther, and that ugly sword of his seemed a part of his arm.  -  Catelyn Stark
+Last updated: 2024-04-06 07:30:20
+Random Quote: I have let you come wash my dishes. I said my oven needed cleaning, I invited you to a p-rno! - Victoria
