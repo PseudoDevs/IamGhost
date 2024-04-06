@@ -1,3 +1,2 @@
-Last updated: 2024-04-06 11:55:33
-Random Quote: Summer: "Someone out there is trying to kill us."
-Rick: "Someone's always trying to kill us." - Rick Sanchez
+Last updated: 2024-04-06 11:56:06
+Random Quote: For some women it was the ashes of my parents. For others it was the trophy from Wimbledon and believe it or not, for one busty dullard, it was both. Game, enormous set and match! - Barney Stinson
