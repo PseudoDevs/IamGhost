@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 11:17:40
-Random Quote: Barney: "Canada sucks."Robin: "Okay, well, you're one-quarter Canadian, so by that logic you one-quarter suck!"Barney: "I'm 100% awesome and you know it!"Robin: "Yeah, I do." - Robin Scherbatsky
+Last updated: 2024-04-06 11:18:47
+Random Quote: Many good men have been bad kings, and some bad men have been good kings.  -  Maester Aemon
