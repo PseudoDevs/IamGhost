@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 07:17:01
-Random Quote: The more you move up in the world, the more enemies you make. - Rue Bennett
+Last updated: 2024-04-06 07:17:34
+Random Quote: I will kill your wife, I will kill your son, I will kill your infant daughter. - Gustavo Fring
