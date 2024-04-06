@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 08:38:02
-Random Quote: I’m not saying it’s not bad. It’s bad. But it could be worse. - Saul Goodman
+Last updated: 2024-04-06 08:38:35
+Random Quote: A hall to die in, and men to bury me.  I thank you, my lords... but I spit on your pity... I am a knight... I shall die a knight.  -  Barristan Selmy
