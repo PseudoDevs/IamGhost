@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 07:59:43
-Random Quote: When dead men come hunting us in the night, do you think it matters who sits the Iron Throne?  -  Jeor Mormont
+Last updated: 2024-04-06 08:00:16
+Random Quote: I wouldn't lie to you. Well... that's a lie. - Rick Sanchez
