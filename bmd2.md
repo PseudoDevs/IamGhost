@@ -1,5 +1,2 @@
-Last updated: 2024-04-06 10:21:49
-Random Quote: Dina: "You're infuriating."
-Ellie: "Have you met you?"
-Dina: "You make me want to go back outside into that blizzard."
-Ellie: "No one is stopping you." - Joel Miller
+Last updated: 2024-04-06 10:22:22
+Random Quote: One life, one choice, one moment can destroy the entire universe. - The Watcher
