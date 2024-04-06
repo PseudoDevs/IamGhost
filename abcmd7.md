@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 07:47:16
-Random Quote: Your pain defines who you are but it no longer holds power on you - Noah
+Last updated: 2024-04-06 07:47:49
+Random Quote: Edric Storm, they call him.  He is said to be the very image of my brother.  If men were to see him, and then look again at Joffrey and Tommen, they could not help but wonder, I would think.  -  Stannis Baratheon
