@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 09:32:28
-Random Quote: Only their shadows, One most of all.  A tall and twisted thing with one black eye and ten long arms, sailing on a sea of blood.  -  Moqorro
+Last updated: 2024-04-06 09:33:03
+Random Quote: Lily: "A big package just arrived."Marshall: "Yeah, it did."Lily: "No, no. It's a real package from your dad."Marshall: "Well, that's a little weird, but yeah, it is." - Marshall Eriksen
