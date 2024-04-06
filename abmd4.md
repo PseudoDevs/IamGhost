@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 10:27:06
-Random Quote: Barney: "I'm dating a stripper."Ted: "Yes, I've seen your bus ad." - Ted Mosby
+Last updated: 2024-04-06 10:27:39
+Random Quote: Did Need Stark dress you like that?  Was it his pleasure to garb you in velvets and silks and make you his own sweet daughter?  -  Balon Greyjoy
