@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 12:04:54
-Random Quote: Euron Greyjoy is no man's notion of a king, if half of what Theon said of him was true.  -  Robb Stark
+Last updated: 2024-04-06 12:05:27
+Random Quote: When you spend years thinking about something obsessively, that something is your whole world, your perfect world. - Tokyo
