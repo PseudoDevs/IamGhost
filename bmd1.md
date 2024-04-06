@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 11:09:52
-Random Quote: And that, kids, is the kind of stupid thing you say, before you've met the person who hits the reset button on the world. Who makes everything new again. Who makes it seem ridiculous that you ever considered settling. - Ted Mosby
+Last updated: 2024-04-06 11:10:25
+Random Quote: When you date someone, it's like you're taking one long course in who that person is and then, when you break up, all that stuff becomes useless. It's the emotional equivalent of an English degree... - Ted Mosby
