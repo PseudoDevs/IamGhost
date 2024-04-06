@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 11:36:58
-Random Quote: I cried my little black heart out. But tears don't fix anything. So I vowed to never do it again. - Wednesday Addams
+Last updated: 2024-04-06 11:37:31
+Random Quote: Bronn was no knight, that was true.  Bronn was a battle - hardened killer. 
