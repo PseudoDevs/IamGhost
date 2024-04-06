@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 07:29:19
-Random Quote: I let each man cut me once, before I kill him.  Count the cuts and you will know how many Strong Belwas has slain.  -  Strong Belwas
+Last updated: 2024-04-06 07:29:53
+Random Quote: I've only known one other being like this. A wise Jedi Master named Yoda. - Ahsoka Tano
