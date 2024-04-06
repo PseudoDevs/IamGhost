@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 09:38:06
-Random Quote: Marshall: "Baby, you're like 20 slutty chicks all rolled into one."Lily: "Sweet-talk is not gonna change my mind!" - Lily Aldrin
+Last updated: 2024-04-06 09:38:39
+Random Quote: Some battles are won with swords and spears, others with quills and ravens.  -  Tywin Lannister
