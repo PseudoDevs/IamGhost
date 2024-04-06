@@ -1,2 +1,6 @@
-Last updated: 2024-04-06 07:31:01
-Random Quote: Barney: "He's the awesomest, most best-lookingest, greatest guy ever!"Lily: "He's exactly like Barney."Barney: "That's what I just said." - Barney Stinson
+Last updated: 2024-04-06 07:31:35
+Random Quote: Beth: "Do you want homeless people to have homes?"
+Jerry: "Yes."
+Beth: "Are you gonna build them?"
+Jerry: "No."
+Beth: "Then what good was the 'yes'?" - Beth Smith
