@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 07:50:04
-Random Quote: In Colombia, when money's involved, blood inevitably flows. - Steve Murphy
+Last updated: 2024-04-06 07:50:40
+Random Quote: I have worked at the downfall of Tywin Lannister since the day they told me of Elia and her children.  -  Doran Martell

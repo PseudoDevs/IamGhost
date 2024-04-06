@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 07:49:30
-Random Quote: You can have all the intelligence in the world, but if nobody's there to act on it, what's it worth? Nothing. - Steve Murphy
+Last updated: 2024-04-06 07:50:40
+Random Quote: I like dogs better than knights... A hound will die for you, but never lie to you.  And he'll look you straight in the face.  -  Sandor Clegane
