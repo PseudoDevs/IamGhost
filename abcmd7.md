@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 07:19:22
-Random Quote: When I was 13, my father caught me kissing a boy, so he sent me to our family's ranch for foaling season. Once you see a baby horse erupt through that birth canal, you stop even touching yourself! - Robin Scherbatsky
+Last updated: 2024-04-06 07:19:54
+Random Quote: Ted: "The road to this day has had a few twists and turns, hasn't it?"Marshall: "Yeah... just a few. In a weird way, it all makes sense though, doesn't it?" - Marshall Eriksen
