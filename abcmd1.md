@@ -1,5 +1,2 @@
-Last updated: 2024-04-06 09:02:40
-Random Quote: Morty: "Mom, I have a friend coming over. Is that cool?"
-Beth: "I told your sister no parties."
-Morty: "It's one friend."
-Beth: "That's a party to you." - Beth Smith
+Last updated: 2024-04-06 09:03:16
+Random Quote: Eleven: "Promise?"Mike: "It means something that you can't break. Ever." - Mike Wheeler
