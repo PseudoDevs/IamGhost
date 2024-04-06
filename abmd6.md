@@ -1,5 +1,2 @@
-Last updated: 2024-04-06 08:27:51
-Random Quote: Morty: "Mom, I have a friend coming over. Is that cool?"
-Beth: "I told your sister no parties."
-Morty: "It's one friend."
-Beth: "That's a party to you." - Beth Smith
+Last updated: 2024-04-06 08:28:24
+Random Quote: We're done when I say we're done. - Walter White

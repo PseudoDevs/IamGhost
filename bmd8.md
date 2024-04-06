@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 08:27:51
-Random Quote: Jerry: "I wish that shotgun was my penis."Beth: "If it were, you could call me Ernest Hemingway." - Beth Smith
+Last updated: 2024-04-06 08:28:24
+Random Quote: Many good men have been bad kings, and some bad men have been good kings.  -  Maester Aemon
