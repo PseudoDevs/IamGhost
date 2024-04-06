@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 06:51:10
-Random Quote: Know the men who follow you and let them know you.  Don't ask your men to die for a stranger.  -  Eddard Stark
+Last updated: 2024-04-06 06:51:43
+Random Quote: My only aim is to take many lives. The more the better I feel. - 

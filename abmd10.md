@@ -1,2 +1,3 @@
-Last updated: 2024-04-06 06:51:10
-Random Quote: Mitchell: "We didn't just go to Vietnam for pleasure. We kinda have some big news."Jay: "Oh God, if Cam comes out there with boobs, I'm leaving." - Jay Pritchett
+Last updated: 2024-04-06 06:51:43
+Random Quote: HR: "I know this is classic HR to say, but: You're not alone."
+Steven: "Yeah. That's like, part of the problem, innit?" - Arthur Harrow
