@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 08:51:28
-Random Quote: Ted: "Everyone has an opinion on how long it takes to recover from a breakup."Lily: "Half the length of the relationship."Marshall: "One week for every month you were together."Robin: "Exactly 10,000 drinks, however long that takes."Barney: "You can't measure something like this in time. There's a series of steps: From her bed to the front door. Bam! Out of there.... next!" - Barney Stinson
+Last updated: 2024-04-06 08:52:03
+Random Quote: Here's the secret, kids: none of us can vow to be perfect. In the end, all we can do is promise to love each other with everything we've got. Because love's the best thing we do. - Ted Mosby
