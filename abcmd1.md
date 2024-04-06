@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 07:56:11
-Random Quote: February 13th. A magical night, where a ten has the self esteem of a four and the depraved enthusiasm of a two. - Barney Stinson
+Last updated: 2024-04-06 07:56:45
+Random Quote: I buried an axe so deep into Willem's skull, they had to bury him with it.  -  Yoren of the Knight's Watch
