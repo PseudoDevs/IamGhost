@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 07:51:14
-Random Quote: If I hadn't buried my feelings so deep I would totally be tearing up right now. - Maritza Ramos
+Last updated: 2024-04-06 07:52:25
+Random Quote: You must be blind as well as maimed, Set.  Lift your eyes, and you will see the direwolf still flies above our walls.  -  Brynden Tully
