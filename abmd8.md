@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 06:30:00
-Random Quote: Oh, boy, so you actually learned something today? What is this, Full House? - Rick Sanchez
+Last updated: 2024-04-06 06:30:33
+Random Quote: A hall to die in, and men to bury me.  I thank you, my lords... but I spit on your pity... I am a knight... I shall die a knight.  -  Barristan Selmy
