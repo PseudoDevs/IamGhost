@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 08:32:13
-Random Quote: Rattleshirt, we called him.  Treacherous and bloodthirsty.  If there's honor in him, he hides it down beneath his suit of bones.  -  Jon Snow
+Last updated: 2024-04-06 08:32:46
+Random Quote: Sometimes distance is the only way to find peace. So you can heal your wound. - Berlin
