@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 11:25:57
-Random Quote: The "no more surprises"-thing is the best part of being married. - Lily Aldrin
+Last updated: 2024-04-06 11:27:36
+Random Quote: If you die before you say her name, Set, I will hunt you through the seven hells.  -  Oberyn Martell
