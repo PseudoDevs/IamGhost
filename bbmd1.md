@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 08:22:14
-Random Quote: There must always be a Stark in Winterfell.  -  Catelyn Stark
+Last updated: 2024-04-06 08:22:47
+Random Quote: Ramsay.  Snow, my wife called me before she ate her fingers, but I say Bolton.  -  Ramsay Bolton
