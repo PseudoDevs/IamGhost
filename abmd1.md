@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 12:12:08
-Random Quote: She don't speak.  You bloody bastards cut her throat too deep for that.  But she remembers.  -  Lem Lemoncloack
+Last updated: 2024-04-06 12:12:41
+Random Quote: Yes! Tonight is gonna be Legen... wait, are we sure it's a good idea to go to a strip club? Shut up, Lily! I'm in charge now... Dary! - Barney Stinson
