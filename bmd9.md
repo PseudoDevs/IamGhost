@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 11:59:57
-Random Quote: Some of you cared. None of you cared enough. - Hannah Baker
+Last updated: 2024-04-06 12:00:31
+Random Quote: In the United States, the Mafia makes witnesses disappear so they can't testify in court. In Colombia, Pablo Escobar made the whole court disappear. - Steve Murphy
