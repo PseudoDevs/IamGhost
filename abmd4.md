@@ -1,2 +1,3 @@
-Last updated: 2024-04-06 11:18:02
-Random Quote: They threw him off the goddamn railing. There's no way someone survives that. And yet, here he is. How is that possible? - Eyk Larsen
+Last updated: 2024-04-06 11:18:35
+Random Quote: Morty: "You were a teenager when dad got you pregnant!"
+Beth: "I was 17. That's at least 26 in boy years." - Beth Smith
