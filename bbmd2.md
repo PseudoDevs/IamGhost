@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 07:38:31
-Random Quote: Talking to a woman that you have already had sex with, is like changing the oil on a rental car! - Barney Stinson
+Last updated: 2024-04-06 07:39:37
+Random Quote: Lily: "Anytime a single guy hangs out with a married woman there are rules that must be followed: Rule number one..."Barney: "Don't use the husband's condoms, that's just rude!" - Barney Stinson

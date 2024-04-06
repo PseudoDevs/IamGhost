@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 07:39:04
-Random Quote: In King's Landing, there are two sorts of people.  The players and the pieces.  -  Petyr Baelish
+Last updated: 2024-04-06 07:39:37
+Random Quote: Ted: "First it was too much eye-contact, then not enough - where do you look during sex?"Barney: "Into the hidden camera at future me, watching it." - Barney Stinson
