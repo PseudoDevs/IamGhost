@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 11:25:46
-Random Quote: Miss Addams, you sadly had a very interesting educational journey. Eight schools in five years. - Larissa Weems
+Last updated: 2024-04-06 11:26:19
+Random Quote: Ted: "You're not gonna do it at your wedding?"Lily: "Hell, yeah! I'm gonna take that flower-grenade and chuck it to the crowd and scream, 'Crawl for it, bitches!'" - Lily Aldrin
