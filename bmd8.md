@@ -1,2 +1,3 @@
-Last updated: 2024-04-06 11:28:43
-Random Quote: I'm not in the meth business. I'm in the empire business. - Walter White
+Last updated: 2024-04-06 11:29:16
+Random Quote: "Everybody else can see Ben, right?"
+"Yeah, and he's a complete d-ckhead." - Allison Hargreeves

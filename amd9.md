@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 11:28:43
-Random Quote: The Peaky Blinders. The vicious, merciless gangs who blind those who see and cut out the tongues of those who talk. - Chester Campbell
+Last updated: 2024-04-06 11:29:16
+Random Quote: In all the world, violent men are the easiest to deal with. - Irene O'Donnell
