@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 09:46:40
-Random Quote: No matter how much we fight it we are connected by our blood. We can feel estranged from our families and not understand what they do. And still, in the end, we will do anything for them. - Adam
+Last updated: 2024-04-06 09:47:14
+Random Quote: We should have never gotten on this ship. It was a mistake. All of it, a huge mistake. - Yuk Je
