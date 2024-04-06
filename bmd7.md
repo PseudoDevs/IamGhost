@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 09:49:18
-Random Quote: We have to control this fing world, or it will control you. And if you don't protect yourself, it makes a mess and breaks you. - Miguel Angel Felix Gallardo
+Last updated: 2024-04-06 09:49:51
+Random Quote: It was the white cloak that soiled me, not the other way around.  -  Jaime Lannister
