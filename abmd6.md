@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 09:47:46
-Random Quote: A sorcerer is a wizard without a hat. - Sam Wilson
+Last updated: 2024-04-06 09:48:59
+Random Quote: Stannis Baratheon with a grievance was like a mastiff with a bone; he gnawed it down to splinters.  -  Jon Snow

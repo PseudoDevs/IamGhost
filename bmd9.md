@@ -1,4 +1,2 @@
-Last updated: 2024-04-06 09:48:23
-Random Quote: Marshall: "Except the flames of Lucifer keep singein our back bumper as we drive through this hellish, cheese-infected wasteland."
-Lily: "Wisconsin?"
-Marshall: "Wisconsin!" - Marshall Eriksen
+Last updated: 2024-04-06 09:48:59
+Random Quote: Fine I'll fill her in and I am so angry I am not even goin' to make a joke about "filling her in"... which I did three times last night. Self-five! - Barney Stinson
