@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 08:15:37
-Random Quote: I want you to wanna kiss me so bad that you don't even ask. - Jules Vaughn
+Last updated: 2024-04-06 08:16:11
+Random Quote: A man will tell you poison is dishonorable, but a woman's honor is different.  The Mother shaped us to protect our children, and our only dishonor is failure.  -  Lysa Arryn
