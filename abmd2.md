@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 08:55:56
-Random Quote: Ted: "You know what else is getting cleaned, along with that cup-cake tray? My conscience!"Victoria: "You got anything else to atone for? My oven needs cleaning." - Victoria
+Last updated: 2024-04-06 08:56:34
+Random Quote: You're Reek.  You'll always be Reek, no matter how sweet you smell.  Your nose may lie to you.  Remember your name.  Remember who you are.  -  Ramsay Bolton
