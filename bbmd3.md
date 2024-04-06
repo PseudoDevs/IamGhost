@@ -1,2 +1,3 @@
-Last updated: 2024-04-06 09:48:22
-Random Quote: So you're mining stuff to craft with and crafting stuff to mine with? Did your dad write this game? - Rick Sanchez
+Last updated: 2024-04-06 09:48:59
+Random Quote: Morty: "I don't like how meta this is getting, Rick."
+Rick: "Shut up, Morty, you're 14. You watch videos of people on YouTube reacting to fing YouTube. I'll be the judge of when we get too meta." - Rick Sanchez
