@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 11:08:46
-Random Quote: Demons made of snow and ice and cold.  The ancient enemy.  The only enemy that matters.  -  Stannis Baratheon
+Last updated: 2024-04-06 11:09:19
+Random Quote: Whatever you do in this life, it's not legendary, unless your friends are there to see it. - Barney Stinson
