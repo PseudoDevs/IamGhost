@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 10:01:39
-Random Quote: I wouldn't lie to you. Well... that's a lie. - Rick Sanchez
+Last updated: 2024-04-06 10:02:13
+Random Quote: You grew up with actors.  You learned their craft and you learned it well.  I grew up with soldiers.  I learned how to die a long time ago.  -  Eddard Stark
