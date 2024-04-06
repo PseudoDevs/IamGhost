@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 11:58:06
-Random Quote: My father knew the worth of Howland Reed.  -  Robb Stark
+Last updated: 2024-04-06 11:58:39
+Random Quote: I drank when I was pregnant with you, you turned out fine. There's everybody saying 'don't drink, don't smoke'. I swear - Texas is turning into California. - Meemaw
