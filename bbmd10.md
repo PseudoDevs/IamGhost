@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 08:20:31
-Random Quote: Stop crying. Remember? Crying makes you ugly and weak. - Dayanara Diaz
+Last updated: 2024-04-06 08:21:05
+Random Quote: A queen must listen to all.  The highborn and the low, the strong and the weak, the noble and the venal.  One voice may speak you false, but in many there is always truth to be found.  -  Daenerys Targaryen
