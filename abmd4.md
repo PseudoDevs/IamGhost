@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 08:06:52
-Random Quote: Haley: "Dad, can you just please tell mom, that I can take a two hour break and go to a party?"Phil: "No Ma'am, I'm not stepping into that one. We're not playing 'good cop - mom'.'" - Phil Dunphy
+Last updated: 2024-04-06 08:08:01
+Random Quote: I've had shits that I've liked better than Walder Frey.  -  Brynden Tully
