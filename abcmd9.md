@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 08:01:27
-Random Quote: Edric Storm, they call him.  He is said to be the very image of my brother.  If men were to see him, and then look again at Joffrey and Tommen, they could not help but wonder, I would think.  -  Stannis Baratheon
+Last updated: 2024-04-06 08:02:01
+Random Quote: I just want to say to whoever is voting for me that I would certainly make an awful Lord Commander.  But so would all these others.  -  Dolorous Edd Tollett

@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 08:00:20
-Random Quote: Robin: "We're like sisters."Ted: "You've never gotten through even one exchange without screaming at her."Robin: "Sisters fight, Ted!" - Robin Scherbatsky
+Last updated: 2024-04-06 08:02:01
+Random Quote: I didn't realize you were small potatoes. And to be clear, I am referring to your testicles. - Robin Scherbatsky
