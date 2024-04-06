@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 08:34:47
-Random Quote: If I now change my past, I will change who I am right now - The Stranger
+Last updated: 2024-04-06 08:35:53
+Random Quote: Brandon Stark was never shy about taking what he wanted.  I am old now, a dried - up thing, too long a widow, but I still remember the look of my maiden's blood on his cock the night he claimed me.  I think Brandon liked the sight as well.  A bloody sword is a beautiful thing, yes.  It hurt, but it was a sweet pain. 
