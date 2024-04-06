@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 11:46:27
-Random Quote: They pray to trees and golden idols and goat - headed abominations.  False gods... just so, and for that sin I kill them all.  I spill their blood upon the sea and sow their screaming women with my seed.  Their little gods cannot stop me, so plainly they are false gods.  I am more devout than even you, Aeron.  Perhaps it should be you who kneels to me for blessing. 
+Last updated: 2024-04-06 11:48:07
+Random Quote: The plan was to kill you and take the kid. But after what happened last night, I couldn't go through with it. - Greef Karga
