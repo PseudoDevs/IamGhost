@@ -1,3 +1,2 @@
-Last updated: 2024-04-06 09:27:50
-Random Quote: Sam: "What's going on in that cyborg brain of yours?"
-Bucky: "You don't wanna know!" - Bucky Barnes
+Last updated: 2024-04-06 09:28:25
+Random Quote: The pain is his vessel, desire his compass. It is all that man is capable of. - 

@@ -1,2 +1,3 @@
-Last updated: 2024-04-06 09:27:16
-Random Quote: He can hear youHe knows if you've been bad or goodLike Santa, but he can send you to hell. - Missy
+Last updated: 2024-04-06 09:28:24
+Random Quote: Weems: "No doubt you'll find something that tickles your fancy."
+Wednesday: "The last person who tickled me lost a finger." - Wednesday Addams

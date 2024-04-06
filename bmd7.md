@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 09:27:15
-Random Quote: Why should I go running to my aunt as if I were a beggar?  My claim is better than her own.  Let her come to me... in Westeros.  -  Aegon Targaryen
+Last updated: 2024-04-06 09:28:24
+Random Quote: If I could be a different person, I promise you, I would. Not 'cause I want it, but 'cause they do. - Rue Bennett
