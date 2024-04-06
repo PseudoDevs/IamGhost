@@ -1,2 +1,3 @@
-Last updated: 2024-04-06 12:06:34
-Random Quote: I don't wanna be choosing between two girls, I wanna be a complete head over heels idiot for one! - Ted Mosby
+Last updated: 2024-04-06 12:07:07
+Random Quote: Jessica: "I miss you."
+Morty: "You miss the old me. You miss someone that loved you so much, you never had to love him back." - Morty Smith
