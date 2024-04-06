@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 07:46:44
-Random Quote: You, Vision, are the piece of the Mind Stone that lives in me. You are a body of wires and blood and bone that I created. You are my sadness and my hope. But mostly, you're my love. - Wanda Maximoff
+Last updated: 2024-04-06 07:47:18
+Random Quote: Never fear the darkness, Bran.  The strongest trees are rooted in the dark places of the earth.  Darkness will be your cloak, your shield, your mother's milk.  Darkness will make you strong.  -  Bloodraven
