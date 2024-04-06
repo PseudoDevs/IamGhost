@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 08:31:11
-Random Quote: There are no true knights, no more than there are gods.  If you can't protect yourself, die and get out of the way of those who can.  Sharp steel and strong arms rule this world, don't ever believe any different.  -  Sandor Clegane
+Last updated: 2024-04-06 08:32:20
+Random Quote: Tormund Giantsbane seemed to me the sort of man who would make a good friend and a bad enemy, your Grace.  -  Jon Snow
