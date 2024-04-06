@@ -1,2 +1,3 @@
-Last updated: 2024-04-06 11:04:55
-Random Quote: I know you mean well. I know you wanna protect me. You have. And when we're done, we'll go wherever you want. Tommy's, sheep ranch, the moon... I'll follow you anywhere you go. But there's no halfway with this. We finish what we started. - Ellie Williams
+Last updated: 2024-04-06 11:05:27
+Random Quote: Men and their d-cks never cease to amaze me. John, Lizzie Stark never did a day's work vertical.
+Brave is going where no man has gone before. And with Lizzie Stark, John, that's not what you'll be doing. - Polly Gray
