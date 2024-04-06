@@ -1,3 +1,2 @@
-Last updated: 2024-04-06 09:39:30
-Random Quote: Billy: "Halloween's a magical holiday. All about family, friends, and the thrill of getting to be someone else for a day."
-Tommy: "Wrong! Halloween's about candy. And scaring people, but mostly candy." - Tommy Maximoff
+Last updated: 2024-04-06 09:40:02
+Random Quote: If you don't make it back, there's one thing that I need to tell you... - Klaus Hargreeves
