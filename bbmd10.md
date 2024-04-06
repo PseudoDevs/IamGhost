@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 11:56:40
-Random Quote: I hide in plain sight, same as you. - Gustavo Fring
+Last updated: 2024-04-06 11:57:13
+Random Quote: What I came to realise is that fear, that’s the worst of it. That’s the real enemy. So, get up, get out in the real world and you kick that bastard as hard you can right in the teeth. - Walter White
