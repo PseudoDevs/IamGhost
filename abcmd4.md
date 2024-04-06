@@ -1,3 +1,2 @@
-Last updated: 2024-04-06 08:03:32
-Random Quote: Ellie: "There's not gonna be anything bad in here?"
-Joel: "Just you." - Joel Miller
+Last updated: 2024-04-06 08:05:12
+Random Quote: You give me one hour of phone-free bro time, during which we, and by we I mean you, get magnificently, mythologically drunk. I'm talking needing-subtitles-when-you-speak drunk. - Barney Stinson
