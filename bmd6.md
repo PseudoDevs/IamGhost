@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 07:21:09
-Random Quote: New York! Home of the Mets, the Chrysler Building, those ladies from Sex and the City and now, the zombie apocalypse. If you can make it here, you can make it anywhere - but first, you have to not get eaten. - Spider-Man
+Last updated: 2024-04-06 07:21:43
+Random Quote: Grey Wind ate two of his fingers, and he laughed about it.  -  Robb Stark on Greatjon Umber
