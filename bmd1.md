@@ -1,2 +1,3 @@
-Last updated: 2024-04-06 07:52:26
-Random Quote: Zoey: "Don't worry Ted, she's cute."Barney: "'Cute' means 'fat'!"Zoey: "She's not fat."Barney: "'Not fat' means 'ugly'." - Barney Stinson
+Last updated: 2024-04-06 07:53:33
+Random Quote: Morticia: "That boy's family was going to file attempted murder charges. How would that have looked on your record?"
+Wednesday: "Terrible. Everyone would know I failed to get the job done." - Wednesday Addams
