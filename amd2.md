@@ -1,2 +1,4 @@
-Last updated: 2024-04-06 11:36:29
-Random Quote: If a man does not use his member it grows smaller and smaller, until one day he wants to piss and cannot find it.  -  Tormund Giantsbane
+Last updated: 2024-04-06 11:37:03
+Random Quote: Marshall: "Except the flames of Lucifer keep singein our back bumper as we drive through this hellish, cheese-infected wasteland."
+Lily: "Wisconsin?"
+Marshall: "Wisconsin!" - Marshall Eriksen

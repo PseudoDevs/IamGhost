@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 11:36:28
-Random Quote: Small wonder that the Seven Kingdoms thought the free folk scarcely human.  They have no laws, no honor, not even simple decency.  They steal endlessly from each other, breed like beasts, prefer rape to marriage, and fill the world with baseborn children.  Yet he was growing fond of Tormund Giantsbane, great bag of wind and lies though he was.  -  Jon Snow
+Last updated: 2024-04-06 11:37:01
+Random Quote: Money. That's what seperates the haves from the have-nots. But what is money? It's everything if you don't have it, right? - Marty Byrde
