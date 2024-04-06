@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 12:02:33
-Random Quote: When I knew him, he was. - Kim Wexler
+Last updated: 2024-04-06 12:03:06
+Random Quote: Roose Bolton's cold and cunning, aye, but a man can deal with Roose.  We've all known worse.  But this bastard son of his... they say he's mad and cruel, a monster.  -  Locke
