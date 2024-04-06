@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 08:12:42
-Random Quote: Do you think I can't tell Lord Stannis from Lord Tywin?  They're both bungholes who think they're too noble to shit, but never mind about that, I know the difference.  -  Walder Frey
+Last updated: 2024-04-06 08:13:15
+Random Quote: I find Social Media to be a soul-sucking void of meaningless affirmation. - Wednesday Addams
