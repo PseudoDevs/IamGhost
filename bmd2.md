@@ -1,2 +1,3 @@
-Last updated: 2024-04-06 10:42:49
-Random Quote: I know you mean well. I know you wanna protect me. You have. And when we're done, we'll go wherever you want. Tommy's, sheep ranch, the moon... I'll follow you anywhere you go. But there's no halfway with this. We finish what we started. - Ellie Williams
+Last updated: 2024-04-06 10:43:22
+Random Quote: Wyatt Langmore: "This job's my old man's idea. Something about 'calluses and character'."
+Charlotte Byrde: "Yeah, well, you're blowing leaves, not hiding Anne Frank." - Charlotte Byrde
