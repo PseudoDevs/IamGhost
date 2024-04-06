@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 07:02:49
-Random Quote: Fool's blood, king's blood, blood on the maiden's thigh, but chains for the guests and chains for the bridegroom, aye aye aye.  -  Patchface
+Last updated: 2024-04-06 07:04:45
+Random Quote: What you have to do is show these suckers what you’re capable of. Show them you’re not scared. - Nairobi
