@@ -1,2 +1,5 @@
-Last updated: 2024-04-06 06:56:42
-Random Quote: Barney: "I am so sorry, Cornelius. You deserve a better end than this."Lily: "You got ketchup on a red tie, you can't even see it!" - Lily Aldrin
+Last updated: 2024-04-06 06:57:16
+Random Quote: John Flynn: "Rogers, get in there!"
+Peggy Carter: "He can't."
+John Flynn: "Stark, you go in!"
+Howard Stark: "What? Are you crazy? I push the buttons. I'm the buttons guy." - Howard Stark
