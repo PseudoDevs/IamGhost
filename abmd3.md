@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 09:38:59
-Random Quote: What about the reality where Hitler cured cancer, Morty? The answer is: don't think about it. - Rick Sanchez
+Last updated: 2024-04-06 09:39:33
+Random Quote: She studied Theon Greyjoy's sly smile, wondering what it meant.  That young man had a way of looking as though he knew some secret jest that only he was privy to; Catelyn had never liked it.  -  Catelyn Stark
