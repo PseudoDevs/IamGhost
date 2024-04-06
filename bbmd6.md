@@ -1,3 +1,2 @@
-Last updated: 2024-04-06 09:01:12
-Random Quote: Dragon: "My name is Balthromaw. Breaker of skies, slayer of mountain."
-Rick: "Rule 1: You're now scooper of your own poops, or I will take you down like the black-light poster you are." - Rick Sanchez
+Last updated: 2024-04-06 09:01:45
+Random Quote: All due respect, sir, isn't that a lot of firepower to aim at a country most Americans can't find on a map? - Pepper Potts
