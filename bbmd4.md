@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 10:16:40
-Random Quote: If there's one thing I've learned in the narco world, it's that life is more complicated than you think. Good and bad, they're relative concepts. - Steve Murphy
+Last updated: 2024-04-06 10:17:12
+Random Quote: Be proud of your penis and your heritage. 'Cause neither are going anywhere. You should work with what you've got. - Otis Milburn

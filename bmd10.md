@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 10:16:39
-Random Quote: The Crow's Eye brought back monsters from the east... aye, and wizards too.  -  Tristifer Botley
+Last updated: 2024-04-06 10:17:12
+Random Quote: In my body, where the shame gland should be, there is a second awesome gland. True story! - Barney Stinson
