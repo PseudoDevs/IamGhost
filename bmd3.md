@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 06:57:05
-Random Quote: Is it your fault that Bronn's an insolent black - hearted rogue?  He's always been an insolent black
+Last updated: 2024-04-06 06:57:38
+Random Quote: Stop crying. Remember? Crying makes you ugly and weak. - Dayanara Diaz
