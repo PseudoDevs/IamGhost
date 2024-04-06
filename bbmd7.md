@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 08:08:48
-Random Quote: That's not a law, just a sword.  Happens I got one too.  -  Yoren of the Night's Watch
+Last updated: 2024-04-06 08:09:21
+Random Quote: The biggest case of my life and I'd already lost the jury. I mean, I've heard of "Twelve Angry Men",  but this was more like "Twelve Horny Women". - Marshall Eriksen
