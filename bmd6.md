@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 11:30:38
-Random Quote: Help was not promised, lovely girl.  Only death.  -  Jaqen H'ghar
+Last updated: 2024-04-06 11:31:12
+Random Quote: It doesn't matter how tough you are, you're not going to win in this place. Not on your own. - Jang Deok-su
