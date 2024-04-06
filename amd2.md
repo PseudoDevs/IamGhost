@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 07:05:58
-Random Quote: Life hurts. The moment you think you've got it all, it smacks you in the face. - Lucien
+Last updated: 2024-04-06 07:06:33
+Random Quote: Marshall: "During that time, I have been, how do I put this delicately, saving all my love for you."Lily: "I have read eleven books on conception, I have cut out alcohol, caffeine and sugar. I take my temperature every hour. But good for you for not playing with yourself!" - Lily Aldrin
