@@ -1,2 +1,3 @@
-Last updated: 2024-04-06 08:22:11
-Random Quote: What is the cost of lies? It's not that we mistake them for the truth. The real danger is that if we hear enough lies, then we no longer recognize the truth at all. - Valery Legasov
+Last updated: 2024-04-06 08:22:45
+Random Quote: Morty: "Rick, can we not leave without my sister?"
+Rick: "Ugh. You have infinite sisters, Morty. Not that I want to spend the rest of my day looking for another one. Sum-Sum, let's go! Grandpa's concern for your safety is fleeting." - Rick Sanchez
