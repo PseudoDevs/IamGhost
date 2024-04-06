@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 09:25:31
-Random Quote: Usually after a sandwich, I feel paranoid, but I'm not. WHY AM I NOT BEING PARANOID?? - Marshall Eriksen
+Last updated: 2024-04-06 09:26:07
+Random Quote: You Westerosi are all the same.  You sew some beast upon a scrap of silk, and suddenly you are all lions or dragons or eagles.  -  Illyrio Mopatis
