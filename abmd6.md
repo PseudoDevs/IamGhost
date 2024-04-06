@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 11:30:28
-Random Quote: Barney, check it! Three blond babies drinking bad-decision-juice at eight o'clock. - Lily Aldrin
+Last updated: 2024-04-06 11:31:00
+Random Quote: No voting, no debate. It's not a democracy - it's a Rickpublic! - Summer Smith
