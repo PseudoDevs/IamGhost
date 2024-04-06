@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 07:39:52
-Random Quote: Barney: "I scoured the dating sites, using my own personal logarithms, factoring in a broad spectrum of variables, filtering out undesirable high-risk negatives, guaranteeing a success-rate of eighty-thr..."Ted: "...you picked the girls that showed the most boob." - Ted Mosby
+Last updated: 2024-04-06 07:40:24
+Random Quote: Robin: "Ted, are you acting out the last scene of 'Sleepless in Seattle' with little dolls?"Ted: "How long have you been out here?"Robin: "Ten seconds."Ted: "Yeah - just the last scene." - Robin Scherbatsky
