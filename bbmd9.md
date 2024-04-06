@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 08:23:05
-Random Quote: Power resides where men believe it resides... It's a trick, a shadow on the wall.  -  Varys
+Last updated: 2024-04-06 08:23:39
+Random Quote: You poor stupid blind crippled fool.  Must I spell out every little thing for you?  Very well.  Cersei is a lying whore, she's been fucking Lancel and Osmund  Kettleblack and probably Moon Boy for all I know.  And I am the monster they all say I am.  Yes, I killed your vile son.  -  Tyrion Lannister
