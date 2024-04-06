@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 09:00:11
-Random Quote: The beauty of a moment, is that it's fleeting. - Ted Mosby
+Last updated: 2024-04-06 09:00:44
+Random Quote: Spare me your empty little compliments, girl... and your ser's.  I am no knight.  I spit on them and their vows.  My brother is a knight.  -  Sandor Clegane
