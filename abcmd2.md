@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 07:56:26
-Random Quote: It is so nice to be out in the fresh air. You smell that? That's the smell of urine that isn't Marvin's. - Marshall Eriksen
+Last updated: 2024-04-06 07:56:58
+Random Quote: The Lord of Light cherishes the innocent.  There is no sacrifice more precious.  From his king's blood and his untainted fire, a dragon shall be born.  -  Melisandre
