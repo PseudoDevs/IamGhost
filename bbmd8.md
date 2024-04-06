@@ -1,2 +1,3 @@
-Last updated: 2024-04-06 08:23:54
-Random Quote: Never trust a pirate. - Din Djarin
+Last updated: 2024-04-06 08:24:27
+Random Quote: Ellie: "Everybody I've cared for, either died or left me."
+Joel: "You have no idea what loss is." - Joel Miller
