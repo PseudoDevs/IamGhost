@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 12:13:43
-Random Quote: When dead men come hunting us in the night, do you think it matters who sits the Iron Throne?  -  Jeor Mormont
+Last updated: 2024-04-06 12:14:17
+Random Quote: Remember. Once they find out who you are, you die. - Jang Deok-su

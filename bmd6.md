@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 12:13:43
-Random Quote: Get the f out of here and don't stop walking until you hear them speak English! - Guillermo Gonzalez Calderoni
+Last updated: 2024-04-06 12:14:17
+Random Quote: Just remember who your friends and who your enemies are. - Billy Butcher
