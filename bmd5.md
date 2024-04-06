@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 06:51:48
-Random Quote: Good and evil are a question of perspective - Mikkel
+Last updated: 2024-04-06 06:52:21
+Random Quote: The title was but a courtesy due him as a council member; Varys was lord of nothing but the spiderweb, the master of none but his whispers.  -  Catelyn Stark
