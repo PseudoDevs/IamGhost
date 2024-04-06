@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 07:39:48
-Random Quote: When will you guys realize, that the only difference between my real life and a p0rn0 is, my real life has better lighting? - Barney Stinson
+Last updated: 2024-04-06 07:40:21
+Random Quote: A reader lives a thousand lives before he dies.  The man who never reads lives only one.  -  Jojen Reed
