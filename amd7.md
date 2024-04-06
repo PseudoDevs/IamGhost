@@ -1,3 +1,2 @@
-Last updated: 2024-04-06 06:55:43
-Random Quote: Ravonna: "You really believe in this Loki variant?"
-Mobius: "Luckily, he believes in himself enough for the both of us." - Mobius M. Mobius
+Last updated: 2024-04-06 06:56:19
+Random Quote: When the sun has set, no candle can replace it.  -  Loras Tyrell
