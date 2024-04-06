@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 07:17:42
-Random Quote: I'm from Minnesota, where there's plenty hot-dogs for everyone. Perhaps even too many... - Marshall Eriksen
+Last updated: 2024-04-06 07:18:15
+Random Quote: His size, Gregor is a very large man.  Also a very stupid one.  Too stupid to know when he should die, it seems.  -  Cersei Lannister
