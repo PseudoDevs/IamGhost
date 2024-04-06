@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 09:41:18
-Random Quote: If you keep all your treasures in one purse, you only make it easier for those who would rob you.  -  Robb Stark
+Last updated: 2024-04-06 09:41:52
+Random Quote: They shall come day and night to see the wonder that has been born again into the world, and when they see they shall lust.  For dragons are fire made flesh, and fire is power.  -  Quaithe
