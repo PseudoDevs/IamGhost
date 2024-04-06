@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 11:03:38
-Random Quote: Ted: "Grinch, Grinch, Grinch, Grinch!"[The lights turn out]Lily: "Happy? Now you pissed up the big guy upstairs!"Ted: "Yeah, I'm sure god cares if I..."Man: "You use that language again and I turn off your water!"Lily: "It's my super - he lives above me." - Lily Aldrin
+Last updated: 2024-04-06 11:04:11
+Random Quote: There is one difference between you and me: I'm not saying any of this to get in your pants. - How I Met Your Mother
