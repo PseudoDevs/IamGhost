@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 11:42:34
-Random Quote: I'll have to take a page from Robert's book, not that he ever read one.  -  Stannis Baratheon
+Last updated: 2024-04-06 11:43:08
+Random Quote: That was the night I was born. I rose like a phoenix from her mentholated bosom and strode into the world, Armani-clad and fully awesome. - Barney Stinson
