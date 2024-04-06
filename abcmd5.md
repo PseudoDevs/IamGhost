@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 08:15:46
-Random Quote: Larry: "She's guilty she's leaving. It's a guilt pig roasting box."Pete: "At least you get something. I'm not getting laid for a year too. But what do I get?"Larry: "A baby?"Pete: "You can't eat it." - Pete Harper
+Last updated: 2024-04-06 08:16:19
+Random Quote: Did the boy charm you?  He has that gift.  He got it from his father, with the blood.  He knows he is a king's son, but chooses to forget that he is bastard - born. 
