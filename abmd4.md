@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 10:24:20
-Random Quote: There are moments in life we should just be able to have a damn remote control, so you could pause it. Even if just for five minutes. But sometimes things happen with irreverent obscenity and there’s nothing you can do to help it. - Tokyo
+Last updated: 2024-04-06 10:24:53
+Random Quote: Eight years ago I made an ass of myself chasing after you and I made an ass of myself chasing after you a bunch of times since then. And I have no regrets because it led me to something I wouldn't trade for the world, it led to you being my friend. So as your friend and a leading expert in the field of making an ass of yourself. I say to you, from the heart, get the hell out of this car! - Ted Mosby
