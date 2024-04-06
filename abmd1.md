@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 11:36:15
-Random Quote: Real love is when you can't exist without someone, when you'd rather die than be apart. And the whole world goes dark and nothing else matters but the person standing in front of you. - Rue Bennett
+Last updated: 2024-04-06 11:36:49
+Random Quote: How many eyes does Lord Bloodraven have?  the riddle ran.  A thousand eyes, and one.  Some claimed the King's Hand was a student of the dark arts who could change his face, put on the likeness of a one - eyed dog, even turn into a mist.  Packs of gaunt gray wolves hunted down his foes, men said, and carrion crows spied for him and whispered secrets in his ear.  Most of the tales were only tales, Dunk did not doubt, but no one could doubt that Bloodraven had informers everywhere. 
