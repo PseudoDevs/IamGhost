@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 07:54:43
-Random Quote: Barney: "I scoured the dating sites, using my own personal logarithms, factoring in a broad spectrum of variables, filtering out undesirable high-risk negatives, guaranteeing a success-rate of eighty-thr..."Ted: "...you picked the girls that showed the most boob." - Ted Mosby
+Last updated: 2024-04-06 07:55:16
+Random Quote: There's only three things you'll ever see me fight:The stubborn clasp of a bra.Sexual harassment charges - nine for nine!And the urge to vomit when, I see someone wearing brown shoes with a black suit. - Barney Stinson
