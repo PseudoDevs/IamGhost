@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 09:05:15
-Random Quote: 'Damn, you look like hell, Chief."Jim Hopper: "Oh yeah? Well, I looked better than your wife when I left her this morning." - Jim Hopper
+Last updated: 2024-04-06 09:05:48
+Random Quote: Only their shadows, One most of all.  A tall and twisted thing with one black eye and ten long arms, sailing on a sea of blood.  -  Moqorro
