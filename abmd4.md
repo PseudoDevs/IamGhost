@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 06:58:34
-Random Quote: The more you move up in the world, the more enemies you make. - Rue Bennett
+Last updated: 2024-04-06 06:59:07
+Random Quote: Marshall: "The last time I lived this far from him, was my semester abroad."Lily: "You never did a semester abroad?"Marshall: "That's what I called it, when we lived on opposite sides of the campus." - Marshall Eriksen
