@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 10:39:20
-Random Quote: You grew up with actors.  You learned their craft and you learned it well.  I grew up with soldiers.  I learned how to die a long time ago.  -  Eddard Stark
+Last updated: 2024-04-06 10:39:54
+Random Quote: Don't believe everything you hear. Our enemies want to separate us. But Mandalorians are stronger together. - Bo-Katan
