@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 10:05:09
-Random Quote: Not only are you wrong... but you are belligerently sticking to your guns and insulting me in the process. Robin Scherbatsky, you are an American. - Barney Stinson
+Last updated: 2024-04-06 10:05:44
+Random Quote: You're wrong.  Need Stark was my gaoler, but my blood is still salt and iron.  -  Theon Greyjoy
