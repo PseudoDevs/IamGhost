@@ -1,2 +1,3 @@
-Last updated: 2024-04-06 06:30:35
-Random Quote: Haley: "Dad, can you just please tell mom, that I can take a two hour break and go to a party?"Phil: "No Ma'am, I'm not stepping into that one. We're not playing 'good cop - mom'.'" - Phil Dunphy
+Last updated: 2024-04-06 06:31:09
+Random Quote: Woman: "You know this isn't Vegas, right?"
+Robin: "Well sure, in Vegas the casinos pump in oxygen, in Atlantic City it looks like everyone brought their own." - Robin Scherbatsky

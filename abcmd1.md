@@ -1,2 +1,3 @@
-Last updated: 2024-04-06 06:30:35
-Random Quote: Hey kid, you know how your mom won't let you have icecream 'til after dinner, but then the waiting kind of makes it taste better? Well, I've been waiting two months for that bowl of ice cream - and tonight I'm gonna have sex with it. - Barney Stinson
+Last updated: 2024-04-06 06:31:09
+Random Quote: Wyatt Langmore: "This job's my old man's idea. Something about 'calluses and character'."
+Charlotte Byrde: "Yeah, well, you're blowing leaves, not hiding Anne Frank." - Charlotte Byrde
