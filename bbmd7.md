@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 11:52:48
-Random Quote: If somehow the Lord gave me a second chance at that moment... I would do it all over again. - Joel Miller
+Last updated: 2024-04-06 11:53:21
+Random Quote: The biggest case of my life and I'd already lost the jury. I mean, I've heard of "Twelve Angry Men",  but this was more like "Twelve Horny Women". - Marshall Eriksen
