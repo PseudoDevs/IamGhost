@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 09:50:49
-Random Quote: Bulls are strong.  Bears.  I have seen my bastard fight.  He is not entirely to blame.  Reek was his tutor, the first Reek, and Reek was never trained at arms.  Ramsay is ferocious, I will grant you, but he swings that sword like a butcher hacking meat.  -  Roose Bolton
+Last updated: 2024-04-06 09:51:26
+Random Quote: Put me on your magical boat, man, and sail me down your chocolaty river of meth! - Badger
