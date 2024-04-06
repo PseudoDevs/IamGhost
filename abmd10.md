@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 06:45:14
-Random Quote: I'm only nine years oldMost evil doesn't start till puberty. - Sheldon
+Last updated: 2024-04-06 06:46:07
+Random Quote: We were king's men, knights, and heroes... but some knights are dark and full of terror, my lady.  War makes monsters of us all.  -  Thoros of Myr
