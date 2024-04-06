@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 10:58:10
-Random Quote: Friends tell the truth. - Eleven
+Last updated: 2024-04-06 10:59:50
+Random Quote: I have sinned and must atone, must parade my shame before the eyes of every beggar in the city.  They think that this will break my pride, that it will make an end to me, but they are wrong.  -  Cersei Lannister
