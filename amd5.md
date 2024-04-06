@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 08:23:58
-Random Quote: You grew up with actors.  You learned their craft and you learned it well.  I grew up with soldiers.  I learned how to die a long time ago.  -  Eddard Stark
+Last updated: 2024-04-06 08:24:31
+Random Quote: But what is grief, if not love persevering? - Vision
