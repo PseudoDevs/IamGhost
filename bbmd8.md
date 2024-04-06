@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 08:40:32
-Random Quote: In the end, a gentle heart may be worth more than pride or valor.  -  Doran Martell
+Last updated: 2024-04-06 08:41:05
+Random Quote: Marshall: "Yes, i want a ball-room and I want a band and I want shoes. I've been dreaming about this day since I was... like...Lily: "...a little girl?" - Lily Aldrin
