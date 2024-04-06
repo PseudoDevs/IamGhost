@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 08:04:43
-Random Quote: Lily, you just gave those children a stapler, a pair of sharp scissors and a pretty decent Pinot Noir. - Marshall Eriksen
+Last updated: 2024-04-06 08:05:16
+Random Quote: Old stories are like old friends, Old Nan used to say.  You have to visit them from time to time.  -  Bran Stark
