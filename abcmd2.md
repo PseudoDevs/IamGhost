@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 09:13:31
-Random Quote: Because were baseball, strippers and guns can't help, the only thing that can really heal a broken heart, is time. - Ted Mosby
+Last updated: 2024-04-06 09:14:06
+Random Quote: I guess we all have things we try to hide. But they can't stay hidden forever. - Hannah Baker
