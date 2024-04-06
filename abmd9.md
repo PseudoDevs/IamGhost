@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 07:52:52
-Random Quote: Ted: "Trying to get them interested in architecture as a career."Barney: "Why? Are we running out of buildings?"Robin: "Are we running out of boring people?" - Robin Scherbatsky
+Last updated: 2024-04-06 07:53:25
+Random Quote: A family is like a small business. And with a small business, at times, there comes a bit of transition. - Marty Byrde
