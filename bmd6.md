@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 10:15:20
-Random Quote: A feeling of unresolved resentment against injustices suffered, a sense of helplessness because of the overwhelming odds against one, a feeling of acute pain in one's guts and bowels, making the whole body writhe and squirm, and an obstinate urge to take revenge and to right the wrong - all these combined. - Seong Gi-hun
+Last updated: 2024-04-06 10:15:54
+Random Quote: Here's what's gonna happen. One day you're gonna wake up, eat your breakfast, brush your teeth, go about your business. And sooner or later, you're gonna realize you haven't thought about it. None of it. And that's the moment you realize you can forget. When you know that's possible, it all gets easier. - Mike Ehrmantraut
