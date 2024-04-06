@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 11:10:46
-Random Quote: The years pass in their hundreds and their thousands, and what does any man see of life but a few summers, a few winters?  -  Maester Luwin
+Last updated: 2024-04-06 11:11:19
+Random Quote: I've been dreaming of that since I was five. Well, that and my own operational Death Star. - Barney Stinson
