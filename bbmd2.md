@@ -1,2 +1,3 @@
-Last updated: 2024-04-06 10:53:11
-Random Quote: Wherein I suggested that you take your head and store it within yourself, in a fashion that, while space-saving, might limit its exposure to sunshine. - Marshall Eriksen
+Last updated: 2024-04-06 10:54:18
+Random Quote: Stark: "Can I give you a piece of advice?"
+Carter: "I'd rather you didn't." - Peggy Carter
