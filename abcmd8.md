@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 08:23:04
-Random Quote: Young I was, and vain, but the sea washed my follies and my vanities away.  That man drowned, nephew.  His lungs filled with seawater, and the fish ate the scales off his eyes.  When I rose again, I saw clearly.  -  Aeron Greyjoy
+Last updated: 2024-04-06 08:23:38
+Random Quote: Whisky's good proofing water. Tells you who's real and who isn't. - Thomas Shelby
