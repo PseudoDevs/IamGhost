@@ -1,2 +1,3 @@
-Last updated: 2024-04-06 07:03:30
-Random Quote: Wylla.  Did you see how brave she was.  Even when I threatened to have her tongue out, she reminded me of the debt White Harbor owes to the Starks of Winterfell, a debt that can never be repaid.  Wylla spoke from the heart... not every woman can be as brave as my Wylla.  -  Wyman Manderly
+Last updated: 2024-04-06 07:05:23
+Random Quote: Mr. Nimbus: "Say goodbye to your precious dry land! For soon it will be wet!"
+Rick: "Yeah, global warming is already doing that. But sure, yeah, go for it. Make us slightly more wet." - Rick Sanchez

@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 07:04:07
-Random Quote: Yes, it's you who ought to run, you and Lord Tywin and the Mountain and Set Addam and Set Amory and stupid Set Lyonel whoever he is, all of you better run or my brother will kill you, he's a Stark, he's more wolf than man, and so am I.  -  Arya Stark
+Last updated: 2024-04-06 07:05:23
+Random Quote: How to run a marathon: Step one, you start running. There is no step two. - Barney Stinson
