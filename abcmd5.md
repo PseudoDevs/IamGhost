@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 11:10:13
-Random Quote: These days, even women go to war. I mean, when you finally get older, there's not gonna be that kind of discrimination like we got now. - Seong Gi-hun
+Last updated: 2024-04-06 11:10:46
+Random Quote: It's not like anyone's 100% straight or 100% gay. - Maddy Perez
