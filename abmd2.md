@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 11:53:40
-Random Quote: I hate kids. They don't drink, they haven't travelled... - Nicky Nichols
+Last updated: 2024-04-06 11:54:13
+Random Quote: Barney: "The Disappearing Salami... Mr. Flanagan's wife shot him before he could ever tell me what the trick was."Quinn: "Yeah, that guy was banging your mom!" - Quinn Garvey
