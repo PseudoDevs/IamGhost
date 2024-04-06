@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 08:07:49
-Random Quote: You don't parley when you're on the back foot. We'll strike a blow back first. - Thomas Shelby
+Last updated: 2024-04-06 08:09:29
+Random Quote: Because they are the knights of summer, and winter is coming.  -  Catelyn Stark
