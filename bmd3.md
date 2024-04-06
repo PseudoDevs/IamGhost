@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 10:04:35
-Random Quote: Eight years ago I made an ass of myself chasing after you and I made an ass of myself chasing after you a bunch of times since then. And I have no regrets because it led me to something I wouldn't trade for the world, it led to you being my friend. So as your friend and a leading expert in the field of making an ass of yourself. I say to you, from the heart, get the hell out of this car! - Ted Mosby
+Last updated: 2024-04-06 10:05:10
+Random Quote: Have you ever thought that if you could go back in time, you might still make the same decisions? We all make our own snowballs out of our bad decisions. Balls that become massive, like the Indiana Jones boulder, chasing you down-hill only to crush you in the end. - Tokyo
