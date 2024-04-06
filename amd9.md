@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 10:43:22
-Random Quote: Ted: "Our point guard's a 52-year-old virgin, happy as a clam."Barney: "I'm sure he's quite a ball handler." - Barney Stinson
+Last updated: 2024-04-06 10:43:56
+Random Quote: It all goes back and back.  To our mothers and fathers and theirs before them.  We are puppets dancing on the strings of those who came before us, and one day our own children will take up our strings and dance in our steads.  -  Tyrion Lannister
