@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 10:05:57
-Random Quote: New Mexico. It's another state. I mean, it's like California, just less traffic. - Lalo Salamanca
+Last updated: 2024-04-06 10:07:37
+Random Quote: Roose Bolton's cold and cunning, aye, but a man can deal with Roose.  We've all known worse.  But this bastard son of his... they say he's mad and cruel, a monster.  -  Locke

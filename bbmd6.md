@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 10:05:57
-Random Quote: I drank when I was pregnant with you, you turned out fine. There's everybody saying 'don't drink, don't smoke'. I swear - Texas is turning into California. - Meemaw
+Last updated: 2024-04-06 10:07:37
+Random Quote: Pain is always there cause life is freaking painful, okay? - Tiffany 'Pennsatucky' Doggett
