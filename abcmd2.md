@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 11:57:58
-Random Quote: You ought to have no trouble catching our uncles.  One is drunk on seawater, after all, and the other is a great grey bullock so dim he'll probably get lost.  -  Asha Greyjoy
+Last updated: 2024-04-06 11:58:31
+Random Quote: You don’t want a criminal lawyer. You want a criminal lawyer. - Jesse Pinkman
