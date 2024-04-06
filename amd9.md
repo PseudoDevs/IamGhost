@@ -1,2 +1,3 @@
-Last updated: 2024-04-06 10:22:22
-Random Quote: The Captain: "Guess it's just you, me, and six hours in frigid international waters."Ted: "Or we could stay in dry land, hang out with some witnesses?" - Ted Mosby
+Last updated: 2024-04-06 10:22:55
+Random Quote: Gor Koresh: "This is no place for a child."
+Mando: "Wherever I go, he goes. I've been quested to bring him to his kind." - Din Djarin
