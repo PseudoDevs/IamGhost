@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 08:50:14
-Random Quote: This little bogwing is what all the fuss was about. What a precious little creature! I can see why you didn't want to harm a hair on its wrinkled little head. - Greef Karga
+Last updated: 2024-04-06 08:50:50
+Random Quote: I think mothers and fathers made up the gods because they wanted their children to sleep through the night.  -  Davos Seaworth
