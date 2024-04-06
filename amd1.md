@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 06:23:04
-Random Quote: Gloria: "It seemd like all what we did was fight and make love. One time, I'm not kidding you, we fell out of the window together."Jay: "Which one were you doing?" - Jay Pritchett
+Last updated: 2024-04-06 06:23:37
+Random Quote: There's always hope tomorrow'll be taco night. - Nicky Nichols
