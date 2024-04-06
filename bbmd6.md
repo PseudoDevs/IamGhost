@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 09:30:58
-Random Quote: Only their shadows, One most of all.  A tall and twisted thing with one black eye and ten long arms, sailing on a sea of blood.  -  Moqorro
+Last updated: 2024-04-06 09:31:32
+Random Quote: There's no shame in fear, my father told me, what matters is how we face it.  -  Jon Snow
