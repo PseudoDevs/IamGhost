@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 06:30:35
-Random Quote: Did you think your dad was the only Mandalorian? - Bo-Katan
+Last updated: 2024-04-06 06:32:55
+Random Quote: Kids, morals usually come at the end of stories, but this one is so important, I'm gonna tell you now. Don't ever, ever invite an ex to your wedding. - Ted Mosby
