@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 11:57:46
-Random Quote: Adam: "Three viagras."Maeve: "Jesus Christ."Adam: "You said there was gonna be no judgement. Is three viagras bad? Her reaction made it seem like it was bad. I feel lightheaded and I can taste scampi."Maeve: "No wonder. You could besiege a castle with that thing."Adam: "I said stop staring at it!"Maeve: "Sorry, it's like a third leg." - Maeve Wiley
+Last updated: 2024-04-06 11:58:19
+Random Quote: You see, ladies? When you're out with a Blinder, you don't have to queue. - Arthur Shelby
