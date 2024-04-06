@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 08:24:31
-Random Quote: But every now and then it’s good to question those who question things. - Noah
+Last updated: 2024-04-06 08:25:04
+Random Quote: Dragons old and young, true and false, bright and dark.  And you.  A small man with a big shadow, snarling in the midst of it all.  -  Moqorro
