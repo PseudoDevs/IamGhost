@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 10:10:18
-Random Quote: Where has it gotten me? Nowhere. I can't talk to the person I love. People still don't take me seriously. I wanna be numb again. - Klaus Hargreeves
+Last updated: 2024-04-06 10:10:52
+Random Quote: His blood ran black.  Made him my brother as much as yours.  -  Yoren of the Night's Watch
