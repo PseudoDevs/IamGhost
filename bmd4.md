@@ -1,3 +1,2 @@
-Last updated: 2024-04-06 08:23:52
-Random Quote: Kids, you can't talk yourself into falling in love. It doesn't take days of deliberation. When it's real, you know pretty quickly and with absolute certainty.
-I had forgotten that, but I was about to be reminded... - Ted Mosby
+Last updated: 2024-04-06 08:24:59
+Random Quote: I have won every battle, yet somehow I'm losing the war.  -  Robb Stark
