@@ -1,2 +1,3 @@
-Last updated: 2024-04-06 11:40:50
-Random Quote: They threw him off the goddamn railing. There's no way someone survives that. And yet, here he is. How is that possible? - Eyk Larsen
+Last updated: 2024-04-06 11:41:24
+Random Quote: Weems: "No doubt you'll find something that tickles your fancy."
+Wednesday: "The last person who tickled me lost a finger." - Wednesday Addams

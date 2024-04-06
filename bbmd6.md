@@ -1,3 +1,2 @@
-Last updated: 2024-04-06 11:40:51
-Random Quote: Lily: "We don't wanna burden our little angel with all kinds of gender-specific expectations. Boys can do ballet, girls can play football."
-Marshall: "Hell, the Green Bay Packers have been proving that for years." - Marshall Eriksen
+Last updated: 2024-04-06 11:41:24
+Random Quote: I am Bo-Katan of Clan Kryze. I was born on Mandalore and fought in the Purge. I am the last of my line. - Bo-Katan
