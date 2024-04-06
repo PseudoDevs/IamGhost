@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 07:14:22
-Random Quote: Only a fool humbles himself when the world is so full of men eager to do that job for him.  -  Theon Greyjoy
+Last updated: 2024-04-06 07:14:55
+Random Quote: I asked him why he kept her close, if he thought her so grotesque.  He said that all his other knights wanted things of him, castles or honors or riches, but all that Brienne wanted was to die for him.  -  Loras Tyrell
