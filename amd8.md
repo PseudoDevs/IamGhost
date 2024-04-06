@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 06:41:42
-Random Quote: No, that you think you'll graduate High-School. - Meemaw
+Last updated: 2024-04-06 06:42:54
+Random Quote: Once, she had loved Prince Joffrey with all her heart, and admired and trusted his mother, the queen.  They had repaid that love and trust with her father's head.  Sansa would never make that mistake again.  -  Sansa Stark

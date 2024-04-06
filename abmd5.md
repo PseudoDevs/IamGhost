@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 06:42:19
-Random Quote: I don't need a calculator, dad. I am one. - Sheldon Cooper
+Last updated: 2024-04-06 06:42:54
+Random Quote: Roose Bolton's cold and cunning, aye, but a man can deal with Roose.  We've all known worse.  But this bastard son of his... they say he's mad and cruel, a monster.  -  Locke
