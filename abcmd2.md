@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 07:36:05
-Random Quote: If that’s true, if you don’t know who I am, then maybe your best course… would be to tread lightly. - Walter White
+Last updated: 2024-04-06 07:36:39
+Random Quote: It is for my prince to command, for Hotah to obey.  -  Areo Hotah
