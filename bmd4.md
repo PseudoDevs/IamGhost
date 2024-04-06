@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 08:12:41
-Random Quote: Even brave men blind themselves sometimes, when they are afraid to see.  -  Beric Dondarrian
+Last updated: 2024-04-06 08:13:15
+Random Quote: I think mothers and fathers made up the gods because they wanted their children to sleep through the night.  -  Davos Seaworth
