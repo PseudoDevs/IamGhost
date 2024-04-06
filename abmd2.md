@@ -1,2 +1,5 @@
-Last updated: 2024-04-06 08:52:08
-Random Quote: If I got serious with Nora, it would be like if Mother Teresa focused all her attention on one really hot orphan. With great penis comes great responsibility. - Barney Stinson
+Last updated: 2024-04-06 08:52:46
+Random Quote: Therapist: "You need to stop doing these weird things. Go out sometime."
+Klaus: "I went to the park today."
+Therapist: "There you go! I hope you got something from that."
+Klaus: "[Opens up coat] This duck." - Klaus Hargreeves
