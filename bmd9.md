@@ -1,2 +1,3 @@
-Last updated: 2024-04-06 09:56:16
-Random Quote: I am the Watcher. I am your guide through these vast new realities. Follow me, and dare to face the unknown. And ponder the question, "What if...?" - The Watcher
+Last updated: 2024-04-06 09:56:52
+Random Quote: Freddie: "You think I can't handle Tommy Shelby?"
+Polly: "You can't. I am having trouble these days and I'm twice the man you are." - Polly Gray
