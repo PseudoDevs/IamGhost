@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 06:46:03
-Random Quote: I'm sorry, can you repeat that? I don't speak "I-never-get-laid". - Barney Stinson
+Last updated: 2024-04-06 06:46:38
+Random Quote: Quentyn had never felt so much a boy as when he'd stood before Daenerys Targaryen, pleading for her hand.  The thought of bedding her terrified him almost as much as her dragons had.  -  Quentyn Martell
