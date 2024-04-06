@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 11:06:27
-Random Quote: Because they are the knights of summer, and winter is coming.  -  Catelyn Stark
+Last updated: 2024-04-06 11:07:01
+Random Quote: Khaleesi, better a man should swallow scorpions than trust in the spawn of shadows, who dare not show their face beneath the sun.  It is known.  -  Rakharo
