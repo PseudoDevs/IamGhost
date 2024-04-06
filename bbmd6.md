@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 10:41:40
-Random Quote: Your pain defines who you are but it no longer holds power on you - Noah
+Last updated: 2024-04-06 10:42:48
+Random Quote: A queen must listen to all.  The highborn and the low, the strong and the weak, the noble and the venal.  One voice may speak you false, but in many there is always truth to be found.  -  Daenerys Targaryen
