@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 09:35:20
-Random Quote: I'd say hump her brain out, but somebody obviously already has. - Ted Mosby
+Last updated: 2024-04-06 09:35:53
+Random Quote: I dream of a tree sometimes.  A weirwood, like the one in the godswood.  It calls to me.  The wolf dreams are better.  I smell things, and sometimes I can taste the blood.  -  Bran Stark
