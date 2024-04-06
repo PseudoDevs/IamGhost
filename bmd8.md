@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 11:53:07
-Random Quote: Bring on your storm, my lord... and recall, if you do, the name of this castle.  -  Cortnay Penrose
+Last updated: 2024-04-06 11:53:40
+Random Quote: Since I stopped dating Robin, there's this thing I haven't used as much as I would like. It's kind of big. Surprisingly heavy. Kind of leathery. And it's black.This, my friends, is the playbook! - Barney Stinson
