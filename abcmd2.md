@@ -1,2 +1,3 @@
-Last updated: 2024-04-06 08:16:03
-Random Quote: This is Hawkins, okay? You wanna know the worst thing that's ever happened here in the four years I've been working here? It was when an owl attacked Eleanor Gillespie's head because it though that her hair was a nest. - Jim Hopper
+Last updated: 2024-04-06 08:16:36
+Random Quote: Jerry: "Why Florida?"
+Cat: "Because they don't ask questions. They play Volleyball, they party and they have fun." - Rick and Morty
