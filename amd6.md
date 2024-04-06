@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 06:56:19
-Random Quote: Airport Security: "How did you get that through the X-Ray machine?"Barney: "No questions from the audience, please!" - Barney Stinson
+Last updated: 2024-04-06 06:56:52
+Random Quote: Dude, ditch Tiffany and join the Barnacle in the Pharma-Girl-Free-For-All. Side effects may include: loss of clothing, rug burns, shortness of breath and soar abdominals the next morning. What in the world is up! - Barney Stinson
