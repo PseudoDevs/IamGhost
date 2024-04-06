@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 10:45:16
-Random Quote: Elia Martell, Princess of Dorne.  You raped her!  You murdered her!  You killed her children!  -  Oberyn Martell
+Last updated: 2024-04-06 10:45:49
+Random Quote: I'm a Mandalorian. Weapons are part of my religion. - Din Djarin
