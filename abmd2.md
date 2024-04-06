@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 10:18:13
-Random Quote: I am not a rich person. I am a poor person with money. - Pablo Escobar
+Last updated: 2024-04-06 10:18:47
+Random Quote: When one chooses to walk the way of the Mandalore, you are both hunter and prey. How can one be a coward if one chooses this way of life? - The Armorer
