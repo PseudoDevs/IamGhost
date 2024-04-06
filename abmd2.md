@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 07:46:00
-Random Quote: Ted: "You know, as your best friend, if called upon, I'd be honored to raise Marvin."Robin: "If you want him to be raised by his underwear on a flagpole, Ted's your guy. If you want him pulling the chord on some other nerd's panties, I'm your guy."Barney: "I'll teach that kid how to be awesome in ways you and Lily never could. It's going to be legend- wait for it... no, I won't wait for it and neither should little baby Marvin, so maybe it's better if you two just die right now... -dary!" - Barney Stinson
+Last updated: 2024-04-06 07:46:34
+Random Quote: Quinn: "In the event of divorce, Miss Garvey shall get full custody of Mr. Stinson's suits."Barney: "Why? What would you do with them?"Quinn: "Nothing. I'd just sit around and watch them go out of style." - Quinn Garvey
