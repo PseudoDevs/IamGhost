@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 09:41:02
-Random Quote: Never forget what you are, for surely the world will not.  Make it your strength.  Then it can never be your weakness.  Armor yourself in it, and it will never be used to hurt you.  -  Tyrion Lannister
+Last updated: 2024-04-06 09:41:35
+Random Quote: Please.  A sword, that's all I ask.  Let me die as Theon, not as Reek.  -  Theon Greyjoy
