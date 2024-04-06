@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 12:11:35
-Random Quote: Euron Greyjoy is no man's notion of a king, if half of what Theon said of him was true.  -  Robb Stark
+Last updated: 2024-04-06 12:12:08
+Random Quote: I think the word you're looking for is 'audacious'. - Kim Wexler
