@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 11:49:47
-Random Quote: The more you move up in the world, the more enemies you make. - Rue Bennett
+Last updated: 2024-04-06 11:50:20
+Random Quote: To go north, you must go south.  To reach the west, you must go east.  To go forward you must go back, and to touch the light you must pass beneath the shadow.  -  Quaithe
