@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 08:59:04
-Random Quote: Jon, did you ever wonder why the men of the Night's Watch take no wives and father no children?  So they will not love, for love is the bane of honor, the death of duty.  -  Maester Aemon
+Last updated: 2024-04-06 08:59:39
+Random Quote: Past a certain point, all the dates grow hazy and confused, and the clarity of history becomes the fog of legend.  -  Hoster Blackwood
