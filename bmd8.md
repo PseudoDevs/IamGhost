@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 09:29:35
-Random Quote: I believe the world's a bad place. And I don't think I'm much better. But we have to try. - Walt Breslin
+Last updated: 2024-04-06 09:30:44
+Random Quote: He climbed onto his throne over the corpses of children, though I will grant you he was no Joffrey.  -  Arianne Martell
