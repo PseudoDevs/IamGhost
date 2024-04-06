@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 11:03:51
-Random Quote: I am the Greyjoy, Lord Reaper of Pyke, King of Salt and Rock, Son of the Sea Wind, and no man gives me a crown.  I pay the iron price.  I will take my crown, as Urron Redhand did five thousand years ago.  -  Balon Greyjoy
+Last updated: 2024-04-06 11:04:58
+Random Quote: When you spend years thinking about something obsessively, that something is your whole world, your perfect world. - Tokyo
