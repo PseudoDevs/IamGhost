@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 08:32:55
-Random Quote: Take care of this little one or maybe, it'll take care of you. - Greef Karga
+Last updated: 2024-04-06 08:33:29
+Random Quote: Haley: "Dad, can you just please tell mom, that I can take a two hour break and go to a party?"Phil: "No Ma'am, I'm not stepping into that one. We're not playing 'good cop - mom'.'" - Phil Dunphy
