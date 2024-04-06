@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 06:31:01
-Random Quote: Are you aware, that breaking a broath can have deadly- even fatal repercussions? - Barney Stinson
+Last updated: 2024-04-06 06:31:36
+Random Quote: I dreamed of the man who came today, the one they call Reek.  You and your brother lay dead at his feet, and he was skinning off your faces with a long red blade.  -  Jojen Reed
