@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 08:26:55
-Random Quote: That's where The Boys come in: Spank the bastards when they get out of line. - Billy Butcher
+Last updated: 2024-04-06 08:27:29
+Random Quote: I've had shits that I've liked better than Walder Frey.  -  Brynden Tully
