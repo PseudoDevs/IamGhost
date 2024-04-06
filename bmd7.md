@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 08:54:42
-Random Quote: Ted: "Do not pretend you're not the kind of guy, who keeps a list of all the girls he slept with."Marshall: "I have one. It's called my marriage-license." - Marshall Eriksen
+Last updated: 2024-04-06 08:57:52
+Random Quote: I never asked for this, no more than I asked to be king.  Yet dare I disregard her?  We do not choose our destinies.  Yet we must... we must do our duty, no?  Great or small, we must do our duty.  -  Stannis Baratheon
