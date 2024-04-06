@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 07:57:15
-Random Quote: I don't know anything about norse gods, but I do know how to bring the thunder. - Thor
+Last updated: 2024-04-06 07:57:49
+Random Quote: What do you think a knight is for, girl?  You think it's all taking favors from ladies and looking fine in gold plate?  Knights are for killing.  I killed my first man at twelve.  I've lost count of how many I've killed since then.  High lords with old names, fat rich men dressed in velvet, knights puffed up like bladders with their honors, yes, and women and children too... they're all meat, and I'm the butcher.  -  Sandor Clegane
