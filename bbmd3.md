@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 11:33:06
-Random Quote: I have served six kings, but here before us lies the greatest man I ever knew.  Lord Tywin wore no crown, yet he was all a king should be.  -  Grand Maester Pycelle
+Last updated: 2024-04-06 11:33:39
+Random Quote: A bag of dragons buys a man's silence for a while, but a well - placed quarrel buys it forever. 
