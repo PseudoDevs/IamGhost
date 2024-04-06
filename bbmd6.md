@@ -1,3 +1,4 @@
-Last updated: 2024-04-06 11:29:13
-Random Quote: Journalist: "Mr. Stark, were you injured in the attack?"
-Tony Stark: "No, but I did spill my drink, and it was a '26 Macallan, so I'm pretty sure that's a war crime." - Iron Man
+Last updated: 2024-04-06 11:30:19
+Random Quote: Joel: "You keep going for family."
+Ellie: "I'm not family?"
+Joel: "No. You're cargo." - Joel Miller
