@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 12:14:13
-Random Quote: Because they are the knights of summer, and winter is coming.  -  Catelyn Stark
+Last updated: 2024-04-06 12:14:47
+Random Quote: Think of the pickup plays we can run as a father-son duo. There's the "Father Knows Breast", there's the "Bush Dynasty", the "Lick Father, Lick Son". - Barney Stinson
