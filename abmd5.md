@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 07:12:21
-Random Quote: Fellas, I was enjoying the Laurel and Hardy vibe, but I'm not such a fan of the Bickersons. - Saul Goodman
+Last updated: 2024-04-06 07:12:56
+Random Quote: Take the foundling to the city of Calodan on the forest planet Corvus. There, you will find Ahsoka Tano. Tell her you were sent by Bo-Katan. - Bo-Katan
