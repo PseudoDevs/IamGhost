@@ -1,2 +1,5 @@
-Last updated: 2024-04-06 08:25:32
-Random Quote: Just because I don't have fear, doesn't make me irrational. - Kinsey Locke
+Last updated: 2024-04-06 08:27:14
+Random Quote: Abby: "Do we have to go back this way?"
+Owen: "Consider it an opportunity to work on your fears."
+Abby: "How about I work my foot up your ass?"
+Owen: "Abby, stop flirting!" - Joel Miller
