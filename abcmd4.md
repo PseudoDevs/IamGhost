@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 09:15:18
-Random Quote: Women aren't soldiers, and they sure as hell don't fight on the front lines. They might break a nail. - John Flynn
+Last updated: 2024-04-06 09:15:53
+Random Quote: I just want to stand on top of the Wall and piss off the edge of the world.  -  Tyrion Lannister

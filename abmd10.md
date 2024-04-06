@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 09:14:41
-Random Quote: I found a Bollywood movie about a princess who falls for a lowly street sweeper. It's only seven hours long. - Kamala
+Last updated: 2024-04-06 09:15:53
+Random Quote: Do you think I can't tell Lord Stannis from Lord Tywin?  They're both bungholes who think they're too noble to shit, but never mind about that, I know the difference.  -  Walder Frey
