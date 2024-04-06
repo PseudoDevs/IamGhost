@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 10:11:58
-Random Quote: A man who sees nothing has no use for his eyes, cut them out and give them to your next outrider.  Tell him you hope that four eyes might see better than two... and if not, the man after him will have six.  -  Gregor Clegane
+Last updated: 2024-04-06 10:12:32
+Random Quote: Ted: "I could end up marrying this woman; I want our first kiss to be special."Lily: "Oh, that's sweet. So you chickened out like a little bitch?" - Lily Aldrin
