@@ -1,2 +1,3 @@
-Last updated: 2024-04-06 08:22:12
-Random Quote: Have no fear, sers, your king is safe... no thanks to you.  Even know, I could cut through the five of you as easy as a dagger cuts cheese.  If you would serve under the Kingslayer, not a one of you is fit to wear the white.  Here, boy.  Melt it down and add it to the others, if you like.  It will do you more good than the swords in the hands of these five.  Perhaps Lord Stannis will chance to sit on it when he takes your throne.  -  Barristan Selmy
+Last updated: 2024-04-06 08:22:46
+Random Quote: Journalist: "Mr. Stark, were you injured in the attack?"
+Tony Stark: "No, but I did spill my drink, and it was a '26 Macallan, so I'm pretty sure that's a war crime." - Iron Man
