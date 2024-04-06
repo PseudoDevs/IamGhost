@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 09:34:52
-Random Quote: Why should I go running to my aunt as if I were a beggar?  My claim is better than her own.  Let her come to me... in Westeros.  -  Aegon Targaryen
+Last updated: 2024-04-06 09:36:36
+Random Quote: I will not be remembered as Set Arys the Unworthy.  I will not soil my cloak.  -  Arys Oakheart
