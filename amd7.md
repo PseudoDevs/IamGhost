@@ -1,2 +1,5 @@
-Last updated: 2024-04-06 08:09:21
-Random Quote: Nobody takes an intro class to get on any other path, but the path to not being hungover anymore. I learned that in my intro to something-ology class. - Marshall Eriksen
+Last updated: 2024-04-06 08:10:28
+Random Quote: Barney: "You can't spell 'game' without 'me' and 'me' has the best game."
+Ted: "Yeah well, I got so much game, I'm Cornish game hen."
+Barney: "Oh, yeah? I'm the New York State gaming commissioner."
+Ted: "Well, I'm The Game. Well-crafted, keep-you-guessing thriller starring Michael Douglas and Sean Penn." - Ted Mosby
