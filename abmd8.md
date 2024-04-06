@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 09:38:03
-Random Quote: Stella: "Ted, you're staring at my breasts."Ted: "In fairness... they were staring at me." - Ted Mosby
+Last updated: 2024-04-06 09:38:37
+Random Quote: If you wish to give up on playing, the 25.5 billion won will be sent to the bereaved families of the late players. - Jang Deok-su
