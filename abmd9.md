@@ -1,3 +1,2 @@
-Last updated: 2024-04-06 06:28:49
-Random Quote: Grace Burgess: "You think I am a wh-re?"
-Tommy Shelby: "Everyone's a wh-re, Grace. We just sell different parts of ourselves." - Thomas Shelby
+Last updated: 2024-04-06 06:29:25
+Random Quote: Sometimes it just feels better not to talk. At All. About Anything. To Anyone. - Walter White
