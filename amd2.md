@@ -1,4 +1,2 @@
-Last updated: 2024-04-06 07:44:16
-Random Quote: Ted: "Okay, time to get the horn back to the bistro."
-Robin: "Oh Ted, I don't know if I can go again, that tuckered me out."
-Ted: "No euphemism." - Robin Scherbatsky
+Last updated: 2024-04-06 07:44:50
+Random Quote: All religion is a foolish answer to a foolish question. - Thomas Shelby
