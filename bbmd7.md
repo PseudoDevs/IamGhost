@@ -1,3 +1,2 @@
-Last updated: 2024-04-06 09:41:08
-Random Quote: Sam: "How do you know about Gandalf?"
-Bucky: "I read 'The Hobbit' in 1937, when it first came out." - Bucky Barnes
+Last updated: 2024-04-06 09:41:41
+Random Quote: In the United States, the Mafia makes witnesses disappear so they can't testify in court. In Colombia, Pablo Escobar made the whole court disappear. - Steve Murphy
