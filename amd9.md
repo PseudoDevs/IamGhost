@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 07:11:11
-Random Quote: Every journey has a beginning. But change one step along the way, and you could end up at a very different destination. - The Watcher
+Last updated: 2024-04-06 07:11:47
+Random Quote: This is the one that you saved? You are as its father. A clan of two. But you have removed your helmet. Then you are a Mandalorian no more. - The Armorer
