@@ -1,2 +1,4 @@
-Last updated: 2024-04-06 10:18:47
-Random Quote: When one chooses to walk the way of the Mandalore, you are both hunter and prey. How can one be a coward if one chooses this way of life? - The Armorer
+Last updated: 2024-04-06 10:19:20
+Random Quote: It could be for a brother or maybe her sick dad.
+[reads] "And then I want you to do me on the couch."
+Okay, maybe not a sick dad. Or a very sick dad, am I right? - Robin Scherbatsky
