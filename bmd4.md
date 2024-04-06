@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 07:44:30
-Random Quote: In this fall - this is tough. In this fall I'm going to take my talents to Mouth Beach. - Barney Stinson
+Last updated: 2024-04-06 07:45:04
+Random Quote: Young I was, and vain, but the sea washed my follies and my vanities away.  That man drowned, nephew.  His lungs filled with seawater, and the fish ate the scales off his eyes.  When I rose again, I saw clearly.  -  Aeron Greyjoy
