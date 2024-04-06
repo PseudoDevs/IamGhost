@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 08:30:08
-Random Quote: Then hear me.  If we are taken, you will go over to them, as the wildling girl you captured once urged you.  They may demand that you cut your cloak to ribbons, that you swear them an oath on your father's grave, that you curse your brothers and your Lord Commander.  You must not balk, whatever is asked of you.  Do as they bid you... but in your heart, remember who and what you are.  Ride with them, eat with them, fight with them, for as long as it takes.  And watch.  -  Qhorin Halfhand
+Last updated: 2024-04-06 08:30:40
+Random Quote: We all face the same end. Those above have long forgotten us. They do not judge us. In death, I am all alone, and my only judge… is me. - Martha
