@@ -1,3 +1,2 @@
-Last updated: 2024-04-06 06:40:02
-Random Quote: Robin: "I can't believe my great grandparents still do that."
-Barney: "And I never imagined a walker being used for anything other than walking." - Barney Stinson
+Last updated: 2024-04-06 06:41:08
+Random Quote: Why is it always the innocents who suffer most, when you high lords play your game of thrones?  -  Varys
