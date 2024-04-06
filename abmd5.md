@@ -1,2 +1,3 @@
-Last updated: 2024-04-06 06:46:06
-Random Quote: This is the one that you saved? You are as its father. A clan of two. But you have removed your helmet. Then you are a Mandalorian no more. - The Armorer
+Last updated: 2024-04-06 06:46:40
+Random Quote: Aimee: "Did you know you need, like, sugar and flour and an oven to bake? And you don't shove it all in, you have to follow alle these rules."
+Maeve: "Yeah, it's called a recipe." - Maeve Wiley
