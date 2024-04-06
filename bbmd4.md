@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 10:53:20
-Random Quote: I don't want to die, I've only kissed one boy so far. - Missy
+Last updated: 2024-04-06 10:53:53
+Random Quote: Love's not always wise, I've learned.  It can lead us to great folly, but we follow our hearts... wherever they take us.  -  Robb Stark
