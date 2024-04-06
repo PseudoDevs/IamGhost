@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 08:37:59
-Random Quote: I can't tell the difference between my waking life and dreams. - Arthur Harrow
+Last updated: 2024-04-06 08:38:32
+Random Quote: The years pass in their hundreds and their thousands, and what does any man see of life but a few summers, a few winters?  -  Maester Luwin
