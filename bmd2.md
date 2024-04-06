@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 11:16:01
-Random Quote: Ted, your throwing your life away. This girl is blinding you with her shiny hair and her boob-shaped boobs! - Barney Stinson
+Last updated: 2024-04-06 11:16:34
+Random Quote: Why should I go running to my aunt as if I were a beggar?  My claim is better than her own.  Let her come to me... in Westeros.  -  Aegon Targaryen
