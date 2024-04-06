@@ -1,2 +1,6 @@
-Last updated: 2024-04-06 08:26:14
-Random Quote: Whatever you do in this life, it's not legendary, unless your friends are there to see it. - Barney Stinson
+Last updated: 2024-04-06 08:26:47
+Random Quote: Rick: "Just do a Die Hard!"
+Summer: "What does that mean?"
+Rick: "Sneak around! Use air vents! You've never seen Die Hard?"
+Summer: "I'm 17. No, I've never seen Die Hard."
+Rick: "Well, neither did the guy in Die Hard." - Rick Sanchez
