@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 08:16:11
-Random Quote: Barney, check it! Three blond babies drinking bad-decision-juice at eight o'clock. - Lily Aldrin
+Last updated: 2024-04-06 08:16:44
+Random Quote: I've lost a hand, a father, a son, a sister, and a lover, and soon enough I will lose a brother.  And yet they keep telling me House Lannister has won this war.  -  Jaime Lannister
