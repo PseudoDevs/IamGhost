@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 08:00:52
-Random Quote: Ted: "You're not gonna do it at your wedding?"Lily: "Hell, yeah! I'm gonna take that flower-grenade and chuck it to the crowd and scream, 'Crawl for it, bitches!'" - Lily Aldrin
+Last updated: 2024-04-06 08:01:26
+Random Quote: Having just any boyfriend, no matter who he is, is not going to make you happier or change who you are. - Fabiola Torres
