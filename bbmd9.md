@@ -1,4 +1,2 @@
-Last updated: 2024-04-06 07:30:14
-Random Quote: Stark: "Red, green, blue... who paints a button blue?"
-Carter: "Don't tell me the American playboy needs help pushing buttons."
-Stark: "Hedy Lamarr and I spent a weekend together, but she wasn't teaching me German." - Howard Stark
+Last updated: 2024-04-06 07:30:47
+Random Quote: Someone has to protect this family from the man who protects this family. - Skyler White

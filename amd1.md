@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 07:30:20
-Random Quote: Tequila makes me wanna dance. - Jules Vaughn
+Last updated: 2024-04-06 07:30:53
+Random Quote: Master Mott said Thoros could outdrink even King Robert.  They were pease in a pod, he told me, both gluttons and sots.  -  Gendry
