@@ -1,2 +1,3 @@
-Last updated: 2024-04-06 10:13:39
-Random Quote: When I rode home the next morning, the city looked the same. The people looked the same. It all looked the same. But it wasn't. In just one night, everything had changed. - Ted Mosby
+Last updated: 2024-04-06 10:14:13
+Random Quote: Morticia: "That boy's family was going to file attempted murder charges. How would that have looked on your record?"
+Wednesday: "Terrible. Everyone would know I failed to get the job done." - Wednesday Addams
