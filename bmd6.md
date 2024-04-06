@@ -1,3 +1,2 @@
-Last updated: 2024-04-06 09:54:23
-Random Quote: Sam: "How do you know about Gandalf?"
-Bucky: "I read 'The Hobbit' in 1937, when it first came out." - Bucky Barnes
+Last updated: 2024-04-06 09:54:56
+Random Quote: No one had expected the broken boy to live.  The gods could not kill Bran, no more than I could.  It was a strange thought, and stranger still to remember that Bran might still be alive.  -  Theon Greyjoy
