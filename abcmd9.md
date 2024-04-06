@@ -1,3 +1,2 @@
-Last updated: 2024-04-06 08:07:41
-Random Quote: Morty: "I have English homework."
-Rick: "You're still learning English? It's the language you speak. How dumb are you?" - Rick Sanchez
+Last updated: 2024-04-06 08:08:48
+Random Quote: Bulls are strong.  Bears.  I have seen my bastard fight.  He is not entirely to blame.  Reek was his tutor, the first Reek, and Reek was never trained at arms.  Ramsay is ferocious, I will grant you, but he swings that sword like a butcher hacking meat.  -  Roose Bolton
