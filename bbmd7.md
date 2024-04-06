@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 12:03:17
-Random Quote: Barney: "I scoured the dating sites, using my own personal logarithms, factoring in a broad spectrum of variables, filtering out undesirable high-risk negatives, guaranteeing a success-rate of eighty-thr..."Ted: "...you picked the girls that showed the most boob." - Ted Mosby
+Last updated: 2024-04-06 12:03:50
+Random Quote: You can never tell with men. They go for whoever their dcks point at and there's no changing their minds. - Polly Gray
