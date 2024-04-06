@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 11:38:28
-Random Quote: In the end, a gentle heart may be worth more than pride or valor.  -  Doran Martell
+Last updated: 2024-04-06 11:39:01
+Random Quote: Is it your fault that Bronn's an insolent black - hearted rogue?  He's always been an insolent black
