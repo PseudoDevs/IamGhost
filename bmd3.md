@@ -1,3 +1,2 @@
-Last updated: 2024-04-06 07:57:28
-Random Quote: Weems: "No doubt you'll find something that tickles your fancy."
-Wednesday: "The last person who tickled me lost a finger." - Wednesday Addams
+Last updated: 2024-04-06 07:58:01
+Random Quote: Life hurts. The moment you think you've got it all, it smacks you in the face. - Lucien
