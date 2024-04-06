@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 10:28:46
-Random Quote: Get the f out of here and don't stop walking until you hear them speak English! - Guillermo Gonzalez Calderoni
+Last updated: 2024-04-06 10:29:19
+Random Quote: Every hookup at a weekend wedding is decided at Friday Night Drinks. Get stuck with the wrong girl tonight, the only action you'll be getting all weekend is a self five and I don't mean the cool kind. Self-five! That's the cool kind. - Barney Stinson
