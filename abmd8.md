@@ -1,5 +1,2 @@
-Last updated: 2024-04-06 08:41:24
-Random Quote: Abby: "Do we have to go back this way?"
-Owen: "Consider it an opportunity to work on your fears."
-Abby: "How about I work my foot up your ass?"
-Owen: "Abby, stop flirting!" - Joel Miller
+Last updated: 2024-04-06 08:42:36
+Random Quote: Lily: "I am gonna have to walk this earth, knowing Barney has touched my boobs."Robin: "Yeah it stays with ya. His e-mail reminders don't help." - Robin Scherbatsky
