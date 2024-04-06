@@ -1,2 +1,4 @@
-Last updated: 2024-04-06 09:34:13
-Random Quote: Because I say so. - Walter White
+Last updated: 2024-04-06 09:35:59
+Random Quote: Morticia: "Please excuse Wednesday. She's allergic to color."
+Enid: "Wow, what happens to you?"
+Wednesday: "I break out into hives, and then the flesh peels off my bones." - Wednesday Addams
