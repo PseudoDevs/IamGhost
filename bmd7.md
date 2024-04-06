@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 06:47:22
-Random Quote: Barney: "The Disappearing Salami... Mr. Flanagan's wife shot him before he could ever tell me what the trick was."Quinn: "Yeah, that guy was banging your mom!" - Quinn Garvey
+Last updated: 2024-04-06 06:47:55
+Random Quote: In the United States, the Mafia makes witnesses disappear so they can't testify in court. In Colombia, Pablo Escobar made the whole court disappear. - Steve Murphy
