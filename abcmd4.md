@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 07:38:52
-Random Quote: Bear Island knows no king save the King in the North, whose name is Stark.  -  Lyanna Mormont
+Last updated: 2024-04-06 07:39:25
+Random Quote: Take care of this little one or maybe, it'll take care of you. - Greef Karga
