@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 07:52:45
-Random Quote: If that’s true, if you don’t know who I am, then maybe your best course… would be to tread lightly. - Walter White
+Last updated: 2024-04-06 07:53:18
+Random Quote: You have courage.  Not battle courage perhaps but... I don't know... a kind of woman's courage.  -  Brienne of Tarth
