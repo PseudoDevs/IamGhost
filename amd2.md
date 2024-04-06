@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 09:49:15
-Random Quote: You look like an Indian Kardashian. - Fabiola Torres
+Last updated: 2024-04-06 09:49:49
+Random Quote: What do a bunch o' bloody peasants know about a lord's honor?  We know some about murder, though.  -  Lem Lemoncloak
