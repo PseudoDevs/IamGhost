@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 11:46:21
-Random Quote: The world is one great web, and no man dare not touch a single strand lest all the others tremble.  -  Illyrio Mopatis
+Last updated: 2024-04-06 11:46:55
+Random Quote: You must be blind as well as maimed, Set.  Lift your eyes, and you will see the direwolf still flies above our walls.  -  Brynden Tully
