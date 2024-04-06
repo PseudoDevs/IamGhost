@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 11:14:03
-Random Quote: What I'm doing here... is building an empire. - Miguel Angel Felix Gallardo
+Last updated: 2024-04-06 11:14:36
+Random Quote: Everyone wants something, Alayne.  And when you know what a man wants you know who he is, and how to move him.  -  Petyr Baelish
