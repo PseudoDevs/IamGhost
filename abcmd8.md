@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 08:53:09
-Random Quote: Eventually, Nick's groin will heal and you'll be back in Sexville, where all the crossword puzzles only have one box to fill. - Lily Aldrin
+Last updated: 2024-04-06 08:53:43
+Random Quote: Barney: "Our wedding is gonna be legendary."Robin: "No wait for it?"Barney: "I've got you, I don't have to wait for it anymore." - Barney Stinson
