@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 11:19:08
-Random Quote: Weddings are basically funerals with cake. - Rick Sanchez
+Last updated: 2024-04-06 11:19:41
+Random Quote: Gloria: "It seemd like all what we did was fight and make love. One time, I'm not kidding you, we fell out of the window together."Jay: "Which one were you doing?" - Jay Pritchett
