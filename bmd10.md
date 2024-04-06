@@ -1,2 +1,3 @@
-Last updated: 2024-04-06 10:55:31
-Random Quote: Marshall: "Where is your playbook?"Robin: "My playbook? Bro, uh, two-volume set, right here.Ted: "It's a great read, actually."Lily: "Yeah, I'm reading it right now." - Robin Scherbatsky
+Last updated: 2024-04-06 10:56:04
+Random Quote: Jay: "I got you a little gift to celebrate. I know it’s not much...-"
+Gloria: "It’s practically nothing!" - Gloria Pritchett

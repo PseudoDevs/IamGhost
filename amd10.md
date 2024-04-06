@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 10:55:31
-Random Quote: I will kill your wife, I will kill your son, I will kill your infant daughter. - Gustavo Fring
+Last updated: 2024-04-06 10:56:04
+Random Quote: Because there's no way watching it can be more fun than playing it yourself. - Oh Il-nam
