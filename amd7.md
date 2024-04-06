@@ -1,2 +1,3 @@
-Last updated: 2024-04-06 12:07:05
-Random Quote: Ted: "Victoria was great."Robin: "Exactly, and you threw it all away to chase after some hot piece of ass."Ted: "You mean you?"Robin: "Thank you!" - Robin Scherbatsky
+Last updated: 2024-04-06 12:07:38
+Random Quote: May: "May Carleton. I breed racehorses and train them. What is it you do?"
+Thommy: "I rarely answer questions is what I do." - Thomas Shelby
