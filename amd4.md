@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 06:30:26
-Random Quote: This little bogwing is what all the fuss was about. What a precious little creature! I can see why you didn't want to harm a hair on its wrinkled little head. - Greef Karga
+Last updated: 2024-04-06 06:30:59
+Random Quote: Come with me to the House of the Undying, and you shall drink of truth and wisdom.  -  Pyat Pree
