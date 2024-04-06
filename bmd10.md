@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 10:45:32
-Random Quote: Quentyn had never felt so much a boy as when he'd stood before Daenerys Targaryen, pleading for her hand.  The thought of bedding her terrified him almost as much as her dragons had.  -  Quentyn Martell
+Last updated: 2024-04-06 10:46:05
+Random Quote: The man who passes the sentence should swing the sword.  If you would take a man's life, you owe it to him to look into his eyes and hear his final words.  And if you cannot bear to do that, then perhaps the man does not deserve to die.  -  Eddard Stark
