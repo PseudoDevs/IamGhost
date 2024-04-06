@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 06:47:52
-Random Quote: Your innocence may be as plain as the scar on your face, but it will not save you.  No more than your father will.  But I might.  Not as your judge.  As your champion.  -  Oberyn Martell
+Last updated: 2024-04-06 06:48:25
+Random Quote: Sometimes, even when you know something's a mistake, you gotta make it anyway. - Ted Mosby
