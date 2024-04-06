@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 10:22:39
-Random Quote: I have served six kings, but here before us lies the greatest man I ever knew.  Lord Tywin wore no crown, yet he was all a king should be.  -  Grand Maester Pycelle
+Last updated: 2024-04-06 10:23:13
+Random Quote: There's kids playing hockey in the back. It's like you want us to make fun of you! - Barney Stinson
