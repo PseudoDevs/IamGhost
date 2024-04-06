@@ -1,2 +1,4 @@
-Last updated: 2024-04-06 08:14:32
-Random Quote: The man who passes the sentence should swing the sword.  If you would take a man's life, you owe it to him to look into his eyes and hear his final words.  And if you cannot bear to do that, then perhaps the man does not deserve to die.  -  Eddard Stark
+Last updated: 2024-04-06 08:15:05
+Random Quote: Lorna Morello: "I need to start tightening up. You're making me feel like a cave."
+Nicky Nichols: "Baby, it's a c-nt, it stretches!"
+Lorna Morello: "Yeah, sometimes I feel like you're trying to climb inside my womb." - Lorna Morello
