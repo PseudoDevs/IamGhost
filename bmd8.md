@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 11:12:43
-Random Quote: Fire in the hole, bitch! - Jesse Pinkman
+Last updated: 2024-04-06 11:13:16
+Random Quote: I learned form Set Arthur Dayne, the Sword of the Morning, who could have slain all five of you with his left hand while he was taking a piss with the right.  -  Jaime Lannister
