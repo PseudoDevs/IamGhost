@@ -1,2 +1,3 @@
-Last updated: 2024-04-06 11:21:47
-Random Quote: Dude, ditch Tiffany and join the Barnacle in the Pharma-Girl-Free-For-All. Side effects may include: loss of clothing, rug burns, shortness of breath and soar abdominals the next morning. What in the world is up! - Barney Stinson
+Last updated: 2024-04-06 11:22:54
+Random Quote: Lily: "I can't believe I unloaded like that on a high-school senior."
+Robin: "I can't believe a high-school senior unloaded like that on me." - Robin Scherbatsky
