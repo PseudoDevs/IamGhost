@@ -1,3 +1,2 @@
-Last updated: 2024-04-06 10:55:34
-Random Quote: Steven Grant: "I'm not trying to slag off marketing, but there's been a major blunder. Because they've got seven gods here, and the Ennead has nine."
-Donna: "I fired two of them for bein' late. Listen, if you don't stop natterin' at me, I swear I'll shove you in a sarcophagus. You can tell the pharaoh in there what's wrong with them and all." - Arthur Harrow
+Last updated: 2024-04-06 10:56:07
+Random Quote: They pray to trees and golden idols and goat - headed abominations.  False gods... just so, and for that sin I kill them all.  I spill their blood upon the sea and sow their screaming women with my seed.  Their little gods cannot stop me, so plainly they are false gods.  I am more devout than even you, Aeron.  Perhaps it should be you who kneels to me for blessing. 
