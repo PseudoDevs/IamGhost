@@ -1,2 +1,3 @@
-Last updated: 2024-04-06 09:20:06
-Random Quote: Do you still trust people? Even after what you've been through? - Oh Il-nam
+Last updated: 2024-04-06 09:20:43
+Random Quote: Mi-nyeo: "Deok-su. You betray me... I'll kill you. Okay?"
+Deok-su: "You're the reason that I think I might die tonight." - Jang Deok-su

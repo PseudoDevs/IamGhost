@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 09:20:06
-Random Quote: I did it for me. I liked it. I was good at it. And I was really... I was alive. - Walter White
+Last updated: 2024-04-06 09:20:43
+Random Quote: A man will tell you poison is dishonorable, but a woman's honor is different.  The Mother shaped us to protect our children, and our only dishonor is failure.  -  Lysa Arryn
