@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 12:00:53
-Random Quote: Would the five of us always live within a few minutes of that booth? No, that's life, kids, but here's what I discovered: Our booth was wherever the five of us were together. - Ted Mosby
+Last updated: 2024-04-06 12:01:26
+Random Quote: You don't get to blame your problems on anyone but yourself. - Allison Hargreeves
