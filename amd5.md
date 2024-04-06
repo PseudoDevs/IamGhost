@@ -1,3 +1,2 @@
-Last updated: 2024-04-06 10:36:59
-Random Quote: Wyatt Langmore: "This job's my old man's idea. Something about 'calluses and character'."
-Charlotte Byrde: "Yeah, well, you're blowing leaves, not hiding Anne Frank." - Charlotte Byrde
+Last updated: 2024-04-06 10:37:32
+Random Quote: There is a 83% correlation between times when men are wearing a boutonniere and when they are getting laid... proms, weddings, funerals... thanks for the redhead, grandma! By the way, did you know that "boutonniere" is french for "booty is near"? - Barney Stinson
