@@ -1,2 +1,3 @@
-Last updated: 2024-04-06 07:31:27
-Random Quote: Love doesn't make sense. I mean, you can't logic your way into or out of it. Love ist totally nonsensical, but we have to keep doing it or else we're lost and love is dead and humanity should just pack it in. Because love is the best thing we do. - Ted Mosby
+Last updated: 2024-04-06 07:32:01
+Random Quote: Dragon: "My name is Balthromaw. Breaker of skies, slayer of mountain."
+Rick: "Rule 1: You're now scooper of your own poops, or I will take you down like the black-light poster you are." - Rick Sanchez
