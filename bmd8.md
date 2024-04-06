@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 07:46:31
-Random Quote: Here's the thing about me and tools: The only one I know how to use, is attached to me. And I'm not gonna try putting it in a TV... again. - Barney Stinson
+Last updated: 2024-04-06 07:47:04
+Random Quote: He would have killed me but for Howland Reed.  -  Eddard Stark
