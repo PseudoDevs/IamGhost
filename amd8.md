@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 06:32:51
-Random Quote: Early drinkin’ means quick drunken. - Jim Hopper
+Last updated: 2024-04-06 06:33:24
+Random Quote: They'll bend the knee or I'll destroy them.  -  Stannis Baratheon
