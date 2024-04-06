@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 12:05:52
-Random Quote: Ted: "Victoria was great."Robin: "Exactly, and you threw it all away to chase after some hot piece of ass."Ted: "You mean you?"Robin: "Thank you!" - Robin Scherbatsky
+Last updated: 2024-04-06 12:06:26
+Random Quote: I hate kids. They don't drink, they haven't travelled... - Nicky Nichols
