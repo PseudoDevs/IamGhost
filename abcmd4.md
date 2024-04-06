@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 07:16:34
-Random Quote: The absolute worst part of depression is that even though you know you're depressed, You're unable to stop yourself from getting worse. - Rue Bennett
+Last updated: 2024-04-06 07:17:07
+Random Quote: Reality is more than neurons firing around in your brain. Reality is not what's on the inside. It's what's happening on the outside. - Daniel Solace
