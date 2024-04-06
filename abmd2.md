@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 08:57:13
-Random Quote: I have sinned and must atone, must parade my shame before the eyes of every beggar in the city.  They think that this will break my pride, that it will make an end to me, but they are wrong.  -  Cersei Lannister
+Last updated: 2024-04-06 08:58:28
+Random Quote: .OkaySomebody's got to teach this kid to swear, it's embarrassing. - Meemaw
