@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 09:33:49
-Random Quote: Balon was mad, Aeron is madder, and Euron is maddest of them all.  -  Baelor Blacktyde
+Last updated: 2024-04-06 09:34:23
+Random Quote: Take the foundling to the city of Calodan on the forest planet Corvus. There, you will find Ahsoka Tano. Tell her you were sent by Bo-Katan. - Bo-Katan
