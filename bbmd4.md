@@ -1,2 +1,4 @@
-Last updated: 2024-04-06 10:50:35
-Random Quote: Robin: "You mean the whiny, bottomless pit of neediness? He was bugging me so I spiked his echinacea tea with codeine."Ted: "You would be a great mom." - Ted Mosby
+Last updated: 2024-04-06 10:51:08
+Random Quote: Rebecca: "So, I spoke to the owner of The Sun."
+Ted: "You spoke to God?!"
+Rebecca: "No, the newspaper." - Rebecca Welton
