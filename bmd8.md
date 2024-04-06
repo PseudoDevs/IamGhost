@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 10:51:41
-Random Quote: To be a scientist is to be naive. - Valery Legasov
+Last updated: 2024-04-06 10:52:47
+Random Quote: I told you once, there are old sellswords and there are bold sellswords, but there are no old bold sellswords.  -  Brown Ben Plumm
