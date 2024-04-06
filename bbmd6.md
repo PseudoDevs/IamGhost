@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 09:43:30
-Random Quote: Now you may be asking yourself why is sports icon John McEnroe narrating this tale? It'll make sense later I promise. - John McEnroe
+Last updated: 2024-04-06 09:44:03
+Random Quote: Aunties are older Indian women who have no blood-relation to you. But are allowed to have opinions about your life and all your shortcomings. And you have to be nice to them because you're Indian. - John McEnroe
