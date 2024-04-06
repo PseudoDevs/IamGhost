@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 08:09:46
-Random Quote: The greatest fools are ofttimes more clever than the men who laugh at them.  -  Tywin Lannister
+Last updated: 2024-04-06 08:10:19
+Random Quote: Roose Bolton's cold and cunning, aye, but a man can deal with Roose.  We've all known worse.  But this bastard son of his... they say he's mad and cruel, a monster.  -  Locke
