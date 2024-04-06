@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 11:12:42
-Random Quote: I knew quite a few Jedi, you know. I don't know what they taught you about us, but there was a time we actually got along quite well. Fought side by side. - Bo-Katan
+Last updated: 2024-04-06 11:13:15
+Random Quote: Time without purpose is a prison. - Jessica
