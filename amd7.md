@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 11:11:19
-Random Quote: Red: "Black girls hear about a chicken, of course this will happen."Piper: "Why, because all black people love chicken?"Red: "Don't be racist. Because they're all on heroin, and somebody's been telling them there's heroin in the chicken." - Galina 'Red' Reznikov
+Last updated: 2024-04-06 11:11:52
+Random Quote: Marshall: "Robin, I need you to delete the last text that Lily got before she sees it."Robin: "Bro, it's my wedding weekend. Just because you didn't know better than to take a naked selfie while you were in the coldest part of the country..."Marshall: "...first, I'm an Eriksen. Cold has a plumping effect." - Marshall Eriksen
