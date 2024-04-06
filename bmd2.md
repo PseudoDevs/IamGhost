@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 08:19:44
-Random Quote: I think I literally have a better understanding of who killed Kennedy than what is offside. - Rebecca Welton
+Last updated: 2024-04-06 08:20:18
+Random Quote: Only Renly could vex me so with a piece of fruit.  He brought his doom on himself with his treason, but I did love him, Davos.  I know that now.  I swear, I will go to my grave thinking of my brother's peach.  -  Stannis Baratheon
