@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 08:29:51
-Random Quote: This little bogwing is what all the fuss was about. What a precious little creature! I can see why you didn't want to harm a hair on its wrinkled little head. - Greef Karga
+Last updated: 2024-04-06 08:30:24
+Random Quote: A lie is just a great story that someone ruined with the truth. - Barney Stinson
