@@ -1,4 +1,2 @@
-Last updated: 2024-04-06 08:03:59
-Random Quote: Oh Il-nam: "As a kid, I'm willing to bet you got spanked a lot."
-Seong Gi-hun: "How did you know?"
-Oh Il-nam: "My son did too. He was just like you, friend." - Oh Il-nam
+Last updated: 2024-04-06 08:04:33
+Random Quote: If we're together long enough I hope that one day you see yourself like I do. - Kevin
