@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 06:49:06
-Random Quote: B-Dawg, Barn Door, Stinson-natti, Bro-hio! Talk to me, how's it hangin'? - Robin Scherbatsky
+Last updated: 2024-04-06 06:49:39
+Random Quote: Barney: "Canada sucks."Robin: "Okay, well, you're one-quarter Canadian, so by that logic you one-quarter suck!"Barney: "I'm 100% awesome and you know it!"Robin: "Yeah, I do." - Robin Scherbatsky
