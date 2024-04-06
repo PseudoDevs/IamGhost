@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 11:28:42
-Random Quote: Back boobs! The visual stimulation of missionary meets the emotional detachment of doggy style... patent pending. - Barney Stinson
+Last updated: 2024-04-06 11:29:15
+Random Quote: Might be you fooled these others, crow, but don't think you'll be fooling Mance.  He'll take one look a' you and know you're false.  And when he does, I'll make a cloak o' your wolf there, and open your soft boy's belly and sew a weasel up inside.  -  the Lord of Bones
