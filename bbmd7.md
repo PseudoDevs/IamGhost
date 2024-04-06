@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 09:41:41
-Random Quote: In the United States, the Mafia makes witnesses disappear so they can't testify in court. In Colombia, Pablo Escobar made the whole court disappear. - Steve Murphy
+Last updated: 2024-04-06 09:42:14
+Random Quote: I can bring you in warm, or I can bring you in cold. - Din Djarin
