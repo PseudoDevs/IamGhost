@@ -1,5 +1,3 @@
-Last updated: 2024-04-06 06:49:55
-Random Quote: Therapist: "You need to stop doing these weird things. Go out sometime."
-Klaus: "I went to the park today."
-Therapist: "There you go! I hope you got something from that."
-Klaus: "[Opens up coat] This duck." - Klaus Hargreeves
+Last updated: 2024-04-06 06:50:28
+Random Quote: Doctor: "Hypothetically speaking, every new father-to-be get nervous."
+Vision: "Well, I have nerves of steel, so there goes your theory, Mr. Doctor." - Vision
