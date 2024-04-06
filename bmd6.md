@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 09:16:29
-Random Quote: "Cap'n Cook?" That's not you? Like I said, no one is looking for you. - Walter White
+Last updated: 2024-04-06 09:17:05
+Random Quote: I never asked for this, no more than I asked to be king.  Yet dare I disregard her?  We do not choose our destinies.  Yet we must... we must do our duty, no?  Great or small, we must do our duty.  -  Stannis Baratheon
