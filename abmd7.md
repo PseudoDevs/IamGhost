@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 06:39:14
-Random Quote: I saw a couple riding a tandem bike, and it made me think of how you don't know how to ride a bike. - Kamala
+Last updated: 2024-04-06 06:39:46
+Random Quote: So many vows... they make you swear and swear.  Defend the king.  Obey the king.  Keep his secrets.  Do his bidding.  Your life for his.  But obey your father.  Love your sister.  Protect the innocent.  Defend the week.  Respect the gods.  Obey the laws.  It's too much.  No matter what you do, you're forsaking one vow for the other.  -  Jaime Lannister
