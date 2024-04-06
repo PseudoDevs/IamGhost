@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 08:26:14
-Random Quote: Science is neat, but I’m afraid it’s not very forgiving. - Scott Clarke
+Last updated: 2024-04-06 08:26:47
+Random Quote: What if God doesn’t know what he’s doing? If the plan is wrong? If God is wrong? - 
