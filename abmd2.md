@@ -1,2 +1,3 @@
-Last updated: 2024-04-06 08:46:20
-Random Quote: Career has been trouncing romance for years. It's like the Globetrotters versus the Generals: Career's sinking hook shots from half court, romance is just a bunch of slow white guys, who couldn't make it in the Italian league. - Ted Mosby
+Last updated: 2024-04-06 08:46:53
+Random Quote: Lily: "I can't believe I unloaded like that on a high-school senior."
+Robin: "I can't believe a high-school senior unloaded like that on me." - Robin Scherbatsky
