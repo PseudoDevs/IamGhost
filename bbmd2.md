@@ -1,4 +1,2 @@
-Last updated: 2024-04-06 11:21:53
-Random Quote: Ellie: "Can I have a gun?"
-Joel: "Absolutely not."
-Ellie: "Okay, Jesus. Fine. I'll have to throw a f-ckin' sandwich at them." - Ellie Williams
+Last updated: 2024-04-06 11:22:26
+Random Quote: One does not speak unless one knows. - Din Djarin
