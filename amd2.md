@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 10:19:16
-Random Quote: Lily: "I'm not paying for room service the hooker ordered."Barney: "I've been there." - Barney Stinson
+Last updated: 2024-04-06 10:19:49
+Random Quote: There's kids playing hockey in the back. It's like you want us to make fun of you! - Barney Stinson
