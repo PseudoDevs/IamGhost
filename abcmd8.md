@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 08:05:50
-Random Quote: You gotta move...The fuck...On! - Gloria Mendoza
+Last updated: 2024-04-06 08:08:37
+Random Quote: For the night is dark and full of terrors.  -  Words of R'hllor
