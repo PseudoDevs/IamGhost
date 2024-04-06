@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 11:28:31
-Random Quote: Grey Wind ate two of his fingers, and he laughed about it.  -  Robb Stark on Greatjon Umber
+Last updated: 2024-04-06 11:29:04
+Random Quote: Sometimes you gotta do bad things to catch bad people. - Javier Pe�a
