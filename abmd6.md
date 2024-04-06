@@ -1,3 +1,2 @@
-Last updated: 2024-04-06 10:05:15
-Random Quote: George: "I love what you done with the place. Did you do it yourself, or did you get some pouf to help ya?"
-Rebecca: "I could ask the same of your hair." - Rebecca Welton
+Last updated: 2024-04-06 10:05:48
+Random Quote: All I can do is wait... for the cancer to come back. - Skyler White
