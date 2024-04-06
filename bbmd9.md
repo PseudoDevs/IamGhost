@@ -1,6 +1,2 @@
-Last updated: 2024-04-06 08:22:32
-Random Quote: Morty: "Rick, when you say you made an exact replica of the house, did you mean, like, an exact replica?"
-Rick: "I know about the Yosemite T-Shirt, Morty."
-Morty: "Shit."
-Rick: "You know you can use tissues, right?"
-Morty: "I can't finish without it!" - Morty Smith
+Last updated: 2024-04-06 08:23:05
+Random Quote: Power resides where men believe it resides... It's a trick, a shadow on the wall.  -  Varys
