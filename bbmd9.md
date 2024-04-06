@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 06:50:46
-Random Quote: Marshall: "Yes, i want a ball-room and I want a band and I want shoes. I've been dreaming about this day since I was... like...Lily: "...a little girl?" - Lily Aldrin
+Last updated: 2024-04-06 06:51:20
+Random Quote: What you have to do is show these suckers what you’re capable of. Show them you’re not scared. - Nairobi
