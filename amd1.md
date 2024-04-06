@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 06:07:32
-Random Quote: Gustavo. When I looked into your eyes... hate. A little bit's okay. As long as you never forget who's boss. - Don Eladio
+Last updated: 2024-04-06 06:08:05
+Random Quote: The pain is his vessel, desire his compass. It is all that man is capable of. - 
