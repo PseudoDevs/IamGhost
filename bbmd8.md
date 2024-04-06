@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 06:57:16
-Random Quote: The good thing about relationships is that you finally forget how they started. - Tokyo
+Last updated: 2024-04-06 06:57:50
+Random Quote: All the tales agreed that the green men had strange magic powers.  Maybe they could help him walk again, even turn him into a knight.  They turned the little crannogman into a knight, even if it was only for a day, he thought.  A day would be enough.  -  Bran Stark
