@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 08:54:56
-Random Quote: A wolf is not a kraken.  What the kraken grasps it does not lose, be it longship or leviathan.  -  Victarion Greyjoy
+Last updated: 2024-04-06 08:55:29
+Random Quote: What I'm doing here... is building an empire. - Miguel Angel Felix Gallardo
