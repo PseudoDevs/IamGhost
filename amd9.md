@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 09:06:55
-Random Quote: Robert... he is in my dreams as well.  Laughing.  Drinking.  Boasting.  Those were the things he was best at.  Those, and fighting.  I never bested him at anything.  -  Stannis Baratheon
+Last updated: 2024-04-06 09:08:09
+Random Quote: Have you ever lost someone? It's like you're dying with them. They can move on. And you're stuck. - Eyk Larsen
