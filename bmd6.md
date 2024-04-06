@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 10:44:43
-Random Quote: Every journey has a beginning. But change one step along the way, and you could end up at a very different destination. - The Watcher
+Last updated: 2024-04-06 10:45:16
+Random Quote: I learned form Set Arthur Dayne, the Sword of the Morning, who could have slain all five of you with his left hand while he was taking a piss with the right.  -  Jaime Lannister
