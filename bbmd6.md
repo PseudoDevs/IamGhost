@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 10:58:49
-Random Quote: There is entirely too much tut - tutting in this realm, if you ask me.  All these kings would do a deal better if they put down their swords and listended to their mothers. 
+Last updated: 2024-04-06 10:59:22
+Random Quote: I like firsts. Good or bad, they're always memorable. - Ahsoka Tano
