@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 08:12:15
-Random Quote: Just when you thought things couldn't get any worse, we gotta go to Jersey. - Hulk
+Last updated: 2024-04-06 08:12:48
+Random Quote: My old septon used to say that books are dead men talking.  Dead men should keep quiet, is what I say.  No one wants to hear a dead man's yabber.  -  Dolorous Edd Tollett
