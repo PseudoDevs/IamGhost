@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 07:47:07
-Random Quote: Airport bar! Flight attendants, they'll get your tray table in it's full upright position. Say what? - Barney Stinson
+Last updated: 2024-04-06 07:47:40
+Random Quote: Some battles are won with swords and spears, others with quills and ravens.  -  Tywin Lannister
