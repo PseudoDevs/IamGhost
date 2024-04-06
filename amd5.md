@@ -1,3 +1,2 @@
-Last updated: 2024-04-06 12:04:18
-Random Quote: Freddie: "If you want me out of Birmingham, it'll have to be in a wooden box."
-Polly: "You lay a hand on our Ada, I'll put you in a wooden box myself!" - Polly Gray
+Last updated: 2024-04-06 12:04:51
+Random Quote: What is dead may never die, but rises again, harder and stronger  -  Words of the Drowned God
