@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 12:05:58
-Random Quote: There are worse ways to die than warm and drunk.  I knew a brother drowned himself in wine once.  It was a poor vintage, though, and his corpse did not improve it.  -  Dolorous Edd Tollett
+Last updated: 2024-04-06 12:06:31
+Random Quote: It's the greatest samurai, who lets his sword rust in its scabbard. - Barney Stinson
