@@ -1,2 +1,3 @@
-Last updated: 2024-04-06 12:10:20
-Random Quote: Finally, you will be among pears who understand you. Maybe you'll even make some friends. - Morticia Addams
+Last updated: 2024-04-06 12:10:53
+Random Quote: "Crutch down and bend over a little bit."
+Barney: "Wow, It took five shots of tequila to have you in that position." - Barney Stinson
