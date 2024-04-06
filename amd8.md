@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 08:34:32
-Random Quote: This is the one that you saved? You are as its father. A clan of two. But you have removed your helmet. Then you are a Mandalorian no more. - The Armorer
+Last updated: 2024-04-06 08:35:05
+Random Quote: I think I literally have a better understanding of who killed Kennedy than what is offside. - Rebecca Welton
