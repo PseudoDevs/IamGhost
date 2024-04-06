@@ -1,3 +1,2 @@
-Last updated: 2024-04-06 09:11:45
-Random Quote: Lily: "We don't wanna burden our little angel with all kinds of gender-specific expectations. Boys can do ballet, girls can play football."
-Marshall: "Hell, the Green Bay Packers have been proving that for years." - Marshall Eriksen
+Last updated: 2024-04-06 09:12:55
+Random Quote: Lies are necessary, when the truth is too difficult to believe. - Pablo Escobar
