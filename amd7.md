@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 09:27:43
-Random Quote: Catelyn would sooner Lord Umber had seen fit to stay sober, but telling the Greatjon not to drink was like telling him not to breathe for a few hours.  -  Catelyn Stark
+Last updated: 2024-04-06 09:28:16
+Random Quote: Nancy Wheeler: "You're supposed to hit the cans, right?"Jonathan Byers: "No, actually - you see the spaces in between the cans? I'm aiming for those." - Jonathan Byers
