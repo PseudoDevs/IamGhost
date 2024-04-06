@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 06:29:28
-Random Quote: Sorry, got caught up again. God, do I need to take more Adderall or am I taking too much Adderall? - Rick Sanchez
+Last updated: 2024-04-06 06:30:01
+Random Quote: We all make our choices and those choices they put us on a road. And sometimes those choices seem small but they put you on the road. You think about getting off but eventually, you're back on it. - Mike Ehrmantraut
