@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 07:18:48
-Random Quote: Did the boy charm you?  He has that gift.  He got it from his father, with the blood.  He knows he is a king's son, but chooses to forget that he is bastard - born. 
+Last updated: 2024-04-06 07:19:20
+Random Quote: I cried my little black heart out. But tears don't fix anything. So I vowed to never do it again. - Wednesday Addams

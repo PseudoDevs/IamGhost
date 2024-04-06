@@ -1,3 +1,2 @@
-Last updated: 2024-04-06 07:18:48
-Random Quote: Bro, bro, bro your broat, gently to the bar
-Hit on sluts, then do ten shots and... - Barney Stinson
+Last updated: 2024-04-06 07:19:20
+Random Quote: Barney: "I love how she was this wise, old, chilled out, lesbian farmer."Robin: "No, no, no. She's not a lesbian, nor does she farm them. No, that woman she lives with, that's just her special friend Maureen. They've lived together for... Oh!" - Robin Scherbatsky
