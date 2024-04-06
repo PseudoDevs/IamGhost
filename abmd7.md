@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 07:43:17
-Random Quote: It's not even the lies that hurt, you know? It's the fact that you're never really emotionally prepared for someone to leave you. - Rue Bennett
+Last updated: 2024-04-06 07:43:50
+Random Quote: If you keep all your treasures in one purse, you only make it easier for those who would rob you.  -  Robb Stark
