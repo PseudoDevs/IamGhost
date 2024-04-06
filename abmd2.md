@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 10:40:34
-Random Quote: Ted: "In a city of eight million people, you happened to walk into the club where she works? Maybe it's destiny."Barney: "No, Destiny strips at 'The Melon Patch'. They're people, Ted. Try to keep them straight!" - Barney Stinson
+Last updated: 2024-04-06 10:41:07
+Random Quote: Mitchell: "We didn't just go to Vietnam for pleasure. We kinda have some big news."Jay: "Oh God, if Cam comes out there with boobs, I'm leaving." - Jay Pritchett
