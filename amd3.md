@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 08:09:21
-Random Quote: What good is having all the money in the world if you can't go home? - Tata Escobar
+Last updated: 2024-04-06 08:09:54
+Random Quote: We all have things we keep hidden. Sometimes, keeping secrets is how you survive. Because in High School, one rumor, one picture, one incident, can define you forever. - Hannah Baker
