@@ -1,2 +1,9 @@
-Last updated: 2024-04-06 11:20:35
-Random Quote: The men of Westeros are ever rushing.  What good is this, I ask you?  He who hurries through life hurries to his grave.  -  Salladhor Saan
+Last updated: 2024-04-06 11:21:08
+Random Quote: If my love were an ocean,
+there would be no more land.
+If my love were a desert,
+you would see only sand.
+If my love were a star-
+late at night, only light.
+And if my love could grow wings,
+I'd be soaring in flight. - Jay Asher
