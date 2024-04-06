@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 09:14:58
-Random Quote: Lily, I think we made a mistake moving out to the suburbs. I miss our home. I miss our booth with our friends. And I'm pretty sure I have a drumstick... somewhere bad. - Marshall Eriksen
+Last updated: 2024-04-06 09:15:31
+Random Quote: The reason why she doesn't remember is because she's a grown up. That's how this stuff always works. Only kids can get into Narnia. - Bode Locke
