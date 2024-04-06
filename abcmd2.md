@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 07:41:06
-Random Quote: Catelyn would sooner Lord Umber had seen fit to stay sober, but telling the Greatjon not to drink was like telling him not to breathe for a few hours.  -  Catelyn Stark
+Last updated: 2024-04-06 07:42:13
+Random Quote: I've had shits that I've liked better than Walder Frey.  -  Brynden Tully
