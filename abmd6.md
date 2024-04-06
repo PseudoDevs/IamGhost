@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 07:32:08
-Random Quote: What is lost, will be found. - Maura Franklin
+Last updated: 2024-04-06 07:32:41
+Random Quote: The Horned Lord once said that sorcery is a sword without a hilt.  There is no safe way to grasp it.  -  Dalla
