@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 10:13:07
-Random Quote: It's just, I know I can be a jerk like him sometimes, and I do not want to be like him. Ever. - Max Mayfield
+Last updated: 2024-04-06 10:14:48
+Random Quote: The men of Westeros are ever rushing.  What good is this, I ask you?  He who hurries through life hurries to his grave.  -  Salladhor Saan

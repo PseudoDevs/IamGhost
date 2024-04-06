@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 10:14:14
-Random Quote: Lucas: "Mike's not gonna like it."Dustin: "Last time I checked our party is not a dictatorship, it's a democracy." - Dustin Henderson
+Last updated: 2024-04-06 10:14:48
+Random Quote: Barney: "Your challenge is accepted Lil, there is no girl too prettyFor I am Barney Stinson, Player King of New York City."Ted: "You can't anoint yourself the king, just like that jerk, LeBron."Barney: "He left the Cavs three years ago. Bro, give it up, move on." - Barney Stinson
