@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 08:19:09
-Random Quote: Science fact: Sisters are the worst. - Sheldon
+Last updated: 2024-04-06 08:19:43
+Random Quote: Robert... he is in my dreams as well.  Laughing.  Drinking.  Boasting.  Those were the things he was best at.  Those, and fighting.  I never bested him at anything.  -  Stannis Baratheon
