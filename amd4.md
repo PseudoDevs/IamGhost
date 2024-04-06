@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 07:38:41
-Random Quote: His size, Gregor is a very large man.  Also a very stupid one.  Too stupid to know when he should die, it seems.  -  Cersei Lannister
+Last updated: 2024-04-06 07:39:47
+Random Quote: I never wanted any of it to change, but that's not how life works. - Ted Mosby
