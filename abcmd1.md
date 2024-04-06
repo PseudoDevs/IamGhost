@@ -1,3 +1,2 @@
-Last updated: 2024-04-06 09:33:15
-Random Quote: Woman: "You know this isn't Vegas, right?"
-Robin: "Well sure, in Vegas the casinos pump in oxygen, in Atlantic City it looks like everyone brought their own." - Robin Scherbatsky
+Last updated: 2024-04-06 09:33:49
+Random Quote: I cried my little black heart out. But tears don't fix anything. So I vowed to never do it again. - Wednesday Addams
