@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 09:22:41
-Random Quote: Fear is the worst enemy of progress. - 
+Last updated: 2024-04-06 09:23:14
+Random Quote: When the sun rises in the west and sets in the east.  When the seas go dry and mountains blow in the wind like leaves.  When your womb quickens again, and you bear a living child.  Then he will return, and not before.  -  Mirri Maz Duur
