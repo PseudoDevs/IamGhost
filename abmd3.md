@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 09:52:41
-Random Quote: There's no such thing as a bad idea, Morty. It's about execution. - Rick Sanchez
+Last updated: 2024-04-06 09:53:18
+Random Quote: It's not Aerys I rue, it's Robert... Why is it no one names Robert oathbreaker?  He tore the realm apart, yet I am the one with shit for honor.  -  Jaime Lannister
