@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 12:04:56
-Random Quote: Barney: "I am so sorry, Cornelius. You deserve a better end than this."Lily: "You got ketchup on a red tie, you can't even see it!" - Lily Aldrin
+Last updated: 2024-04-06 12:05:30
+Random Quote: The Citadel took my chain, but they could not take my knowledge.  -  Qyburn
