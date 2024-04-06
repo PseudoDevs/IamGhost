@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 08:18:00
-Random Quote: Whenever I feel good I think it will last forever. But it's not like that. - Rue Bennett
+Last updated: 2024-04-06 08:18:33
+Random Quote: Men say Tywin never smiled, but he smiled when he wed your mother, and when Aerys made him Hand.  When Tarbeck Hall came crashing down on Lady Ellyn, that scheming bitch, Tyg claimed he smiled then, and he smiled at your birth, Jaime, I saw with my own eyes.  -  Genna Lannister
