@@ -1,2 +1,3 @@
-Last updated: 2024-04-06 08:22:28
-Random Quote: I think my soul just threw up a little bit. - Lily Aldrin
+Last updated: 2024-04-06 08:23:01
+Random Quote: "I thought Mandalorians were honorable."
+Koska Reeves: "We are, kid. All it takes is a few credits." - Din Djarin
