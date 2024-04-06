@@ -1,5 +1,2 @@
-Last updated: 2024-04-06 12:00:43
-Random Quote: Therapist: "You need to stop doing these weird things. Go out sometime."
-Klaus: "I went to the park today."
-Therapist: "There you go! I hope you got something from that."
-Klaus: "[Opens up coat] This duck." - Klaus Hargreeves
+Last updated: 2024-04-06 12:01:17
+Random Quote: Lily: "A big package just arrived."Marshall: "Yeah, it did."Lily: "No, no. It's a real package from your dad."Marshall: "Well, that's a little weird, but yeah, it is." - Marshall Eriksen
