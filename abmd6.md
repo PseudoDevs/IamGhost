@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 10:34:47
-Random Quote: Just remember who your friends and who your enemies are. - Billy Butcher
+Last updated: 2024-04-06 10:35:20
+Random Quote: If the cancer doesn't get him, it'll be the cops or a bullet to the head. - Mike Ehrmantraut
