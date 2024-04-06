@@ -1,3 +1,3 @@
-Last updated: 2024-04-06 06:55:01
-Random Quote: Morty: "You were a teenager when dad got you pregnant!"
-Beth: "I was 17. That's at least 26 in boy years." - Beth Smith
+Last updated: 2024-04-06 06:56:10
+Random Quote: Morty: "I have English homework."
+Rick: "You're still learning English? It's the language you speak. How dumb are you?" - Rick Sanchez
