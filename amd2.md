@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 08:31:56
-Random Quote: Old gods or new, it makes no matter, no man is so accursed as the kinslayer.  -  Rickard Karstark
+Last updated: 2024-04-06 08:32:30
+Random Quote: Out there, I don't stand a chance. I do in here. - Jang Deok-su
