@@ -1,2 +1,3 @@
-Last updated: 2024-04-06 10:24:52
-Random Quote: Many good men have been bad kings, and some bad men have been good kings.  -  Maester Aemon
+Last updated: 2024-04-06 10:25:26
+Random Quote: Gor Koresh: "This is no place for a child."
+Mando: "Wherever I go, he goes. I've been quested to bring him to his kind." - Din Djarin
