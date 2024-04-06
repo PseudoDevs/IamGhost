@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 08:10:14
-Random Quote: I don't bring lunch on Tuesdays. It's square pizza day. - Devi Vishwakumar
+Last updated: 2024-04-06 08:10:47
+Random Quote: Foes and false friends are all around me, Lord Davos.  They infest my city like roaches, and at night I feel them crawling over me.  My son Wendel came to the Twins as a guest.  He ate Lord Walder's bread and salt, and hung his sword upon the wall to feast with his friends.  And they murdered him.  Murdered, I say, and may the Freys choke upon their fables.  I drink with Jared, jape with Symond, promise Rhaegar the hand of my own beloved granddaughter... but never think that means I have forgotten.  The North remembers, Lord Davos.  The North remembers, and the mummer's farce is almost done.  My son is home.  -  Wyman Manderly.
