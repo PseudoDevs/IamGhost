@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 07:26:02
-Random Quote: Young or old, a true knight is sworn to protect those who are weaker than himself, or die in the attempt.  -  Brienne of Tarth
+Last updated: 2024-04-06 07:26:35
+Random Quote: What we know is a drop. What we don’t know is an ocean - 
