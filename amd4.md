@@ -1,7 +1,2 @@
-Last updated: 2024-04-06 06:33:47
-Random Quote: "Nevermore was founded over 200 years ago to educate outcasts."
-"Students from all walks of life."
-"And death."
-"Our mission is to help each student master their unique abilities. So we offer a full range of extracurricular activities. From painting... to archery."
-"For centuries, notable alumni have roamed these majestic halls, from the master of macabre, Edgar Allan Poe, to personal heroes like Ignatius Itt, and of course, Morticia and Gomez Addams."
-"Our highly trained faculty educate our young outcasts on a wide range of subjects. Everything from werewolf reproduction to Gorgon anatomy." - Larissa Weems
+Last updated: 2024-04-06 06:34:20
+Random Quote: So many vows... they make you swear and swear.  Defend the king.  Obey the king.  Keep his secrets.  Do his bidding.  Your life for his.  But obey your father.  Love your sister.  Protect the innocent.  Defend the week.  Respect the gods.  Obey the laws.  It's too much.  No matter what you do, you're forsaking one vow for the other.  -  Jaime Lannister
