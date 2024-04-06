@@ -1,4 +1,2 @@
-Last updated: 2024-04-06 08:32:46
-Random Quote: Joel: "Long way or short way?"
-Tess: "I mean, it's the long way or the 'we're fuckin' dead' way."
-Ellie: "Well, I vote long way just based on that limited information." - Ellie Williams
+Last updated: 2024-04-06 08:33:19
+Random Quote: I have my voice, and the god is with me.  Mine is the strength of the sea, a strength the Crow's Eye cannot hope to withstand.  The waves may break upon the mountain, yet still they come, wave upon wave, and in the end only pebbles remain where once the mountain stood.  And soon even the pebbles are swept away, to be ground beneath the sea for all eternity.  -  Aeron Greyjoy
