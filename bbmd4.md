@@ -1,2 +1,3 @@
-Last updated: 2024-04-06 11:43:07
-Random Quote: Pardon me, but you really hurt my feelings. - Hannah Baker
+Last updated: 2024-04-06 11:43:41
+Random Quote: Dragon: "My name is Balthromaw. Breaker of skies, slayer of mountain."
+Rick: "Rule 1: You're now scooper of your own poops, or I will take you down like the black-light poster you are." - Rick Sanchez
