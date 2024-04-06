@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 12:03:06
-Random Quote: Obara would make Oldtown our father's funeral pyre, but I am not so greedy.  Four lives will suffice for me.  Lord Tywin's golden twins, as payment for Elia's children.  The old lion, for Elia herself.  And last of all the little king, for my father... only royal blood can wash out my father's murder.  -  Nymeria Sand
+Last updated: 2024-04-06 12:03:39
+Random Quote: The other thing about depression is it kind of collapses time. Suddenly, you find your whole days blending together to create one endless and suffocating loop. So you find yourself trying to remember the things that made you happy. But slowly, your brain begins to erase every memory that ever brought you joy. And eventually, all you can think about is how life has always been this way. And will only continue to be this way. - Rue Bennett
