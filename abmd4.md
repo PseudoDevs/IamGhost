@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 11:27:26
-Random Quote: It's probably his... I've spent years, training my boys to swim the other way. - Barney Stinson
+Last updated: 2024-04-06 11:27:59
+Random Quote: No man has ever died from bending his knee.  He who kneels may rise again, blade in hand.  He who will not kneel stays dead, stiff legs and all.  -  Balon Greyjoy
