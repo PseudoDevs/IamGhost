@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 08:27:15
-Random Quote: Take care of this little one or maybe, it'll take care of you. - Greef Karga
+Last updated: 2024-04-06 08:27:47
+Random Quote: The reason why she doesn't remember is because she's a grown up. That's how this stuff always works. Only kids can get into Narnia. - Bode Locke
