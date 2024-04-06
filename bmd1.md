@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 07:24:58
-Random Quote: You shouldn't like things because people tell you you're supposed to. - Jonathan Byers
+Last updated: 2024-04-06 07:25:32
+Random Quote: It's easier when you're a kid anyway. You don't have anybody else relying on you. That's the hardest part. - Joel Miller
