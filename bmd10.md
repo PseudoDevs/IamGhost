@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 09:06:07
-Random Quote: B-Dawg, Barn Door, Stinson-natti, Bro-hio! Talk to me, how's it hangin'? - Robin Scherbatsky
+Last updated: 2024-04-06 09:06:40
+Random Quote: Larry Bloom: "Are we at least gonna talk about other options?"Piper Chapman: "You mean..."Larry Bloom: "It's not Voldemort, you can say it. Abortion." - Larry Bloom
