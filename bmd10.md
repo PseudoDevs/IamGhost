@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 09:39:33
-Random Quote: Larry: "Where would you like me to put it then, Piper?"Piper: "Up your ass."Larry: "There's no room. Apparently, my head's already up there." - Larry Bloom
+Last updated: 2024-04-06 09:40:08
+Random Quote: It's probably his... I've spent years, training my boys to swim the other way. - Barney Stinson

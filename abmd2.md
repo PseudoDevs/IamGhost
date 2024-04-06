@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 09:37:50
-Random Quote: You know how sometimes you'll meet a girl and there'll be that one bewitching little detail that'll make you fall in love with her instantly? You know, a little freckle on the nose, the lilt of her laugh, the way she pronounces a certain word or phrase... - Ted Mosby
+Last updated: 2024-04-06 09:40:09
+Random Quote: In my body, where the shame gland should be, there is a second awesome gland. True story! - Barney Stinson
