@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 10:14:51
-Random Quote: I didn't realize you were small potatoes. And to be clear, I am referring to your testicles. - Robin Scherbatsky
+Last updated: 2024-04-06 10:15:24
+Random Quote: Robin: "I wouldn't go to Cleveland for 125 million dollars, paid over six years."Ted: "Still with the LeBron jokes? Where's that ring he's supposed to have by now?" - Robin Scherbatsky
