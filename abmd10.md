@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 08:23:57
-Random Quote: Those called "fools" are the only ones brave enough to see the truth. - Rick Sanchez
+Last updated: 2024-04-06 08:24:31
+Random Quote: You think you're the only one he whispers secrets to?  He gives each of us just enough to convince us that we'd be helpless without him.  -  Cersei Lannister
