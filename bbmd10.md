@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 08:19:57
-Random Quote: Whats your prescription, Dr. Estrogen? Eat Haagen-Dazs and watch "Love... actually" until your periods sync up? - Barney Stinson
+Last updated: 2024-04-06 08:20:31
+Random Quote: Stop crying. Remember? Crying makes you ugly and weak. - Dayanara Diaz
