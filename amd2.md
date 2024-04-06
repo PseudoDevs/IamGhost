@@ -1,5 +1,2 @@
-Last updated: 2024-04-06 08:49:01
-Random Quote: Dina: "You're infuriating."
-Ellie: "Have you met you?"
-Dina: "You make me want to go back outside into that blizzard."
-Ellie: "No one is stopping you." - Joel Miller
+Last updated: 2024-04-06 08:49:36
+Random Quote: That's not a law, just a sword.  Happens I got one too.  -  Yoren of the Night's Watch
