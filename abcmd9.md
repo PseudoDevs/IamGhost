@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 07:35:32
-Random Quote: What I came to realise is that fear, that’s the worst of it. That’s the real enemy. So, get up, get out in the real world and you kick that bastard as hard you can right in the teeth. - Walter White
+Last updated: 2024-04-06 07:36:05
+Random Quote: Help was not promised, lovely girl.  Only death.  -  Jaqen H'ghar
