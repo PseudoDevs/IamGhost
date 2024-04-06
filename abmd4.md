@@ -1,3 +1,2 @@
-Last updated: 2024-04-06 07:33:15
-Random Quote: How does a computer get drunk?
-It takes screenshots. - Will Livingston
+Last updated: 2024-04-06 07:33:49
+Random Quote: This is the one that you saved? You are as its father. A clan of two. But you have removed your helmet. Then you are a Mandalorian no more. - The Armorer
