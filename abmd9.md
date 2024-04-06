@@ -1,3 +1,2 @@
-Last updated: 2024-04-06 07:01:00
-Random Quote: Lily: "We're going to Atlantic City to elope - right now!"
-Barney: "Oh, congratulations Lily! Marshall, you're getting married? What the hell?" - Barney Stinson
+Last updated: 2024-04-06 07:01:34
+Random Quote: Get the f out of here and don't stop walking until you hear them speak English! - Guillermo Gonzalez Calderoni
