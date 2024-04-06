@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 11:22:53
-Random Quote: The world is full of such paradoxes we simply choose to ignore them most of the time. - 
+Last updated: 2024-04-06 11:23:26
+Random Quote: My uncle Kevan would make a passably good regent if someone pressed the duty on him, but he will never reach for it.  The gods shaped him to be a follower, not a leader.  -  Tyrion Lannister
