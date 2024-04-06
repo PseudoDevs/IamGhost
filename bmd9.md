@@ -1,3 +1,2 @@
-Last updated: 2024-04-06 09:43:42
-Random Quote: What did the frustrated cannibal do?
-He threw up his hands. - Will Livingston
+Last updated: 2024-04-06 09:44:15
+Random Quote: Barney: "Fine, we'll just have a nice, tasteful rehearsal dinner. Maybe at a French restaurant, I know just the place."Robin: "What's the name of the restaurant?"Barney: "La Sertag." - Barney Stinson
