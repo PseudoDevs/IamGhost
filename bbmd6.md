@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 12:06:49
-Random Quote: Every year, there are a million new, hot 22-year-olds walking into bars and call me "glass-half-full"... but I think they're getting dumber. - Barney Stinson
+Last updated: 2024-04-06 12:07:22
+Random Quote: Let them keep believing I'm dead. So much the better. It was the chicken man. That coward sat up there in the north while his paramilitaries came into my home. - Lalo Salamanca
