@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 11:23:53
-Random Quote: Marshall: "Lily, you snooped through her stuff?"Lily: "No, it's like the first thing you see when you jimmy open her desk-drawer with the letter opener her grandfather left her, according to her diary." - Lily Aldrin
+Last updated: 2024-04-06 11:24:26
+Random Quote: There have always been men who found it easier to speak vows than to keep them.  -  Arys Oakheart
