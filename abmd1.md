@@ -1,3 +1,5 @@
-Last updated: 2024-04-06 11:29:38
-Random Quote: Men and their d-cks never cease to amaze me. John, Lizzie Stark never did a day's work vertical.
-Brave is going where no man has gone before. And with Lizzie Stark, John, that's not what you'll be doing. - Polly Gray
+Last updated: 2024-04-06 11:30:11
+Random Quote: John Flynn: "Rogers, get in there!"
+Peggy Carter: "He can't."
+John Flynn: "Stark, you go in!"
+Howard Stark: "What? Are you crazy? I push the buttons. I'm the buttons guy." - Howard Stark
