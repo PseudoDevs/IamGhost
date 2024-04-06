@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 09:19:28
-Random Quote: Among all the games that kids played back then, it was the most physical and violent. - Seong Gi-hun
+Last updated: 2024-04-06 09:20:02
+Random Quote: Larry Bloom: "Piper, you put a pee stick in my rinsing cup."Piper Chapman: "Well, you put your pee stick in my vagina. And that's why we're in this situation." - Piper Chapman
