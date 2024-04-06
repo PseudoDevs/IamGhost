@@ -1,3 +1,2 @@
-Last updated: 2024-04-06 06:47:21
-Random Quote: Grace Burgess: "You think I am a wh-re?"
-Tommy Shelby: "Everyone's a wh-re, Grace. We just sell different parts of ourselves." - Thomas Shelby
+Last updated: 2024-04-06 06:47:54
+Random Quote: When something seems too perfect, it's usually anything but. - Allison Hargreeves
