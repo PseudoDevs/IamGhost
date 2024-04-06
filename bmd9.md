@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 08:28:01
-Random Quote: I'm supposed to be this hero, idol symbol, but I don't know what the hell I'm doing. - Starlight
+Last updated: 2024-04-06 08:28:35
+Random Quote: If ever a man deserved to die screaming, it was Gregor Clegane.  -  Doran Martell
