@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 08:51:00
-Random Quote: Omera: "You haven't shown your face to anyone since you were a kid?"Mando: "No. I was happy that they took me in. My parents were killed and the Mandalorians took care of me. This is the way." - Din Djarin
+Last updated: 2024-04-06 08:51:34
+Random Quote: I poured my blood, sweat and tears into that building. Though, to be fair, a lot of that happened the day I accidentally fell down the elevator shaft. - Ted Mosby
