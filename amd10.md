@@ -1,2 +1,3 @@
-Last updated: 2024-04-06 09:03:16
-Random Quote: Here's the thing about me and tools: The only one I know how to use, is attached to me. And I'm not gonna try putting it in a TV... again. - Barney Stinson
+Last updated: 2024-04-06 09:03:51
+Random Quote: Alien: "I was just reading you."
+Rick: "Congratulations on making it into print media. Real bright future there." - Rick Sanchez
