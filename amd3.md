@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 08:15:29
-Random Quote: Financial adviser's not my dream job, but I am taking a fing bite out of the apple. - Bruce Liddell
+Last updated: 2024-04-06 08:16:02
+Random Quote: A man will tell you poison is dishonorable, but a woman's honor is different.  The Mother shaped us to protect our children, and our only dishonor is failure.  -  Lysa Arryn
