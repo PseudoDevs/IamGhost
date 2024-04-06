@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 11:21:32
-Random Quote: Airport Security: "How did you get that through the X-Ray machine?"Barney: "No questions from the audience, please!" - Barney Stinson
+Last updated: 2024-04-06 11:22:39
+Random Quote: I've lost a hand, a father, a son, a sister, and a lover, and soon enough I will lose a brother.  And yet they keep telling me House Lannister has won this war.  -  Jaime Lannister
