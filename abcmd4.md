@@ -1,2 +1,3 @@
-Last updated: 2024-04-06 11:31:45
-Random Quote: The last play you'll ever run. - Barney Stinson
+Last updated: 2024-04-06 11:33:24
+Random Quote: Robin: "I'm drinking 'til I forget the 1999 NFC Championship?"
+Marshall: "The Vikings were two minutes away from going to the Super Bowl, when our kicker, who hadn't missed all year, shanked a field goal, and we lost in overtime. Damn!" - Marshall Eriksen
