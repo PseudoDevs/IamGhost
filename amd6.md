@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 10:42:40
-Random Quote: I'm telling you that there is. - Ulana Khomyuk
+Last updated: 2024-04-06 10:43:13
+Random Quote: The only way to keep your people loyal is to make certain they fear you more than they do the enemy.  -  Cersei Lannister
