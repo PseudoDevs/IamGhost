@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 08:56:33
-Random Quote: A lie is just a great story that someone ruined with the truth. - Barney Stinson
+Last updated: 2024-04-06 08:57:08
+Random Quote: Sometimes you gotta do bad things to catch bad people. - Javier Pe�a
