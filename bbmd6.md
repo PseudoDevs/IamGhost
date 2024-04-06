@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 08:23:04
-Random Quote: Ted: "Barney! I'm allowed to miss them, okay? They're my two best friends."Barney: "I'm your two best friends!" - Barney Stinson
+Last updated: 2024-04-06 08:23:38
+Random Quote: Love's not always wise, I've learned.  It can lead us to great folly, but we follow our hearts... wherever they take us.  -  Robb Stark
