@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 10:12:32
-Random Quote: The Freys slashed her throat from ear to ear.  When we found her by the river she was three days dead.  Harwin begged me to give her the kiss of life, but it had been too long.  I would not do it, so Lord Beric put his lips to hers instead, and the flame of life passed from him to her.  And... she rose.  May the Lord of Light protect us.  She rose.  -  Thoros of Myr
+Last updated: 2024-04-06 10:13:06
+Random Quote: Then hear me.  If we are taken, you will go over to them, as the wildling girl you captured once urged you.  They may demand that you cut your cloak to ribbons, that you swear them an oath on your father's grave, that you curse your brothers and your Lord Commander.  You must not balk, whatever is asked of you.  Do as they bid you... but in your heart, remember who and what you are.  Ride with them, eat with them, fight with them, for as long as it takes.  And watch.  -  Qhorin Halfhand
