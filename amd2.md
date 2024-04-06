@@ -1,7 +1,2 @@
-Last updated: 2024-04-06 10:33:40
-Random Quote: Bo-Katan: "You are a disgrace to your armor."
-Boba Fett: "This armor belonged to my father."
-Bo-Katan: "Don't you mean your donor?"
-Boba Fett: "Careful, princess."
-Bo-Katan: "You are a clone. I've heard your voice thousands of times."
-Boba Fett: "Mine might be the last one you hear." - Boba Fett
+Last updated: 2024-04-06 10:34:13
+Random Quote: Which meant for the first time in years, the world was wide open. Because kids, when a door closes... well, you know the rest. - Ted Mosby
