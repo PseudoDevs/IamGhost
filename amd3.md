@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 07:52:08
-Random Quote: Roose Bolton's cold and cunning, aye, but a man can deal with Roose.  We've all known worse.  But this bastard son of his... they say he's mad and cruel, a monster.  -  Locke
+Last updated: 2024-04-06 07:52:40
+Random Quote: I keep making mistakes and not learning from them. - Cassie Howard
