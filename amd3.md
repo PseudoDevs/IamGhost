@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 08:14:56
-Random Quote: Love is poison.  A sweet poison, yes, but it will kill you all the same.  -  Cersei Lannister
+Last updated: 2024-04-06 08:15:29
+Random Quote: Financial adviser's not my dream job, but I am taking a fing bite out of the apple. - Bruce Liddell
