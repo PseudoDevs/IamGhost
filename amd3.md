@@ -1,3 +1,2 @@
-Last updated: 2024-04-06 08:18:16
-Random Quote: Freddie: "If you want me out of Birmingham, it'll have to be in a wooden box."
-Polly: "You lay a hand on our Ada, I'll put you in a wooden box myself!" - Polly Gray
+Last updated: 2024-04-06 08:19:24
+Random Quote: There is only one street where that is normal. Here's a hint: A giant yellow bird lives on it. - Barney Stinson
