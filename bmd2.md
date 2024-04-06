@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 09:28:12
-Random Quote: You have a passing clever father, Devan.  He makes me wish I had more smugglers in my service.  And fewer lords.  -  Stannis Baratheon
+Last updated: 2024-04-06 09:28:46
+Random Quote: You are the love of my life. Everything I have and everything I am is yours. Forever. - Barney Stinson
