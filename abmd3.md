@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 10:51:31
-Random Quote: Everyone was yelling stuff.  Hot Pie yelled hot pie.  He must have yelled it a hundred times.  -  Arya Stark
+Last updated: 2024-04-06 10:52:04
+Random Quote: If you don't make it back, there's one thing that I need to tell you... - Klaus Hargreeves
