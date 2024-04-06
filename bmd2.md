@@ -1,4 +1,2 @@
-Last updated: 2024-04-06 08:25:52
-Random Quote: Morticia: "Please excuse Wednesday. She's allergic to color."
-Enid: "Wow, what happens to you?"
-Wednesday: "I break out into hives, and then the flesh peels off my bones." - Wednesday Addams
+Last updated: 2024-04-06 08:26:25
+Random Quote: There is only one street where that is normal. Here's a hint: A giant yellow bird lives on it. - Barney Stinson
