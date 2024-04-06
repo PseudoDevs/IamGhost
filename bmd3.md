@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 09:52:28
-Random Quote: Being a Mandalorian is not just learning about how to fight. You also have to know how to navigate the Galaxy. That way you'll never be lost. - Din Djarin
+Last updated: 2024-04-06 09:53:01
+Random Quote: Celtigar pronounced it admirable.  If I were to show him the contents of my privy he would pronounce that admirable as well.  -  Stannis Baratheon
