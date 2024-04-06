@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 10:50:25
-Random Quote: Robin: "He has a book of plays he uses to trick women into sleeping with him."Patrice: "Oh, no way. Barney's my honey bear."Robin: "Actually, one of his plays is called 'The Honey Bear'. He dresses up like Winnie the Pooh, and the next thing you know, his hand's stuck in your pot." - Robin Scherbatsky
+Last updated: 2024-04-06 10:50:58
+Random Quote: Can I dwell on what I scarce remember?  I held a castle on the Marches once, and there was a woman I was pledged to marry, but I could not find that castle today, nor tell you the color of that woman's hair.  Who knighted me, old friend?  What were my favorite foods?  It all fades.  Sometimes I think I was born on the bloody grass in that grove of ash, with the taste of fire in my mouth and a hole in my chest.  Are you my mother, Thoros?  -  Beric Dondarrion
