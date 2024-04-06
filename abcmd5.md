@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 09:39:34
-Random Quote: Brother, you're driving the "I-wanna-have-sex-with-her-truck" and its got a huge blind spot. - Marshall Eriksen
+Last updated: 2024-04-06 09:40:09
+Random Quote: There must always be a Stark in Winterfell.  -  Catelyn Stark
