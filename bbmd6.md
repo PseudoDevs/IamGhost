@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 12:12:55
-Random Quote: There is entirely too much tut - tutting in this realm, if you ask me.  All these kings would do a deal better if they put down their swords and listended to their mothers. 
+Last updated: 2024-04-06 12:13:29
+Random Quote: Pardon my French, f-ck those f-ckers! - Billy Butcher
