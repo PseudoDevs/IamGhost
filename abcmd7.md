@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 11:38:38
-Random Quote: Discouraging premarital sex is against my religion. - Barney Stinson
+Last updated: 2024-04-06 11:39:11
+Random Quote: Bronn was no knight, that was true.  Bronn was a battle - hardened killer. 
