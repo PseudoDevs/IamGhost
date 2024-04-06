@@ -1,2 +1,4 @@
-Last updated: 2024-04-06 07:50:33
-Random Quote: You are slow to learn, Lord Eddard.  Distrusting me was the wisest thing you've don since you climbed down off your horse.  -  Petyr Baelish
+Last updated: 2024-04-06 07:51:07
+Random Quote: Oh Il-nam: "As a kid, I'm willing to bet you got spanked a lot."
+Seong Gi-hun: "How did you know?"
+Oh Il-nam: "My son did too. He was just like you, friend." - Oh Il-nam
