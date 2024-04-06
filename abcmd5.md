@@ -1,2 +1,7 @@
-Last updated: 2024-04-06 10:20:56
-Random Quote: You Westerosi are all the same.  You sew some beast upon a scrap of silk, and suddenly you are all lions or dragons or eagles.  -  Illyrio Mopatis
+Last updated: 2024-04-06 10:21:29
+Random Quote: Bo-Katan: "You are a disgrace to your armor."
+Boba Fett: "This armor belonged to my father."
+Bo-Katan: "Don't you mean your donor?"
+Boba Fett: "Careful, princess."
+Bo-Katan: "You are a clone. I've heard your voice thousands of times."
+Boba Fett: "Mine might be the last one you hear." - Boba Fett
