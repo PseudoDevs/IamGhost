@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 08:27:33
-Random Quote: Then odds are he'll be near a settlement, probably close to another city out there. Ain't too many of 'em in Wyoming. - Joel Miller
+Last updated: 2024-04-06 08:28:06
+Random Quote: You need to figure out what the fuck you want. - Nicky Nichols
