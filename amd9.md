@@ -1,3 +1,2 @@
-Last updated: 2024-04-06 11:23:12
-Random Quote: Morty: "You're really this pissed about my mum making sure I'm okay with our adventures?"
-Rick: "What's next, Morty? What if I want you to jump off the Empire State Building? I have to ask?" - Rick Sanchez
+Last updated: 2024-04-06 11:24:18
+Random Quote: Only when we’ve freed ourselves of emotion can we be truly free. Only when you’re willing to sacrifice what you hold dearest. - Adam
