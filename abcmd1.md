@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 10:10:24
-Random Quote: It was the white cloak that soiled me, not the other way around.  -  Jaime Lannister
+Last updated: 2024-04-06 10:10:58
+Random Quote: A queen must listen to all.  The highborn and the low, the strong and the weak, the noble and the venal.  One voice may speak you false, but in many there is always truth to be found.  -  Daenerys Targaryen
