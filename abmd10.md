@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 09:47:11
-Random Quote: Marshall: "The tiniest little burger joint you ever saw. Tucked between a taxidermist and a XXX bookstore."Barney: "Name two places where things get stuffed." - Barney Stinson
+Last updated: 2024-04-06 09:48:23
+Random Quote: Only Renly could vex me so with a piece of fruit.  He brought his doom on himself with his treason, but I did love him, Davos.  I know that now.  I swear, I will go to my grave thinking of my brother's peach.  -  Stannis Baratheon
