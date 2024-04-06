@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 12:14:13
-Random Quote: Omera: "You haven't shown your face to anyone since you were a kid?"Mando: "No. I was happy that they took me in. My parents were killed and the Mandalorians took care of me. This is the way." - Din Djarin
+Last updated: 2024-04-06 12:17:01
+Random Quote: He would see this country burn if he could be king of the ashes.  -  Varys
