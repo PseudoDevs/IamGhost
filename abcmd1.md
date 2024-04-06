@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 10:58:20
-Random Quote: Lily: "Anytime a single guy hangs out with a married woman there are rules that must be followed: Rule number one..."Barney: "Don't use the husband's condoms, that's just rude!" - Barney Stinson
+Last updated: 2024-04-06 10:58:53
+Random Quote: Sometimes it just feels better not to talk. At All. About Anything. To Anyone. - Walter White
