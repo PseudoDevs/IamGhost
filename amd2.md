@@ -1,3 +1,2 @@
-Last updated: 2024-04-06 10:18:43
-Random Quote: Dragon: "My name is Balthromaw. Breaker of skies, slayer of mountain."
-Rick: "Rule 1: You're now scooper of your own poops, or I will take you down like the black-light poster you are." - Rick Sanchez
+Last updated: 2024-04-06 10:19:16
+Random Quote: Lily: "I'm not paying for room service the hooker ordered."Barney: "I've been there." - Barney Stinson
