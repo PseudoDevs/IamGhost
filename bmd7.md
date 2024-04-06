@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 08:30:04
-Random Quote: Do you still trust people? Even after what you've been through? - Oh Il-nam
+Last updated: 2024-04-06 08:30:37
+Random Quote: Robert was never the same after he put on that crown.  Some men are like swords, made for fighting.  Hang them up and they go to rust.  -  Donal Noye
