@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 10:47:06
-Random Quote: Did Need Stark dress you like that?  Was it his pleasure to garb you in velvets and silks and make you his own sweet daughter?  -  Balon Greyjoy
+Last updated: 2024-04-06 10:48:12
+Random Quote: Ted, your throwing your life away. This girl is blinding you with her shiny hair and her boob-shaped boobs! - Barney Stinson
