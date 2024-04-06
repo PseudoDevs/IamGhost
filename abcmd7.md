@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 12:15:43
-Random Quote: Sometimes, even when you know something's a mistake, you gotta make it anyway. - Ted Mosby
+Last updated: 2024-04-06 12:16:16
+Random Quote: When you date someone, it's like you're taking one long course in who that person is and then, when you break up, all that stuff becomes useless. It's the emotional equivalent of an English degree... - Ted Mosby
