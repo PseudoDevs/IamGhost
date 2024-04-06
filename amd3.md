@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 08:36:38
-Random Quote: Zoey: "Don't worry Ted, she's cute."Barney: "'Cute' means 'fat'!"Zoey: "She's not fat."Barney: "'Not fat' means 'ugly'." - Barney Stinson
+Last updated: 2024-04-06 08:37:11
+Random Quote: Is it your fault that Bronn's an insolent black - hearted rogue?  He's always been an insolent black
