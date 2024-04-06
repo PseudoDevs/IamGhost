@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 09:44:21
-Random Quote: No tales were ever told of me.  Do you think I would be sitting here if it were otherwise?  Your amusements are your own, I will not chide you on that count, but you must be more discreet.  A peaceful land, a quiet people.  That has always been my rule.  Make it yours.  -  Roose Bolton
+Last updated: 2024-04-06 09:45:27
+Random Quote: It's like...It's like I'm a fucked-up-shit magnet. - Maria Ruiz
