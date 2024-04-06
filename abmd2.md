@@ -1,2 +1,3 @@
-Last updated: 2024-04-06 06:39:29
-Random Quote: I was wed three times and my wives gave me daughters.  Now only Beth remains to me.  My brother Martyn fathered four strong sons, yet only Jory lived to be a man.  When he was slain, Martyn's line died with him.  When we speak of the morrow nothing is ever certain.  -  Rodrik Cassel
+Last updated: 2024-04-06 06:40:02
+Random Quote: Robin: "I can't believe my great grandparents still do that."
+Barney: "And I never imagined a walker being used for anything other than walking." - Barney Stinson
