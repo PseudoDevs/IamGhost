@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 10:27:47
-Random Quote: Long distance is a lie teenagers tell each other to get laid the summer before college. - Ted Mosby
+Last updated: 2024-04-06 10:28:19
+Random Quote: I knew quite a few Jedi, you know. I don't know what they taught you about us, but there was a time we actually got along quite well. Fought side by side. - Bo-Katan
