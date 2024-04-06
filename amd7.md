@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 12:05:58
-Random Quote: It's not just football. It's life. - Cal Jacobs
+Last updated: 2024-04-06 12:06:32
+Random Quote: Place was overrun with rats when we moved in.  The spearwives killed the nasty buggers.  Now the place is overrun with spearwives.  There's days I want the rats back.  -  Dolorous Edd Tollett
