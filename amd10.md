@@ -1,6 +1,2 @@
-Last updated: 2024-04-06 11:15:24
-Random Quote: Polly: "Six."
-John: "Six what?"
-Polly: "Six questions since you walked through that door. Soon you'll have to start being the man with the answers."
-John: "Why?"
-Polly: "Seven." - Polly Gray
+Last updated: 2024-04-06 11:15:57
+Random Quote: As fun as this place is, it's late. So, what's our play? And don't say, "The Siamese Twins", we're not stretching out another one of my jackets! - Ted Mosby
