@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 07:09:19
-Random Quote: Barney: "Looks like that bee got busy."Ted: "Looks like that French maid didn't turn down somebody's bed."Marshall: "Oh, looks like Pocahontas has a couple of wounded knees." - Marshall Eriksen
+Last updated: 2024-04-06 07:09:53
+Random Quote: My lady, I have seen how you look at my brother.  Loras is valiant and handsome, and we all love him dearly... but your Imp will make a better husband.  He is a bigger man than he seems, I think.  -  Garlan Tyrell
