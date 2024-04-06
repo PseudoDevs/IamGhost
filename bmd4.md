@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 08:40:32
-Random Quote: Serve, Obey, Protect.  Simple vows for a simple man.  -  Areo Hotah
+Last updated: 2024-04-06 08:41:05
+Random Quote: There is no creature on earth half so terrifying as a truly just man.  -  Varys
