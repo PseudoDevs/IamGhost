@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 11:59:21
-Random Quote: Did Need Stark dress you like that?  Was it his pleasure to garb you in velvets and silks and make you his own sweet daughter?  -  Balon Greyjoy
+Last updated: 2024-04-06 11:59:54
+Random Quote: The most beautiful woman in the world has urgent need of my axe.  -  Victarion Greyjoy.
