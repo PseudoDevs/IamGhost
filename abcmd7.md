@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 11:14:50
-Random Quote: Spare me your empty little compliments, girl... and your ser's.  I am no knight.  I spit on them and their vows.  My brother is a knight.  -  Sandor Clegane
+Last updated: 2024-04-06 11:15:24
+Random Quote: I don't want to be good. I am going to be great. - Pablo Escobar
