@@ -1,5 +1,2 @@
-Last updated: 2024-04-06 06:57:15
-Random Quote: Morty: "I'm dying, Rick!"
-Rick: "People who are really dying don't keep bringing it up."
-Morty: "Is that true?"
-Rick: "I don't know. I'm just usually around people that die faster." - Rick Sanchez
+Last updated: 2024-04-06 06:57:49
+Random Quote: Damn it, Ted! I was about to drop some sweet word play about logarithms and getting into a rhythm with my log. - Barney Stinson
