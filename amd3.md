@@ -1,2 +1,3 @@
-Last updated: 2024-04-06 07:53:13
-Random Quote: Your heart's talking to you, Barney. Do you have the guts to listen to it? - Lily Aldrin
+Last updated: 2024-04-06 07:53:47
+Random Quote: Morty: "So, time moves faster in there? Is it like a Narnia thing?"
+Rick: "I'm not a beaver who believes in Jesus Christ, Morty. But yeah, it's pretty much a Narnia thing." - Rick Sanchez
