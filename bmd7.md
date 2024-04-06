@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 09:08:10
-Random Quote: I'm a good boyfriend in my sleep. I can rock a killer foot rub with one hand and brew a kick-ass pot of chamomile in the other, that would make you weep. Hell, I've forgotten more about microwaving fat-free popcorn and watching Sandra Bullock movies than you'll ever know, but: thanks for your concern, rook! - Marshall Eriksen
+Last updated: 2024-04-06 09:09:23
+Random Quote: Lord Seaworth is a man of humble birth, but he reminded me of my duty, when all I could think of was my rights.  I had the cart before the horse, Davos said.  I was trying to win the throne to save the kingdom, when I should have been trying to save the kingdom to win the throne.  -  Stannis Baratheon
