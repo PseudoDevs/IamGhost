@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 06:34:53
-Random Quote: Journey to face the unknown and ponder the question, "What if...?" - The Watcher
+Last updated: 2024-04-06 06:35:26
+Random Quote: I was weaned on venom, Dalt.  Any viper takes a bite of me will rue it.  -  Gerold Dayne
