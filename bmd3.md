@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 11:25:23
-Random Quote: Is she worth the pain? A man does not suffer like this for his own glory. There is a fine line between devotion and delusion. Love can break more than your heart. It can shatter your mind. - O-Bengh
+Last updated: 2024-04-06 11:25:56
+Random Quote: Don Eladio, look into Fring's eyes. There you will see the truth. The Chicken Man hates you. He is our enemy. He plots against us. I demand blood for blood. - Hector Salamanca
