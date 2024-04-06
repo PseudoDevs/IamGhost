@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 07:56:44
-Random Quote: Your lord father did not come to the wedding.  An insult, as I see it.  Even if he is dying.  He never came to my last wedding either.  He calls me the Late Lord Frey, you know.  Does he think I'm dead?  I'm not dead, and I promise you, I'lll outlive him as I outlived his father.  Your family has always pissed on me, don't deny it, don't lie, you know it's true.  -  Walder Frey
+Last updated: 2024-04-06 07:57:18
+Random Quote: I did it for me. I liked it. I was good at it. And I was really... I was alive. - Walter White
