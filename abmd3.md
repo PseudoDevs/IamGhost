@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 09:10:34
-Random Quote: The Mandalorian. His armor alone is worth more than my bounty. - Fennec Shand
+Last updated: 2024-04-06 09:11:44
+Random Quote: If you die before you say her name, Set, I will hunt you through the seven hells.  -  Oberyn Martell
