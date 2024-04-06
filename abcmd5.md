@@ -1,2 +1,4 @@
-Last updated: 2024-04-06 11:09:08
-Random Quote: That was the night I was born. I rose like a phoenix from her mentholated bosom and strode into the world, Armani-clad and fully awesome. - Barney Stinson
+Last updated: 2024-04-06 11:09:40
+Random Quote: Joel: "Where'd you get the money for this?"
+Sarah: "Drugs. I sell hardcore drugs."
+Joel: "It's better than what I do." - Joel Miller
