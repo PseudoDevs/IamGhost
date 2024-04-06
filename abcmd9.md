@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 06:47:53
-Random Quote: I have served six kings, but here before us lies the greatest man I ever knew.  Lord Tywin wore no crown, yet he was all a king should be.  -  Grand Maester Pycelle
+Last updated: 2024-04-06 06:48:26
+Random Quote: Well, I'm just gonna go jerk off then. For the 500th time today. - Larry Bloom
