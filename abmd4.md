@@ -1,3 +1,2 @@
-Last updated: 2024-04-06 11:31:51
-Random Quote: Morty: "So, time moves faster in there? Is it like a Narnia thing?"
-Rick: "I'm not a beaver who believes in Jesus Christ, Morty. But yeah, it's pretty much a Narnia thing." - Rick Sanchez
+Last updated: 2024-04-06 11:32:24
+Random Quote: The frightened child who sheltered in my manse died on the Dothraki Sea, and was reborn in blood and fire.  This dragon queen who wears her name is a true Targaryen.  -  Illyrio Mopatis

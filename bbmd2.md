@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 11:31:50
-Random Quote: A true man does what he will, not what he must.  -  Cersei Lannister
+Last updated: 2024-04-06 11:32:23
+Random Quote: Roose Bolton's cold and cunning, aye, but a man can deal with Roose.  We've all known worse.  But this bastard son of his... they say he's mad and cruel, a monster.  -  Locke
