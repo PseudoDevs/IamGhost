@@ -1,3 +1,2 @@
-Last updated: 2024-04-06 08:27:18
-Random Quote: The Deep: "What do we do? We can't just kill everyone."
-Billy Butcher: "That's exactly what we're gonna do!" - Billy Butcher
+Last updated: 2024-04-06 08:27:51
+Random Quote: I have won every battle, yet somehow I'm losing the war.  -  Robb Stark
