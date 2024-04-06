@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 10:17:38
-Random Quote: You were supposed to be my wife, to bear me children with silver hair and purple eyes, to keep the blood of the dragon pure.  I took care of you.  I taught you who you were.  I fed you.  I sold our mother's crown to keep you fed.  -  Viserys Targaryen
+Last updated: 2024-04-06 10:18:14
+Random Quote: Marshall, you being 18 isn't a bad thing. It just means you get to spend even more of your life with her. - Ted Mosby
