@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 08:52:10
-Random Quote: People are making apocalypse jokes like there's no tomorrow. - Will Livingston
+Last updated: 2024-04-06 08:52:47
+Random Quote: Barney: "Or it's a chance to mess with her head by showing up with someone hotter. Even better. Triple-threat: hotter and bigger boobs."Ted: "That's only two?"Barney: "Count again!" - Barney Stinson

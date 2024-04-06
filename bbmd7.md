@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 08:52:10
-Random Quote: You have your mother's common sense, but your father's devilment. I see them fighting. Let your mother win! - Polly Gray
+Last updated: 2024-04-06 08:52:47
+Random Quote: Robb, if that sword could bring him back, I should never let you sheathe it until Need stood at my side once more... but he is gone, and a hundred Whispering Woods will not change that.  -  Catelyn Stark
