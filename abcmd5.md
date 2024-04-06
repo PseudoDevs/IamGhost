@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 07:57:58
-Random Quote: Everything will be okay in the end. If it's not okay, it's not the end. - Yuk Je
+Last updated: 2024-04-06 07:58:31
+Random Quote: A ruler who hides behind paid executioners soon forgets what death is.  -  Eddard Stark
