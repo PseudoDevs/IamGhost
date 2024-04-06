@@ -1,4 +1,2 @@
-Last updated: 2024-04-06 07:34:58
-Random Quote: Joel: "You keep going for family."
-Ellie: "I'm not family?"
-Joel: "No. You're cargo." - Joel Miller
+Last updated: 2024-04-06 07:35:31
+Random Quote: I'm just saying, love is a million things. - Maddy Perez
