@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 08:10:14
-Random Quote: What the hell is the matter with you? You tryin' out for the retard Olympics? - George 'Pornstache' Mendez
+Last updated: 2024-04-06 08:10:47
+Random Quote: Sometimes you gotta do bad things to catch bad people. - Javier Pe�a
