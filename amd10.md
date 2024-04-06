@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 09:34:14
-Random Quote: Okay, I've missed you. Not in a "we're gonna make out" way, not even in an "I forgive you" way. Just in an "I've missed you" way. - Robin Scherbatsky
+Last updated: 2024-04-06 09:34:48
+Random Quote: I don't take nothin' a drug addict says personally. 'Cause I don't believe nothin' a drug addict say. - Fezco
