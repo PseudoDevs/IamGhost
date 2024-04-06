@@ -1,3 +1,2 @@
-Last updated: 2024-04-06 10:53:11
-Random Quote: Billy: "Halloween's a magical holiday. All about family, friends, and the thrill of getting to be someone else for a day."
-Tommy: "Wrong! Halloween's about candy. And scaring people, but mostly candy." - Tommy Maximoff
+Last updated: 2024-04-06 10:53:44
+Random Quote: The Mandalorian. His armor alone is worth more than my bounty. - Fennec Shand
