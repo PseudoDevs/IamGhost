@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 08:18:28
-Random Quote: Once a horse is broken to the saddle, any man can mount him.  Once a beast's been joined to a man, any skinchanger can slip inside and ride him.  Orell was withering inside his feathers, so I took the eagle for my own.  But the joining works both ways, warg.  Orell lives inside me now, whispering how much he hates you.  And I can soar above the Wall, and see with eagle eyes.  -  Varamyr Sixskins
+Last updated: 2024-04-06 08:19:02
+Random Quote: Ted: "You're like Mary Poppins, if her magic purse was also filled with drugs."Robin: "If? Ted, the kids in that movie jumped into a painting and spent 15 minutes chasing a cartoon fox. Spoonful of sugar? Grow Up!" - Robin Scherbatsky
