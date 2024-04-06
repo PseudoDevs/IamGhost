@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 06:56:02
-Random Quote: Barney: "You avoiding the family too?"James: "I'm gay, I'm black and I'm getting a divorce. Those walking skeletons are gonna have more questions for me than their pharmacists." - James Stinson
+Last updated: 2024-04-06 06:56:35
+Random Quote: Bear Island knows no king save the King in the North, whose name is Stark.  -  Lyanna Mormont
