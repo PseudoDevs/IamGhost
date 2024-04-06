@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 09:07:38
-Random Quote: I didn't give up on my dream house, because that's the thing about stupid decisions - we all make them, but time is funny and sometimes a little magical. It can take a stupid decision, and turn it into something else entirely. - Ted Mosby
+Last updated: 2024-04-06 09:08:12
+Random Quote: Small wonder that the Seven Kingdoms thought the free folk scarcely human.  They have no laws, no honor, not even simple decency.  They steal endlessly from each other, breed like beasts, prefer rape to marriage, and fill the world with baseborn children.  Yet he was growing fond of Tormund Giantsbane, great bag of wind and lies though he was.  -  Jon Snow
