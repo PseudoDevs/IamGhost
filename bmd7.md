@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 09:03:40
-Random Quote: Listen, Morty. I hate to break it to you, but what people call 'Love' is just a chemical reaction that compells animals to breed. It hits hard, Morty, then it slowly fades. - Rick Sanchez
+Last updated: 2024-04-06 09:04:14
+Random Quote: My father knew the worth of Howland Reed.  -  Robb Stark
