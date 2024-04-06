@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 08:11:57
-Random Quote: Now my bastards presume to teach me courtesy.  I'll speak any way I like, damn you.  I've had three kings to guest in my life, and queens as well, do you think I require lessons from the likes of you, Ryger?  Your mother was milking goats the first time I gave her my seed.  -  Walder Frey
+Last updated: 2024-04-06 08:12:30
+Random Quote: It was the white cloak that soiled me, not the other way around.  -  Jaime Lannister
