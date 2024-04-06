@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 08:12:52
-Random Quote: I've known good criminals and bad cops. Bad priests, honorable thieves. You can be on one side of the law or the other. But if you make a deal with somebody, you keep your word. You can go home today with your money and never do this again. But you took something that wasn't yours. And you sold it for a profit. You're now a criminal. Good one, bad one? That's up to you. - Mike Ehrmantraut
+Last updated: 2024-04-06 08:13:26
+Random Quote: This is New York City, don't get close to the neighbours. You nod at them politely in the hall, you call the cops if you haven't seen them in a while and you smell something funny and that's it! - Ted Mosby
