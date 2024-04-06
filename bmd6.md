@@ -1,2 +1,3 @@
-Last updated: 2024-04-06 09:11:45
-Random Quote: I did it for me. I liked it. I was good at it. And... I was really... I was alive. - Walter White
+Last updated: 2024-04-06 09:12:20
+Random Quote: Billy: "Halloween's a magical holiday. All about family, friends, and the thrill of getting to be someone else for a day."
+Tommy: "Wrong! Halloween's about candy. And scaring people, but mostly candy." - Tommy Maximoff
