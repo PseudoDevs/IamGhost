@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 08:50:53
-Random Quote: If you don't like where you're heading, there's no shame in going back and changing your path. - Chuck McGill
+Last updated: 2024-04-06 08:51:32
+Random Quote: You are slow to learn, Lord Eddard.  Distrusting me was the wisest thing you've don since you climbed down off your horse.  -  Petyr Baelish
