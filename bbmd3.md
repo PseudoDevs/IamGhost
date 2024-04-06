@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 09:32:28
-Random Quote: What is dead may never die, but rises again, harder and stronger  -  Words of the Drowned God
+Last updated: 2024-04-06 09:33:02
+Random Quote: Robert could piss in a cup and men would call it wine, but I offer them cold clear water and they squint in suspicion and mutter to each other about how queer it tastes.  -  Stannis Baratheon
