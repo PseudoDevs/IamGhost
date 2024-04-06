@@ -1,4 +1,2 @@
-Last updated: 2024-04-06 08:05:06
-Random Quote: Greef: "Nevarro is a very fine planet. And now that the scum and villainy have been washed away, it's very respectable again."
-Mando: "As a bounty hunter hive?"
-Greef: "Some of my favorite people are bounty hunters." - Greef Karga
+Last updated: 2024-04-06 08:05:40
+Random Quote: It is for my prince to command, for Hotah to obey.  -  Areo Hotah
