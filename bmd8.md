@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 07:29:18
-Random Quote: You have to be as bad as them above in order to survive. - Polly Gray
+Last updated: 2024-04-06 07:29:51
+Random Quote: Place was overrun with rats when we moved in.  The spearwives killed the nasty buggers.  Now the place is overrun with spearwives.  There's days I want the rats back.  -  Dolorous Edd Tollett
