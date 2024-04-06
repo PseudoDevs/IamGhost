@@ -1,2 +1,3 @@
-Last updated: 2024-04-06 07:00:27
-Random Quote: You could help a friend, but instead you're choosing the hot girl in the tight tank-top. Your training is complete, I'm so proud of this kid! - Barney Stinson
+Last updated: 2024-04-06 07:01:00
+Random Quote: Lily: "We're going to Atlantic City to elope - right now!"
+Barney: "Oh, congratulations Lily! Marshall, you're getting married? What the hell?" - Barney Stinson
