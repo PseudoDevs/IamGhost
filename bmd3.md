@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 09:27:42
-Random Quote: If you die before you say her name, Set, I will hunt you through the seven hells.  -  Oberyn Martell
+Last updated: 2024-04-06 09:28:15
+Random Quote: I feel like love is super dark and no one ever talks about it. - Cassie Howard
