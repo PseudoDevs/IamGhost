@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 08:40:24
-Random Quote: To have power does not mean that one can abuse the poor. - Pablo Escobar
+Last updated: 2024-04-06 08:40:58
+Random Quote: Gloria: "It seemd like all what we did was fight and make love. One time, I'm not kidding you, we fell out of the window together."Jay: "Which one were you doing?" - Jay Pritchett
