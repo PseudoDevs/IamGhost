@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 07:18:56
-Random Quote: Pennsatucky: "It weren't my fault. I was just doing as the Spirit commanded."Pussey: "Fuck are you? Joan of Arc?"Pennsatucky: "No, I'm from Waynesboro, my name is Tiffany..." - Tiffany 'Pennsatucky' Doggett
+Last updated: 2024-04-06 07:19:29
+Random Quote: The Mandalorian. His armor alone is worth more than my bounty. - Fennec Shand
