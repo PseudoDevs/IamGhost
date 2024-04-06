@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 08:45:32
-Random Quote: You have courage.  Not battle courage perhaps but... I don't know... a kind of woman's courage.  -  Brienne of Tarth
+Last updated: 2024-04-06 08:46:05
+Random Quote: A wolf is not a kraken.  What the kraken grasps it does not lose, be it longship or leviathan.  -  Victarion Greyjoy
