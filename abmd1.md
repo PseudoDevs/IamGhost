@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 06:42:26
-Random Quote: Walter Jr., you’re my big man. There are going to be some things that you’ll come to learn about me in the next few days. But just know that no matter how it may look, I only had you in my heart. Goodbye! - Walter White
+Last updated: 2024-04-06 06:42:59
+Random Quote: I feel like you ruined me forever. - Maddy Perez
