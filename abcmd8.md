@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 07:56:23
-Random Quote: Khaleesi, better a man should swallow scorpions than trust in the spawn of shadows, who dare not show their face beneath the sun.  It is known.  -  Rakharo
+Last updated: 2024-04-06 07:56:56
+Random Quote: If you think this has a happy ending, you haven't been paying attention.  -  Ramsay Bolton
