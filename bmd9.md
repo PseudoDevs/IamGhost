@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 08:50:21
-Random Quote: This guy he's done everything right. He's been loving and devoted since he was 18 years old. There are only a few truly great people on this planet and he is one of them. - Barney Stinson
+Last updated: 2024-04-06 08:50:55
+Random Quote: The Crow's Eye brought back monsters from the east... aye, and wizards too.  -  Tristifer Botley
