@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 07:23:01
-Random Quote: I am scared, 'cause I don't know how to fly. But you're there at the bottom of the slide to catch me when I fall. - Hannah Baker
+Last updated: 2024-04-06 07:23:33
+Random Quote: I have served six kings, but here before us lies the greatest man I ever knew.  Lord Tywin wore no crown, yet he was all a king should be.  -  Grand Maester Pycelle
