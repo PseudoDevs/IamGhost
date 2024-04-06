@@ -1,4 +1,2 @@
-Last updated: 2024-04-06 09:08:39
-Random Quote: Joel: "You keep going for family."
-Ellie: "I'm not family?"
-Joel: "No. You're cargo." - Joel Miller
+Last updated: 2024-04-06 09:09:13
+Random Quote: In the end, one cares about many things, and we should not give so much importance to things. - Professor
