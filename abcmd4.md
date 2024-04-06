@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 12:14:50
-Random Quote: If you want my advice? Get out of your own goddamn drama for a minute. - Nicky Nichols
+Last updated: 2024-04-06 12:15:23
+Random Quote: Old gods or new, it makes no matter, no man is so accursed as the kinslayer.  -  Rickard Karstark
