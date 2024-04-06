@@ -1,3 +1,2 @@
-Last updated: 2024-04-06 08:28:06
-Random Quote: Jessica: "I miss you."
-Morty: "You miss the old me. You miss someone that loved you so much, you never had to love him back." - Morty Smith
+Last updated: 2024-04-06 08:28:39
+Random Quote: When you start moving furniture around, people stub their toes and get upset. - Don Neto
