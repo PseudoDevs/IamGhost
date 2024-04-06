@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 07:16:06
-Random Quote: I would very much like to return your witty banter, but I am too exhausted to be clever. - Galina 'Red' Reznikov
+Last updated: 2024-04-06 07:16:39
+Random Quote: If you think this has a happy ending, you haven't been paying attention.  -  Ramsay Bolton
