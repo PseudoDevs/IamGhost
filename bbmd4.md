@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 10:01:02
-Random Quote: I mean she just walked out. At least when I walk out on a girl I have the common courtesy to sleep with her first. It's called manners! - Barney Stinson
+Last updated: 2024-04-06 10:01:38
+Random Quote: Women aren't soldiers, and they sure as hell don't fight on the front lines. They might break a nail. - John Flynn
