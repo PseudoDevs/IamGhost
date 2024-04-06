@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 07:05:21
-Random Quote: Marshall: "The last time I lived this far from him, was my semester abroad."Lily: "You never did a semester abroad?"Marshall: "That's what I called it, when we lived on opposite sides of the campus." - Marshall Eriksen
+Last updated: 2024-04-06 07:05:58
+Random Quote: This is New York City, don't get close to the neighbours. You nod at them politely in the hall, you call the cops if you haven't seen them in a while and you smell something funny and that's it! - Ted Mosby
