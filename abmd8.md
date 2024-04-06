@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 06:50:36
-Random Quote: Not only are you wrong... but you are belligerently sticking to your guns and insulting me in the process. Robin Scherbatsky, you are an American. - Barney Stinson
+Last updated: 2024-04-06 06:51:10
+Random Quote: Know the men who follow you and let them know you.  Don't ask your men to die for a stranger.  -  Eddard Stark
