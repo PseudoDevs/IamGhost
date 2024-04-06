@@ -1,2 +1,3 @@
-Last updated: 2024-04-06 10:36:09
-Random Quote: Sometimes it just feels better not to talk. At All. About Anything. To Anyone. - Walter White
+Last updated: 2024-04-06 10:36:42
+Random Quote: Summer: "I think it's in our best interest to work as a team."
+Morty: "Yeah, most people would call that 'family'." - Morty Smith
