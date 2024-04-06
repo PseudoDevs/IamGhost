@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 09:36:43
-Random Quote: I've got to find a way to introduce some wood into Bilson's dark atrium. I think you know what I meant. - Ted Mosby
+Last updated: 2024-04-06 09:37:16
+Random Quote: The septons preach about the seven hells.  What do they know?  Only a man who's been burned knows what hell is truly like.  -  Sandor Clegane
