@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 08:22:51
-Random Quote: Jerry: "I wish that shotgun was my penis."Beth: "If it were, you could call me Ernest Hemingway." - Beth Smith
+Last updated: 2024-04-06 08:23:24
+Random Quote: We're done when I say we're done. - Walter White
