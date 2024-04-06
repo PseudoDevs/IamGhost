@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 09:03:50
-Random Quote: A man lives three lives. The first one ends with the loss of naivety, the second, with the loss of innocence and the third… with the loss of life itself. It’s inevitable that we go through all three stages. - Adam
+Last updated: 2024-04-06 09:04:25
+Random Quote: I've had shits that I've liked better than Walder Frey.  -  Brynden Tully
