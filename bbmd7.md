@@ -1,3 +1,2 @@
-Last updated: 2024-04-06 10:45:59
-Random Quote: Larissa: "So you automatically assume a Nevermore student is the murderer, even though there's no evidence a crime was even committed."
-Donovan: "I'm sorry. I forgot, you only teach the good outcasts here, right?" - Donovan Galpin
+Last updated: 2024-04-06 10:46:33
+Random Quote: You are the love of my life. Everything I have and everything I am is yours. Forever. - Barney Stinson
