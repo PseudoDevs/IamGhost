@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 07:48:21
-Random Quote: I’m not saying it’s not bad. It’s bad. But it could be worse. - Saul Goodman
+Last updated: 2024-04-06 07:49:28
+Random Quote: Bronn was no knight, that was true.  Bronn was a battle - hardened killer. 
