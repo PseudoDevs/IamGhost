@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 11:53:20
-Random Quote: Robin: "I'm such a mess. Why do you even like me?"Barney: "I guess cause you're almost as messed up as I am." - Barney Stinson
+Last updated: 2024-04-06 11:53:53
+Random Quote: Cum is kind of like a penis having a sneeze. Ugh, that means when you swallow someone's cum, it's like eating their snot. - Aimee Gibbs
