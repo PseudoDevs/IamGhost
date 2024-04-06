@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 07:32:47
-Random Quote: God wasn't protecting you. The kid had shitty aim. - Grace Young
+Last updated: 2024-04-06 07:33:21
+Random Quote: Once, she had loved Prince Joffrey with all her heart, and admired and trusted his mother, the queen.  They had repaid that love and trust with her father's head.  Sansa would never make that mistake again.  -  Sansa Stark
