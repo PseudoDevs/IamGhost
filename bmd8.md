@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 07:34:52
-Random Quote: Ted: "It's the Drunk Train! You crossed out all the stops and wrote Vagina-Ville."Barney: "That's not true. That one says Boner Gardens." - Barney Stinson
+Last updated: 2024-04-06 07:35:25
+Random Quote: Folly and desperation are ofttimes hard to tell apart.  -  Maester Luwin
