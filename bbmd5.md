@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 07:05:40
-Random Quote: There is a savage beast in every man, and it stirs when you put a sword in his hand.  -  Jorah Mormont
+Last updated: 2024-04-06 07:06:13
+Random Quote: I asked him why he kept her close, if he thought her so grotesque.  He said that all his other knights wanted things of him, castles or honors or riches, but all that Brienne wanted was to die for him.  -  Loras Tyrell
