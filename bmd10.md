@@ -1,3 +1,2 @@
-Last updated: 2024-04-06 10:56:04
-Random Quote: Jay: "I got you a little gift to celebrate. I know it’s not much...-"
-Gloria: "It’s practically nothing!" - Gloria Pritchett
+Last updated: 2024-04-06 10:56:37
+Random Quote: When the snows fall and the white winds blow, the lone wolf dies, but the pack survives.  -  Eddard Stark
