@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 07:16:28
-Random Quote: A man will tell you poison is dishonorable, but a woman's honor is different.  The Mother shaped us to protect our children, and our only dishonor is failure.  -  Lysa Arryn
+Last updated: 2024-04-06 07:17:01
+Random Quote: Godless?  Why, Aeron, I am the godliest man ever to raise sail!  You serve one god, Damphair, but I have served ten thousand.  From Ib to Asshai, when men see my sails, they pray.  -  Euron Greyjoy
