@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 08:20:42
-Random Quote: Sometimes people make decisions, shit happens, and we gotta act accordingly. - Marty Byrde
+Last updated: 2024-04-06 08:21:15
+Random Quote: I knew Brienne when she was no more than a girl playing at her father's feet in Evenfall Hall, and I knew her still better when the Evenstar sent her here to Storm's End.  She loved Renly Baratheon from the first moment she laid eyes on him, a blind man could see it.  -  Cortnay Penrose
