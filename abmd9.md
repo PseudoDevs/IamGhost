@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 06:49:29
-Random Quote: Wherein I suggested that you take your head and store it within yourself, in a fashion that, while space-saving, might limit its exposure to sunshine. - Marshall Eriksen
+Last updated: 2024-04-06 06:50:03
+Random Quote: Think of me as Yoda - only, instead of being little and green, I wear suits and I'm awesome. I'm your bro. I'm Broda. - Barney Stinson

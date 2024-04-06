@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 06:49:29
-Random Quote: Let them keep believing I'm dead. So much the better. It was the chicken man. That coward sat up there in the north while his paramilitaries came into my home. - Lalo Salamanca
+Last updated: 2024-04-06 06:50:03
+Random Quote: You know nothing, Jon Snow.  -  Ygritte
