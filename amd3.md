@@ -1,2 +1,3 @@
-Last updated: 2024-04-06 08:21:05
-Random Quote: You ever hear about Wall Street, Morty? You know what those guys do in their fancy boardrooms? They take their balls and they dip them in cocaine and wipe them all over each other. - Rick Sanchez
+Last updated: 2024-04-06 08:21:39
+Random Quote: Morty: "What are they mad at you for, anyway?"
+Rick: "Well, we're talking about me. It could be anything." - Rick Sanchez
