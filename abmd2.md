@@ -1,4 +1,2 @@
-Last updated: 2024-04-06 11:32:36
-Random Quote: Rick: "Wait a minute! Is that Mountain Dew in my quantum-transport-solution?"
-Morty: "I saw you were marking the level so I had to top it off."
-Rick: "Top it off? Do you know how dangerously toxic this stuff is? And you added it to my portal fluid?" - Rick Sanchez
+Last updated: 2024-04-06 11:33:42
+Random Quote: No tales were ever told of me.  Do you think I would be sitting here if it were otherwise?  Your amusements are your own, I will not chide you on that count, but you must be more discreet.  A peaceful land, a quiet people.  That has always been my rule.  Make it yours.  -  Roose Bolton
