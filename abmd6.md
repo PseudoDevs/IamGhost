@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 11:50:21
-Random Quote: .OkaySomebody's got to teach this kid to swear, it's embarrassing. - Meemaw
+Last updated: 2024-04-06 11:50:54
+Random Quote: My real father died in King's Landing.  I made a choice, and I chose wrong.  -  Theon Greyjoy
