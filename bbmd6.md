@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 09:40:42
-Random Quote: It's only once you've stopped, that you realize how hard it is to start again. So you force yourself not to want it. - Ted Mosby
+Last updated: 2024-04-06 09:41:17
+Random Quote: No voting, no debate. It's not a democracy - it's a Rickpublic! - Summer Smith
