@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 07:30:31
-Random Quote: Lily: "Anytime a single guy hangs out with a married woman there are rules that must be followed: Rule number one..."Barney: "Don't use the husband's condoms, that's just rude!" - Barney Stinson
+Last updated: 2024-04-06 07:31:04
+Random Quote: Your story is so sweet. You didn't even kiss 'til the third date. By our third date, I hit more bases than Bob Hope on a USO tour. - Barney Stinson
