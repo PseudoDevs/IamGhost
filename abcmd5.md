@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 08:13:34
-Random Quote: That's the weird thing about the Internet. Ten people can feel like the whole world. - Rue Bennett
+Last updated: 2024-04-06 08:14:07
+Random Quote: A man will tell you poison is dishonorable, but a woman's honor is different.  The Mother shaped us to protect our children, and our only dishonor is failure.  -  Lysa Arryn
