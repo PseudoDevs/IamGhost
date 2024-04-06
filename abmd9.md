@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 07:20:59
-Random Quote: Sorry, got caught up again. God, do I need to take more Adderall or am I taking too much Adderall? - Rick Sanchez
+Last updated: 2024-04-06 07:21:32
+Random Quote: My lady, I have seen how you look at my brother.  Loras is valiant and handsome, and we all love him dearly... but your Imp will make a better husband.  He is a bigger man than he seems, I think.  -  Garlan Tyrell
