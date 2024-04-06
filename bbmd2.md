@@ -1,2 +1,4 @@
-Last updated: 2024-04-06 11:21:20
-Random Quote: Marshall Eriksen, put a baby in my belly. - Lily Aldrin
+Last updated: 2024-04-06 11:21:53
+Random Quote: Ellie: "Can I have a gun?"
+Joel: "Absolutely not."
+Ellie: "Okay, Jesus. Fine. I'll have to throw a f-ckin' sandwich at them." - Ellie Williams
