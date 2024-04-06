@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 09:01:29
-Random Quote: Mitchell: "we've decided we really wanted to have a baby so, we initially asked one of our lesbian friends to be a surrogate."Cameron: "Then we figured, they already mean enough, can you imagine one of them pregnant?" - Cameron Tucker
+Last updated: 2024-04-06 09:02:05
+Random Quote: I've had shits that I've liked better than Walder Frey.  -  Brynden Tully
