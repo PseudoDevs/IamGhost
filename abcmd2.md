@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 07:50:54
-Random Quote: From experience, it often takes a new perspective before one is able to see the light. - Elia Kane
+Last updated: 2024-04-06 07:51:28
+Random Quote: I only have one rule. For every three 10's you bang, throw a bone to a 5. They're grateful and hard working and let's face it, sometimes you just want to lay there. - Barney Stinson
