@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 06:52:41
-Random Quote: I dreamed of the man who came today, the one they call Reek.  You and your brother lay dead at his feet, and he was skinning off your faces with a long red blade.  -  Jojen Reed
+Last updated: 2024-04-06 06:53:14
+Random Quote: Ted, no! You never break up a girl fight! Never! - Barney Stinson
