@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 09:30:11
-Random Quote: Kids, you may think your only choices are to swallow your anger or throw it in someone's face, but there's a third option: You can just let it go, and only when you do that is it really gone and you can move forward. - Ted Mosby
+Last updated: 2024-04-06 09:30:45
+Random Quote: What do a bunch o' bloody peasants know about a lord's honor?  We know some about murder, though.  -  Lem Lemoncloak
