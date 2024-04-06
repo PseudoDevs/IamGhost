@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 12:15:53
-Random Quote: My daughter has taken an axe for a lover.  I will not have my son bedeck himself like a whore.  It is as I feared.  The green lands have made you soft, and the Starks have made you theirs.  -  Balon Greyjoy
+Last updated: 2024-04-06 12:16:27
+Random Quote: Ted: "In a city of eight million people, you happened to walk into the club where she works? Maybe it's destiny."Barney: "No, Destiny strips at 'The Melon Patch'. They're people, Ted. Try to keep them straight!" - Barney Stinson
