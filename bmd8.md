@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 09:41:41
-Random Quote: Fine I'll fill her in and I am so angry I am not even goin' to make a joke about "filling her in"... which I did three times last night. Self-five! - Barney Stinson
+Last updated: 2024-04-06 09:42:14
+Random Quote: That's where The Boys come in: Spank the bastards when they get out of line. - Billy Butcher
