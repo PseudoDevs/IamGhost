@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 07:26:39
-Random Quote: Barney: "Before you know it, you'll be marrying a man who once ate a vanilla-scented candle!"Robin: "That was on me. I shouldn't have left it in the kitchen. Though, it was lit. Man, he dumb." - Robin Scherbatsky
+Last updated: 2024-04-06 07:27:12
+Random Quote: I'll have to take a page from Robert's book, not that he ever read one.  -  Stannis Baratheon
