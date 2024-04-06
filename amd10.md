@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 09:01:29
-Random Quote: Sometimes we have to let things go because we can't keep them forever. - Maura Franklin
+Last updated: 2024-04-06 09:02:40
+Random Quote: The Lord of Light cherishes the innocent.  There is no sacrifice more precious.  From his king's blood and his untainted fire, a dragon shall be born.  -  Melisandre
