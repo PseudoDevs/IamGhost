@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 09:21:08
-Random Quote: I was pretending to be someone I am not which I should only be doing on stage. - Devi Vishwakumar
+Last updated: 2024-04-06 09:21:42
+Random Quote: The Old Gods have no power in the south.  The weirwoods there were all cut down, thousands of years ago.  -  Osha
