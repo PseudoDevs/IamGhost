@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 11:03:09
-Random Quote: The gods be damned.  It was a hollow victory they gave me.  A crown... it was the girl I prayed them for.  Your sister, safe... and mine again, as she was meant to be.  I ask you, Need, what good is it to wear a crown?  The gods mock the prayers of kings and cowherds alike.  -  Robert Baratheon
+Last updated: 2024-04-06 11:03:42
+Random Quote: You give me one hour of phone-free bro time, during which we, and by we I mean you, get magnificently, mythologically drunk. I'm talking needing-subtitles-when-you-speak drunk. - Barney Stinson
