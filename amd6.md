@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 11:36:48
-Random Quote: Robin: "Ted, are you acting out the last scene of 'Sleepless in Seattle' with little dolls?"Ted: "How long have you been out here?"Robin: "Ten seconds."Ted: "Yeah - just the last scene." - Robin Scherbatsky
+Last updated: 2024-04-06 11:37:22
+Random Quote: I learned form Set Arthur Dayne, the Sword of the Morning, who could have slain all five of you with his left hand while he was taking a piss with the right.  -  Jaime Lannister
