@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 08:52:47
-Random Quote: In short, the god mankind has prayed to for thousands of years the god that everything is bound with, this god exists as nothing other than time itself. - 
+Last updated: 2024-04-06 08:54:04
+Random Quote: I only have one rule. For every three 10's you bang, throw a bone to a 5. They're grateful and hard working and let's face it, sometimes you just want to lay there. - Barney Stinson
