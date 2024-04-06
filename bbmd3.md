@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 07:04:44
-Random Quote: Silver or lead. You decide. - Pablo Escobar
+Last updated: 2024-04-06 07:05:59
+Random Quote: The septons preach about the seven hells.  What do they know?  Only a man who's been burned knows what hell is truly like.  -  Sandor Clegane
