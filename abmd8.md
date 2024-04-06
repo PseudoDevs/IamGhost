@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 09:41:22
-Random Quote: Your pain defines who you are but it no longer holds power on you - Noah
+Last updated: 2024-04-06 09:41:56
+Random Quote: We all face the same end. Those above have long forgotten us. They do not judge us. In death, I am all alone, and my only judge… is me. - Martha
