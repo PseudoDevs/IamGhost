@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 09:13:31
-Random Quote: That was the night I was born. I rose like a phoenix from her mentholated bosom and strode into the world, Armani-clad and fully awesome. - Barney Stinson
+Last updated: 2024-04-06 09:15:16
+Random Quote: The pain is his vessel, desire his compass. It is all that man is capable of. - 
