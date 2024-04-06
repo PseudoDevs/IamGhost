@@ -1,2 +1,3 @@
-Last updated: 2024-04-06 11:31:29
-Random Quote: When you date someone, it's like you're taking one long course in who that person is and then, when you break up, all that stuff becomes useless. It's the emotional equivalent of an English degree... - Ted Mosby
+Last updated: 2024-04-06 11:32:02
+Random Quote: Enid Sinclair: "Want to take a stab at being social?"
+Wednesday: "I do like stabbing. The social part, not so much." - Wednesday Addams
