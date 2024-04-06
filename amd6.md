@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 12:01:04
-Random Quote: Quinn: "In the event of divorce, Miss Garvey shall get full custody of Mr. Stinson's suits."Barney: "Why? What would you do with them?"Quinn: "Nothing. I'd just sit around and watch them go out of style." - Quinn Garvey
+Last updated: 2024-04-06 12:01:38
+Random Quote: Long distance is a lie teenagers tell each other to get laid the summer before college. - Ted Mosby
