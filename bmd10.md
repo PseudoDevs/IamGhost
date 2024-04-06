@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 10:15:34
-Random Quote: I'm pretty much the master of handling things completely wrong. - Alex Vause
+Last updated: 2024-04-06 10:16:39
+Random Quote: The Crow's Eye brought back monsters from the east... aye, and wizards too.  -  Tristifer Botley
