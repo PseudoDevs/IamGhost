@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 07:42:13
-Random Quote: I've had shits that I've liked better than Walder Frey.  -  Brynden Tully
+Last updated: 2024-04-06 07:43:54
+Random Quote: What do a bunch o' bloody peasants know about a lord's honor?  We know some about murder, though.  -  Lem Lemoncloak
