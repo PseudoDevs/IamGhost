@@ -1,3 +1,2 @@
-Last updated: 2024-04-06 07:15:24
-Random Quote: Ravonna: "You really believe in this Loki variant?"
-Mobius: "Luckily, he believes in himself enough for the both of us." - Mobius M. Mobius
+Last updated: 2024-04-06 07:15:58
+Random Quote: A true man does what he will, not what he must.  -  Cersei Lannister
