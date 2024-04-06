@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 11:59:46
-Random Quote: Marshall: "Are you sure this poo-poo didn't happen on your watch and you just ran out the clock until it was my problem?"Lily: "Oh, yeah. Yeah, yeah, right. What kind of mother lets her son sit in his own filth for an extra nine minutes and 42 seconds?" - Lily Aldrin
+Last updated: 2024-04-06 12:00:19
+Random Quote: Barney: "Let me choose your child's middle name! Because I have thought up the most awesome name of all time."Marshall: "What's the middle name?"Barney: "Wait for it."Marshall: "I'm waiting."Barney: "Wait for it."Marshall: "I said I'm waiting."Barney: "Wait for it."Marshall: "What's the middle name?"Barney: "No, the middle name is 'Wait For It'. Let's say his first name is, oh, I don't know, 'Barney'. He'd be Barney 'Wait For It' Eriksen. How awesome is that?" - Barney Stinson

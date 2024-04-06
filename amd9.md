@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 11:59:46
-Random Quote: What is honor compared to a woman's love?  What is duty against the feel of a newborn son in your arms, or the memory of a brother's smile.  Wind and words.  Wind and words.  We are only human, and the gods have fashioned us for love.  That is our great glory and our great tragedy.  -  Aemon Targaryen
+Last updated: 2024-04-06 12:00:19
+Random Quote: It doesn't matter how much you push the envelope, it'll still be stationery. - Will Livingston
