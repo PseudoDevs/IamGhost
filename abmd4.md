@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 07:49:57
-Random Quote: A lie is just a great story that someone ruined with the truth. - Barney Stinson
+Last updated: 2024-04-06 07:50:34
+Random Quote: The absolute worst part of depression is that even though you know you're depressed, You're unable to stop yourself from getting worse. - Rue Bennett
