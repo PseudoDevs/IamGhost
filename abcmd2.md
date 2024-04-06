@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 10:38:19
-Random Quote: Ted: "I thought you said you got rid of everything your ex-boyfriends gave you?"Robin: "Well yeah, but not my dogs."Ted: "You said everything."Robin: "But not living things."Ted: "Tell that to the rare bolivian cactus i threw away!" - Ted Mosby
+Last updated: 2024-04-06 10:38:53
+Random Quote: What is the cost of lies? It's not that we mistake them for the truth. The real danger is that if we hear enough lies, then we no longer recognize the truth at all. - Valery Legasov

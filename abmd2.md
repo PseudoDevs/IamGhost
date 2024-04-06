@@ -1,5 +1,2 @@
-Last updated: 2024-04-06 10:38:20
-Random Quote: Therapist: "You need to stop doing these weird things. Go out sometime."
-Klaus: "I went to the park today."
-Therapist: "There you go! I hope you got something from that."
-Klaus: "[Opens up coat] This duck." - Klaus Hargreeves
+Last updated: 2024-04-06 10:38:53
+Random Quote: Sorry, got caught up again. God, do I need to take more Adderall or am I taking too much Adderall? - Rick Sanchez

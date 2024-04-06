@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 10:38:19
-Random Quote: I'm not him, I'm not the turncloak, he died at Winterfell.  My name is Reek.  It rhymes with freak.  -  Reek
+Last updated: 2024-04-06 10:38:53
+Random Quote: Send him to Belize? I'll send YOU to Belize. - Walter White
