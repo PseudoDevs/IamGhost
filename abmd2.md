@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 11:30:55
-Random Quote: We should have never gotten on this ship. It was a mistake. All of it, a huge mistake. - Yuk Je
+Last updated: 2024-04-06 11:32:02
+Random Quote: Oh, Cersei is lovely to look at, truly, but cold... the way she guards her cunt, you'd think she had all the gold of Casterly Rock between her legs.  -  Robert Baratheon
