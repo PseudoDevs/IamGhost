@@ -1,3 +1,2 @@
-Last updated: 2024-04-06 08:32:55
-Random Quote: Joel: "A deep breath in, slow breath out. You squeeze the trigger like you love it. Gentle, steady, nice and slow."
-Ellie: "You gonna shoot this thing or get it pregnant?" - Ellie Williams
+Last updated: 2024-04-06 08:33:28
+Random Quote: When I get sad, I stop being sad and be awesome instead. True Story. - Barney Stinson
