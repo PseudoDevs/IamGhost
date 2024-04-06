@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 06:56:23
-Random Quote: In all the world, violent men are the easiest to deal with. - Irene O'Donnell
+Last updated: 2024-04-06 06:56:59
+Random Quote: Lord Varys, sometimes I feel as though you are the best friend I have in King's Landing and sometimes I feel you are my worst enemy.  -  Tyrion Lannister

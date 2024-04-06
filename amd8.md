@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 06:55:07
-Random Quote: You want to rule?  This is what ruling is; lying on a bed of weeds, ripping them out by the root, one by one, before they strangle you in your sleep.  -  Cersei Lannister
+Last updated: 2024-04-06 06:56:59
+Random Quote: You all know exactly who I am. Say my name. - Walter White
