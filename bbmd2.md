@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 11:46:10
-Random Quote: I watched Jane die. I was there. And I watched her die. - Walter White
+Last updated: 2024-04-06 11:46:43
+Random Quote: Did you think your dad was the only Mandalorian? - Bo-Katan
