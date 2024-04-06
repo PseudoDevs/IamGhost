@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 11:23:59
-Random Quote: When things go well, people start thinking it's because they're so fing smart. - Walt Breslin
+Last updated: 2024-04-06 11:24:32
+Random Quote: Better the butcher than the meat.  All kings are butchers.  Are queens so different?  -  Daario Naharis
