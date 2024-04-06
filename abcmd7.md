@@ -1,6 +1,2 @@
-Last updated: 2024-04-06 10:42:48
-Random Quote: Morty: "Rick, when you say you made an exact replica of the house, did you mean, like, an exact replica?"
-Rick: "I know about the Yosemite T-Shirt, Morty."
-Morty: "Shit."
-Rick: "You know you can use tissues, right?"
-Morty: "I can't finish without it!" - Morty Smith
+Last updated: 2024-04-06 10:43:21
+Random Quote: Summer: "It is a hot photo. I think grief flushes her cheeks. Dad, you hardly put any sirup on."Beth: "Honey, stop raising your father's colesterol so you can take a hot funeral selfie."Summer: "I never get to do anything." - Summer Smith
