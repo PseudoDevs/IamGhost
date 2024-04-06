@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 09:49:56
-Random Quote: Archeology. One big mess of obsessive bookworms. - Arthur Harrow
+Last updated: 2024-04-06 09:50:29
+Random Quote: We all have things we keep hidden. Sometimes, keeping secrets is how you survive. Because in High School, one rumor, one picture, one incident, can define you forever. - Hannah Baker
