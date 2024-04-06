@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 11:02:26
-Random Quote: When dead men come hunting us in the night, do you think it matters who sits the Iron Throne?  -  Jeor Mormont
+Last updated: 2024-04-06 11:03:00
+Random Quote: Ted: "Barney, I don't know if the oven is deep enough. Plus, it's a display made of cardboard."Barney: "Huh. I should probably disconnect the gas." - Barney Stinson
