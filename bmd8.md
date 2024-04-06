@@ -1,2 +1,3 @@
-Last updated: 2024-04-06 11:06:38
-Random Quote: Kids, I'm going to tell you an incredible story, the story of how I met your mother. - Ted Mosby
+Last updated: 2024-04-06 11:07:11
+Random Quote: Billy: "Halloween's a magical holiday. All about family, friends, and the thrill of getting to be someone else for a day."
+Tommy: "Wrong! Halloween's about candy. And scaring people, but mostly candy." - Tommy Maximoff
