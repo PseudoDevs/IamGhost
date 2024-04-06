@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 11:02:36
-Random Quote: That right there, that's a scone. Tastes like a muffin except it sucks all the spit out of your mouth. - Jim Hopper
+Last updated: 2024-04-06 11:03:09
+Random Quote: I like dogs better than knights... A hound will die for you, but never lie to you.  And he'll look you straight in the face.  -  Sandor Clegane
