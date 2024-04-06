@@ -1,3 +1,2 @@
-Last updated: 2024-04-06 10:52:44
-Random Quote: Morty: "I don't deserve this. I was just having fun."
-Rick: "So was Jeffrey Dahmer." - Rick Sanchez
+Last updated: 2024-04-06 10:53:50
+Random Quote: I don't wanna be choosing between two girls, I wanna be a complete head over heels idiot for one! - Ted Mosby
