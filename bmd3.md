@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 09:56:56
-Random Quote: Ted: "We can do it against the door. It will be hot. It will be like a three-way: you, me and the door."Stella: "Yeah, but then it's going to be weird between me and the door tomorrow." - Stella Zinman
+Last updated: 2024-04-06 09:57:30
+Random Quote: My order serves the realm, not the ruler.  Once I counseled King Aerys as loyally as I council King Robert now, so I bear this girl child of his no ill will.  Yet I ask you this, should war come again, how many soldiers will die?  How many towns will burn?  How many children will be ripped from their mothers to perish on the end of a spear?  Is it not wiser, even kinder, that Daenerys Targaryen should die now so that tens of thousands might live?  -  Grand Maester Pycelle
