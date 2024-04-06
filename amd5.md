@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 09:56:18
-Random Quote: Would the five of us always live within a few minutes of that booth? No, that's life, kids, but here's what I discovered: Our booth was wherever the five of us were together. - Ted Mosby
+Last updated: 2024-04-06 09:56:54
+Random Quote: What do a bunch o' bloody peasants know about a lord's honor?  We know some about murder, though.  -  Lem Lemoncloak
