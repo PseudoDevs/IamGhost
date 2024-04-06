@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 07:30:53
-Random Quote: Master Mott said Thoros could outdrink even King Robert.  They were pease in a pod, he told me, both gluttons and sots.  -  Gendry
+Last updated: 2024-04-06 07:32:00
+Random Quote: What you have to do is show these suckers what you’re capable of. Show them you’re not scared. - Nairobi
