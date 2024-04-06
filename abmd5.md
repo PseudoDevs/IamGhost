@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 06:59:21
-Random Quote: I'm just here to lend a helping hand, you know, make sure the business is running in order. I got a good head for numbers. But listen, don't even worry. It's gonna be like I'm not even here. - Lalo Salamanca
+Last updated: 2024-04-06 06:59:58
+Random Quote: Mother of dragons.  Mother of monsters.  What have I unleashed upon the world?  A queen I am, but my throne is made of burned bones, and it rests on quicksand.  Without dragons, how could she hope to hold Mereen, much less win back Westeros?  I am the blood of the dragon.  If they are monsters, so am I.  -  Daenerys Targaryen
