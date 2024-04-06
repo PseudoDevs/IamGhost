@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 08:20:15
-Random Quote: I'm going out of this world the same way I came into it: Buck-naked. Yeah. It's gonna be awesome. Open bar for the guys, open casket for the ladies. What up? - Barney Stinson
+Last updated: 2024-04-06 08:20:48
+Random Quote: Qhorin was my enemy.  But also my brother, once.  So... shall I thank you for killing him, Jon Snow?  Or curse you?  -  Mance Rayder
