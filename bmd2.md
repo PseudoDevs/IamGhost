@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 11:28:09
-Random Quote: Enjoy your mai-tai, because soon you will be wearing my tie! - Marshall Eriksen
+Last updated: 2024-04-06 11:28:42
+Random Quote: The wolf will prove the boy is who we say he is, should the Dreadfort attempt to deny him.  That is my price, Lord Davos.  Smuggle me back my liege lord, and I will take Stannis Baratheon as my king.  -  Wyman Manderly
