@@ -1,3 +1,2 @@
-Last updated: 2024-04-06 07:51:03
-Random Quote: Lily: "Swear on the lifes of your unborn boy and girl!"
-Ted: "I swear... on Luke and Leia!" - Ted Mosby
+Last updated: 2024-04-06 07:51:37
+Random Quote: We didn't choose this life, we're just living in it. - Number Five
