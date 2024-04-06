@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 10:55:47
-Random Quote: Barney: "He's the awesomest, most best-lookingest, greatest guy ever!"Lily: "He's exactly like Barney."Barney: "That's what I just said." - Barney Stinson
+Last updated: 2024-04-06 10:56:20
+Random Quote: Marshall: "Excuse me, miss. When you get a chance, could you bring over a hundred shots of tequila please?"Barney: "I'll have the same." - Marshall Eriksen
