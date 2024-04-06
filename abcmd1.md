@@ -1,4 +1,2 @@
-Last updated: 2024-04-06 09:13:26
-Random Quote: Bro McDonald had a farm, E-I-E-I-bro
-And on that farm he had some chicks, E-I-E-I-bro
-With a hot chick here and a dumb chick there... - Barney Stinson
+Last updated: 2024-04-06 09:13:59
+Random Quote: Because you're so broken you don't even trust yourself. And that's scary. - Nate Jacobs
