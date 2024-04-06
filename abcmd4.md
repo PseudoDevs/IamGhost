@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 10:20:22
-Random Quote: You want to hurt these guys, we gotta take down the ones calling the shots. - Jaime Kuykendall
+Last updated: 2024-04-06 10:20:55
+Random Quote: Ted: "Why wouldn't she just come right out and say what she wants?"Marshall: "Men. It's like, if there weren't pickle jars to open and spiders to kill and computers to back up, what would be their point?"Lily: "Mmh-hmm!"Ted: "Okay, when did Marshall become a slightly more feminine you?" - Ted Mosby
