@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 08:17:17
-Random Quote: I've heard so many stories about me now that I don't know which one is the most popular. But I do know which is the least popular: the truth. - Hannah Baker
+Last updated: 2024-04-06 08:17:51
+Random Quote: Jon, did you ever wonder why the men of the Night's Watch take no wives and father no children?  So they will not love, for love is the bane of honor, the death of duty.  -  Maester Aemon
