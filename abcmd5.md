@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 08:41:24
-Random Quote: For a joke to work, it has to have part of truth and part of pain. - Berlin
+Last updated: 2024-04-06 08:42:00
+Random Quote: Make it easier for those whose vote you can count on. Make it harder for those you can't. That's how you rig an election without leaving a lick of evidence. - Walt Breslin
