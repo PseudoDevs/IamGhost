@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 11:16:23
-Random Quote: May his death satisfy you. - Gustavo Fring
+Last updated: 2024-04-06 11:16:56
+Random Quote: You want to rule?  This is what ruling is; lying on a bed of weeds, ripping them out by the root, one by one, before they strangle you in your sleep.  -  Cersei Lannister
