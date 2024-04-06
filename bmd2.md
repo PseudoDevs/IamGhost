@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 08:05:50
-Random Quote: Miss Garvey's parents may stay at our place as long as they like. Provided they each arrive in an urn. - Barney Stinson
+Last updated: 2024-04-06 08:06:23
+Random Quote: A family is like a small business. And with a small business, at times, there comes a bit of transition. - Marty Byrde
