@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 10:58:41
-Random Quote: If you don't make it back, there's one thing that I need to tell you... - Klaus Hargreeves
+Last updated: 2024-04-06 10:59:14
+Random Quote: Quinn: "In the event of divorce, Miss Garvey shall get full custody of Mr. Stinson's suits."Barney: "Why? What would you do with them?"Quinn: "Nothing. I'd just sit around and watch them go out of style." - Quinn Garvey
