@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 11:16:22
-Random Quote: Omera: "You haven't shown your face to anyone since you were a kid?"Mando: "No. I was happy that they took me in. My parents were killed and the Mandalorians took care of me. This is the way." - Din Djarin
+Last updated: 2024-04-06 11:16:56
+Random Quote: Sometimes, the cure is a little taste of the disease. The difference between medicine and poison sometimes is only dosage. - Arthur Harrow
