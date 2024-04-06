@@ -1,3 +1,2 @@
-Last updated: 2024-04-06 06:39:46
-Random Quote: Grace Burgess: "You think I am a wh-re?"
-Tommy Shelby: "Everyone's a wh-re, Grace. We just sell different parts of ourselves." - Thomas Shelby
+Last updated: 2024-04-06 06:40:19
+Random Quote: Your pain defines who you are but it no longer holds power on you - Noah
