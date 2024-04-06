@@ -1,3 +1,2 @@
-Last updated: 2024-04-06 08:43:14
-Random Quote: Dragon: "My name is Balthromaw. Breaker of skies, slayer of mountain."
-Rick: "Rule 1: You're now scooper of your own poops, or I will take you down like the black-light poster you are." - Rick Sanchez
+Last updated: 2024-04-06 08:43:49
+Random Quote: Sometimes our best decisions are the ones that don't make any sense at all. - Ted Mosby
