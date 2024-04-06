@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 08:51:32
-Random Quote: She studied Theon Greyjoy's sly smile, wondering what it meant.  That young man had a way of looking as though he knew some secret jest that only he was privy to; Catelyn had never liked it.  -  Catelyn Stark
+Last updated: 2024-04-06 08:52:09
+Random Quote: Honey, it's just the way your brain was hardwired. Plenty of great, intelligent, funny, interesting, and creative people have struggled with the same things you struggle with. - Leslie Bennett

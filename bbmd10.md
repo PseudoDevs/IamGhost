@@ -1,3 +1,2 @@
-Last updated: 2024-04-06 08:50:54
-Random Quote: Sal: "Does Lily have any other plates? I don't let Sammy eat off this plastic."
-Pepper: "How does she breastfeed him if she doesn't let him near plastic?" - Pepper Saltzman
+Last updated: 2024-04-06 08:52:09
+Random Quote: Talking to a woman that you have already had sex with, is like changing the oil on a rental car! - Barney Stinson
