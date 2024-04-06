@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 08:47:06
-Random Quote: There's kids playing hockey in the back. It's like you want us to make fun of you! - Barney Stinson
+Last updated: 2024-04-06 08:47:43
+Random Quote: You Westerosi are all the same.  You sew some beast upon a scrap of silk, and suddenly you are all lions or dragons or eagles.  -  Illyrio Mopatis
