@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 08:05:35
-Random Quote: Lord Balon's eldest brother had never given up the Old Way, even for a day.  His Silence, with its black sails and dark red hull, was infamous in every port from Ibben to Asshai, it was said.  -  Theon Greyjoy
+Last updated: 2024-04-06 08:06:42
+Random Quote: What is lost, will be found. - Maura Franklin
