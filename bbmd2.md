@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 10:36:33
-Random Quote: The greatest fools are ofttimes more clever than the men who laugh at them.  -  Tywin Lannister
+Last updated: 2024-04-06 10:37:40
+Random Quote: We just don't wanna rush anything, okay? We decided to wait, until she decides to let me have sex with her. - Barney Stinson
