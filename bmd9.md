@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 11:51:08
-Random Quote: Robert wanted smiles and cheers, always, so he went where he found them, to his friends and his whores.  Robert wanted to be loved.  My brother Tyrion has the same disease.  -  Cersei Lannister
+Last updated: 2024-04-06 11:51:41
+Random Quote: As the twig is bent, so grows the tree. - Pacho Herrera
