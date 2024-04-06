@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 11:37:22
-Random Quote: Imagine you were born in a poor family, in a poor city, in a poor country, and by the time you were 28 years old, you have so much money you can't even count it. What do you do? You make your dreams come true. - Steve Murphy
+Last updated: 2024-04-06 11:37:55
+Random Quote: Come with me to the House of the Undying, and you shall drink of truth and wisdom.  -  Pyat Pree
