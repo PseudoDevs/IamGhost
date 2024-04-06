@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 10:28:40
-Random Quote: Woman: "How can you not remember my name? it rhymes with your name?"Barney: "And I said my name was...?" - Barney Stinson
+Last updated: 2024-04-06 10:29:13
+Random Quote: Marshall: "Yes, i want a ball-room and I want a band and I want shoes. I've been dreaming about this day since I was... like...Lily: "...a little girl?" - Lily Aldrin
