@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 11:06:38
-Random Quote: If you die before you say her name, Set, I will hunt you through the seven hells.  -  Oberyn Martell
+Last updated: 2024-04-06 11:07:44
+Random Quote: Because were baseball, strippers and guns can't help, the only thing that can really heal a broken heart, is time. - Ted Mosby
