@@ -1,2 +1,3 @@
-Last updated: 2024-04-06 11:37:21
-Random Quote: Tequila makes me wanna dance. - Jules Vaughn
+Last updated: 2024-04-06 11:37:54
+Random Quote: Mi-nyeo: "Deok-su. You betray me... I'll kill you. Okay?"
+Deok-su: "You're the reason that I think I might die tonight." - Jang Deok-su
