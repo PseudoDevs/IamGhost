@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 07:24:13
-Random Quote: Larry Bloom: "Piper, you put a pee stick in my rinsing cup."Piper Chapman: "Well, you put your pee stick in my vagina. And that's why we're in this situation." - Piper Chapman
+Last updated: 2024-04-06 07:24:46
+Random Quote: The soldier's minute. In a battle that's all you get. One minute of everything at once. And anything before it nothing. Everything after, nothing. Nothing in comparison to that one minute. - Thomas Shelby
