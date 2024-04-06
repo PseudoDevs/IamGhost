@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 10:56:04
-Random Quote: Need found it hard to imagine what could frighten Stannis Baratheon, who had once held Storm's End through a year of siege, surviving on rats and boot leather while the Lords Tyrell and Redwyne sat outside with their hosts, banqueting in sight of his walls.  -  Eddard Stark
+Last updated: 2024-04-06 10:56:37
+Random Quote: I’m just a tiny section of a huge tumor that is much bigger than any of us can imagine. - 
