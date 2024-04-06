@@ -1,4 +1,5 @@
-Last updated: 2024-04-06 12:04:23
-Random Quote: It's going to be legen...
-wait for it - and I hope you're not lactose-intolerant cause the second half of that word is
-...dary! - Barney Stinson
+Last updated: 2024-04-06 12:04:56
+Random Quote: Dina: "You're infuriating."
+Ellie: "Have you met you?"
+Dina: "You make me want to go back outside into that blizzard."
+Ellie: "No one is stopping you." - Joel Miller
