@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 10:26:36
-Random Quote: I wish my mental problems made me look like you. - Kat Hernandez
+Last updated: 2024-04-06 10:27:09
+Random Quote: Did the boy charm you?  He has that gift.  He got it from his father, with the blood.  He knows he is a king's son, but chooses to forget that he is bastard - born. 
