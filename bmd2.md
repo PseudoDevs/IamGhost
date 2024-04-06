@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 10:14:38
-Random Quote: I know this hurts little buddy, but you'll love again someday. Because time will heal a broken heart, but not that bitch's window. - Barney Stinson
+Last updated: 2024-04-06 10:15:11
+Random Quote: Honey, it's just the way your brain was hardwired. Plenty of great, intelligent, funny, interesting, and creative people have struggled with the same things you struggle with. - Leslie Bennett
