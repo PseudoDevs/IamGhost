@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 11:35:04
-Random Quote: There's chaos in you. Embrace the chaos! - Arthur Harrow
+Last updated: 2024-04-06 11:35:37
+Random Quote: I was weaned on venom, Dalt.  Any viper takes a bite of me will rue it.  -  Gerold Dayne
