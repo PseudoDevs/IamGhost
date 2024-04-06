@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 07:18:56
-Random Quote: Ted: "I made a bid online, I won the auction the next day and I got approval. I just finalized the paperwork."Barney: "And was the Blair Witch easy to deal with, or did she haggle over the closing costs?" - Barney Stinson
+Last updated: 2024-04-06 07:19:29
+Random Quote: Freeways have exits, so do relationships. The first exit, my personal favourite, is six hours in: You meet, you talk, you have sex, you exit when she's in the shower. - Barney Stinson
