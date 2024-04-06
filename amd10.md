@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 12:08:28
-Random Quote: We just don't wanna rush anything, okay? We decided to wait, until she decides to let me have sex with her. - Barney Stinson
+Last updated: 2024-04-06 12:09:02
+Random Quote: Best way to catch the smart ones? Get an idiot working for them. - Jaime Kuykendall
