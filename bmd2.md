@@ -1,3 +1,2 @@
-Last updated: 2024-04-06 08:04:43
-Random Quote: Hey look, it's the New York City skyline.
-We built Chip City... we built Chip City on all your dough! - Ted Mosby
+Last updated: 2024-04-06 08:05:16
+Random Quote: The Peaky Blinders. The vicious, merciless gangs who blind those who see and cut out the tongues of those who talk. - Chester Campbell
