@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 07:18:56
-Random Quote: Tell the Crow's Eye he's afraid of kinslaying and he'll murder one of his own sons just to prove you wrong.  -  Asha Greyjoy
+Last updated: 2024-04-06 07:20:36
+Random Quote: In the end, we will all get just what we deserve. - 
