@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 07:49:18
-Random Quote: Sometimes we have to let things go because we can't keep them forever. - Maura Franklin
+Last updated: 2024-04-06 07:49:53
+Random Quote: Quentyn had never felt so much a boy as when he'd stood before Daenerys Targaryen, pleading for her hand.  The thought of bedding her terrified him almost as much as her dragons had.  -  Quentyn Martell
