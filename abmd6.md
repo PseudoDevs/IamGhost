@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 11:20:02
-Random Quote: Lies are necessary, when the truth is too difficult to believe. - Pablo Escobar
+Last updated: 2024-04-06 11:20:35
+Random Quote: The men of Westeros are ever rushing.  What good is this, I ask you?  He who hurries through life hurries to his grave.  -  Salladhor Saan
