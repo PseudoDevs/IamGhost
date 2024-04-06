@@ -1,2 +1,3 @@
-Last updated: 2024-04-06 08:06:09
-Random Quote: I can't believe I'm taking sexual advice from Ted Mosby.That's like taking fashion advice from... well, Ted Mosby. - Barney Stinson
+Last updated: 2024-04-06 08:07:16
+Random Quote: Mi-nyeo: "Deok-su. You betray me... I'll kill you. Okay?"
+Deok-su: "You're the reason that I think I might die tonight." - Jang Deok-su
