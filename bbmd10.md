@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 10:49:42
-Random Quote: Your innocence may be as plain as the scar on your face, but it will not save you.  No more than your father will.  But I might.  Not as your judge.  As your champion.  -  Oberyn Martell
+Last updated: 2024-04-06 10:50:49
+Random Quote: Know what time it is? It's do-o-clock, lets ride! - Barney Stinson
