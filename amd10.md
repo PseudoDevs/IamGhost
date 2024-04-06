@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 09:32:32
-Random Quote: Oh, come on. If you don't laugh, it just seems mean. - Barney Stinson
+Last updated: 2024-04-06 09:33:05
+Random Quote: Birds are lost, messages stolen or sold... there are things I might tell you of that eunuch that would chill your blood...  -  Grand Maester Pycelle
