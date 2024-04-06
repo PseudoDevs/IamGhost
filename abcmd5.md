@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 11:25:39
-Random Quote: Words are like arrows, Arianne.  Once loosed, you cannot call them back.  -  Areo Hotah
+Last updated: 2024-04-06 11:26:46
+Random Quote: The years pass in their hundreds and their thousands, and what does any man see of life but a few summers, a few winters?  -  Maester Luwin
