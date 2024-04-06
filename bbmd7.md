@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 09:58:06
-Random Quote: Career has been trouncing romance for years. It's like the Globetrotters versus the Generals: Career's sinking hook shots from half court, romance is just a bunch of slow white guys, who couldn't make it in the Italian league. - Ted Mosby
+Last updated: 2024-04-06 09:58:41
+Random Quote: I wasn't there when the meth was cooked. I wasn't there when it was sold. I didn't witness any of the murders, but I damn well knew what was happening. I was more than a willing participant. I was indispensable. I kept Walter White out of Jail. I laundered his money. I lied for him. I conspired with him and I made millions. - Saul Goodman
