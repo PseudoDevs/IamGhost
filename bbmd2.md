@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 09:09:39
-Random Quote: Kids, you may think your only choices are to swallow your anger or throw it in someone's face, but there's a third option: You can just let it go, and only when you do that is it really gone and you can move forward. - Ted Mosby
+Last updated: 2024-04-06 09:10:12
+Random Quote: I think maybe you're the only person who really knows who I am and still likes me anyway. - Allison Hargreeves
