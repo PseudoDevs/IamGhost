@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 08:30:33
-Random Quote: The only person who gets to torture my brother is me. - Wednesday Addams
+Last updated: 2024-04-06 08:31:06
+Random Quote: Mitchell: "We didn't just go to Vietnam for pleasure. We kinda have some big news."Jay: "Oh God, if Cam comes out there with boobs, I'm leaving." - Jay Pritchett
