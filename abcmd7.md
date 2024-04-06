@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 10:57:10
-Random Quote: I knew quite a few Jedi, you know. I don't know what they taught you about us, but there was a time we actually got along quite well. Fought side by side. - Bo-Katan
+Last updated: 2024-04-06 10:57:43
+Random Quote: In King's Landing, there are two sorts of people.  The players and the pieces.  -  Petyr Baelish
