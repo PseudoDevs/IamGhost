@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 06:47:50
-Random Quote: There is a time to fight and there is a time to be clever. - Pablo Escobar
+Last updated: 2024-04-06 06:48:23
+Random Quote: Never fear the darkness, Bran.  The strongest trees are rooted in the dark places of the earth.  Darkness will be your cloak, your shield, your mother's milk.  Darkness will make you strong.  -  Bloodraven
