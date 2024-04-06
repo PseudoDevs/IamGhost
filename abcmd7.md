@@ -1,2 +1,3 @@
-Last updated: 2024-04-06 11:41:24
-Random Quote: I thought I was the inventor, but the greatest invention of all is the free gift of eternal life. - Rick Sanchez
+Last updated: 2024-04-06 11:43:37
+Random Quote: Ted: "So this is what you guys do? You invite other couples over for dinner, to judge them and feel superior?"
+Lily: "Oh, grow up, Ted, that's why any couple invites anyone over ever!" - Lily Aldrin
