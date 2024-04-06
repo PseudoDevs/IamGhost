@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 11:20:22
-Random Quote: Just because you shot Jesse James doesn't mean you are Jesse James. - Mike Ehrmantraut
+Last updated: 2024-04-06 11:20:55
+Random Quote: Knights?  Dondarrion's a knight, but the rest of you are the sorriest lot of outlaws and broken men I've ever seen.  -  Sandor Clegane
