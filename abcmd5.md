@@ -1,5 +1,2 @@
-Last updated: 2024-04-06 09:04:33
-Random Quote: "What's love to you?"
-Flaca: "It's like getting into a bath, but the water is like warm chocolate pudding. And the Smiths are playing. There Is A Light That Never Goes Out.' There's mood lighting all over, and there's like five dudes massaging you."
-Maritza: "And you have a pizza!"
-Flaca: "She's right. You also have a pizza." - Marisol 'Flaca' Gonzales & Maritza Ramos
+Last updated: 2024-04-06 09:05:07
+Random Quote: In my body, where the shame gland should be, there is a second awesome gland. True story! - Barney Stinson
