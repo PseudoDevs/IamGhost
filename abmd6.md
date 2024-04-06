@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 09:00:13
-Random Quote: I feel like her sobriety is completely dependent on how available I am to her. - Jules Vaughn
+Last updated: 2024-04-06 09:00:46
+Random Quote: He would have killed me but for Howland Reed.  -  Eddard Stark
