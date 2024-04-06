@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 07:31:53
-Random Quote: If I ever get anal polyps, I'll know what to name them. - Saul Goodman
+Last updated: 2024-04-06 07:32:26
+Random Quote: Mitchell: "We didn't just go to Vietnam for pleasure. We kinda have some big news."Jay: "Oh God, if Cam comes out there with boobs, I'm leaving." - Jay Pritchett
