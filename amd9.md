@@ -1,2 +1,3 @@
-Last updated: 2024-04-06 11:22:39
-Random Quote: Ted, you know who's a million times hotter than the hottest girl I've ever slept with? Her okay-looking friend I haven't seen naked. Why? Because new is always better. - Barney Stinson
+Last updated: 2024-04-06 11:23:12
+Random Quote: Morty: "You're really this pissed about my mum making sure I'm okay with our adventures?"
+Rick: "What's next, Morty? What if I want you to jump off the Empire State Building? I have to ask?" - Rick Sanchez

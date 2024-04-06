@@ -1,2 +1,4 @@
-Last updated: 2024-04-06 11:22:06
-Random Quote: You could turn King's Landing upside down and not find a single man with a mockingbird sewn over his heart but that does not mean I am friendless.  -  Petyr Baelish
+Last updated: 2024-04-06 11:23:12
+Random Quote: Lorna Morello: "I need to start tightening up. You're making me feel like a cave."
+Nicky Nichols: "Baby, it's a c-nt, it stretches!"
+Lorna Morello: "Yeah, sometimes I feel like you're trying to climb inside my womb." - Lorna Morello

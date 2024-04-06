@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 11:22:39
-Random Quote: I've lost a hand, a father, a son, a sister, and a lover, and soon enough I will lose a brother.  And yet they keep telling me House Lannister has won this war.  -  Jaime Lannister
+Last updated: 2024-04-06 11:23:12
+Random Quote: In all the world, violent men are the easiest to deal with. - Irene O'Donnell
