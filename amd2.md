@@ -1,4 +1,2 @@
-Last updated: 2024-04-06 11:10:09
-Random Quote: Joel: "I need you to tell us where we are."
-Man: "If you got a map, why you lost?"
-Ellie: "Must've missed all the street signs in the enormous f-cking forest." - Ellie Williams
+Last updated: 2024-04-06 11:10:43
+Random Quote: War. Such a fascinating concept. A temporary salve for a permanent human flaw. - The Handler
