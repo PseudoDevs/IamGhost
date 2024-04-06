@@ -1,2 +1,7 @@
-Last updated: 2024-04-06 08:18:53
-Random Quote: Have you been arrested in a mall?Dumped in a mall?Turned out you're Canadian in a mall? - Ted Mosby
+Last updated: 2024-04-06 08:20:00
+Random Quote: Bo-Katan: "You are a disgrace to your armor."
+Boba Fett: "This armor belonged to my father."
+Bo-Katan: "Don't you mean your donor?"
+Boba Fett: "Careful, princess."
+Bo-Katan: "You are a clone. I've heard your voice thousands of times."
+Boba Fett: "Mine might be the last one you hear." - Boba Fett

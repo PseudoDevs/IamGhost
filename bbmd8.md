@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 08:19:26
-Random Quote: Dear, in the end, love is what makes us see life in another color, and lately, you have only seen everything black. - Mariví Fuentes
+Last updated: 2024-04-06 08:20:00
+Random Quote: Why the oldest son, and not the best - fitted?  The crown will suit me, as it never suited Robert and would not suit Stannis. 
