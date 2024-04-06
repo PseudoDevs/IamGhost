@@ -1,2 +1,6 @@
-Last updated: 2024-04-06 11:40:02
-Random Quote: Once, she had loved Prince Joffrey with all her heart, and admired and trusted his mother, the queen.  They had repaid that love and trust with her father's head.  Sansa would never make that mistake again.  -  Sansa Stark
+Last updated: 2024-04-06 11:40:36
+Random Quote: When Mom was a groupie in the '70s, her scrambled eggs made her the darling of the MSG loading dock. Lot of songs written about those scrambled eggs:
+ZZ Top's "She's Got Legs"? Originally "She's Got Eggs".
+Led Zeppelin? "Scramble On".
+Steve Miller? "The Yolker".
+If you listen to Pink Floyd's "Dark Side of the Moon" while eating her eggs, it lines up perfectly. - Barney Stinson
