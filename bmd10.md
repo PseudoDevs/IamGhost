@@ -1,3 +1,2 @@
-Last updated: 2024-04-06 08:07:16
-Random Quote: Mi-nyeo: "Deok-su. You betray me... I'll kill you. Okay?"
-Deok-su: "You're the reason that I think I might die tonight." - Jang Deok-su
+Last updated: 2024-04-06 08:07:49
+Random Quote: You don't parley when you're on the back foot. We'll strike a blow back first. - Thomas Shelby
