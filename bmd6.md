@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 11:10:43
-Random Quote: If I ever get anal polyps, I'll know what to name them. - Saul Goodman
+Last updated: 2024-04-06 11:11:16
+Random Quote: My uncle Kevan would make a passably good regent if someone pressed the duty on him, but he will never reach for it.  The gods shaped him to be a follower, not a leader.  -  Tyrion Lannister
