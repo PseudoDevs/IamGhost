@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 10:59:50
-Random Quote: They are knights now, all three, and your sister has promised them further advancement.  And the eldest, Set Osmund of the Kingsguard, dreams of certain other... favors... as well.  You can match the queen coin for coin, I have no doubt, but she has a second purse that is quite inexhaustible.  -  Varys
+Last updated: 2024-04-06 11:00:56
+Random Quote: The pain is his vessel, desire his compass. It is all that man is capable of. - 
