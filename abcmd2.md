@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 11:10:26
-Random Quote: Name one thing in this world that is non negotiable. - Walter White
+Last updated: 2024-04-06 11:10:59
+Random Quote: Why is it always the innocents who suffer most, when you high lords play your game of thrones?  -  Varys
