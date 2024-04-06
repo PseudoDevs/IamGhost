@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 11:20:41
-Random Quote: Robin: "She was gonna get the last kugel."Ted: "She was 90 years old. It was probably gonna be her last kugel." - Ted Mosby
+Last updated: 2024-04-06 11:21:14
+Random Quote: I knew quite a few Jedi, you know. I don't know what they taught you about us, but there was a time we actually got along quite well. Fought side by side. - Bo-Katan
