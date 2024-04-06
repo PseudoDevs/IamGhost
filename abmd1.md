@@ -1,2 +1,3 @@
-Last updated: 2024-04-06 09:31:19
-Random Quote: Your heart's talking to you, Barney. Do you have the guts to listen to it? - Lily Aldrin
+Last updated: 2024-04-06 09:32:28
+Random Quote: Journalist: "Mr. Stark, were you injured in the attack?"
+Tony Stark: "No, but I did spill my drink, and it was a '26 Macallan, so I'm pretty sure that's a war crime." - Iron Man
