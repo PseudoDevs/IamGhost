@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 07:25:32
-Random Quote: Silver or lead. You decide. - Pablo Escobar
+Last updated: 2024-04-06 07:27:13
+Random Quote: What I came to realise is that fear, that’s the worst of it. That’s the real enemy. So, get up, get out in the real world and you kick that bastard as hard you can right in the teeth. - Walter White
