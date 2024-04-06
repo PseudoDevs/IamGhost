@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 09:51:26
-Random Quote: That changes everything, how do you know who to trust? - Meemaw
+Last updated: 2024-04-06 09:53:19
+Random Quote: We go home with an army, sweet sister.  With Khal Drogo's army, that is how we go home.  And if you must wed him and bed him for that, you will.  I'd let his whole khalasar fuck you if need be, sweet sister, all forty thousand men, and their horses too if that was what it took to get my army.  -  Viserys Targaryen
