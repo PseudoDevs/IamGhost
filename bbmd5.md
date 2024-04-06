@@ -1,5 +1,2 @@
-Last updated: 2024-04-06 08:48:21
-Random Quote: Morty: "Mom, I have a friend coming over. Is that cool?"
-Beth: "I told your sister no parties."
-Morty: "It's one friend."
-Beth: "That's a party to you." - Beth Smith
+Last updated: 2024-04-06 08:48:58
+Random Quote: I am not a rich person. I am a poor person with money. - Pablo Escobar
