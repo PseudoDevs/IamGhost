@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 12:04:51
-Random Quote: What is dead may never die, but rises again, harder and stronger  -  Words of the Drowned God
+Last updated: 2024-04-06 12:05:24
+Random Quote: The Crow's Eye brought back monsters from the east... aye, and wizards too.  -  Tristifer Botley
