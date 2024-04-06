@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 11:43:25
-Random Quote: Lord Varys, sometimes I feel as though you are the best friend I have in King's Landing and sometimes I feel you are my worst enemy.  -  Tyrion Lannister
+Last updated: 2024-04-06 11:43:58
+Random Quote: You can tell a lot about a person from his biography. - Phil Dunphy
