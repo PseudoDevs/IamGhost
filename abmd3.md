@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 09:27:12
-Random Quote: Fire in the hole, bitch! - Jesse Pinkman
+Last updated: 2024-04-06 09:27:45
+Random Quote: I never asked for this, no more than I asked to be king.  Yet dare I disregard her?  We do not choose our destinies.  Yet we must... we must do our duty, no?  Great or small, we must do our duty.  -  Stannis Baratheon
