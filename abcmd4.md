@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 10:39:45
-Random Quote: Rickard Karstark killed more than a Frey and a Lannister.  He killed my honor.  -  Robb Stark
+Last updated: 2024-04-06 10:40:18
+Random Quote: Euron's gifts are poisoned.  -  Victarion Greyjoy
