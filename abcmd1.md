@@ -1,2 +1,3 @@
-Last updated: 2024-04-06 10:10:58
-Random Quote: A queen must listen to all.  The highborn and the low, the strong and the weak, the noble and the venal.  One voice may speak you false, but in many there is always truth to be found.  -  Daenerys Targaryen
+Last updated: 2024-04-06 10:11:31
+Random Quote: Joel: "You got any advice on the best way west?"
+Man: "Yeah. Go east." - Ellie Williams
