@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 09:02:49
-Random Quote: The past is always with us, Tyler. Now, you can try and run away but it's always there. - Rendell Locke
+Last updated: 2024-04-06 09:03:22
+Random Quote: You could turn King's Landing upside down and not find a single man with a mockingbird sewn over his heart but that does not mean I am friendless.  -  Petyr Baelish
