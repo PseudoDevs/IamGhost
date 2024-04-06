@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 09:26:32
-Random Quote: When you play the game of thrones, you win or you die.  There is no middle ground.  -  Cersei Lannister
+Last updated: 2024-04-06 09:27:06
+Random Quote: Stella hated Star Wars! She lied to you. Search your feelings, Ted. You know it to be true! - Marshall Eriksen
