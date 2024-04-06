@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 06:56:59
-Random Quote: Think of me as Yoda - only, instead of being little and green, I wear suits and I'm awesome. I'm your bro. I'm Broda. - Barney Stinson
+Last updated: 2024-04-06 06:57:34
+Random Quote: I like dogs better than knights... A hound will die for you, but never lie to you.  And he'll look you straight in the face.  -  Sandor Clegane
