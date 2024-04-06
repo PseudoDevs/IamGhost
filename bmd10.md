@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 09:57:37
-Random Quote: Then hear me.  If we are taken, you will go over to them, as the wildling girl you captured once urged you.  They may demand that you cut your cloak to ribbons, that you swear them an oath on your father's grave, that you curse your brothers and your Lord Commander.  You must not balk, whatever is asked of you.  Do as they bid you... but in your heart, remember who and what you are.  Ride with them, eat with them, fight with them, for as long as it takes.  And watch.  -  Qhorin Halfhand
+Last updated: 2024-04-06 09:58:10
+Random Quote: Need found it hard to imagine what could frighten Stannis Baratheon, who had once held Storm's End through a year of siege, surviving on rats and boot leather while the Lords Tyrell and Redwyne sat outside with their hosts, banqueting in sight of his walls.  -  Eddard Stark
