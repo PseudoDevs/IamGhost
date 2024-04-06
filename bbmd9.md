@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 07:16:10
-Random Quote: Didn't you notice? Those jerks with masks came in and removed the beds of the people who died. Make on mistake out there, and yours is next. - Jang Deok-su
+Last updated: 2024-04-06 07:16:43
+Random Quote: War. Such a fascinating concept. A temporary salve for a permanent human flaw. - The Handler
