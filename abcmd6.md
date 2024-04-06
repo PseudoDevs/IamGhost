@@ -1,2 +1,3 @@
-Last updated: 2024-04-06 08:03:35
-Random Quote: Career has been trouncing romance for years. It's like the Globetrotters versus the Generals: Career's sinking hook shots from half court, romance is just a bunch of slow white guys, who couldn't make it in the Italian league. - Ted Mosby
+Last updated: 2024-04-06 08:04:09
+Random Quote: Woman: "You know this isn't Vegas, right?"
+Robin: "Well sure, in Vegas the casinos pump in oxygen, in Atlantic City it looks like everyone brought their own." - Robin Scherbatsky
