@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 12:00:31
-Random Quote: The best pie you have ever tasted, my lords.  Wash it down with Arbor gold and savor every bite.  I know I shall.  -  Wyman Manderly
+Last updated: 2024-04-06 12:02:09
+Random Quote: Kids, morals usually come at the end of stories, but this one is so important, I'm gonna tell you now. Don't ever, ever invite an ex to your wedding. - Ted Mosby
