@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 09:55:57
-Random Quote: Barney: "He's the awesomest, most best-lookingest, greatest guy ever!"Lily: "He's exactly like Barney."Barney: "That's what I just said." - Barney Stinson
+Last updated: 2024-04-06 09:56:30
+Random Quote: Whisky's good proofing water. Tells you who's real and who isn't. - Thomas Shelby
