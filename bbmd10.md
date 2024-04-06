@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 12:00:31
-Random Quote: Look at this setup! What, you two drive around like Mister Softee, and scooping out drugs for all the good boys and girls? - Saul Goodman
+Last updated: 2024-04-06 12:01:03
+Random Quote: What I came to realise is that fear, that’s the worst of it. That’s the real enemy. So, get up, get out in the real world and you kick that bastard as hard you can right in the teeth. - Walter White
