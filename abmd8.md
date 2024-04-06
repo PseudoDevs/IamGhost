@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 07:03:28
-Random Quote: Summer will end soon enough, and childhood as well.  -  Eddard Stark
+Last updated: 2024-04-06 07:04:04
+Random Quote: You have to be as bad as them above in order to survive. - Polly Gray
