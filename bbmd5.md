@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 08:29:00
-Random Quote: You fight back with your spirit, little one. You stand up for yourself! - Devi Vishwakumar
+Last updated: 2024-04-06 08:29:32
+Random Quote: Rickard Karstark killed more than a Frey and a Lannister.  He killed my honor.  -  Robb Stark
