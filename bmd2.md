@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 11:18:46
-Random Quote: Just 'cause you fall on your *ss doesn't mean you have to stay there. - Hughie Campbell
+Last updated: 2024-04-06 11:19:20
+Random Quote: We were king's men, knights, and heroes... but some knights are dark and full of terror, my lady.  War makes monsters of us all.  -  Thoros of Myr
