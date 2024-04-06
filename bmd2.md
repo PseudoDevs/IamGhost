@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 06:53:29
-Random Quote: I've had shits that I've liked better than Walder Frey.  -  Brynden Tully
+Last updated: 2024-04-06 06:54:52
+Random Quote: Marshall: "Are you sure this poo-poo didn't happen on your watch and you just ran out the clock until it was my problem?"Lily: "Oh, yeah. Yeah, yeah, right. What kind of mother lets her son sit in his own filth for an extra nine minutes and 42 seconds?" - Lily Aldrin
