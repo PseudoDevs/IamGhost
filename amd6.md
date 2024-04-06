@@ -1,2 +1,3 @@
-Last updated: 2024-04-06 10:12:00
-Random Quote: Lily: "I am gonna have to walk this earth, knowing Barney has touched my boobs."Robin: "Yeah it stays with ya. His e-mail reminders don't help." - Robin Scherbatsky
+Last updated: 2024-04-06 10:12:33
+Random Quote: May: "May Carleton. I breed racehorses and train them. What is it you do?"
+Thommy: "I rarely answer questions is what I do." - Thomas Shelby
