@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 08:20:42
-Random Quote: There's only one thing that could blind a man as smart as you, Tommy. Love. - Polly Gray
+Last updated: 2024-04-06 08:21:15
+Random Quote: This is the one that you saved? You are as its father. A clan of two. But you have removed your helmet. Then you are a Mandalorian no more. - The Armorer
