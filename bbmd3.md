@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 08:28:39
-Random Quote: Free folk don't follow names, or little cloth animals sewn on a tunic.  They won't dance for coins, they don't care how you style yourself or what that chain of office means or who your grandsire was.  They follow strength.  They follow the man.  -  Mance Rayder
+Last updated: 2024-04-06 08:29:13
+Random Quote: I have let you come wash my dishes. I said my oven needed cleaning, I invited you to a p-rno! - Victoria
