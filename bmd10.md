@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 08:00:33
-Random Quote: Morty: "Why don't you admit you don't want anyone else to be happy because you're a sad old fart?"Rick: "How do you saddle a fart?" - Rick Sanchez
+Last updated: 2024-04-06 08:01:07
+Random Quote: From this day forth, you will not call yourself a craven.  You've faced more things this past year than most men face in a lifetime.  You can face the Citadel, but you'll face it as a Sworn Brother of the Night's Watch.  I can't command you to be brave, but I can command you to hide your fears.  -  Jon Snow
