@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 06:28:10
-Random Quote: Why should I go running to my aunt as if I were a beggar?  My claim is better than her own.  Let her come to me... in Westeros.  -  Aegon Targaryen
+Last updated: 2024-04-06 06:28:43
+Random Quote: You must be blind as well as maimed, Set.  Lift your eyes, and you will see the direwolf still flies above our walls.  -  Brynden Tully
