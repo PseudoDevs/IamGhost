@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 09:34:22
-Random Quote: Either get out early, or you get out too late. - Pacho Herrera
+Last updated: 2024-04-06 09:34:56
+Random Quote: For the night is dark and full of terrors.  -  Words of R'hllor
