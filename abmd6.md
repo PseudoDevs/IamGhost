@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 06:30:32
-Random Quote: That's the weird thing about the Internet. Ten people can feel like the whole world. - Rue Bennett
+Last updated: 2024-04-06 06:31:05
+Random Quote: It's not Aerys I rue, it's Robert... Why is it no one names Robert oathbreaker?  He tore the realm apart, yet I am the one with shit for honor.  -  Jaime Lannister
