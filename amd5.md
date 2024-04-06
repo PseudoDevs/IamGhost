@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 10:46:56
-Random Quote: When I look at something, I don't see it for what it is, I see it for what it could be. When I look at something, I see how it ends. - Miguel Angel Felix Gallardo
+Last updated: 2024-04-06 10:48:02
+Random Quote: For the night is dark and full of terrors.  -  Words of R'hllor
