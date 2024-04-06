@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 07:23:52
-Random Quote: Ted: "Uh, the time Lily went into labor!"Lily: "That's now!"Ted: "Sorry, I'm running out of stories." - Ted Mosby
+Last updated: 2024-04-06 07:24:25
+Random Quote: Some battles are won with swords and spears, others with quills and ravens.  -  Tywin Lannister
