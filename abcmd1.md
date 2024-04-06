@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 12:05:53
-Random Quote: Nobody takes an intro class to get on any other path, but the path to not being hungover anymore. I learned that in my intro to something-ology class. - Marshall Eriksen
+Last updated: 2024-04-06 12:07:00
+Random Quote: The beauty of a moment, is that it's fleeting. - Ted Mosby
