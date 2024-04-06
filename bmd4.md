@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 06:55:59
-Random Quote: Your innocence may be as plain as the scar on your face, but it will not save you.  No more than your father will.  But I might.  Not as your judge.  As your champion.  -  Oberyn Martell
+Last updated: 2024-04-06 06:56:32
+Random Quote: What is lost, will be found. - Maura Franklin
