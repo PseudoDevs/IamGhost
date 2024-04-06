@@ -1,5 +1,2 @@
-Last updated: 2024-04-06 06:28:44
-Random Quote: "What's love to you?"
-Flaca: "It's like getting into a bath, but the water is like warm chocolate pudding. And the Smiths are playing. There Is A Light That Never Goes Out.' There's mood lighting all over, and there's like five dudes massaging you."
-Maritza: "And you have a pizza!"
-Flaca: "She's right. You also have a pizza." - Marisol 'Flaca' Gonzales & Maritza Ramos
+Last updated: 2024-04-06 06:29:57
+Random Quote: Well, I think that... when you have a connection with someone, it never really goes away, you know? - Alex Vause
