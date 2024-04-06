@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 08:14:40
-Random Quote: Marshall: "The last time I lived this far from him, was my semester abroad."Lily: "You never did a semester abroad?"Marshall: "That's what I called it, when we lived on opposite sides of the campus." - Marshall Eriksen
+Last updated: 2024-04-06 08:15:14
+Random Quote: Joe Caputo: "You ever notice how some dog breeds, they sound kind of dirty? Like, shih tzu, cocker, Jack-something."Susan Fischer: "Poodle."Joe Caputo: "That is good, I didn't think of that one." - Joe Caputo
