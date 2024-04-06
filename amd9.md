@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 11:42:34
-Random Quote: Stacey, six kids in five years! The woman's basically a ride to the waterpark. - Ted Mosby
+Last updated: 2024-04-06 11:43:07
+Random Quote: His blood is bad.  He needs to be leeched.  The leeches suck away the bad blood, all the rage and pain.  No man can think so full of anger.  Ramsay, though... his tainted blood would poison even leeches, I fear.  -  Roose Bolton
