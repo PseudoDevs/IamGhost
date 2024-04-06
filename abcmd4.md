@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 07:39:25
-Random Quote: Take care of this little one or maybe, it'll take care of you. - Greef Karga
+Last updated: 2024-04-06 07:40:32
+Random Quote: Dismissing Selmy, where was the sense in that?  Yes, the man was old, but the name of Barristan the Bold still has meaning in the realm.  He lent honor to any man he served.  -  Tywin Lannister
