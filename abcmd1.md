@@ -1,4 +1,2 @@
-Last updated: 2024-04-06 07:10:01
-Random Quote: Oh Il-nam: "As a kid, I'm willing to bet you got spanked a lot."
-Seong Gi-hun: "How did you know?"
-Oh Il-nam: "My son did too. He was just like you, friend." - Oh Il-nam
+Last updated: 2024-04-06 07:10:36
+Random Quote: Ted: "Robin! I just had a great idea!"Robin: "Oh, do whatever you want to me, just don't wake me up." - Robin Scherbatsky

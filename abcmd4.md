@@ -1,4 +1,2 @@
-Last updated: 2024-04-06 07:10:01
-Random Quote: Bro McDonald had a farm, E-I-E-I-bro
-And on that farm he had some chicks, E-I-E-I-bro
-With a hot chick here and a dumb chick there... - Barney Stinson
+Last updated: 2024-04-06 07:10:36
+Random Quote: I am the storm, my lord, the first storm, and the last.  -  Euron Greyjoy
