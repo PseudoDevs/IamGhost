@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 10:18:46
-Random Quote: That's it. Three rules. I call 'em the 'Don't be stupid'-rules. 'Cause we're not stupid, alright? - Jim Hopper
+Last updated: 2024-04-06 10:19:19
+Random Quote: Kuiil: "They really don't like you for some reason."Mandalorian: "Well, I did disintegrate a few of them." - Din Djarin
