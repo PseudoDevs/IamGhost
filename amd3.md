@@ -1,2 +1,4 @@
-Last updated: 2024-04-06 07:58:10
-Random Quote: People come into our lives exactly when they should. - Nina Locke
+Last updated: 2024-04-06 07:58:43
+Random Quote: Joel: "You keep going for family."
+Ellie: "I'm not family?"
+Joel: "No. You're cargo." - Joel Miller
