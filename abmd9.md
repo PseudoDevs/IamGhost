@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 08:34:36
-Random Quote: Fellas, I was enjoying the Laurel and Hardy vibe, but I'm not such a fan of the Bickersons. - Saul Goodman
+Last updated: 2024-04-06 08:35:43
+Random Quote: There are worse ways to die than warm and drunk.  I knew a brother drowned himself in wine once.  It was a poor vintage, though, and his corpse did not improve it.  -  Dolorous Edd Tollett
