@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 12:08:17
-Random Quote: Eighty-six years. But with good behavior... who knows? - Saul Goodman
+Last updated: 2024-04-06 12:09:23
+Random Quote: A ruler who hides behind paid executioners soon forgets what death is.  -  Eddard Stark
