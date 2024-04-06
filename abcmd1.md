@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 12:00:20
-Random Quote: Nobody likes to be alone, especially after a breakup. But that's when we discover who we really are and what we really want. - Ted Mosby
+Last updated: 2024-04-06 12:00:53
+Random Quote: Folly and desperation are ofttimes hard to tell apart.  -  Maester Luwin
