@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 08:29:47
-Random Quote: Barney: "Canada sucks."Robin: "Okay, well, you're one-quarter Canadian, so by that logic you one-quarter suck!"Barney: "I'm 100% awesome and you know it!"Robin: "Yeah, I do." - Robin Scherbatsky
+Last updated: 2024-04-06 08:30:20
+Random Quote: You don't get to tell anyone what's sad. You're like a one-man Mount Sadmore. So I guess like a Lincoln Sadmorial. - Rick Sanchez
