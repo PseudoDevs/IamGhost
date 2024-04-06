@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 08:42:36
-Random Quote: To go north, you must go south.  To reach the west, you must go east.  To go forward you must go back, and to touch the light you must pass beneath the shadow.  -  Quaithe
+Last updated: 2024-04-06 08:43:11
+Random Quote: Why the oldest son, and not the best - fitted?  The crown will suit me, as it never suited Robert and would not suit Stannis. 

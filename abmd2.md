@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 08:42:36
-Random Quote: Nobody exists on purpose. Nobody belongs anywhere. We're all going to die. Come watch TV? - Morty Smith
+Last updated: 2024-04-06 08:43:11
+Random Quote: If you die before you say her name, Set, I will hunt you through the seven hells.  -  Oberyn Martell
