@@ -1,2 +1,5 @@
-Last updated: 2024-04-06 08:16:44
-Random Quote: Would the five of us always live within a few minutes of that booth? No, that's life, kids, but here's what I discovered: Our booth was wherever the five of us were together. - Ted Mosby
+Last updated: 2024-04-06 08:17:51
+Random Quote: Bo-Katan: "I haven't seen battle droids since the Clone Wars."
+Din: "I have."
+Bo-Katan: "Any of 'em look suspicious?"
+Din: "They all look suspicious." - Din Djarin

@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 08:17:17
-Random Quote: You came in the door like thunder, Then hit the floor like thunder, Laying me down you wonder, Shaking the walls like thunder - 
+Last updated: 2024-04-06 08:17:51
+Random Quote: Ted: "Those Robin's boobies?"Barney: "When new nubile hotties lean in to inspect your bundle of joy, you can inspect their bundles of joy. The Broller. God, I come up with a lot of good stuff!" - Barney Stinson
