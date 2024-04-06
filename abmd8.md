@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 08:21:55
-Random Quote: A man will tell you poison is dishonorable, but a woman's honor is different.  The Mother shaped us to protect our children, and our only dishonor is failure.  -  Lysa Arryn
+Last updated: 2024-04-06 08:22:28
+Random Quote: What Colonel Sanders is to chicken, Saul Goodman is to the law. - Saul Goodman
