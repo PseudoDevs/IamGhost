@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 11:43:53
-Random Quote: Robb Stark won the war on the battlefield and lost it in a bedchamber.  -  Jaime Lannister
+Last updated: 2024-04-06 11:44:27
+Random Quote: Qhorin was my enemy.  But also my brother, once.  So... shall I thank you for killing him, Jon Snow?  Or curse you?  -  Mance Rayder
