@@ -1,3 +1,2 @@
-Last updated: 2024-04-06 09:39:56
-Random Quote: How does a computer get drunk?
-It takes screenshots. - Will Livingston
+Last updated: 2024-04-06 09:40:29
+Random Quote: What I came to realise is that fear, that’s the worst of it. That’s the real enemy. So, get up, get out in the real world and you kick that bastard as hard you can right in the teeth. - Walter White
