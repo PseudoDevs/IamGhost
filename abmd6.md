@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 09:41:19
-Random Quote: No matter how much we fight it we are connected by our blood. We can feel estranged from our families and not understand what they do. And still, in the end, we will do anything for them. - Adam
+Last updated: 2024-04-06 09:41:54
+Random Quote: A bag of dragons buys a man's silence for a while, but a well - placed quarrel buys it forever. 
