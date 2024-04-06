@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 11:22:35
-Random Quote: I just want to stand on top of the Wall and piss off the edge of the world.  -  Tyrion Lannister
+Last updated: 2024-04-06 11:23:08
+Random Quote: The Boltons have always been as cruel as they are cunning, but this one seems a beast in human skin.  -  Robett Glover
