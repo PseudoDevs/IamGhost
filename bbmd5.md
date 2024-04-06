@@ -1,4 +1,2 @@
-Last updated: 2024-04-06 06:55:36
-Random Quote: Joel: "Long way or short way?"
-Tess: "I mean, it's the long way or the 'we're fuckin' dead' way."
-Ellie: "Well, I vote long way just based on that limited information." - Ellie Williams
+Last updated: 2024-04-06 06:56:09
+Random Quote: Kids, I'm going to tell you an incredible story, the story of how I met your mother. - Ted Mosby
