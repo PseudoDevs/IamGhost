@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 10:34:29
-Random Quote: Darlin', there's no inferringI've seen the boy sitting in the dirt eating his own belly button lint. - Meemaw
+Last updated: 2024-04-06 10:35:02
+Random Quote: Penrose chose to die rather than give him up.  It still angers me.  How could he think I would hurt the boy?  I chose Robert, did I not?  When that hard day came, I chose blood over honor.  -  Stannis Baratheon
