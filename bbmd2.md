@@ -1,4 +1,2 @@
-Last updated: 2024-04-06 08:41:31
-Random Quote: Barney: "Ted, I'm gonna teach you how to live. Barney... we met at the urinal. Lesson 1: Loose the goatee it doesn't go with your suit!"
-Ted: "I'm not wearing a suit."
-Barney: "Lesson 2: Get a suit, suits are cool. Exhibit A. Lesson 3: "Don't even think about getting married until your 30." - Barney Stinson
+Last updated: 2024-04-06 08:42:06
+Random Quote: Until the Mountain crushed my brother's skull, no Dornishmen had died in this War of the Five Kings.  Tell me, Captain, is that my shame or my glory?  -  Doran Martell
