@@ -1,3 +1,2 @@
-Last updated: 2024-04-06 07:44:56
-Random Quote: Jerry: "Why Florida?"
-Cat: "Because they don't ask questions. They play Volleyball, they party and they have fun." - Rick and Morty
+Last updated: 2024-04-06 07:45:29
+Random Quote: Robert could piss in a cup and men would call it wine, but I offer them cold clear water and they squint in suspicion and mutter to each other about how queer it tastes.  -  Stannis Baratheon
