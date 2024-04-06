@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 08:12:31
-Random Quote: If somehow the Lord gave me a second chance at that moment... I would do it all over again. - Joel Miller
+Last updated: 2024-04-06 08:13:04
+Random Quote: The title was but a courtesy due him as a council member; Varys was lord of nothing but the spiderweb, the master of none but his whispers.  -  Catelyn Stark
