@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 11:17:03
-Random Quote: Dad, you can be in all of the fights that you want, but don't get hurt too bad. - Seong Gi-hun
+Last updated: 2024-04-06 11:17:36
+Random Quote: A hall to die in, and men to bury me.  I thank you, my lords... but I spit on your pity... I am a knight... I shall die a knight.  -  Barristan Selmy
