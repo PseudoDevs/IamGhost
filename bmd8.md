@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 10:10:24
-Random Quote: Sometimes one has to adjust to a situation as it unfolds. With every calamity comes opportunity. - Virginia Wilson
+Last updated: 2024-04-06 10:10:57
+Random Quote: The World is going to come to an end tonight. Yes think about it. End of the World, Nostradamus, Notre Dame, Fighting Irish, Irish, St. Patrick's Day. This is it Bro. Bro-calypse Now... Bro-Mageddon. - Barney Stinson

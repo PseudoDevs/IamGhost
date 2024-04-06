@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 10:10:24
-Random Quote: Barney: "I'm dating a stripper."Ted: "Yes, I've seen your bus ad." - Ted Mosby
+Last updated: 2024-04-06 10:10:57
+Random Quote: Jaime and I are more than brother and sister.  We are one person in two bodies.  We shared a womb together.  He came into this world holding my foot, our old maester said.  When he is in me, I feel... whole.  -  Cersei Lannister
