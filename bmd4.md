@@ -1,3 +1,2 @@
-Last updated: 2024-04-06 07:21:04
-Random Quote: Ellie: "Everybody I've cared for, either died or left me."
-Joel: "You have no idea what loss is." - Joel Miller
+Last updated: 2024-04-06 07:21:38
+Random Quote: There have always been men who found it easier to speak vows than to keep them.  -  Arys Oakheart
