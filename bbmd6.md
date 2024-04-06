@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 08:19:10
-Random Quote: I will kill your wife, I will kill your son, I will kill your infant daughter. - Gustavo Fring
+Last updated: 2024-04-06 08:20:17
+Random Quote: When the sun has set, no candle can replace it.  -  Loras Tyrell
