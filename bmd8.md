@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 07:07:17
-Random Quote: Fear cuts deeper than swords.  -  Syrio Forel
+Last updated: 2024-04-06 07:07:55
+Random Quote: Old stories are like old friends, Old Nan used to say.  You have to visit them from time to time.  -  Bran Stark
