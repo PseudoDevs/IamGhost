@@ -1,3 +1,2 @@
-Last updated: 2024-04-06 09:56:54
-Random Quote: George: "I love what you done with the place. Did you do it yourself, or did you get some pouf to help ya?"
-Rebecca: "I could ask the same of your hair." - Rebecca Welton
+Last updated: 2024-04-06 09:57:29
+Random Quote: There is no stronger bond than that of the family you choose. - Miguel Angel Felix Gallardo
