@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 08:43:31
-Random Quote: You have just become victims of the cheerleader-effect. Glad you asked: The cheerleader-effect is when a group of women seems hot, but only as a group. Just like with cheerleaders. They seem hot, but take each one of them individually? Sled dogs! - Barney Stinson
+Last updated: 2024-04-06 08:44:05
+Random Quote: When the sun rises in the west and sets in the east.  When the seas go dry and mountains blow in the wind like leaves.  When your womb quickens again, and you bear a living child.  Then he will return, and not before.  -  Mirri Maz Duur
