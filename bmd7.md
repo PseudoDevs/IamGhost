@@ -1,2 +1,4 @@
-Last updated: 2024-04-06 07:57:01
-Random Quote: People deserve a second chance, just like businesses. - Marty Byrde
+Last updated: 2024-04-06 07:57:34
+Random Quote: Marshall: "Except the flames of Lucifer keep singein our back bumper as we drive through this hellish, cheese-infected wasteland."
+Lily: "Wisconsin?"
+Marshall: "Wisconsin!" - Marshall Eriksen
