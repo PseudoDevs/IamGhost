@@ -1,2 +1,5 @@
-Last updated: 2024-04-06 11:26:12
-Random Quote: You don't bring a date to a wedding, that's like taking a deer carcass on a hunting trip. - Barney Stinson
+Last updated: 2024-04-06 11:26:46
+Random Quote: Morty: "Mom, I have a friend coming over. Is that cool?"
+Beth: "I told your sister no parties."
+Morty: "It's one friend."
+Beth: "That's a party to you." - Beth Smith
