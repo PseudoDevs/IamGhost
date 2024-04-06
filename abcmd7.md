@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 08:10:50
-Random Quote: There are only two reasons to date a girl you've already dated: breast implants. - Barney Stinson
+Last updated: 2024-04-06 08:11:57
+Random Quote: Now my bastards presume to teach me courtesy.  I'll speak any way I like, damn you.  I've had three kings to guest in my life, and queens as well, do you think I require lessons from the likes of you, Ryger?  Your mother was milking goats the first time I gave her my seed.  -  Walder Frey
