@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 09:27:35
-Random Quote: I've only known one other being like this. A wise Jedi Master named Yoda. - Ahsoka Tano
+Last updated: 2024-04-06 09:28:08
+Random Quote: If you keep all your treasures in one purse, you only make it easier for those who would rob you.  -  Robb Stark
