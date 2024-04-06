@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 08:18:52
-Random Quote: You're a beautiful, sweet girl. Fuck this guy! - Nicky Nichols
+Last updated: 2024-04-06 08:19:26
+Random Quote: Mando: "I was not born on Mandalore."Greef Karga: "But you're Mandalorian?"Cara Dune: "Mandalorian isn't a race."Mando: "It's a Creed." - Din Djarin
