@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 08:28:06
-Random Quote: You need to figure out what the fuck you want. - Nicky Nichols
+Last updated: 2024-04-06 08:29:13
+Random Quote: Know the men who follow you and let them know you.  Don't ask your men to die for a stranger.  -  Eddard Stark
