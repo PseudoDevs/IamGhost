@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 08:17:55
-Random Quote: The Drowned God gives every man a gift, even him; no man could piss longer or farther than Aeron Greyjoy, as he proved at every feast.  Once he bet his new longship against a herd of goats that he could quench a hearthfire with no more than his cock.  Aeron feasted on goat for a year, and named the longship Golden Storm, though Balon threatened to hang him from her mast when he heard what sort of ram his brother proposed to mount upon her prow.  -  Aeron Greyjoy
+Last updated: 2024-04-06 08:19:35
+Random Quote: So young.  Though mayhaps this was a blessing.  Had he lived, he would have grown up to be a Frey.  -  Wyman Manderly
