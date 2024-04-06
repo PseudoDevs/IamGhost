@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 11:34:15
-Random Quote: Need found it hard to imagine what could frighten Stannis Baratheon, who had once held Storm's End through a year of siege, surviving on rats and boot leather while the Lords Tyrell and Redwyne sat outside with their hosts, banqueting in sight of his walls.  -  Eddard Stark
+Last updated: 2024-04-06 11:34:48
+Random Quote: You don't get to tell me what to look at, I've seen your Pornhub account! Also, who makes a Pornhub account? - Rick Sanchez
