@@ -1,4 +1,2 @@
-Last updated: 2024-04-06 09:42:29
-Random Quote: It's going to be legen...
-wait for it - and I hope you're not lactose-intolerant cause the second half of that word is
-...dary! - Barney Stinson
+Last updated: 2024-04-06 09:43:04
+Random Quote: The septons preach about the seven hells.  What do they know?  Only a man who's been burned knows what hell is truly like.  -  Sandor Clegane
