@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 08:54:25
-Random Quote: Gloria: "It seemd like all what we did was fight and make love. One time, I'm not kidding you, we fell out of the window together."Jay: "Which one were you doing?" - Jay Pritchett
+Last updated: 2024-04-06 08:54:58
+Random Quote: Fine, you guys can have a baby, but only under these conditions:1) You promise to always love me more than the baby.2) Once a month, I get to use the baby to pick up chicks.3) That may involve the baby falling from a two-story window and me heroically catching it.4) No breast-feeding in front of me.5) Forget about 4), you can whip 'em out whenever you want. - Barney Stinson
