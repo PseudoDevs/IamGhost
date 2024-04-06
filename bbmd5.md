@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 08:45:53
-Random Quote: You're wrong.  Need Stark was my gaoler, but my blood is still salt and iron.  -  Theon Greyjoy
+Last updated: 2024-04-06 08:46:30
+Random Quote: The world was full of cravens who pretended to be heroes; it took a queer sort of courage to admit to cowardice as Samwell Tarly had.  -  Jon Snow
