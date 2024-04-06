@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 10:28:49
-Random Quote: The Crow's Eye brought back monsters from the east... aye, and wizards too.  -  Tristifer Botley
+Last updated: 2024-04-06 10:29:22
+Random Quote: The "no more surprises"-thing is the best part of being married. - Lily Aldrin
