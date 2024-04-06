@@ -1,3 +1,2 @@
-Last updated: 2024-04-06 07:43:20
-Random Quote: Ravonna: "You really believe in this Loki variant?"
-Mobius: "Luckily, he believes in himself enough for the both of us." - Mobius M. Mobius
+Last updated: 2024-04-06 07:43:53
+Random Quote: Winter will never come for the likes of us.  Should we die in battle, they will surely sing of us, and it's always summer in the songs.  In the songs all knights are gallant, all maids are beautiful, and the sun is always shining.  -  Brienne of Tarth
