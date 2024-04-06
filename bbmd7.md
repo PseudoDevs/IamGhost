@@ -1,4 +1,2 @@
-Last updated: 2024-04-06 08:39:23
-Random Quote: Morty: "Mom told me she wanted me to stay here to make sure you didn't die."
-Jerry: "Well, you tell your mother that I'm gonna be fine."
-Rick: "Don't train your child to lie, Jerry." - Rick Sanchez
+Last updated: 2024-04-06 08:39:56
+Random Quote: Ted, you know who's a million times hotter than the hottest girl I've ever slept with? Her okay-looking friend I haven't seen naked. Why? Because new is always better. - Barney Stinson
