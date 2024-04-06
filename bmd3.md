@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 10:14:05
-Random Quote: There are moments when we must understand that the decisions we make influence more than just our own fates. - 
+Last updated: 2024-04-06 10:14:38
+Random Quote: Did Need Stark dress you like that?  Was it his pleasure to garb you in velvets and silks and make you his own sweet daughter?  -  Balon Greyjoy
