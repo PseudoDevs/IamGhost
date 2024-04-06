@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 10:00:34
-Random Quote: Whatever happens next, it's not gonna go down the way you think it is. - Mike Ehrmantraut
+Last updated: 2024-04-06 10:01:07
+Random Quote: If I'm always looking back, I'm never looking ahead. We are who we are because of consequences. You can't live without consequences. - Morty Smith
