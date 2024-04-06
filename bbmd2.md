@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 10:54:51
-Random Quote: That went surprisingly well. You came off like a naive idiot - and naive idiots are not a threat. - Viktor Bryukhanov
+Last updated: 2024-04-06 10:55:24
+Random Quote: You were supposed to be my wife, to bear me children with silver hair and purple eyes, to keep the blood of the dragon pure.  I took care of you.  I taught you who you were.  I fed you.  I sold our mother's crown to keep you fed.  -  Viserys Targaryen
