@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 06:38:07
-Random Quote: Emotion equals weakness. - Wednesday Addams
+Last updated: 2024-04-06 06:38:40
+Random Quote: Grief never gets any smaller, so you have to make yourself bigger around it. The best way to do that is to open up. Let people in. - Rendell Locke
