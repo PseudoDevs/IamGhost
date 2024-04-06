@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 06:48:51
-Random Quote: Sometimes our best decisions are the ones that don't make any sense at all. - Ted Mosby
+Last updated: 2024-04-06 06:49:25
+Random Quote: I have never liked you, Cersei, but you were my own sister, so I never did you harm.  You've ended that.  I will hurt you for this.  I don't know how yet, but give me time.  A day will come when you think yourself safe and happy, and suddenly your joy will turn to ashes in your mouth, and you'll know the debt is paid.  -  Tyrion Lannister
