@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 10:35:53
-Random Quote: I was weaned on venom, Dalt.  Any viper takes a bite of me will rue it.  -  Gerold Dayne
+Last updated: 2024-04-06 10:36:27
+Random Quote: Will you explain to me how that was offside? No, I'm asking you, seriously. Explain offside to me! It makes no sense. - Rebecca Welton
