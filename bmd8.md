@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 06:58:50
-Random Quote: When the sun has set, no candle can replace it.  -  Loras Tyrell
+Last updated: 2024-04-06 06:59:25
+Random Quote: The Night's Watch is a sworn brotherhood.  We have no families.  None of us will ever father sons.  Our wife is duty.  Our mistress is honor.  -  Benjen Stark
