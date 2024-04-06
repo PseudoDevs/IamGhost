@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 06:43:31
-Random Quote: The world is one great web, and no man dare not touch a single strand lest all the others tremble.  -  Illyrio Mopatis
+Last updated: 2024-04-06 06:45:17
+Random Quote: She had made the mistake of speaking when Set Gregor wanted quiet, so the Mountain had smashed her teeth to splinters with a mailed fist and broken her pretty little nose as well.  He would have done worse, no doubt, if Cersei had not called him down to King's Landing to face the Red Viper's spear.  Jaime would not mourn him.  -  Jaime Lannister
