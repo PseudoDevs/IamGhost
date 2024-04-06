@@ -1,2 +1,3 @@
-Last updated: 2024-04-06 07:00:45
-Random Quote: Robin, if you asked a hundred people: "Who's the worst person you could possibly date?" They'd all say "your therapist", except the ones saying "Barney". - Ted Mosby
+Last updated: 2024-04-06 07:02:03
+Random Quote: Bo-Katan: "You are not a Mandalorian."
+Boba: "Never said I was." - Boba Fett
