@@ -1,4 +1,2 @@
-Last updated: 2024-04-06 08:37:35
-Random Quote: Stark: "Red, green, blue... who paints a button blue?"
-Carter: "Don't tell me the American playboy needs help pushing buttons."
-Stark: "Hedy Lamarr and I spent a weekend together, but she wasn't teaching me German." - Howard Stark
+Last updated: 2024-04-06 08:38:42
+Random Quote: A mind needs books as a sword needs a whetstone, if it is to keep its edge.  -  Tyrion Lannister
