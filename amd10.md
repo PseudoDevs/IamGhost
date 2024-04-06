@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 07:12:43
-Random Quote: Are you allowed to say that to people in my tax bracket? - Iron Man
+Last updated: 2024-04-06 07:13:16
+Random Quote: Why the oldest son, and not the best - fitted?  The crown will suit me, as it never suited Robert and would not suit Stannis. 
