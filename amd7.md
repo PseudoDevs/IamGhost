@@ -1,2 +1,4 @@
-Last updated: 2024-04-06 09:14:00
-Random Quote: I think it would put us at a disadvantage if we just choose one. There's this saying in investing, "Try not to keep your eggs in the same basket." - Cho Sang-woo
+Last updated: 2024-04-06 09:14:33
+Random Quote: Joel: "I need you to tell us where we are."
+Man: "If you got a map, why you lost?"
+Ellie: "Must've missed all the street signs in the enormous f-cking forest." - Ellie Williams
