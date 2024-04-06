@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 09:06:55
-Random Quote: Catelyn would sooner Lord Umber had seen fit to stay sober, but telling the Greatjon not to drink was like telling him not to breathe for a few hours.  -  Catelyn Stark
+Last updated: 2024-04-06 09:07:33
+Random Quote: Shut the f*ck up and let me die in peace. - Mike Ehrmantraut
