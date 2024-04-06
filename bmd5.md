@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 08:15:29
-Random Quote: Do you remember that cave?  We should have stayed in that cave.  I told you so.  -  Ygritte
+Last updated: 2024-04-06 08:16:02
+Random Quote: Look, if Michael Jordan's healthy, you don't let Scottie Pippen run the offense. Oh, you're from Canada, right. If Wayne Gretzky's healthy, you don't let François... what I'm saying is: hockey is stupid and I'm point guy! - Barney Stinson
