@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 08:13:59
-Random Quote: Rattleshirt, we called him.  Treacherous and bloodthirsty.  If there's honor in him, he hides it down beneath his suit of bones.  -  Jon Snow
+Last updated: 2024-04-06 08:15:05
+Random Quote: Someone has to protect this family from the man who protects this family. - Skyler White
