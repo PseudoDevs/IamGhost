@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 08:07:19
-Random Quote: Never give power to the big man. - Alfie Solomons
+Last updated: 2024-04-06 08:07:52
+Random Quote: Have you ever been told you're different, odd, or simply don't belong? In a world full of normies, do you feel like an outcast? Me too. But I'm pleased to tell you there's a very special place for people like us. Nevermore Academy. - Wednesday Addams
