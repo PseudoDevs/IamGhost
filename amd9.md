@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 08:02:56
-Random Quote: I learned form Set Arthur Dayne, the Sword of the Morning, who could have slain all five of you with his left hand while he was taking a piss with the right.  -  Jaime Lannister
+Last updated: 2024-04-06 08:03:30
+Random Quote: It is for my prince to command, for Hotah to obey.  -  Areo Hotah
