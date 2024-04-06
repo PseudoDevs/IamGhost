@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 08:00:20
-Random Quote: You wanna know what line doesn't work on a harp player? "Hey baby, wanna pluck?" - Barney Stinson
+Last updated: 2024-04-06 08:01:27
+Random Quote: Nymeria was least dangerous when nearly naked.  Elsewise she was sure to have a dozen blades concealed about her person.  -  Areo Hotah
