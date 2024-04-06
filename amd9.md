@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 11:28:09
-Random Quote: As fun as this place is, it's late. So, what's our play? And don't say, "The Siamese Twins", we're not stretching out another one of my jackets! - Ted Mosby
+Last updated: 2024-04-06 11:28:43
+Random Quote: The Peaky Blinders. The vicious, merciless gangs who blind those who see and cut out the tongues of those who talk. - Chester Campbell
