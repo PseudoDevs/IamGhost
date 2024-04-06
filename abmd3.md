@@ -1,4 +1,2 @@
-Last updated: 2024-04-06 10:57:35
-Random Quote: Rick: "Guests are fans, Morty, which we are not. We'd like professional badges."
-"Do you have a crew?"
-Rick: "Yes. He's a getaway driver with Asperger's and my butt is a demolitions expert." - Rick Sanchez
+Last updated: 2024-04-06 10:58:08
+Random Quote: If a song makes a maid want to slip off her clothes and feel the good warm sun kiss her skin, why is that the singer's fault?  -  Tom of Sevenstreams
