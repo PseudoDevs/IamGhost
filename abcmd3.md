@@ -1,6 +1,2 @@
-Last updated: 2024-04-06 06:33:31
-Random Quote: You lie to your husband all the time...
-"That shirt looks great on you."
-"I love your mom."
-"I never fantasize about Barney when we're doing it."
-Sound familiar, Pinocchio? - Barney Stinson
+Last updated: 2024-04-06 06:35:15
+Random Quote: I will kill your wife, I will kill your son, I will kill your infant daughter. - Gustavo Fring
