@@ -1,4 +1,2 @@
-Last updated: 2024-04-06 11:35:09
-Random Quote: Morticia: "Please excuse Wednesday. She's allergic to color."
-Enid: "Wow, what happens to you?"
-Wednesday: "I break out into hives, and then the flesh peels off my bones." - Wednesday Addams
+Last updated: 2024-04-06 11:35:42
+Random Quote: Because sometimes, even when you know how something's gonna end, that doesn't mean you can't enjoy the ride. - Ted Mosby
