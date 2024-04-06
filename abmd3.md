@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 09:36:38
-Random Quote: Even brave men blind themselves sometimes, when they are afraid to see.  -  Beric Dondarrian
+Last updated: 2024-04-06 09:37:12
+Random Quote: Robb Stark has won more battles in a year than the Lord of Highgarden had in twenty.  -  Tyrion Lannister
