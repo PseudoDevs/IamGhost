@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 08:03:42
-Random Quote: Morty: "Why don't you admit you don't want anyone else to be happy because you're a sad old fart?"Rick: "How do you saddle a fart?" - Rick Sanchez
+Last updated: 2024-04-06 08:04:17
+Random Quote: I am Bo-Katan of Clan Kryze. I was born on Mandalore and fought in the Purge. I am the last of my line. - Bo-Katan
