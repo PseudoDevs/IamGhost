@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 07:35:37
-Random Quote: I don't want to be good. I am going to be great. - Pablo Escobar
+Last updated: 2024-04-06 07:36:10
+Random Quote: Robb Stark won the war on the battlefield and lost it in a bedchamber.  -  Jaime Lannister
