@@ -1,3 +1,2 @@
-Last updated: 2024-04-06 07:56:44
-Random Quote: Steven Grant: "I'm not trying to slag off marketing, but there's been a major blunder. Because they've got seven gods here, and the Ennead has nine."
-Donna: "I fired two of them for bein' late. Listen, if you don't stop natterin' at me, I swear I'll shove you in a sarcophagus. You can tell the pharaoh in there what's wrong with them and all." - Arthur Harrow
+Last updated: 2024-04-06 07:57:17
+Random Quote: What if God doesn’t know what he’s doing? If the plan is wrong? If God is wrong? - 
