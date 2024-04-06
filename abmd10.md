@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 08:45:41
-Random Quote: I feel like her sobriety is completely dependent on how available I am to her. - Jules Vaughn
+Last updated: 2024-04-06 08:46:14
+Random Quote: If I'm always looking back, I'm never looking ahead. We are who we are because of consequences. You can't live without consequences. - Morty Smith
