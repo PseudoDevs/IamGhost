@@ -1,2 +1,4 @@
-Last updated: 2024-04-06 07:14:05
-Random Quote: When you date someone, it's like you're taking one long course in who that person is and then, when you break up, all that stuff becomes useless. It's the emotional equivalent of an English degree... - Ted Mosby
+Last updated: 2024-04-06 07:14:39
+Random Quote: Ted: "Okay, time to get the horn back to the bistro."
+Robin: "Oh Ted, I don't know if I can go again, that tuckered me out."
+Ted: "No euphemism." - Robin Scherbatsky
