@@ -1,4 +1,2 @@
-Last updated: 2024-04-06 11:40:18
-Random Quote: Greef: "Nevarro is a very fine planet. And now that the scum and villainy have been washed away, it's very respectable again."
-Mando: "As a bounty hunter hive?"
-Greef: "Some of my favorite people are bounty hunters." - Greef Karga
+Last updated: 2024-04-06 11:41:57
+Random Quote: That is nostalgia: finding out that things from the past you didn’t even expectwere happiness…. actually were - Tokyo
