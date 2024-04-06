@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 08:00:39
-Random Quote: Why should I go running to my aunt as if I were a beggar?  My claim is better than her own.  Let her come to me... in Westeros.  -  Aegon Targaryen
+Last updated: 2024-04-06 08:01:12
+Random Quote: Are you aware, that breaking a broath can have deadly- even fatal repercussions? - Barney Stinson
