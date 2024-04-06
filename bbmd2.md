@@ -1,3 +1,2 @@
-Last updated: 2024-04-06 07:57:32
-Random Quote: Journalist: "Mr. Stark, were you injured in the attack?"
-Tony Stark: "No, but I did spill my drink, and it was a '26 Macallan, so I'm pretty sure that's a war crime." - Iron Man
+Last updated: 2024-04-06 07:58:05
+Random Quote: You two suck at peddling meth. - Saul Goodman
