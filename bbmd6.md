@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 08:00:16
-Random Quote: A drum roll?! That's it? So what, you just said good night, came home and... performed a drum solo? - Marshall Eriksen
+Last updated: 2024-04-06 08:00:49
+Random Quote: He made me kill a rabbit. I guess he thought it would make me into more of a man or something. I cried for a week. - Jonathan Byers
