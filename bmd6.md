@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 10:22:34
-Random Quote: Pennsatucky: "It weren't my fault. I was just doing as the Spirit commanded."Pussey: "Fuck are you? Joan of Arc?"Pennsatucky: "No, I'm from Waynesboro, my name is Tiffany..." - Tiffany 'Pennsatucky' Doggett
+Last updated: 2024-04-06 10:23:07
+Random Quote: Barney: "Looks like that bee got busy."Ted: "Looks like that French maid didn't turn down somebody's bed."Marshall: "Oh, looks like Pocahontas has a couple of wounded knees." - Marshall Eriksen
