@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 08:13:25
-Random Quote: My arm hasn't been this sore, since I was 13 years old and figured out how to lock a bathroom. - Barney Stinson
+Last updated: 2024-04-06 08:13:59
+Random Quote: Rattleshirt, we called him.  Treacherous and bloodthirsty.  If there's honor in him, he hides it down beneath his suit of bones.  -  Jon Snow
