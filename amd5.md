@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 08:54:43
-Random Quote: All religion is a foolish answer to a foolish question. - Thomas Shelby
+Last updated: 2024-04-06 08:55:57
+Random Quote: Please.  A sword, that's all I ask.  Let me die as Theon, not as Reek.  -  Theon Greyjoy
