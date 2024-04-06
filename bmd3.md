@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 10:11:53
-Random Quote: Presumptuous... that's a good thing, right? - Dustin Henderson
+Last updated: 2024-04-06 10:12:26
+Random Quote: Power tastes best when sweetened by courtesy; you had best learn that if you ever hope to rule.  -  Roose Bolton
