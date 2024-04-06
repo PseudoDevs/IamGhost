@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 06:34:31
-Random Quote: Think of me as Yoda - only, instead of being little and green, I wear suits and I'm awesome. I'm your bro. I'm Broda. - Barney Stinson
+Last updated: 2024-04-06 06:35:04
+Random Quote: Everyone sounds like Meryl Streep with a gun to their head. - Mike Ehrmantraut
