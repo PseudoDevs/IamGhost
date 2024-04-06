@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 11:48:40
-Random Quote: Ted: "That beer looks a little flat."Robin: "Yeah.. it's scotch." - Robin Scherbatsky
+Last updated: 2024-04-06 11:49:47
+Random Quote: The only way to keep your people loyal is to make certain they fear you more than they do the enemy.  -  Cersei Lannister

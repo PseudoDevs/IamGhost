@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 11:49:08
-Random Quote: You want to rule?  This is what ruling is; lying on a bed of weeds, ripping them out by the root, one by one, before they strangle you in your sleep.  -  Cersei Lannister
+Last updated: 2024-04-06 11:49:40
+Random Quote: Kids, you can't cling to the past. Because no matter how tight you hold on... it's already gone. - Ted Mosby
