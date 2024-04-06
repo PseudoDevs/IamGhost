@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 08:43:51
-Random Quote: I didn't give up on my dream house, because that's the thing about stupid decisions - we all make them, but time is funny and sometimes a little magical. It can take a stupid decision, and turn it into something else entirely. - Ted Mosby
+Last updated: 2024-04-06 08:45:49
+Random Quote: Maybe people are nostalgic about high school 'cause it's, like, the last time in their life that they get to dream. - Cassie Howard
