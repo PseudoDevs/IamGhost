@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 06:44:06
-Random Quote: Our secrecy is our survival. our survival is our strength. - The Armorer
+Last updated: 2024-04-06 06:46:04
+Random Quote: There is entirely too much tut - tutting in this realm, if you ask me.  All these kings would do a deal better if they put down their swords and listended to their mothers. 
