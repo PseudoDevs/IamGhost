@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 09:31:18
-Random Quote: So Robin? Guess who nailed the chick from "Metro News One" last night! - Barney Stinson
+Last updated: 2024-04-06 09:31:53
+Random Quote: There is a savage beast in every man, and it stirs when you put a sword in his hand.  -  Jorah Mormont
