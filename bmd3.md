@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 09:34:56
-Random Quote: For the night is dark and full of terrors.  -  Words of R'hllor
+Last updated: 2024-04-06 09:35:29
+Random Quote: Winter will never come for the likes of us.  Should we die in battle, they will surely sing of us, and it's always summer in the songs.  In the songs all knights are gallant, all maids are beautiful, and the sun is always shining.  -  Brienne of Tarth
