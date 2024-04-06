@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 07:40:43
-Random Quote: Marshall: "I don't care if the dishes aren't done, okay? If you care, you do it."Lily: "Great, then I don't care if you have an orgasm. If you care, you do it." - Lily Aldrin
+Last updated: 2024-04-06 07:41:16
+Random Quote: In Colombia, when money's involved, blood inevitably flows. - Steve Murphy
