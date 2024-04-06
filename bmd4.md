@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 08:03:41
-Random Quote: This is my lucky St. Paddys Day suit. I have dry-cleaned many stain out of this baby. - Barney Stinson
+Last updated: 2024-04-06 08:04:16
+Random Quote: I have sinned and must atone, must parade my shame before the eyes of every beggar in the city.  They think that this will break my pride, that it will make an end to me, but they are wrong.  -  Cersei Lannister
