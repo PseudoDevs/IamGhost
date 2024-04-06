@@ -1,3 +1,2 @@
-Last updated: 2024-04-06 10:00:28
-Random Quote: Wednesday: "So you were guided by latent chivalry, the tool of the patriarchy, to extract my undying gratitude?"
-Xavier: "Most people just say 'thank you'." - Xavier Thorpe
+Last updated: 2024-04-06 10:01:03
+Random Quote: Lily, you just gave those children a stapler, a pair of sharp scissors and a pretty decent Pinot Noir. - Marshall Eriksen
