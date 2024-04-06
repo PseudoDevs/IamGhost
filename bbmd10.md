@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 06:46:21
-Random Quote: If you mean when will Chernobyl be completly save - the half-life of Plutonium 239 is 24,000 years. Perhaps we should just say, 'not in our lifetimes'. - Valery Legasov
+Last updated: 2024-04-06 06:46:53
+Random Quote: Marshall: "I don't care if the dishes aren't done, okay? If you care, you do it."Lily: "Great, then I don't care if you have an orgasm. If you care, you do it." - Lily Aldrin
