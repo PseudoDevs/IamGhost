@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 10:25:59
-Random Quote: Elia of Dorne.  I killed her screaming whelp.  Then I raped her.  Then I smashed her fucking head in like this.  -  Gregor Clegane
+Last updated: 2024-04-06 10:26:33
+Random Quote: Lily Aldrin: "Guys, The Captain just made me a very interesting offer."Barney Stinson: "Finally we get around to the real reason he hired you. Just promise you film it, and please use a tripod. There's nothing artistic about shaky-cam, it just looks sloppy." - Barney Stinson
