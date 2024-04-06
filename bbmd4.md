@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 11:13:16
-Random Quote: The Bro Code has been around for centuries. Nay... whatever's more than centuries. - Barney Stinson
+Last updated: 2024-04-06 11:13:48
+Random Quote: The biggest case of my life and I'd already lost the jury. I mean, I've heard of "Twelve Angry Men",  but this was more like "Twelve Horny Women". - Marshall Eriksen
