@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 12:12:48
-Random Quote: I just want to stand on top of the Wall and piss off the edge of the world.  -  Tyrion Lannister
+Last updated: 2024-04-06 12:13:21
+Random Quote: Edric Storm, they call him.  He is said to be the very image of my brother.  If men were to see him, and then look again at Joffrey and Tommen, they could not help but wonder, I would think.  -  Stannis Baratheon
