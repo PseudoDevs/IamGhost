@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 09:08:47
-Random Quote: I'm missing half my zucchini. These girls don't realize I'm here to provide food, not dildos. - Galina 'Red' Reznikov
+Last updated: 2024-04-06 09:09:58
+Random Quote: Did the boy charm you?  He has that gift.  He got it from his father, with the blood.  He knows he is a king's son, but chooses to forget that he is bastard - born. 
