@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 09:37:21
-Random Quote: People deserve a second chance, just like businesses. - Marty Byrde
+Last updated: 2024-04-06 09:37:54
+Random Quote: I'm not sure whose twisted idea it was to put hundreds of adolescents in underfunded schools run by people whose dreams were crushed years ago... but I admire the sadism. - Wednesday Addams
