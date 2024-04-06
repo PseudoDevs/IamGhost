@@ -1,3 +1,2 @@
-Last updated: 2024-04-06 11:09:46
-Random Quote: Weems: "No doubt you'll find something that tickles your fancy."
-Wednesday: "The last person who tickled me lost a finger." - Wednesday Addams
+Last updated: 2024-04-06 11:10:19
+Random Quote: I didn't give up on my dream house, because that's the thing about stupid decisions - we all make them, but time is funny and sometimes a little magical. It can take a stupid decision, and turn it into something else entirely. - Ted Mosby
