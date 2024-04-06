@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 09:51:02
-Random Quote: Beware, Thor, for thy brother shall free himself from our father's wrath And then shall you know the vengeance of Loki! - Thor
+Last updated: 2024-04-06 09:51:35
+Random Quote: The septons preach about the seven hells.  What do they know?  Only a man who's been burned knows what hell is truly like.  -  Sandor Clegane
