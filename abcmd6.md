@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 06:59:24
-Random Quote: The pain is his vessel, desire his compass. It is all that man is capable of. - 
+Last updated: 2024-04-06 07:00:02
+Random Quote: You could turn King's Landing upside down and not find a single man with a mockingbird sewn over his heart but that does not mean I am friendless.  -  Petyr Baelish
