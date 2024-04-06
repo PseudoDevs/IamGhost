@@ -1,3 +1,2 @@
-Last updated: 2024-04-06 06:59:05
-Random Quote: What did the frustrated cannibal do?
-He threw up his hands. - Will Livingston
+Last updated: 2024-04-06 06:59:38
+Random Quote: That was the night I was born. I rose like a phoenix from her mentholated bosom and strode into the world, Armani-clad and fully awesome. - Barney Stinson
