@@ -1,2 +1,3 @@
-Last updated: 2024-04-06 06:42:54
-Random Quote: Roose Bolton's cold and cunning, aye, but a man can deal with Roose.  We've all known worse.  But this bastard son of his... they say he's mad and cruel, a monster.  -  Locke
+Last updated: 2024-04-06 06:44:06
+Random Quote: Man: "Hello, sir. Can I talk to you?"
+Gi-hun: "I don't believe in Jesus." - Seong Gi-hun
