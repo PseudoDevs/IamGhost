@@ -1,4 +1,2 @@
-Last updated: 2024-04-06 09:15:51
-Random Quote: Tony Stark: "Lieutenant Killmonger? What is that? German?"
-Killmonger: "A nickname."
-Tony Stark: "That's clearly a good fit." - Killmonger
+Last updated: 2024-04-06 09:16:27
+Random Quote: Bulls are strong.  Bears.  I have seen my bastard fight.  He is not entirely to blame.  Reek was his tutor, the first Reek, and Reek was never trained at arms.  Ramsay is ferocious, I will grant you, but he swings that sword like a butcher hacking meat.  -  Roose Bolton
