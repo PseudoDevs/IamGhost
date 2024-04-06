@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 10:47:45
-Random Quote: You know what else is scary? Walking home alone at night. But us women keep doing it. Take fear by the hand and keep living. Because you have to live, gentlemen! You have to live until the end! - Nairobi
+Last updated: 2024-04-06 10:48:18
+Random Quote: Bronn was no knight, that was true.  Bronn was a battle - hardened killer. 
