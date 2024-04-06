@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 07:15:26
-Random Quote: I have sinned and must atone, must parade my shame before the eyes of every beggar in the city.  They think that this will break my pride, that it will make an end to me, but they are wrong.  -  Cersei Lannister
+Last updated: 2024-04-06 07:16:00
+Random Quote: Jesus! Just grow some fucking balls! - Walter White
