@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 10:44:42
-Random Quote: The universe is just out here giving like zero fs. - Maddy Perez
+Last updated: 2024-04-06 10:45:16
+Random Quote: Elia Martell, Princess of Dorne.  You raped her!  You murdered her!  You killed her children!  -  Oberyn Martell
