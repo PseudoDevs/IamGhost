@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 07:42:01
-Random Quote: His blood ran black.  Made him my brother as much as yours.  -  Yoren of the Night's Watch
+Last updated: 2024-04-06 07:42:35
+Random Quote: I am the Greyjoy, Lord Reaper of Pyke, King of Salt and Rock, Son of the Sea Wind, and no man gives me a crown.  I pay the iron price.  I will take my crown, as Urron Redhand did five thousand years ago.  -  Balon Greyjoy
