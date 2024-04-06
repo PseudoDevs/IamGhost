@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 10:25:20
-Random Quote: When something seems too perfect, it's usually anything but. - Allison Hargreeves
+Last updated: 2024-04-06 10:25:53
+Random Quote: Cara: "It's gonna break his little heart."Mando: "He'll get over it. We all do." - Din Djarin
