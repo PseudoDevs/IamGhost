@@ -1,3 +1,2 @@
-Last updated: 2024-04-06 09:24:24
-Random Quote: Morty: "I don't like how meta this is getting, Rick."
-Rick: "Shut up, Morty, you're 14. You watch videos of people on YouTube reacting to fing YouTube. I'll be the judge of when we get too meta." - Rick Sanchez
+Last updated: 2024-04-06 09:24:57
+Random Quote: This is my lucky St. Paddys Day suit. I have dry-cleaned many stain out of this baby. - Barney Stinson
