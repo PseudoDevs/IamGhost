@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 07:48:23
-Random Quote: You're wrong.  Need Stark was my gaoler, but my blood is still salt and iron.  -  Theon Greyjoy
+Last updated: 2024-04-06 07:49:30
+Random Quote: You can have all the intelligence in the world, but if nobody's there to act on it, what's it worth? Nothing. - Steve Murphy

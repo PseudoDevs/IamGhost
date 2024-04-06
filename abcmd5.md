@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 07:48:56
-Random Quote: No tales were ever told of me.  Do you think I would be sitting here if it were otherwise?  Your amusements are your own, I will not chide you on that count, but you must be more discreet.  A peaceful land, a quiet people.  That has always been my rule.  Make it yours.  -  Roose Bolton
+Last updated: 2024-04-06 07:49:30
+Random Quote: All the decisions we made in the past leads us inexorably into the future. - Tokyo
