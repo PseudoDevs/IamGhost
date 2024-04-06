@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 12:13:29
-Random Quote: If I ever get anal polyps, I'll know what to name them. - Saul Goodman
+Last updated: 2024-04-06 12:14:02
+Random Quote: Men say Tywin never smiled, but he smiled when he wed your mother, and when Aerys made him Hand.  When Tarbeck Hall came crashing down on Lady Ellyn, that scheming bitch, Tyg claimed he smiled then, and he smiled at your birth, Jaime, I saw with my own eyes.  -  Genna Lannister
