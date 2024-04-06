@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 09:02:40
-Random Quote: You want to rule?  This is what ruling is; lying on a bed of weeds, ripping them out by the root, one by one, before they strangle you in your sleep.  -  Cersei Lannister
+Last updated: 2024-04-06 09:03:51
+Random Quote: In King's Landing, there are two sorts of people.  The players and the pieces.  -  Petyr Baelish
