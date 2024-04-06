@@ -1,6 +1,3 @@
-Last updated: 2024-04-06 07:27:10
-Random Quote: When Mom was a groupie in the '70s, her scrambled eggs made her the darling of the MSG loading dock. Lot of songs written about those scrambled eggs:
-ZZ Top's "She's Got Legs"? Originally "She's Got Eggs".
-Led Zeppelin? "Scramble On".
-Steve Miller? "The Yolker".
-If you listen to Pink Floyd's "Dark Side of the Moon" while eating her eggs, it lines up perfectly. - Barney Stinson
+Last updated: 2024-04-06 07:27:44
+Random Quote: Jessica: "I miss you."
+Morty: "You miss the old me. You miss someone that loved you so much, you never had to love him back." - Morty Smith
