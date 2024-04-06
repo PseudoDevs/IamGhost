@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 08:13:37
-Random Quote: From experience, it often takes a new perspective before one is able to see the light. - Elia Kane
+Last updated: 2024-04-06 08:14:11
+Random Quote: Reality is more than neurons firing around in your brain. Reality is not what's on the inside. It's what's happening on the outside. - Daniel Solace
