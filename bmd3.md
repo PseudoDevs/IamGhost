@@ -1,6 +1,2 @@
-Last updated: 2024-04-06 10:02:49
-Random Quote: Sam: "They might be a part of the big three."
-Bucky: "What big three?"
-Sam: "Androids, aliens and wizards."
-Bucky: "That's not a thing."
-Sam: "That's definitely a thing." - Sam Wilson
+Last updated: 2024-04-06 10:03:25
+Random Quote: I actually enjoyed being alone, solitude allowed me to think about important things. - Sheldon Cooper
