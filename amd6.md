@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 10:00:28
-Random Quote: I learned form Set Arthur Dayne, the Sword of the Morning, who could have slain all five of you with his left hand while he was taking a piss with the right.  -  Jaime Lannister
+Last updated: 2024-04-06 10:01:39
+Random Quote: I wouldn't lie to you. Well... that's a lie. - Rick Sanchez
