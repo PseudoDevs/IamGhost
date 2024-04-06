@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 10:04:35
-Random Quote: Canada also helped in two world wars and gave the world Neil Young, William Shatner, Leonard Cohen, Pamela Anderson, one quarter of Barney Stinson, instant mashed potatoes and best of all - you. - Barney Stinson
+Last updated: 2024-04-06 10:05:45
+Random Quote: We can only die.  Why else do we don these black cloaks, but to die in defense of the realm?  -  Qhorin Halfhand
