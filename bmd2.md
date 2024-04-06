@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 10:18:32
-Random Quote: Until the Mountain crushed my brother's skull, no Dornishmen had died in this War of the Five Kings.  Tell me, Captain, is that my shame or my glory?  -  Doran Martell
+Last updated: 2024-04-06 10:19:05
+Random Quote: You're the smartest guy I ever met, and you're too stupid to see he made up his mind 10 minutes ago. - Hank Schrader
