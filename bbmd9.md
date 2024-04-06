@@ -1,2 +1,3 @@
-Last updated: 2024-04-06 07:34:05
-Random Quote: The number two guy doesn't solve problems. He just points them out. - Don Neto
+Last updated: 2024-04-06 07:34:38
+Random Quote: Jang Deok-su: "Tell me what you're good at?"
+Han Mi-nyeo: "Everything, except the things I can't do." - Oh Il-nam
