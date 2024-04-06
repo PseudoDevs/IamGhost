@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 08:10:35
-Random Quote: You have to be as bad as them above in order to survive. - Polly Gray
+Last updated: 2024-04-06 08:11:08
+Random Quote: I've only known one other being like this. A wise Jedi Master named Yoda. - Ahsoka Tano
