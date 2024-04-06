@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 11:27:36
-Random Quote: If you die before you say her name, Set, I will hunt you through the seven hells.  -  Oberyn Martell
+Last updated: 2024-04-06 11:28:09
+Random Quote: As fun as this place is, it's late. So, what's our play? And don't say, "The Siamese Twins", we're not stretching out another one of my jackets! - Ted Mosby
