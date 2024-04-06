@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 11:33:42
-Random Quote: No matter how tough things get, children always turn out okay. - Berlin
+Last updated: 2024-04-06 11:34:15
+Random Quote: My father never bellowed like the Greatjon, but he was no less dangerous in his wroth.  -  Alys Karstark
