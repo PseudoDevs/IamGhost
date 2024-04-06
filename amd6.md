@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 06:48:48
-Random Quote: I was in the desert. But if visiting the sands were a crime, the line of sinners would be longer than the Nile. - Arthur Harrow
+Last updated: 2024-04-06 06:49:21
+Random Quote: I've had shits that I've liked better than Walder Frey.  -  Brynden Tully
