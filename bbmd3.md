@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 07:58:02
-Random Quote: Barney: "On your tombstone, it will be, 'Lily Aldrin. Caring wife. Loving friend. Slapbet-Commissioner.'"Marshall: "And your tombstone will read, 'Got slapped by Marhsall so hard he died.'" - Marshall Eriksen
+Last updated: 2024-04-06 07:58:36
+Random Quote: Only Renly could vex me so with a piece of fruit.  He brought his doom on himself with his treason, but I did love him, Davos.  I know that now.  I swear, I will go to my grave thinking of my brother's peach.  -  Stannis Baratheon
