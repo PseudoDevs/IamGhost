@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 09:57:29
-Random Quote: Lily, I think we made a mistake moving out to the suburbs. I miss our home. I miss our booth with our friends. And I'm pretty sure I have a drumstick... somewhere bad. - Marshall Eriksen
+Last updated: 2024-04-06 09:58:06
+Random Quote: Some battles are won with swords and spears, others with quills and ravens.  -  Tywin Lannister
