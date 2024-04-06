@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 07:16:42
-Random Quote: Fellas, I was enjoying the Laurel and Hardy vibe, but I'm not such a fan of the Bickersons. - Saul Goodman
+Last updated: 2024-04-06 07:17:15
+Random Quote: I feel like her sobriety is completely dependent on how available I am to her. - Jules Vaughn
