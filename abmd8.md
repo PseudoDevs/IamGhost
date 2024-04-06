@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 09:18:18
-Random Quote: Lily: "I'm pregnant."Barney: "I've never seen that woman before in my life! Sorry - force of habit, congratulations!" - Barney Stinson
+Last updated: 2024-04-06 09:18:53
+Random Quote: He made me kill a rabbit. I guess he thought it would make me into more of a man or something. I cried for a week. - Jonathan Byers
