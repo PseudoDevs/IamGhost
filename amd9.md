@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 10:33:56
-Random Quote: Do you know what it is like to be sold, squire?  I do.  My brother sold me to Khal Drogo for the promise of a golden crown.  Well, Drogo crowned him in gold, though not as he had wished, and I... my sun - and
+Last updated: 2024-04-06 10:34:29
+Random Quote: Sitting around, smoking marijuana, eating Cheetos and masturbating do not constitute "plans". - Walter White
