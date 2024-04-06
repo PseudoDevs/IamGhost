@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 07:21:11
-Random Quote: Forgotten? Oh, Wanda, I'm incapable of forgetfulness. I remember everything. That's not an exaggeration. In fact... I'm incapable of exaggeration. - Vision
+Last updated: 2024-04-06 07:21:45
+Random Quote: No tales were ever told of me.  Do you think I would be sitting here if it were otherwise?  Your amusements are your own, I will not chide you on that count, but you must be more discreet.  A peaceful land, a quiet people.  That has always been my rule.  Make it yours.  -  Roose Bolton
