@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 11:42:52
-Random Quote: I stayed up all night wondering where the sun went. Then it dawned on me. - Will Livingston
+Last updated: 2024-04-06 11:43:25
+Random Quote: Lord Varys, sometimes I feel as though you are the best friend I have in King's Landing and sometimes I feel you are my worst enemy.  -  Tyrion Lannister
