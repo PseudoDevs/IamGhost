@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 08:19:07
-Random Quote: Robin: "Ted, are you acting out the last scene of 'Sleepless in Seattle' with little dolls?"Ted: "How long have you been out here?"Robin: "Ten seconds."Ted: "Yeah - just the last scene." - Robin Scherbatsky
+Last updated: 2024-04-06 08:20:14
+Random Quote: I'm KFC baby - you don't mess with the Colonel's recipe! - Barney Stinson
