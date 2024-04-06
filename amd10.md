@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 06:49:58
-Random Quote: Lily: "Just be yourself. Say something nice."Robin: "Which one? I can't do both." - Robin Scherbatsky
+Last updated: 2024-04-06 06:50:31
+Random Quote: Bulls are strong.  Bears.  I have seen my bastard fight.  He is not entirely to blame.  Reek was his tutor, the first Reek, and Reek was never trained at arms.  Ramsay is ferocious, I will grant you, but he swings that sword like a butcher hacking meat.  -  Roose Bolton
