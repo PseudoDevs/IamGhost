@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 11:47:28
-Random Quote: Come with me to the House of the Undying, and you shall drink of truth and wisdom.  -  Pyat Pree
+Last updated: 2024-04-06 11:48:01
+Random Quote: By what right does the wolf judge the lion?  -  Jaime Lannister
