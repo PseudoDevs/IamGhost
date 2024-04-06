@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 07:16:42
-Random Quote: Sometimes distance is the only way to find peace. So you can heal your wound. - Berlin
+Last updated: 2024-04-06 07:17:49
+Random Quote: I dream of a tree sometimes.  A weirwood, like the one in the godswood.  It calls to me.  The wolf dreams are better.  I smell things, and sometimes I can taste the blood.  -  Bran Stark
