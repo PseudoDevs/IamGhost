@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 06:27:35
-Random Quote: You know what they say about relationships. Every waking moment's a battle. - Barney Stinson
+Last updated: 2024-04-06 06:28:08
+Random Quote: Any man who steps between a father and his vengeance asks for death.  -  Rickard Karstark
