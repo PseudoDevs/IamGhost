@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 06:28:53
-Random Quote: I've been dreaming of that since I was five. Well, that and my own operational Death Star. - Barney Stinson
+Last updated: 2024-04-06 06:29:28
+Random Quote: I got thirty this time, men and boys all bound for the Wall, and don't be thinking they're like that bastard brother o' yours.  Lord Eddard gave me pick o' the dungeons, and I didn't find no little lordlings down there.  This log, half o' them would turn you over to the queen quick as spit for a pardon and maybe a few silvers.  The other half'd do the same, only they'd rape you first.  -  Yoren of the Night's Watch
