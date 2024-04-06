@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 08:47:59
-Random Quote: I got more second-story guys in my book than pimples at a junior prom. - Saul Goodman
+Last updated: 2024-04-06 08:48:32
+Random Quote: Some dogs crawled atop me during the night.  My cloak was almost dry when one of them pissed in it.  Have you noticed that the rain stopped the instant I had a roof above me?  It will start again now that I'm back out.  Gods and dogs alike delight to piss on me.  -  Dolorous Edd Tollett
