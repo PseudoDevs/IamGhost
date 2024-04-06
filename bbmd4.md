@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 11:21:00
-Random Quote: You know what they say about relationships. Every waking moment's a battle. - Barney Stinson
+Last updated: 2024-04-06 11:22:06
+Random Quote: You could turn King's Landing upside down and not find a single man with a mockingbird sewn over his heart but that does not mean I am friendless.  -  Petyr Baelish
