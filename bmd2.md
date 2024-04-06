@@ -1,2 +1,3 @@
-Last updated: 2024-04-06 12:03:39
-Random Quote: Keys, scumbag. It's the universal symbol for keys. - Mike Ehrmantraut
+Last updated: 2024-04-06 12:04:12
+Random Quote: Grace: "I had the phone put in. It's in the back."
+Tommy: "If we knew someone else who had a phone, we could call them." - Thomas Shelby
