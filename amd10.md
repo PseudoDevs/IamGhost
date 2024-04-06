@@ -1,2 +1,9 @@
-Last updated: 2024-04-06 07:36:27
-Random Quote: Cum is kind of like a penis having a sneeze. Ugh, that means when you swallow someone's cum, it's like eating their snot. - Aimee Gibbs
+Last updated: 2024-04-06 07:37:01
+Random Quote: If my love were an ocean,
+there would be no more land.
+If my love were a desert,
+you would see only sand.
+If my love were a star-
+late at night, only light.
+And if my love could grow wings,
+I'd be soaring in flight. - Jay Asher
