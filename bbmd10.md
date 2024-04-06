@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 10:42:30
-Random Quote: It's not just football. It's life. - Cal Jacobs
+Last updated: 2024-04-06 10:43:04
+Random Quote: When I'm king in my own right, I'm going to outlaw beets.  -  Tommen Baratheon
