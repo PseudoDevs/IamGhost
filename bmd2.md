@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 11:30:55
-Random Quote: People come into our lives exactly when they should. - Nina Locke
+Last updated: 2024-04-06 11:31:29
+Random Quote: When you date someone, it's like you're taking one long course in who that person is and then, when you break up, all that stuff becomes useless. It's the emotional equivalent of an English degree... - Ted Mosby
