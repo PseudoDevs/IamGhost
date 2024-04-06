@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 08:53:23
-Random Quote: Ted: "Robin and I already had our backslide. Last Thanksgiving, not even that long ago."Stella: "Did you place a large bet against yourself?" - Stella Zinman
+Last updated: 2024-04-06 08:54:00
+Random Quote: Barney: "Fine, we'll just have a nice, tasteful rehearsal dinner. Maybe at a French restaurant, I know just the place."Robin: "What's the name of the restaurant?"Barney: "La Sertag." - Barney Stinson
