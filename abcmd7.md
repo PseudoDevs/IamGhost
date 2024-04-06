@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 10:44:27
-Random Quote: I'm a genetic goldmine! No family history of diabetes or heart disease, everyone has non-porous teeth and perfect eyesight. I had one schizophrenic uncle, but even he had perfect vision. Which was unfortunate for the people around the bell tower he was in. - Robin Scherbatsky
+Last updated: 2024-04-06 10:45:00
+Random Quote: You need to figure out what the fuck you want. - Nicky Nichols
