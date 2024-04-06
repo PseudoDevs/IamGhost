@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 07:23:29
-Random Quote: Jaime and I are more than brother and sister.  We are one person in two bodies.  We shared a womb together.  He came into this world holding my foot, our old maester said.  When he is in me, I feel... whole.  -  Cersei Lannister
+Last updated: 2024-04-06 07:24:02
+Random Quote: Come on Ted, it's 2012. What do you expect, to meet some cute travel agent when you're reading a newspaper at a bookstore? None of those things exist anymore! - Barney Stinson
