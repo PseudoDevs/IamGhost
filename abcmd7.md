@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 12:02:23
-Random Quote: Ted: "Barney! I'm allowed to miss them, okay? They're my two best friends."Barney: "I'm your two best friends!" - Barney Stinson
+Last updated: 2024-04-06 12:02:56
+Random Quote: I'm honest.  It's the world that's awful.  -  Sandor Clegane
