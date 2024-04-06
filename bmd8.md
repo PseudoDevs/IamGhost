@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 08:58:28
-Random Quote: Pardon my French, f-ck those f-ckers! - Billy Butcher
+Last updated: 2024-04-06 08:59:04
+Random Quote: Jon, did you ever wonder why the men of the Night's Watch take no wives and father no children?  So they will not love, for love is the bane of honor, the death of duty.  -  Maester Aemon

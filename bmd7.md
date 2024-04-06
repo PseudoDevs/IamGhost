@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 08:58:29
-Random Quote: In my head, it's like If I can conquer men, then I can conquer femininity. - Jules Vaughn
+Last updated: 2024-04-06 08:59:04
+Random Quote: It's okay to lose yourself in this, just as long as you can find yourself again. - Nina Locke

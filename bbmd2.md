@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 08:57:52
-Random Quote: Larry Bloom: "Are we at least gonna talk about other options?"Piper Chapman: "You mean..."Larry Bloom: "It's not Voldemort, you can say it. Abortion." - Larry Bloom
+Last updated: 2024-04-06 08:59:04
+Random Quote: I think the word you're looking for is 'audacious'. - Kim Wexler
