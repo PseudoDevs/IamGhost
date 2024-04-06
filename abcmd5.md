@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 09:17:03
-Random Quote: I believe that in this universe, as in every other, hope never dies. As long as someone keeps their good eye on the bigger picture. - Nick Fury
+Last updated: 2024-04-06 09:17:40
+Random Quote: Your innocence may be as plain as the scar on your face, but it will not save you.  No more than your father will.  But I might.  Not as your judge.  As your champion.  -  Oberyn Martell
