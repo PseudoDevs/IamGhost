@@ -1,3 +1,2 @@
-Last updated: 2024-04-06 07:44:30
-Random Quote: Enid Sinclair: "Want to take a stab at being social?"
-Wednesday: "I do like stabbing. The social part, not so much." - Wednesday Addams
+Last updated: 2024-04-06 07:46:11
+Random Quote: Enjoy your mai-tai, because soon you will be wearing my tie! - Marshall Eriksen
