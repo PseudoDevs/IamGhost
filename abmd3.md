@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 11:06:23
-Random Quote: Sounds like you guys need to 'Clear Everything,' 'Subtract' the negativity and 'Add' some perspective. - How I Met Your Mother
+Last updated: 2024-04-06 11:07:29
+Random Quote: Jaime and I are more than brother and sister.  We are one person in two bodies.  We shared a womb together.  He came into this world holding my foot, our old maester said.  When he is in me, I feel... whole.  -  Cersei Lannister

@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 11:06:56
-Random Quote: Sheldon, can you hear me? It's your twin sister, MissyEverything's all right here, but I think Mom misses you real badAll right, I can't hear you, so I'm gonna hang up now. - Missy
+Last updated: 2024-04-06 11:07:29
+Random Quote: Quentyn had never felt so much a boy as when he'd stood before Daenerys Targaryen, pleading for her hand.  The thought of bedding her terrified him almost as much as her dragons had.  -  Quentyn Martell
