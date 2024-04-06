@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 07:29:05
-Random Quote: Sometimes one has to adjust to a situation as it unfolds. With every calamity comes opportunity. - Virginia Wilson
+Last updated: 2024-04-06 07:29:38
+Random Quote: Edric Storm, they call him.  He is said to be the very image of my brother.  If men were to see him, and then look again at Joffrey and Tommen, they could not help but wonder, I would think.  -  Stannis Baratheon
