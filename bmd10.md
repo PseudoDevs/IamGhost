@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 09:51:25
-Random Quote: Heroes are not born, they're forged in darkness. Shaped in battle. Defined by sacrifice. - The Watcher
+Last updated: 2024-04-06 09:52:01
+Random Quote: Archeology. One big mess of obsessive bookworms. - Arthur Harrow
