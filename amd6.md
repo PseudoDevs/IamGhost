@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 10:28:12
-Random Quote: They threw him off the goddamn railing. There's no way someone survives that. And yet, here he is. How is that possible? - Eyk Larsen
+Last updated: 2024-04-06 10:28:45
+Random Quote: I did it for me. I liked it. I was good at it. And I was really... I was alive. - Walter White
