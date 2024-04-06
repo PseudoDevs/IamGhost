@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 07:30:47
-Random Quote: Someone has to protect this family from the man who protects this family. - Skyler White
+Last updated: 2024-04-06 07:31:19
+Random Quote: When you're younger, everything feels so permanent. But as you get older, you begin to realize nothing is and everyone you love can drift away. - Rue Bennett
