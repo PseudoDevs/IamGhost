@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 11:13:37
-Random Quote: I don't need to be good at Math, I have beautiful hair. - Missy
+Last updated: 2024-04-06 11:14:10
+Random Quote: I was weaned on venom, Dalt.  Any viper takes a bite of me will rue it.  -  Gerold Dayne
