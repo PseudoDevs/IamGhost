@@ -1,2 +1,3 @@
-Last updated: 2024-04-06 09:40:09
-Random Quote: This is New York City, don't get close to the neighbours. You nod at them politely in the hall, you call the cops if you haven't seen them in a while and you smell something funny and that's it! - Ted Mosby
+Last updated: 2024-04-06 09:41:18
+Random Quote: Morty: "Rick, can we not leave without my sister?"
+Rick: "Ugh. You have infinite sisters, Morty. Not that I want to spend the rest of my day looking for another one. Sum-Sum, let's go! Grandpa's concern for your safety is fleeting." - Rick Sanchez
