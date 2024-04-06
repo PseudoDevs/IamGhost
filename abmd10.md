@@ -1,3 +1,2 @@
-Last updated: 2024-04-06 08:40:50
-Random Quote: Summer: "Someone out there is trying to kill us."
-Rick: "Someone's always trying to kill us." - Rick Sanchez
+Last updated: 2024-04-06 08:41:23
+Random Quote: Client: "Please lower your blaster."Mando: "Tell them to lower theirs first."Stormtrooper: "We have you four to one."Mando: "I like those odds." - Din Djarin
