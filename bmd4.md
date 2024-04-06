@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 08:00:53
-Random Quote: My uncle Kevan would make a passably good regent if someone pressed the duty on him, but he will never reach for it.  The gods shaped him to be a follower, not a leader.  -  Tyrion Lannister
+Last updated: 2024-04-06 08:01:27
+Random Quote: She studied Theon Greyjoy's sly smile, wondering what it meant.  That young man had a way of looking as though he knew some secret jest that only he was privy to; Catelyn had never liked it.  -  Catelyn Stark

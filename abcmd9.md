@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 08:00:53
-Random Quote: Ich love you too. But so what? - Kim Wexler
+Last updated: 2024-04-06 08:01:27
+Random Quote: Edric Storm, they call him.  He is said to be the very image of my brother.  If men were to see him, and then look again at Joffrey and Tommen, they could not help but wonder, I would think.  -  Stannis Baratheon
