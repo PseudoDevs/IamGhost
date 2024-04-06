@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 07:48:48
-Random Quote: Darlin', there's no inferringI've seen the boy sitting in the dirt eating his own belly button lint. - Meemaw
+Last updated: 2024-04-06 07:49:21
+Random Quote: Jaime and I are more than brother and sister.  We are one person in two bodies.  We shared a womb together.  He came into this world holding my foot, our old maester said.  When he is in me, I feel... whole.  -  Cersei Lannister
