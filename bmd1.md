@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 10:13:12
-Random Quote: Whisky's good proofing water. Tells you who's real and who isn't. - Thomas Shelby
+Last updated: 2024-04-06 10:13:45
+Random Quote: Sometimes people make decisions, shit happens, and we gotta act accordingly. - Marty Byrde
