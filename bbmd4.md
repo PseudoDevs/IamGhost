@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 11:07:11
-Random Quote: Don’t take it so personally, okay? I don’t like most people. He’s in the vast majority. - Jonathan Byers
+Last updated: 2024-04-06 11:07:44
+Random Quote: That's where The Boys come in: Spank the bastards when they get out of line. - Billy Butcher
