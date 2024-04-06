@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 06:42:56
-Random Quote: Dude, ditch Tiffany and join the Barnacle in the Pharma-Girl-Free-For-All. Side effects may include: loss of clothing, rug burns, shortness of breath and soar abdominals the next morning. What in the world is up! - Barney Stinson
+Last updated: 2024-04-06 06:43:31
+Random Quote: The truth isn't always to most exciting version of things, or the best, or the worst. It's somewhere inbetween. But it deserves to be heard and remembered. 'The truth will out', like someone said once. It remains. - Hannah Baker
