@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 09:02:04
-Random Quote: I have served six kings, but here before us lies the greatest man I ever knew.  Lord Tywin wore no crown, yet he was all a king should be.  -  Grand Maester Pycelle
+Last updated: 2024-04-06 09:02:39
+Random Quote: Brandon Stark was never shy about taking what he wanted.  I am old now, a dried - up thing, too long a widow, but I still remember the look of my maiden's blood on his cock the night he claimed me.  I think Brandon liked the sight as well.  A bloody sword is a beautiful thing, yes.  It hurt, but it was a sweet pain. 
