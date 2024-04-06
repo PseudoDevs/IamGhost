@@ -1,2 +1,4 @@
-Last updated: 2024-04-06 07:41:36
-Random Quote: We didn't choose this life, we're just living in it. - Number Five
+Last updated: 2024-04-06 07:42:09
+Random Quote: Lorna Morello: "I need to start tightening up. You're making me feel like a cave."
+Nicky Nichols: "Baby, it's a c-nt, it stretches!"
+Lorna Morello: "Yeah, sometimes I feel like you're trying to climb inside my womb." - Lorna Morello
