@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 08:31:39
-Random Quote: Barney: "I only smoke in certain situations. Postcoital, when I'm with Germans, sometimes those two overlap, coital, birthdays, to annoy my mom, precoital, on a sailboat, the day the Mets are mathematically eliminated every year and pregnancy scares."Ted: "Why are you smoking right now?"Barney: "I'm always precoital, Ted." - Barney Stinson
+Last updated: 2024-04-06 08:32:13
+Random Quote: Rattleshirt, we called him.  Treacherous and bloodthirsty.  If there's honor in him, he hides it down beneath his suit of bones.  -  Jon Snow

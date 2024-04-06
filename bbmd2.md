@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 08:31:34
-Random Quote: He made me kill a rabbit. I guess he thought it would make me into more of a man or something. I cried for a week. - Jonathan Byers
+Last updated: 2024-04-06 08:32:07
+Random Quote: When you date someone, it's like you're taking one long course in who that person is and then, when you break up, all that stuff becomes useless. It's the emotional equivalent of an English degree... - Ted Mosby
