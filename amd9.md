@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 07:02:16
-Random Quote: That is nostalgia: finding out that things from the past you didn’t even expectwere happiness…. actually were - Tokyo
+Last updated: 2024-04-06 07:02:50
+Random Quote: Robert... he is in my dreams as well.  Laughing.  Drinking.  Boasting.  Those were the things he was best at.  Those, and fighting.  I never bested him at anything.  -  Stannis Baratheon
