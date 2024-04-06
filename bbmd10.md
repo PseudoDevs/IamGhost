@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 09:30:29
-Random Quote: Will you explain to me how that was offside? No, I'm asking you, seriously. Explain offside to me! It makes no sense. - Rebecca Welton
+Last updated: 2024-04-06 09:31:02
+Random Quote: I believe the world's a bad place. And I don't think I'm much better. But we have to try. - Walt Breslin
