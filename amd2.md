@@ -1,2 +1,3 @@
-Last updated: 2024-04-06 11:32:39
-Random Quote: How many eyes does Lord Bloodraven have?  the riddle ran.  A thousand eyes, and one.  Some claimed the King's Hand was a student of the dark arts who could change his face, put on the likeness of a one - eyed dog, even turn into a mist.  Packs of gaunt gray wolves hunted down his foes, men said, and carrion crows spied for him and whispered secrets in his ear.  Most of the tales were only tales, Dunk did not doubt, but no one could doubt that Bloodraven had informers everywhere. 
+Last updated: 2024-04-06 11:33:12
+Random Quote: Billy: "Halloween's a magical holiday. All about family, friends, and the thrill of getting to be someone else for a day."
+Tommy: "Wrong! Halloween's about candy. And scaring people, but mostly candy." - Tommy Maximoff
