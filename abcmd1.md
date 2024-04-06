@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 12:05:20
-Random Quote: Anything sounds weird, if you say it a  undred times. Bowl. Bowl. Bowl... - Ted Mosby
+Last updated: 2024-04-06 12:05:53
+Random Quote: Nobody takes an intro class to get on any other path, but the path to not being hungover anymore. I learned that in my intro to something-ology class. - Marshall Eriksen
