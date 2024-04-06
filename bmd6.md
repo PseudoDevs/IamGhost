@@ -1,3 +1,3 @@
-Last updated: 2024-04-06 07:47:17
-Random Quote: Joel: "You got any advice on the best way west?"
-Man: "Yeah. Go east." - Ellie Williams
+Last updated: 2024-04-06 07:47:50
+Random Quote: Wanda: "I had a brother. His name was Pietro."
+Geraldine: "He was killed by Ultron, wasn't he?" - Monica "Geraldine" Rambeau
