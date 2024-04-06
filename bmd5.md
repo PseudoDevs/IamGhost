@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 08:18:16
-Random Quote: You could help a friend, but instead you're choosing the hot girl in the tight tank-top. Your training is complete, I'm so proud of this kid! - Barney Stinson
+Last updated: 2024-04-06 08:20:32
+Random Quote: There's only one thing that could blind a man as smart as you, Tommy. Love. - Polly Gray
