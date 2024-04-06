@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 10:56:54
-Random Quote: Sorry, got caught up again. God, do I need to take more Adderall or am I taking too much Adderall? - Rick Sanchez
+Last updated: 2024-04-06 10:57:27
+Random Quote: It's only once you've stopped, that you realize how hard it is to start again. So you force yourself not to want it. - Ted Mosby
