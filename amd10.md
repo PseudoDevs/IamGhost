@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 09:30:53
-Random Quote: I have won every battle, yet somehow I'm losing the war.  -  Robb Stark
+Last updated: 2024-04-06 09:31:26
+Random Quote: Don't believe everything you hear. Our enemies want to separate us. But Mandalorians are stronger together. - Bo-Katan
