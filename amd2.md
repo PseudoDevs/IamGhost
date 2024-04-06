@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 09:34:35
-Random Quote: A good lord comforts and protects the weak and helpless.  -  Maester Luwin
+Last updated: 2024-04-06 09:35:08
+Random Quote: Freeways have exits, so do relationships. The first exit, my personal favourite, is six hours in: You meet, you talk, you have sex, you exit when she's in the shower. - Barney Stinson
