@@ -1,3 +1,2 @@
-Last updated: 2024-04-06 10:58:50
-Random Quote: Lily: "We don't wanna burden our little angel with all kinds of gender-specific expectations. Boys can do ballet, girls can play football."
-Marshall: "Hell, the Green Bay Packers have been proving that for years." - Marshall Eriksen
+Last updated: 2024-04-06 10:59:23
+Random Quote: Being a Mandalorian is not just learning about how to fight. You also have to know how to navigate the Galaxy. That way you'll never be lost. - Din Djarin
