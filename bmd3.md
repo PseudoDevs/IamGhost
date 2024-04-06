@@ -1,2 +1,3 @@
-Last updated: 2024-04-06 09:47:46
-Random Quote: Khaleesi, better a man should swallow scorpions than trust in the spawn of shadows, who dare not show their face beneath the sun.  It is known.  -  Rakharo
+Last updated: 2024-04-06 09:49:35
+Random Quote: Freddie Thorne: "What kind of a list would have the name of a communist and the name of a bookmaker side by side?"
+Thomas Shelby: "Perhaps it's a list of men who give false hope to the poor." - Thomas Shelby
