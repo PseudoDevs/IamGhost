@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 07:26:19
-Random Quote: Are you aware, that breaking a broath can have deadly- even fatal repercussions? - Barney Stinson
+Last updated: 2024-04-06 07:26:52
+Random Quote: Young or old, a true knight is sworn to protect those who are weaker than himself, or die in the attempt.  -  Brienne of Tarth
