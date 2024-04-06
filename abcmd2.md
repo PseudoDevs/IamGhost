@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 11:35:19
-Random Quote: Lily: "I'm pregnant."Barney: "I've never seen that woman before in my life! Sorry - force of habit, congratulations!" - Barney Stinson
+Last updated: 2024-04-06 11:35:52
+Random Quote: People are oblivious to reality. They only see what they want to see, when all they have to do is shift their perspective to see the full scope of things. - Yuk Je
