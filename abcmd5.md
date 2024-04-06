@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 10:02:14
-Random Quote: Even if I meet the girl of my dreams right the second, I'm still one night and nine months away, from having a family on my own. And that's assuming the mother of my childern is just a huge slut. - Ted Mosby
+Last updated: 2024-04-06 10:04:00
+Random Quote: Alex: "Luke got his head stuck in the banister again."Phil: "I got it. Where's the babyoil?"Claire: "It's on our bedside tip- I Don't know, find it!" - Claire Dunphy
