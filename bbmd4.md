@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 08:18:19
-Random Quote: Eventually, Nick's groin will heal and you'll be back in Sexville, where all the crossword puzzles only have one box to fill. - Lily Aldrin
+Last updated: 2024-04-06 08:18:52
+Random Quote: You're a beautiful, sweet girl. Fuck this guy! - Nicky Nichols
