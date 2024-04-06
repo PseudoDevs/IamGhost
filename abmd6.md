@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 11:17:18
-Random Quote: I only have one rule. For every three 10's you bang, throw a bone to a 5. They're grateful and hard working and let's face it, sometimes you just want to lay there. - Barney Stinson
+Last updated: 2024-04-06 11:17:51
+Random Quote: It's easier when you're a kid anyway. You don't have anybody else relying on you. That's the hardest part. - Joel Miller
