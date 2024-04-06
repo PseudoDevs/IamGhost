@@ -1,2 +1,4 @@
-Last updated: 2024-04-06 09:04:14
-Random Quote: People make fun of the guy who stays at home every night doing nothing, but the truth is that guy is a genius. - Ted Mosby
+Last updated: 2024-04-06 09:05:20
+Random Quote: Stark: "Red, green, blue... who paints a button blue?"
+Carter: "Don't tell me the American playboy needs help pushing buttons."
+Stark: "Hedy Lamarr and I spent a weekend together, but she wasn't teaching me German." - Howard Stark
