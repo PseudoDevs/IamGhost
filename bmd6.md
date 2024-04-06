@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 11:44:27
-Random Quote: Larry Bloom: "Piper, you put a pee stick in my rinsing cup."Piper Chapman: "Well, you put your pee stick in my vagina. And that's why we're in this situation." - Piper Chapman
+Last updated: 2024-04-06 11:45:00
+Random Quote: In this world, a man must learn to seize whatever gifts the gods chose to send him.  That was a lesson I learned at some cost.  -  The Tattered Prince
