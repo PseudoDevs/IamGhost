@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 07:55:13
-Random Quote: Spare me your empty little compliments, girl... and your ser's.  I am no knight.  I spit on them and their vows.  My brother is a knight.  -  Sandor Clegane
+Last updated: 2024-04-06 07:55:46
+Random Quote: Every night can't be legendary. If all nights are legendary, no nights are legendary! - Ted Mosby

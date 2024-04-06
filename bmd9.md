@@ -1,5 +1,2 @@
-Last updated: 2024-04-06 07:55:12
-Random Quote: Morty: "Mom, I have a friend coming over. Is that cool?"
-Beth: "I told your sister no parties."
-Morty: "It's one friend."
-Beth: "That's a party to you." - Beth Smith
+Last updated: 2024-04-06 07:55:46
+Random Quote: This is Hawkins, okay? You wanna know the worst thing that's ever happened here in the four years I've been working here? It was when an owl attacked Eleanor Gillespie's head because it though that her hair was a nest. - Jim Hopper
