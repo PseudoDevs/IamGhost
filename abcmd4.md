@@ -1,3 +1,2 @@
-Last updated: 2024-04-06 11:22:54
-Random Quote: Lily: "I can't believe I unloaded like that on a high-school senior."
-Robin: "I can't believe a high-school senior unloaded like that on me." - Robin Scherbatsky
+Last updated: 2024-04-06 11:23:27
+Random Quote: My son lies here broken and dying, Luwin, and you wish to discuss a new master of horse?  Do you think I care what happens in the stables?  Do you think it matters to me one whit?  I would gladly butcher every horse in Winterfell with my own hands if it would open Bran's eyes, do you understand that?  Do you?  -  Catelyn Stark
