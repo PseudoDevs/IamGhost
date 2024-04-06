@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 08:50:04
-Random Quote: A family is like a small business. And with a small business, at times, there comes a bit of transition. - Marty Byrde
+Last updated: 2024-04-06 08:50:37
+Random Quote: There is one difference between you and me: I'm not saying any of this to get in your pants. - How I Met Your Mother
