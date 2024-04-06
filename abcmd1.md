@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 09:27:10
-Random Quote: Ted: "Cleveland sports are still relevant! 'LeBron who?' Right, guys?"Barney: "Ted, neither you, nor Cleveland knows how to get over someone leaving them." - Barney Stinson
+Last updated: 2024-04-06 09:28:16
+Random Quote: We're going to Buffalo... and I've seen women from there; the city's aptly named. - Barney Stinson
