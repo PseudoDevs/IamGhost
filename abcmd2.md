@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 07:27:10
-Random Quote: Ramsay.  Snow, my wife called me before she ate her fingers, but I say Bolton.  -  Ramsay Bolton
+Last updated: 2024-04-06 07:27:44
+Random Quote: Are you aware, that breaking a broath can have deadly- even fatal repercussions? - Barney Stinson
