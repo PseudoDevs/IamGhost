@@ -1,3 +1,2 @@
-Last updated: 2024-04-06 08:00:23
-Random Quote: Planetina: "Your acid rain is an acid pain... in the butt, Diesel Wiesel!"
-Rick: "Yikes! Who's the chick in need of a dialogue pass?" - Rick Sanchez
+Last updated: 2024-04-06 08:00:56
+Random Quote: Walter Jr., you’re my big man. There are going to be some things that you’ll come to learn about me in the next few days. But just know that no matter how it may look, I only had you in my heart. Goodbye! - Walter White
