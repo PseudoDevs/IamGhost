@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 11:29:15
-Random Quote: Might be you fooled these others, crow, but don't think you'll be fooling Mance.  He'll take one look a' you and know you're false.  And when he does, I'll make a cloak o' your wolf there, and open your soft boy's belly and sew a weasel up inside.  -  the Lord of Bones
+Last updated: 2024-04-06 11:30:55
+Random Quote: I have let you come wash my dishes. I said my oven needed cleaning, I invited you to a p-rno! - Victoria
