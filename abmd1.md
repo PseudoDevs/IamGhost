@@ -1,2 +1,3 @@
-Last updated: 2024-04-06 10:52:38
-Random Quote: God doesn’t have a plan. There is no plan at all. There’s nothing but chaos out there. Pain… and chaos! People are bad. Malicious, evil. Life is nothing but a spiral of pain. And the world is doomed to be destroyed - Noah
+Last updated: 2024-04-06 10:53:11
+Random Quote: Billy: "Halloween's a magical holiday. All about family, friends, and the thrill of getting to be someone else for a day."
+Tommy: "Wrong! Halloween's about candy. And scaring people, but mostly candy." - Tommy Maximoff
