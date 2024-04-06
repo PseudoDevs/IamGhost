@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 11:51:04
-Random Quote: I've only known one other being like this. A wise Jedi Master named Yoda. - Ahsoka Tano
+Last updated: 2024-04-06 11:51:38
+Random Quote: The children are gone from the world, and their wisdom with them.  It had to do with the faces in the trees, we think.  The First Men believed that the greenseers could see through the eyes of the weirwoods.  That was why they cut down the trees whenever they warred upon the children.  Supposedly the greenseers also had the power over the beasts of the wood and the birds in the trees.  Even fish.  -  Maester Luwin
