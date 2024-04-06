@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 09:28:46
-Random Quote: There's nothing more powerful than a fat girl who doesn't give a f. - Kat Hernandez
+Last updated: 2024-04-06 09:29:19
+Random Quote: Godless?  Why, Aeron, I am the godliest man ever to raise sail!  You serve one god, Damphair, but I have served ten thousand.  From Ib to Asshai, when men see my sails, they pray.  -  Euron Greyjoy
