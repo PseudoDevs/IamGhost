@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 10:05:24
-Random Quote: Barney: "You have no reason to be nervous. And I'm going to tell you why in one word."Ted: "And what's that word?"Barney: "Dibs!" - Barney Stinson
+Last updated: 2024-04-06 10:05:57
+Random Quote: I drank when I was pregnant with you, you turned out fine. There's everybody saying 'don't drink, don't smoke'. I swear - Texas is turning into California. - Meemaw
