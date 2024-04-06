@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 09:03:51
-Random Quote: Marshall: "The tiniest little burger joint you ever saw. Tucked between a taxidermist and a XXX bookstore."Barney: "Name two places where things get stuffed." - Barney Stinson
+Last updated: 2024-04-06 09:04:26
+Random Quote: Oh, come on. If you don't laugh, it just seems mean. - Barney Stinson
