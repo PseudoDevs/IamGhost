@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 08:19:10
-Random Quote: When the sun has set, no candle can replace it.  -  Loras Tyrell
+Last updated: 2024-04-06 08:19:44
+Random Quote: Do you know what it is like to be sold, squire?  I do.  My brother sold me to Khal Drogo for the promise of a golden crown.  Well, Drogo crowned him in gold, though not as he had wished, and I... my sun - and
