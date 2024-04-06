@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 11:11:36
-Random Quote: Kids, morals usually come at the end of stories, but this one is so important, I'm gonna tell you now. Don't ever, ever invite an ex to your wedding. - Ted Mosby
+Last updated: 2024-04-06 11:12:09
+Random Quote: Any man who steps between a father and his vengeance asks for death.  -  Rickard Karstark
