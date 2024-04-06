@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 10:31:36
-Random Quote: No matter how tough things get, children always turn out okay. - Berlin
+Last updated: 2024-04-06 10:32:10
+Random Quote: Marshall: "I don't care if the dishes aren't done, okay? If you care, you do it."Lily: "Great, then I don't care if you have an orgasm. If you care, you do it." - Lily Aldrin
