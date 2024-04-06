@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 09:59:07
-Random Quote: The more you move up in the world, the more enemies you make. - Rue Bennett
+Last updated: 2024-04-06 09:59:40
+Random Quote: Do you think I can't tell Lord Stannis from Lord Tywin?  They're both bungholes who think they're too noble to shit, but never mind about that, I know the difference.  -  Walder Frey
