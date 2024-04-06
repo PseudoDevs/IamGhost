@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 08:42:35
-Random Quote: My only aim is to take many lives. The more the better I feel. - 
+Last updated: 2024-04-06 08:43:09
+Random Quote: Our thinking is shaped by dualism. Entrance, exit. Black, white. Good, evil. Everything appears as opposite pairs. But that’s wrong. - H.G. Tannhaus
