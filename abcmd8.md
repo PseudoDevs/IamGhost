@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 06:44:41
-Random Quote: The title was but a courtesy due him as a council member; Varys was lord of nothing but the spiderweb, the master of none but his whispers.  -  Catelyn Stark
+Last updated: 2024-04-06 06:45:17
+Random Quote: Beware, Thor, for thy brother shall free himself from our father's wrath And then shall you know the vengeance of Loki! - Thor
