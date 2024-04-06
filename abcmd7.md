@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 09:37:45
-Random Quote: My father won all the battles.  He killed Prince Rhaegar and took the crown, while your father was hiding under Casterly Rock.  A strong king acts boldly, he doesn't just talk.  -  Joffrey Baratheon
+Last updated: 2024-04-06 09:38:17
+Random Quote: It's probably his... I've spent years, training my boys to swim the other way. - Barney Stinson
