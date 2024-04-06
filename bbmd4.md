@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 11:52:33
-Random Quote: Why have average when you can have extraordinary? - Madelyn Stillwell
+Last updated: 2024-04-06 11:53:06
+Random Quote: I am Pablo Emilio Escobar Gaviria. My eyes are everywhere. That means you guys can't move a finger in all of Antioquia without me knowing about it. Do you understand? Not a finger. One day, I'm going to be president of the Republic of Colombia. So look, I make deals for a living. Now, you can stay calm and accept my deal, or accept the consequences. - Pablo Escobar
