@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 11:23:27
-Random Quote: Lily: "I'm not paying for room service the hooker ordered."Barney: "I've been there." - Barney Stinson
+Last updated: 2024-04-06 11:24:00
+Random Quote: Lord Varys, sometimes I feel as though you are the best friend I have in King's Landing and sometimes I feel you are my worst enemy.  -  Tyrion Lannister

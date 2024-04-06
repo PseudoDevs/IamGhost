@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 11:23:27
-Random Quote: My son lies here broken and dying, Luwin, and you wish to discuss a new master of horse?  Do you think I care what happens in the stables?  Do you think it matters to me one whit?  I would gladly butcher every horse in Winterfell with my own hands if it would open Bran's eyes, do you understand that?  Do you?  -  Catelyn Stark
+Last updated: 2024-04-06 11:24:00
+Random Quote: I'll help you study. We're gonna stay up all night long. I'm gonna drill you and then we're gonna study. No, seriously. We're gonna do some cramming and then we're gonna study. No, seriously. We're gonna bone up on... - Barney Stinson

@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 11:23:27
-Random Quote: Ted: "You're scared of the seven dwarves?"Robin: "Just of Doc. He's creepy... I mean, the guy went to medical school, what is he doing living with six coalminers." - Robin Scherbatsky
+Last updated: 2024-04-06 11:24:00
+Random Quote: Lord Seaworth is a man of humble birth, but he reminded me of my duty, when all I could think of was my rights.  I had the cart before the horse, Davos said.  I was trying to win the throne to save the kingdom, when I should have been trying to save the kingdom to win the throne.  -  Stannis Baratheon
