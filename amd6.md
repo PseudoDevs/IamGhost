@@ -1,4 +1,3 @@
-Last updated: 2024-04-06 08:34:43
-Random Quote: Rick: "Guests are fans, Morty, which we are not. We'd like professional badges."
-"Do you have a crew?"
-Rick: "Yes. He's a getaway driver with Asperger's and my butt is a demolitions expert." - Rick Sanchez
+Last updated: 2024-04-06 08:35:17
+Random Quote: The boobs on the bus go up and down, up and down, up and down
+The boobs on the bus go up and down, all through the town - Barney Stinson
