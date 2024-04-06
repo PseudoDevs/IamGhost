@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 09:10:32
-Random Quote: All the tales agreed that the green men had strange magic powers.  Maybe they could help him walk again, even turn him into a knight.  They turned the little crannogman into a knight, even if it was only for a day, he thought.  A day would be enough.  -  Bran Stark
+Last updated: 2024-04-06 09:11:07
+Random Quote: Brandon Stark was never shy about taking what he wanted.  I am old now, a dried - up thing, too long a widow, but I still remember the look of my maiden's blood on his cock the night he claimed me.  I think Brandon liked the sight as well.  A bloody sword is a beautiful thing, yes.  It hurt, but it was a sweet pain. 
