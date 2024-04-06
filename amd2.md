@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 09:33:29
-Random Quote: Marshall: "Baby, you're like 20 slutty chicks all rolled into one."Lily: "Sweet-talk is not gonna change my mind!" - Lily Aldrin
+Last updated: 2024-04-06 09:34:02
+Random Quote: We will take them before last night's beer turns to piss. - Chester Campbell
