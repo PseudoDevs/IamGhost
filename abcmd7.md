@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 09:17:05
-Random Quote: I am not crazy. I am unique. - Suzanne Warren
+Last updated: 2024-04-06 09:17:41
+Random Quote: There is a savage beast in every man, and it stirs when you put a sword in his hand.  -  Jorah Mormont
