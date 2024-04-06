@@ -1,3 +1,2 @@
-Last updated: 2024-04-06 09:56:52
-Random Quote: Freddie: "You think I can't handle Tommy Shelby?"
-Polly: "You can't. I am having trouble these days and I'm twice the man you are." - Polly Gray
+Last updated: 2024-04-06 09:57:26
+Random Quote: Have you seen Mace Tyrell's boy?  The Knight of Flowers, they call him.  Now there's a son any man would be proud to own to.  Last tourney, he dumped the Kingslayer on his golden rump, you ought to have seen the look on Cersei's face.  I laughed till my sides hurt.  -  Robert Baratheon
