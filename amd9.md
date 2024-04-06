@@ -1,2 +1,3 @@
-Last updated: 2024-04-06 11:33:42
-Random Quote: Sex now, we'll do the foreplay after. - Lily Aldrin
+Last updated: 2024-04-06 11:34:15
+Random Quote: Billy: "Halloween's a magical holiday. All about family, friends, and the thrill of getting to be someone else for a day."
+Tommy: "Wrong! Halloween's about candy. And scaring people, but mostly candy." - Tommy Maximoff
