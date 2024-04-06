@@ -1,7 +1,2 @@
-Last updated: 2024-04-06 08:20:00
-Random Quote: Bo-Katan: "You are a disgrace to your armor."
-Boba Fett: "This armor belonged to my father."
-Bo-Katan: "Don't you mean your donor?"
-Boba Fett: "Careful, princess."
-Bo-Katan: "You are a clone. I've heard your voice thousands of times."
-Boba Fett: "Mine might be the last one you hear." - Boba Fett
+Last updated: 2024-04-06 08:21:07
+Random Quote: Sometimes, the people we like don't like us back, and it's painful, but there's nothing we can do about it. I know what it's like when someone doesn't feel the same way about you. Someone you can't stop thinking about. It hurts. But you can't make people like you. Love isn't about grand gestures, or the moon and the stars. It's just dumb luck. And sometimes, you meet someone who feels the same way. And then sometimes, you're unlucky. But one day, you're gonna meet someone who appreciates you for who you are. I mean, there's seven billion people on the planet. I know one of them is gonna climb up on a moon for you. - Otis Milburn
