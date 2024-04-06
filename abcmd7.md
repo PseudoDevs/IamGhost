@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 09:22:23
-Random Quote: Everyone pretend podcasting isn't boring! - Rick Sanchez
+Last updated: 2024-04-06 09:23:29
+Random Quote: Barney: "Canada sucks."Robin: "Okay, well, you're one-quarter Canadian, so by that logic you one-quarter suck!"Barney: "I'm 100% awesome and you know it!"Robin: "Yeah, I do." - Robin Scherbatsky
