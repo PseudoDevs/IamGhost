@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 07:18:23
-Random Quote: You know, it's funny. Almost every woman I've ever met was wrong to give me a chance. You're the first woman who's wrong not to. - Barney Stinson
+Last updated: 2024-04-06 07:18:56
+Random Quote: Ted: "Oh hey, where are you guys?"Barney: "We're in a fundraiser, helping young women raise money for community college."Ted: "Stripclub... nice!" - Barney Stinson

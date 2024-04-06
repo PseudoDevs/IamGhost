@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 07:18:23
-Random Quote: The longer Cersei waits, the angrier she'll become, and anger makes her stupid.  I much prefer angry and stupid to composed and cunning.  -  Tyrion Lannister
+Last updated: 2024-04-06 07:18:56
+Random Quote: Ted: "You're scared of the seven dwarves?"Robin: "Just of Doc. He's creepy... I mean, the guy went to medical school, what is he doing living with six coalminers." - Robin Scherbatsky
