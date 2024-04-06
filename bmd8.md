@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 08:02:16
-Random Quote: Ted: "Cleveland sports are still relevant! 'LeBron who?' Right, guys?"Barney: "Ted, neither you, nor Cleveland knows how to get over someone leaving them." - Barney Stinson
+Last updated: 2024-04-06 08:02:50
+Random Quote: I feel like her sobriety is completely dependent on how available I am to her. - Jules Vaughn
