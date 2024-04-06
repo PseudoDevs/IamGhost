@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 09:27:09
-Random Quote: There is no stronger bond than that of the family you choose. - Miguel Angel Felix Gallardo
+Last updated: 2024-04-06 09:27:42
+Random Quote: If you die before you say her name, Set, I will hunt you through the seven hells.  -  Oberyn Martell
