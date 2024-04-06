@@ -1,3 +1,2 @@
-Last updated: 2024-04-06 11:48:58
-Random Quote: Darcy Lewis: "No one would notice if you blew up a Dakota. Honestly, I can't tell them apart."
-Carol Danvers: "South Dakota is on the bottom." - Captain Marvel
+Last updated: 2024-04-06 11:49:31
+Random Quote: Barney: "I only smoke in certain situations. Postcoital, when I'm with Germans, sometimes those two overlap, coital, birthdays, to annoy my mom, precoital, on a sailboat, the day the Mets are mathematically eliminated every year and pregnancy scares."Ted: "Why are you smoking right now?"Barney: "I'm always precoital, Ted." - Barney Stinson
