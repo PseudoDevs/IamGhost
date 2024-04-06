@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 06:36:25
-Random Quote: Now don't be a p-ssy, laser my f-cking t-ts! - Stormfront
+Last updated: 2024-04-06 06:38:10
+Random Quote: Never forget what you are, for surely the world will not.  Make it your strength.  Then it can never be your weakness.  Armor yourself in it, and it will never be used to hurt you.  -  Tyrion Lannister
