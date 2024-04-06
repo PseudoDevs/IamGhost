@@ -1,3 +1,2 @@
-Last updated: 2024-04-06 11:42:52
-Random Quote: Freddie: "If you want me out of Birmingham, it'll have to be in a wooden box."
-Polly: "You lay a hand on our Ada, I'll put you in a wooden box myself!" - Polly Gray
+Last updated: 2024-04-06 11:43:58
+Random Quote: For a joke to work, it has to have part of truth and part of pain. - Berlin
