@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 11:37:22
-Random Quote: I learned form Set Arthur Dayne, the Sword of the Morning, who could have slain all five of you with his left hand while he was taking a piss with the right.  -  Jaime Lannister
+Last updated: 2024-04-06 11:37:55
+Random Quote: Ted, no! You never break up a girl fight! Never! - Barney Stinson
