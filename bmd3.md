@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 06:54:51
-Random Quote: You were supposed to be my wife, to bear me children with silver hair and purple eyes, to keep the blood of the dragon pure.  I took care of you.  I taught you who you were.  I fed you.  I sold our mother's crown to keep you fed.  -  Viserys Targaryen
+Last updated: 2024-04-06 06:55:25
+Random Quote: I wish my mental problems made me look like you. - Kat Hernandez
