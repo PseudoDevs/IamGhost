@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 06:51:06
-Random Quote: Marshall: "I don't care if the dishes aren't done, okay? If you care, you do it."Lily: "Great, then I don't care if you have an orgasm. If you care, you do it." - Lily Aldrin
+Last updated: 2024-04-06 06:51:39
+Random Quote: I'll have to take a page from Robert's book, not that he ever read one.  -  Stannis Baratheon
