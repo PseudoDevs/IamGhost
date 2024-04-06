@@ -1,5 +1,2 @@
-Last updated: 2024-04-06 11:22:01
-Random Quote: Dina: "You're infuriating."
-Ellie: "Have you met you?"
-Dina: "You make me want to go back outside into that blizzard."
-Ellie: "No one is stopping you." - Joel Miller
+Last updated: 2024-04-06 11:22:34
+Random Quote: Just because you shot Jesse James doesn't mean you are Jesse James. - Mike Ehrmantraut
