@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 10:29:21
-Random Quote: Larry Bloom: "Piper, you put a pee stick in my rinsing cup."Piper Chapman: "Well, you put your pee stick in my vagina. And that's why we're in this situation." - Piper Chapman
+Last updated: 2024-04-06 10:30:28
+Random Quote: Euron's gifts are poisoned.  -  Victarion Greyjoy
