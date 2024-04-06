@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 10:58:40
-Random Quote: Ramsay.  Snow, my wife called me before she ate her fingers, but I say Bolton.  -  Ramsay Bolton
+Last updated: 2024-04-06 10:59:13
+Random Quote: Grief never gets any smaller, so you have to make yourself bigger around it. The best way to do that is to open up. Let people in. - Rendell Locke
