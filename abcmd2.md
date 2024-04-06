@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 10:44:27
-Random Quote: My uncle Kevan would make a passably good regent if someone pressed the duty on him, but he will never reach for it.  The gods shaped him to be a follower, not a leader.  -  Tyrion Lannister
+Last updated: 2024-04-06 10:45:33
+Random Quote: Sheldon, faith means believing in something you can't know for sure is realAnd right now, I am struggling with that. - Mary
