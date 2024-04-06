@@ -1,3 +1,2 @@
-Last updated: 2024-04-06 10:54:18
-Random Quote: Morty: "I have English homework."
-Rick: "You're still learning English? It's the language you speak. How dumb are you?" - Rick Sanchez
+Last updated: 2024-04-06 10:54:51
+Random Quote: I'm a simple man making his way through the galaxy. Like my father before me. - Boba Fett

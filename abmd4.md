@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 10:54:18
-Random Quote: When life gives you lemonade, make lemons. Life will be all like, "What?!" - Phil Dunphy
+Last updated: 2024-04-06 10:54:51
+Random Quote: It's not Aerys I rue, it's Robert... Why is it no one names Robert oathbreaker?  He tore the realm apart, yet I am the one with shit for honor.  -  Jaime Lannister
