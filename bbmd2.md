@@ -1,3 +1,2 @@
-Last updated: 2024-04-06 10:46:32
-Random Quote: Wyatt Langmore: "This job's my old man's idea. Something about 'calluses and character'."
-Charlotte Byrde: "Yeah, well, you're blowing leaves, not hiding Anne Frank." - Charlotte Byrde
+Last updated: 2024-04-06 10:47:05
+Random Quote: This is my lucky St. Paddys Day suit. I have dry-cleaned many stain out of this baby. - Barney Stinson
