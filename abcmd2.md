@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 11:18:42
-Random Quote: No, that you think you'll graduate High-School. - Meemaw
+Last updated: 2024-04-06 11:19:15
+Random Quote: Robert... he is in my dreams as well.  Laughing.  Drinking.  Boasting.  Those were the things he was best at.  Those, and fighting.  I never bested him at anything.  -  Stannis Baratheon
