@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 07:10:30
-Random Quote: The pain is his vessel, desire his compass. It is all that man is capable of. - 
+Last updated: 2024-04-06 07:11:03
+Random Quote: Only their shadows, One most of all.  A tall and twisted thing with one black eye and ten long arms, sailing on a sea of blood.  -  Moqorro
