@@ -1,4 +1,2 @@
-Last updated: 2024-04-06 11:55:33
-Random Quote: Joel: "You keep going for family."
-Ellie: "I'm not family?"
-Joel: "No. You're cargo." - Joel Miller
+Last updated: 2024-04-06 11:56:06
+Random Quote: People deserve a second chance, just like businesses. - Marty Byrde
