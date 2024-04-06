@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 10:11:26
-Random Quote: We’re not free in what we do because we’re not free in what we want. We can’t overcome what’s deep within us - The Stranger
+Last updated: 2024-04-06 10:12:00
+Random Quote: Please.  A sword, that's all I ask.  Let me die as Theon, not as Reek.  -  Theon Greyjoy
