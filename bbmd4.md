@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 07:25:53
-Random Quote: There's no shame in fear, my father told me, what matters is how we face it.  -  Jon Snow
+Last updated: 2024-04-06 07:26:27
+Random Quote: Is it your fault that Bronn's an insolent black - hearted rogue?  He's always been an insolent black
