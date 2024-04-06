@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 08:26:47
-Random Quote: Better the butcher than the meat.  All kings are butchers.  Are queens so different?  -  Daario Naharis
+Last updated: 2024-04-06 08:27:20
+Random Quote: In Colombia, when money's involved, blood inevitably flows. - Steve Murphy
