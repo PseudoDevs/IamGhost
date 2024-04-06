@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 08:48:59
-Random Quote: And there's this other band, led by this woman Stoneheart... Lord Beric's lover, according to one tale.  Supposedly she was hanged by the Freys, but Dondarrion kissed her and brought her back to life, and now she cannot die, no more than he.  -  Set Hyle Hunt
+Last updated: 2024-04-06 08:49:30
+Random Quote: When I'm king in my own right, I'm going to outlaw beets.  -  Tommen Baratheon
