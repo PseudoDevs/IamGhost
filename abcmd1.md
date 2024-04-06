@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 08:27:20
-Random Quote: Woman: "How can you not remember my name? it rhymes with your name?"Barney: "And I said my name was...?" - Barney Stinson
+Last updated: 2024-04-06 08:27:54
+Random Quote: The septons preach about the seven hells.  What do they know?  Only a man who's been burned knows what hell is truly like.  -  Sandor Clegane
