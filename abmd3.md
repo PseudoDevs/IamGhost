@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 11:26:45
-Random Quote: Our country is vulnerable. We need new heroes. - Bucky Barnes
+Last updated: 2024-04-06 11:27:19
+Random Quote: My uncle Kevan would make a passably good regent if someone pressed the duty on him, but he will never reach for it.  The gods shaped him to be a follower, not a leader.  -  Tyrion Lannister
