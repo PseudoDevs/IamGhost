@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 07:51:13
-Random Quote: Everyone was yelling stuff.  Hot Pie yelled hot pie.  He must have yelled it a hundred times.  -  Arya Stark
+Last updated: 2024-04-06 07:51:46
+Random Quote: When one chooses to walk the way of the Mandalore, you are both hunter and prey. How can one be a coward if one chooses this way of life? - The Armorer
