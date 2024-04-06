@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 07:38:08
-Random Quote: So I will only ask you once, Lord Snow.  Are you a brother of the Night's Watch, or a bastard boy who wants to play at war?  -  Jeor Mormont
+Last updated: 2024-04-06 07:39:15
+Random Quote: Do you think I can't tell Lord Stannis from Lord Tywin?  They're both bungholes who think they're too noble to shit, but never mind about that, I know the difference.  -  Walder Frey
