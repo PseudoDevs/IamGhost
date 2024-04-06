@@ -1,2 +1,5 @@
-Last updated: 2024-04-06 07:53:36
-Random Quote: Right down here, the ocean has a depth of almost 4,000 meters. Man has mapped out every corner of this world. Been to the farthest deserts, the top of the highest mountains. But what's down there is still a mystery. A hidden world in the shadows. - Eyk Larsen
+Last updated: 2024-04-06 07:54:09
+Random Quote: Bo-Katan: "I haven't seen battle droids since the Clone Wars."
+Din: "I have."
+Bo-Katan: "Any of 'em look suspicious?"
+Din: "They all look suspicious." - Din Djarin
