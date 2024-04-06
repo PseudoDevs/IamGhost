@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 07:51:37
-Random Quote: We didn't choose this life, we're just living in it. - Number Five
+Last updated: 2024-04-06 07:52:10
+Random Quote: I told you once, there are old sellswords and there are bold sellswords, but there are no old bold sellswords.  -  Brown Ben Plumm
