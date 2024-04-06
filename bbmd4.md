@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 10:06:13
-Random Quote: Kids, you may think your only choices are to swallow your anger or throw it in someone's face, but there's a third option: You can just let it go, and only when you do that is it really gone and you can move forward. - Ted Mosby
+Last updated: 2024-04-06 10:06:46
+Random Quote: I thought I was the inventor, but the greatest invention of all is the free gift of eternal life. - Rick Sanchez
