@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 11:48:56
-Random Quote: You don’t love anyone? Of course you don’t, darling. You don’t have the balls for it. To love, you need courage. - Nairobi
+Last updated: 2024-04-06 11:49:29
+Random Quote: We're cosigning birthday cards, we got toothbrushes at each other's places, foreplay's out the window. I'm in, I'm out, I'm sleeping - it's great. - Ted Mosby
