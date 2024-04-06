@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 08:13:25
-Random Quote: For a joke to work, it has to have part of truth and part of pain. - Berlin
+Last updated: 2024-04-06 08:13:58
+Random Quote: You don’t want a criminal lawyer. You want a criminal lawyer. - Jesse Pinkman
