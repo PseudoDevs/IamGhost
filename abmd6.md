@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 08:30:08
-Random Quote: I have sinned and must atone, must parade my shame before the eyes of every beggar in the city.  They think that this will break my pride, that it will make an end to me, but they are wrong.  -  Cersei Lannister
+Last updated: 2024-04-06 08:30:40
+Random Quote: He is strong with the Force, but talent without training is nothing. I will give my life to protect the child, but he will not be safe until he masters his abilities. - Luke Skywalker

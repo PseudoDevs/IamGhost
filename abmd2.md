@@ -1,3 +1,2 @@
-Last updated: 2024-04-06 08:30:07
-Random Quote: "Crutch down and bend over a little bit."
-Barney: "Wow, It took five shots of tequila to have you in that position." - Barney Stinson
+Last updated: 2024-04-06 08:30:40
+Random Quote: Perhaps we can fly.  All of us.  How will we ever know unless we leap from some tall tower?  No man ever truly knows what he can do unless he dares to leap.  -  Euron Greyjoy
