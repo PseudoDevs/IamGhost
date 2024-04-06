@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 09:09:23
-Random Quote: Lord Seaworth is a man of humble birth, but he reminded me of my duty, when all I could think of was my rights.  I had the cart before the horse, Davos said.  I was trying to win the throne to save the kingdom, when I should have been trying to save the kingdom to win the throne.  -  Stannis Baratheon
+Last updated: 2024-04-06 09:09:59
+Random Quote: When the sun has set, no candle can replace it.  -  Loras Tyrell
