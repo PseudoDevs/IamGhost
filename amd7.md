@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 10:43:12
-Random Quote: Every Halloween I bring a spare costume. In case I strike out with the hottest girl at the party. That way I have a second chance to make a first impression. - Barney Stinson
+Last updated: 2024-04-06 10:43:46
+Random Quote: I feel like her sobriety is completely dependent on how available I am to her. - Jules Vaughn
