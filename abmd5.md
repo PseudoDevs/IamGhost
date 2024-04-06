@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 08:39:41
-Random Quote: The big bro in the sky had answered my prayers. Allmighty five! - Barney Stinson
+Last updated: 2024-04-06 08:40:15
+Random Quote: Dismissing Selmy, where was the sense in that?  Yes, the man was old, but the name of Barristan the Bold still has meaning in the realm.  He lent honor to any man he served.  -  Tywin Lannister
