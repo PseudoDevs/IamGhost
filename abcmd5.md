@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 09:35:04
-Random Quote: Just because I don't have fear, doesn't make me irrational. - Kinsey Locke
+Last updated: 2024-04-06 09:35:37
+Random Quote: Omera: "You haven't shown your face to anyone since you were a kid?"Mando: "No. I was happy that they took me in. My parents were killed and the Mandalorians took care of me. This is the way." - Din Djarin

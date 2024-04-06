@@ -1,2 +1,3 @@
-Last updated: 2024-04-06 09:35:08
-Random Quote: Freeways have exits, so do relationships. The first exit, my personal favourite, is six hours in: You meet, you talk, you have sex, you exit when she's in the shower. - Barney Stinson
+Last updated: 2024-04-06 09:35:41
+Random Quote: Lily: "We don't wanna burden our little angel with all kinds of gender-specific expectations. Boys can do ballet, girls can play football."
+Marshall: "Hell, the Green Bay Packers have been proving that for years." - Marshall Eriksen
