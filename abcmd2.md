@@ -1,2 +1,3 @@
-Last updated: 2024-04-06 10:58:16
-Random Quote: So you're the therapist. You know it's one thing to pretend to be a shrink and bang your patients, that's normal. But to do it for real? Little creepy bro. - Barney Stinson
+Last updated: 2024-04-06 10:58:50
+Random Quote: Lily: "We don't wanna burden our little angel with all kinds of gender-specific expectations. Boys can do ballet, girls can play football."
+Marshall: "Hell, the Green Bay Packers have been proving that for years." - Marshall Eriksen
