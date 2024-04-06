@@ -1,4 +1,2 @@
-Last updated: 2024-04-06 08:31:14
-Random Quote: Rick: "Guests are fans, Morty, which we are not. We'd like professional badges."
-"Do you have a crew?"
-Rick: "Yes. He's a getaway driver with Asperger's and my butt is a demolitions expert." - Rick Sanchez
+Last updated: 2024-04-06 08:31:48
+Random Quote: Robin: "I'm pregnant."Barney: "Are you sure you're not just getting fat?" - Barney Stinson
