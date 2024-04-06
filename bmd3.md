@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 11:47:33
-Random Quote: Don't believe everything you hear. Our enemies want to separate us. But Mandalorians are stronger together. - Bo-Katan
+Last updated: 2024-04-06 11:48:07
+Random Quote: That changes everything, how do you know who to trust? - Meemaw
