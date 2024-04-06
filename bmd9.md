@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 08:23:01
-Random Quote: You have your mother's common sense, but your father's devilment. I see them fighting. Let your mother win! - Polly Gray
+Last updated: 2024-04-06 08:23:34
+Random Quote: Cara: "It's gonna break his little heart."Mando: "He'll get over it. We all do." - Din Djarin
