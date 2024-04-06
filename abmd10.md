@@ -1,2 +1,4 @@
-Last updated: 2024-04-06 08:33:28
-Random Quote: The only thing The Umbrella Academy knows about love is how to screw it up. - Klaus Hargreeves
+Last updated: 2024-04-06 08:34:36
+Random Quote: Joel: "You keep going for family."
+Ellie: "I'm not family?"
+Joel: "No. You're cargo." - Joel Miller
