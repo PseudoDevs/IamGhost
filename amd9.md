@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 11:01:38
-Random Quote: I'm a simple man making his way through the galaxy. Like my father before me. - Boba Fett
+Last updated: 2024-04-06 11:02:11
+Random Quote: No.  You were the betrayer.  You turned against me, against your own blood.  They cheated me.  Your horsey husband and his stinking savages.  They were cheats and liars.  They promised me a golden crown and gave me this.  -  Viserys Targaryen
