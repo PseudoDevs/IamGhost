@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 07:56:07
-Random Quote: In the United States, the Mafia makes witnesses disappear so they can't testify in court. In Colombia, Pablo Escobar made the whole court disappear. - Steve Murphy
+Last updated: 2024-04-06 07:56:41
+Random Quote: They'll bend the knee or I'll destroy them.  -  Stannis Baratheon
