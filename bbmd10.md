@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 11:00:13
-Random Quote: Bronn was no knight, that was true.  Bronn was a battle - hardened killer. 
+Last updated: 2024-04-06 11:00:47
+Random Quote: Ted: "First it was too much eye-contact, then not enough - where do you look during sex?"Barney: "Into the hidden camera at future me, watching it." - Barney Stinson
