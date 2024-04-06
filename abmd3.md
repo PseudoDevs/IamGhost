@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 08:03:06
-Random Quote: Did the boy charm you?  He has that gift.  He got it from his father, with the blood.  He knows he is a king's son, but chooses to forget that he is bastard - born. 
+Last updated: 2024-04-06 08:03:40
+Random Quote: Many years later, my brother would use the same argument in front of a judge. He was still convicted for urinating in a phone booth. - Sheldon Cooper
