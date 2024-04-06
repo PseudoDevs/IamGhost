@@ -1,5 +1,2 @@
-Last updated: 2024-04-06 09:29:36
-Random Quote: John Flynn: "Rogers, get in there!"
-Peggy Carter: "He can't."
-John Flynn: "Stark, you go in!"
-Howard Stark: "What? Are you crazy? I push the buttons. I'm the buttons guy." - Howard Stark
+Last updated: 2024-04-06 09:30:11
+Random Quote: I am Maura Franklin. Born in Morefield. Today is October 19th, 1899. I am not crazy. - Maura Franklin
