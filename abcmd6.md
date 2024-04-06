@@ -1,2 +1,3 @@
-Last updated: 2024-04-06 07:37:13
-Random Quote: You can tell a lot about a person from his biography. - Phil Dunphy
+Last updated: 2024-04-06 07:37:46
+Random Quote: Lily: "I can't believe I unloaded like that on a high-school senior."
+Robin: "I can't believe a high-school senior unloaded like that on me." - Robin Scherbatsky
