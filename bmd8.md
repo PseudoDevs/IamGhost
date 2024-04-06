@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 08:54:06
-Random Quote: Yes! Tonight is gonna be Legen... wait, are we sure it's a good idea to go to a strip club? Shut up, Lily! I'm in charge now... Dary! - Barney Stinson
+Last updated: 2024-04-06 08:55:19
+Random Quote: The World is going to come to an end tonight. Yes think about it. End of the World, Nostradamus, Notre Dame, Fighting Irish, Irish, St. Patrick's Day. This is it Bro. Bro-calypse Now... Bro-Mageddon. - Barney Stinson
