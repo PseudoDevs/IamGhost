@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 07:38:41
-Random Quote: Pictures can be twisted and used against you and haunt you forever. - Hannah Baker
+Last updated: 2024-04-06 07:39:15
+Random Quote: You're like Hitler! But even Hitler cared about Germany or something. - Morty Smith
