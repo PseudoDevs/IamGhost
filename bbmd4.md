@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 09:22:01
-Random Quote: Most of him has gone into the tree... he has lived beyond his mortal span, and yet he lingers.  For us, for you, for the realms of men.  Only a little strength remains in his flesh.  He has a thousand eyes and one, but there is much to watch.  One day you will know.  -  Leaf
+Last updated: 2024-04-06 09:22:34
+Random Quote: I'm not sure whose twisted idea it was to put hundreds of adolescents in underfunded schools run by people whose dreams were crushed years ago... but I admire the sadism. - Wednesday Addams
