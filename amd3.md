@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 09:04:28
-Random Quote: If you don't make it back, there's one thing that I need to tell you... - Klaus Hargreeves
+Last updated: 2024-04-06 09:05:40
+Random Quote: When you date someone, it's like you're taking one long course in who that person is and then, when you break up, all that stuff becomes useless. It's the emotional equivalent of an English degree... - Ted Mosby
