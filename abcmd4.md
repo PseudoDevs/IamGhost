@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 06:50:03
-Random Quote: If that’s true, if you don’t know who I am, then maybe your best course… would be to tread lightly. - Walter White
+Last updated: 2024-04-06 06:50:37
+Random Quote: .OkaySomebody's got to teach this kid to swear, it's embarrassing. - Meemaw
