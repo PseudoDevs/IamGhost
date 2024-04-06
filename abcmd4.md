@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 08:56:35
-Random Quote: Kill the boy, Jon Snow.  Winter is almost upon us.  Kill the boy and let the man be born.  -  Aemon Targaryen
+Last updated: 2024-04-06 08:57:12
+Random Quote: No voting, no debate. It's not a democracy - it's a Rickpublic! - Summer Smith
