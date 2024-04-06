@@ -1,3 +1,2 @@
-Last updated: 2024-04-06 11:12:43
-Random Quote: Morty: "I have English homework."
-Rick: "You're still learning English? It's the language you speak. How dumb are you?" - Rick Sanchez
+Last updated: 2024-04-06 11:13:16
+Random Quote: The Bro Code has been around for centuries. Nay... whatever's more than centuries. - Barney Stinson
