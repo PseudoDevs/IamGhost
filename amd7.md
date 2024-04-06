@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 08:00:56
-Random Quote: Walter Jr., you’re my big man. There are going to be some things that you’ll come to learn about me in the next few days. But just know that no matter how it may look, I only had you in my heart. Goodbye! - Walter White
+Last updated: 2024-04-06 08:01:29
+Random Quote: Mother of dragons.  Mother of monsters.  What have I unleashed upon the world?  A queen I am, but my throne is made of burned bones, and it rests on quicksand.  Without dragons, how could she hope to hold Mereen, much less win back Westeros?  I am the blood of the dragon.  If they are monsters, so am I.  -  Daenerys Targaryen
