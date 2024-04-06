@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 10:03:25
-Random Quote: Damn it, Ted! I was about to drop some sweet word play about logarithms and getting into a rhythm with my log. - Barney Stinson
+Last updated: 2024-04-06 10:04:00
+Random Quote: You have to be as bad as them above in order to survive. - Polly Gray
