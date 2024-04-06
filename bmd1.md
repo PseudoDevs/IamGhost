@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 10:32:09
-Random Quote: Did you think your dad was the only Mandalorian? - Bo-Katan
+Last updated: 2024-04-06 10:32:43
+Random Quote: I never met a real Mandalorian. Heard stories. I know you're good at killing. - Cobb Vanth
