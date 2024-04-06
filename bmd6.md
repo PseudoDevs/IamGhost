@@ -1,3 +1,2 @@
-Last updated: 2024-04-06 08:52:03
-Random Quote: Weems: "No doubt you'll find something that tickles your fancy."
-Wednesday: "The last person who tickled me lost a finger." - Wednesday Addams
+Last updated: 2024-04-06 08:52:36
+Random Quote: Jaime, sweetling, I have known you since you were a babe at Joanna's breast.  You smile like Gerion and fight like Tyg and there's some of Keven in you, else you would not wear that cloak... but Tyrion is Tywin's son, not you.  I said that once to your father's face, and he would not speak to me for half a year.  -  Genna Lannister
