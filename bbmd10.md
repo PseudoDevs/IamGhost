@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 08:12:41
-Random Quote: When Barney overhears that Ted and Robin have a secret to reveal at the wedding reception, he begins to guess what it might be. - Lily Aldrin
+Last updated: 2024-04-06 08:13:48
+Random Quote: For the night is dark and full of terrors.  -  Words of R'hllor
