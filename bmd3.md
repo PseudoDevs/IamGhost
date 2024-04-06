@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 07:37:49
-Random Quote: When you start moving furniture around, people stub their toes and get upset. - Don Neto
+Last updated: 2024-04-06 07:38:22
+Random Quote: Barney: "On your tombstone, it will be, 'Lily Aldrin. Caring wife. Loving friend. Slapbet-Commissioner.'"Marshall: "And your tombstone will read, 'Got slapped by Marhsall so hard he died.'" - Marshall Eriksen
