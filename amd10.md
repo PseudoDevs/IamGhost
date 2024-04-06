@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 07:41:27
-Random Quote: Ted: "Cleveland sports are still relevant! 'LeBron who?' Right, guys?"Barney: "Ted, neither you, nor Cleveland knows how to get over someone leaving them." - Barney Stinson
+Last updated: 2024-04-06 07:42:01
+Random Quote: His blood ran black.  Made him my brother as much as yours.  -  Yoren of the Night's Watch
