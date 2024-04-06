@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 06:36:25
-Random Quote: The Lion does not concern itself with the opinions of sheep.  -  Tywin Lannister
+Last updated: 2024-04-06 06:37:35
+Random Quote: Marshall: "The last time I lived this far from him, was my semester abroad."Lily: "You never did a semester abroad?"Marshall: "That's what I called it, when we lived on opposite sides of the campus." - Marshall Eriksen
