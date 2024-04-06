@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 10:19:49
-Random Quote: Colombians say, God made our land so beautiful it was unfair to the rest of the world. So to even the score, God populated the land with a race of evil men. - C� sar Gaviria
+Last updated: 2024-04-06 10:20:22
+Random Quote: There must always be a Stark in Winterfell.  -  Catelyn Stark
