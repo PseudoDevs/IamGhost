@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 08:02:57
-Random Quote: Robert... he is in my dreams as well.  Laughing.  Drinking.  Boasting.  Those were the things he was best at.  Those, and fighting.  I never bested him at anything.  -  Stannis Baratheon
+Last updated: 2024-04-06 08:03:30
+Random Quote: Just remember who your friends and who your enemies are. - Billy Butcher
