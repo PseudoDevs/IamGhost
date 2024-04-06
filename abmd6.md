@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 10:29:47
-Random Quote: Everyone wants something, Alayne.  And when you know what a man wants you know who he is, and how to move him.  -  Petyr Baelish
+Last updated: 2024-04-06 10:30:21
+Random Quote: Marshall, you being 18 isn't a bad thing. It just means you get to spend even more of your life with her. - Ted Mosby
