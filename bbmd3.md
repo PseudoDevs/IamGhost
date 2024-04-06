@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 08:02:29
-Random Quote: Marshall: "Where is your playbook?"Robin: "My playbook? Bro, uh, two-volume set, right here.Ted: "It's a great read, actually."Lily: "Yeah, I'm reading it right now." - Robin Scherbatsky
+Last updated: 2024-04-06 08:03:03
+Random Quote: They are children, Sansa thought.  They are silly little girls, even Elinor.  They've never seen a battle, they've never seen a man die, they know nothing.  Their dreams were full of songs and stories, the way hers had been before Joffrey cut her father's head off.  Sansa pitied them.  Sansa envied them.  -  Sansa Stark
