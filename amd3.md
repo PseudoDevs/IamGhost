@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 07:05:23
-Random Quote: Anything sounds weird, if you say it a  undred times. Bowl. Bowl. Bowl... - Ted Mosby
+Last updated: 2024-04-06 07:07:18
+Random Quote: The Red God has his due, sweet girl, and only death may pay for life.  This girl took three that were his.  This girl must give three in their places.  Speak the names, and a man will do the rest.  -  Jaqen H'ghar
