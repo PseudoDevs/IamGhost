@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 08:44:26
-Random Quote: Grief never gets any smaller, so you have to make yourself bigger around it. The best way to do that is to open up. Let people in. - Rendell Locke
+Last updated: 2024-04-06 08:46:28
+Random Quote: No voting, no debate. It's not a democracy - it's a Rickpublic! - Summer Smith
