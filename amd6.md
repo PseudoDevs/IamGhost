@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 10:23:12
-Random Quote: This is the one that you saved? You are as its father. A clan of two. But you have removed your helmet. Then you are a Mandalorian no more. - The Armorer
+Last updated: 2024-04-06 10:23:46
+Random Quote: Because there's no way watching it can be more fun than playing it yourself. - Oh Il-nam
