@@ -1,2 +1,4 @@
-Last updated: 2024-04-06 09:07:56
-Random Quote: Do you know how much I make a year? I mean, even if I told you, you wouldn't believe it. - Walter White
+Last updated: 2024-04-06 09:08:29
+Random Quote: Joel: "You keep going for family."
+Ellie: "I'm not family?"
+Joel: "No. You're cargo." - Joel Miller
