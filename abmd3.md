@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 09:26:04
-Random Quote: In Texas, the holy trinity is God, Football and barbecue. Not necessarily in that order. - Sheldon Cooper
+Last updated: 2024-04-06 09:26:39
+Random Quote: The man who passes the sentence should swing the sword.  If you would take a man's life, you owe it to him to look into his eyes and hear his final words.  And if you cannot bear to do that, then perhaps the man does not deserve to die.  -  Eddard Stark
