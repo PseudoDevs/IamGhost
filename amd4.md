@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 08:32:53
-Random Quote: You have just become victims of the cheerleader-effect. Glad you asked: The cheerleader-effect is when a group of women seems hot, but only as a group. Just like with cheerleaders. They seem hot, but take each one of them individually? Sled dogs! - Barney Stinson
+Last updated: 2024-04-06 08:33:27
+Random Quote: Dude, ditch Tiffany and join the Barnacle in the Pharma-Girl-Free-For-All. Side effects may include: loss of clothing, rug burns, shortness of breath and soar abdominals the next morning. What in the world is up! - Barney Stinson
