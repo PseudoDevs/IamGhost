@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 10:49:09
-Random Quote: Fool's blood, king's blood, blood on the maiden's thigh, but chains for the guests and chains for the bridegroom, aye aye aye.  -  Patchface
+Last updated: 2024-04-06 10:49:42
+Random Quote: The bad guys need to get lucky every time. The good guys just need to get lucky once. - Steve Murphy
