@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 07:27:04
-Random Quote: Oh, Cersei is lovely to look at, truly, but cold... the way she guards her cunt, you'd think she had all the gold of Casterly Rock between her legs.  -  Robert Baratheon
+Last updated: 2024-04-06 07:27:37
+Random Quote: A Dothraki wedding without at least three deaths is considered a dull affair.  -  Illyrio Mopatis
