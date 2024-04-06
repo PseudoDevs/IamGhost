@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 10:11:53
-Random Quote: The Mandalorian. His armor alone is worth more than my bounty. - Fennec Shand
+Last updated: 2024-04-06 10:12:26
+Random Quote: Old gods or new, it makes no matter, no man is so accursed as the kinslayer.  -  Rickard Karstark
