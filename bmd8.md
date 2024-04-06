@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 10:46:42
-Random Quote: Many years later, my brother would use the same argument in front of a judge. He was still convicted for urinating in a phone booth. - Sheldon Cooper
+Last updated: 2024-04-06 10:47:15
+Random Quote: I did it for me. I liked it. I was good at it. And... I was really... I was alive. - Walter White
