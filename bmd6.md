@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 06:49:35
-Random Quote: The men of Westeros are ever rushing.  What good is this, I ask you?  He who hurries through life hurries to his grave.  -  Salladhor Saan
+Last updated: 2024-04-06 06:50:09
+Random Quote: That's not a law, just a sword.  Happens I got one too.  -  Yoren of the Night's Watch
