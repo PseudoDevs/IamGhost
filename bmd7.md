@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 07:54:46
-Random Quote: I never asked for this, no more than I asked to be king.  Yet dare I disregard her?  We do not choose our destinies.  Yet we must... we must do our duty, no?  Great or small, we must do our duty.  -  Stannis Baratheon
+Last updated: 2024-04-06 07:55:22
+Random Quote: The farther you go, the sharper their blade. Just don't ever give them an opening. - Cal Jacobs
