@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 07:29:26
-Random Quote: I don't wanna be choosing between two girls, I wanna be a complete head over heels idiot for one! - Ted Mosby
+Last updated: 2024-04-06 07:30:00
+Random Quote: Oh man, I am so excited that you're here! It has been forever since I have been around anyone even remotely fun![to Lily, Robin, Ted and Marshall] Huh... yes, offense! - Barney Stinson
