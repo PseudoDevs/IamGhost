@@ -1,4 +1,2 @@
-Last updated: 2024-04-06 07:49:32
-Random Quote: Joel: "Where'd you get the money for this?"
-Sarah: "Drugs. I sell hardcore drugs."
-Joel: "It's better than what I do." - Joel Miller
+Last updated: 2024-04-06 07:50:05
+Random Quote: I feel like her sobriety is completely dependent on how available I am to her. - Jules Vaughn
