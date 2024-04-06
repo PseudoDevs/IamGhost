@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 07:27:09
-Random Quote: You could help a friend, but instead you're choosing the hot girl in the tight tank-top. Your training is complete, I'm so proud of this kid! - Barney Stinson
+Last updated: 2024-04-06 07:28:15
+Random Quote: For the night is dark and full of terrors.  -  Words of R'hllor
