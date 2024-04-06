@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 07:17:47
-Random Quote: I don't want to be good. I am going to be great. - Pablo Escobar
+Last updated: 2024-04-06 07:18:20
+Random Quote: A man will tell you poison is dishonorable, but a woman's honor is different.  The Mother shaped us to protect our children, and our only dishonor is failure.  -  Lysa Arryn
