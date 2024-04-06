@@ -1,2 +1,6 @@
-Last updated: 2024-04-06 07:28:20
-Random Quote: Robert was the true steel.  Stannis is pure iron, black and hard and strong, yes, but brittle, the way iron gets.  He'll break before he bends.  And Renly, that one, he's copper, bright and shiny, pretty to look at but not worth all that much at the end of the day.  -  Donal Noye
+Last updated: 2024-04-06 07:29:27
+Random Quote: Rick: "Just do a Die Hard!"
+Summer: "What does that mean?"
+Rick: "Sneak around! Use air vents! You've never seen Die Hard?"
+Summer: "I'm 17. No, I've never seen Die Hard."
+Rick: "Well, neither did the guy in Die Hard." - Rick Sanchez
