@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 09:28:58
-Random Quote: Some of you cared. None of you cared enough. - Hannah Baker
+Last updated: 2024-04-06 09:29:32
+Random Quote: Dad, you can be in all of the fights that you want, but don't get hurt too bad. - Seong Gi-hun
