@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 06:47:13
-Random Quote: Robert was the true steel.  Stannis is pure iron, black and hard and strong, yes, but brittle, the way iron gets.  He'll break before he bends.  And Renly, that one, he's copper, bright and shiny, pretty to look at but not worth all that much at the end of the day.  -  Donal Noye
+Last updated: 2024-04-06 06:47:46
+Random Quote: Ted: "Why wouldn't she just come right out and say what she wants?"Marshall: "Men. It's like, if there weren't pickle jars to open and spiders to kill and computers to back up, what would be their point?"Lily: "Mmh-hmm!"Ted: "Okay, when did Marshall become a slightly more feminine you?" - Ted Mosby
