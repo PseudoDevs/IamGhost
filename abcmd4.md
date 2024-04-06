@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 09:08:41
-Random Quote: Walter Jr., you’re my big man. There are going to be some things that you’ll come to learn about me in the next few days. But just know that no matter how it may look, I only had you in my heart. Goodbye! - Walter White
+Last updated: 2024-04-06 09:09:15
+Random Quote: Talking to a woman that you have already had sex with, is like changing the oil on a rental car! - Barney Stinson
