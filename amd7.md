@@ -1,2 +1,4 @@
-Last updated: 2024-04-06 08:34:49
-Random Quote: Sticky's even sent me a boob-shaped hand-sanitizer dispenser. It's clean and dirty at the same time. - Barney Stinson
+Last updated: 2024-04-06 08:35:22
+Random Quote: Greef: "Nevarro is a very fine planet. And now that the scum and villainy have been washed away, it's very respectable again."
+Mando: "As a bounty hunter hive?"
+Greef: "Some of my favorite people are bounty hunters." - Greef Karga
