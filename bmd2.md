@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 12:00:52
-Random Quote: I would very much like to return your witty banter, but I am too exhausted to be clever. - Galina 'Red' Reznikov
+Last updated: 2024-04-06 12:01:26
+Random Quote: Grief never gets any smaller, so you have to make yourself bigger around it. The best way to do that is to open up. Let people in. - Rendell Locke
