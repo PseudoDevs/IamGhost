@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 11:30:22
-Random Quote: If a man does not use his member it grows smaller and smaller, until one day he wants to piss and cannot find it.  -  Tormund Giantsbane
+Last updated: 2024-04-06 11:30:55
+Random Quote: If we're together long enough I hope that one day you see yourself like I do. - Kevin
