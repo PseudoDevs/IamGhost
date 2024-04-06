@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 10:09:17
-Random Quote: Euron Greyjoy is no man's notion of a king, if half of what Theon said of him was true.  -  Robb Stark
+Last updated: 2024-04-06 10:10:24
+Random Quote: It was the white cloak that soiled me, not the other way around.  -  Jaime Lannister
