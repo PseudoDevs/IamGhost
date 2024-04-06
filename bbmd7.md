@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 09:46:07
-Random Quote: She don't speak.  You bloody bastards cut her throat too deep for that.  But she remembers.  -  Lem Lemoncloack
+Last updated: 2024-04-06 09:46:40
+Random Quote: There's kids playing hockey in the back. It's like you want us to make fun of you! - Barney Stinson
