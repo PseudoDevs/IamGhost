@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 11:48:06
-Random Quote: I already told you what you can do with your money. You seem like a guy who can take a hint, so what are we doing? - Mike Ehrmantraut
+Last updated: 2024-04-06 11:48:40
+Random Quote: When one chooses to walk the way of the Mandalore, you are both hunter and prey. How can one be a coward if one chooses this way of life? - The Armorer
