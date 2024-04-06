@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 06:32:55
-Random Quote: I will kill your wife, I will kill your son, I will kill your infant daughter. - Gustavo Fring
+Last updated: 2024-04-06 06:33:30
+Random Quote: Give me back my spear, Uncle.  Cersei sent us a head.  We should send her back a bag of them.  -  Obara Sand
