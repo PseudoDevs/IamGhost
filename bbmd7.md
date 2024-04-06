@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 11:40:40
-Random Quote: Miss Garvey's parents may stay at our place as long as they like. Provided they each arrive in an urn. - Barney Stinson
+Last updated: 2024-04-06 11:41:13
+Random Quote: His blood ran black.  Made him my brother as much as yours.  -  Yoren of the Night's Watch
