@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 06:35:50
-Random Quote: This is Hawkins, okay? You wanna know the worst thing that's ever happened here in the four years I've been working here? It was when an owl attacked Eleanor Gillespie's head because it though that her hair was a nest. - Jim Hopper
+Last updated: 2024-04-06 06:36:25
+Random Quote: The Lion does not concern itself with the opinions of sheep.  -  Tywin Lannister
