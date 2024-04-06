@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 09:29:19
-Random Quote: Hey, takin' on a challenge is a lot like ridin' a horse. If you're comfortable while you're doin' it, you're probably doin' it wrong. - Jim Hopper
+Last updated: 2024-04-06 09:30:25
+Random Quote: A wolf is not a kraken.  What the kraken grasps it does not lose, be it longship or leviathan.  -  Victarion Greyjoy

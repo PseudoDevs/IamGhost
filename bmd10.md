@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 09:29:52
-Random Quote: The Lord of Light cherishes the innocent.  There is no sacrifice more precious.  From his king's blood and his untainted fire, a dragon shall be born.  -  Melisandre
+Last updated: 2024-04-06 09:30:25
+Random Quote: You're a beautiful, sweet girl. Fuck this guy! - Nicky Nichols
