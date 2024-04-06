@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 09:03:22
-Random Quote: We all have things we keep hidden. Sometimes, keeping secrets is how you survive. Because in High School, one rumor, one picture, one incident, can define you forever. - Hannah Baker
+Last updated: 2024-04-06 09:03:55
+Random Quote: You'd have been the last lawyer I'd have gone to. - Walter White

@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 09:03:22
-Random Quote: If you get pulled over for speeding, tell the policeman your spouse has diarrhea. - Phil Dunphy
+Last updated: 2024-04-06 09:03:55
+Random Quote: Why is it always the innocents who suffer most, when you high lords play your game of thrones?  -  Varys
