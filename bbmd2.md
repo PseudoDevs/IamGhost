@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 11:23:00
-Random Quote: One of the 24 similarities between women and fish are they're both attracted to shiny objects. - Barney Stinson
+Last updated: 2024-04-06 11:23:33
+Random Quote: We go home with an army, sweet sister.  With Khal Drogo's army, that is how we go home.  And if you must wed him and bed him for that, you will.  I'd let his whole khalasar fuck you if need be, sweet sister, all forty thousand men, and their horses too if that was what it took to get my army.  -  Viserys Targaryen
