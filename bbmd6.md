@@ -1,3 +1,2 @@
-Last updated: 2024-04-06 12:09:35
-Random Quote: Darcy Lewis: "No one would notice if you blew up a Dakota. Honestly, I can't tell them apart."
-Carol Danvers: "South Dakota is on the bottom." - Captain Marvel
+Last updated: 2024-04-06 12:10:08
+Random Quote: Birds are lost, messages stolen or sold... there are things I might tell you of that eunuch that would chill your blood...  -  Grand Maester Pycelle
