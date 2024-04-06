@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 09:47:10
-Random Quote: I never asked for this, no more than I asked to be king.  Yet dare I disregard her?  We do not choose our destinies.  Yet we must... we must do our duty, no?  Great or small, we must do our duty.  -  Stannis Baratheon
+Last updated: 2024-04-06 09:47:45
+Random Quote: The only way Ralph would remember our anniversary is if there was a beer named "June 2nd". - Agatha Harkness
