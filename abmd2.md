@@ -1,2 +1,4 @@
-Last updated: 2024-04-06 11:52:33
-Random Quote: No voting, no debate. It's not a democracy - it's a Rickpublic! - Summer Smith
+Last updated: 2024-04-06 11:53:06
+Random Quote: Greef: "Nevarro is a very fine planet. And now that the scum and villainy have been washed away, it's very respectable again."
+Mando: "As a bounty hunter hive?"
+Greef: "Some of my favorite people are bounty hunters." - Greef Karga
