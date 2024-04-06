@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 07:41:28
-Random Quote: Animal instinct. When faced with danger, seek refuge in the herd. - Seong Gi-hun
+Last updated: 2024-04-06 07:42:02
+Random Quote: Mother of dragons.  Mother of monsters.  What have I unleashed upon the world?  A queen I am, but my throne is made of burned bones, and it rests on quicksand.  Without dragons, how could she hope to hold Mereen, much less win back Westeros?  I am the blood of the dragon.  If they are monsters, so am I.  -  Daenerys Targaryen
