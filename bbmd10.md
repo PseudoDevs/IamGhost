@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 10:43:37
-Random Quote: You are the love of my life. Everything I have and everything I am is yours. Forever. - Barney Stinson
+Last updated: 2024-04-06 10:44:10
+Random Quote: We all have things we keep hidden. Sometimes, keeping secrets is how you survive. Because in High School, one rumor, one picture, one incident, can define you forever. - Hannah Baker
