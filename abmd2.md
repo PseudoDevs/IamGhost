@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 09:34:31
-Random Quote: You know what the happiest animal in the world is? It's a goldfish. It's got a 10 second memory. Be a goldfish! - Rebecca Welton
+Last updated: 2024-04-06 09:35:04
+Random Quote: The biggest case of my life and I'd already lost the jury. I mean, I've heard of "Twelve Angry Men",  but this was more like "Twelve Horny Women". - Marshall Eriksen
