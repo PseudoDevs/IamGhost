@@ -1,2 +1,3 @@
-Last updated: 2024-04-06 11:24:59
-Random Quote: When things go well, people start thinking it's because they're so fing smart. - Walt Breslin
+Last updated: 2024-04-06 11:25:32
+Random Quote: Stark: "Can I give you a piece of advice?"
+Carter: "I'd rather you didn't." - Peggy Carter
