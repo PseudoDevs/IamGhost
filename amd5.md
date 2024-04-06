@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 07:53:53
-Random Quote: We've always been a trio! We're right up there with Batman and Robin and Alfred. Romeo and Juliet and the apothecary. Salt and pepper and cumin. - Ted Mosby
+Last updated: 2024-04-06 07:54:26
+Random Quote: No voting, no debate. It's not a democracy - it's a Rickpublic! - Summer Smith
