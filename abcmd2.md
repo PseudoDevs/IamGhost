@@ -1,3 +1,2 @@
-Last updated: 2024-04-06 11:15:57
-Random Quote: Tommy: "I'll have some men watch her house 'til the danger passes."
-Polly: "'Til the danger passes. That'll be the bloody day." - Polly Gray
+Last updated: 2024-04-06 11:16:29
+Random Quote: What I find interesting, is how so many supervillains are scientistsIf the world doesn't respect me, I might change sides. - Sheldon
