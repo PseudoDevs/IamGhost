@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 11:30:20
-Random Quote: Things never work out the way you imagine they will. - Lucien
+Last updated: 2024-04-06 11:30:53
+Random Quote: Lily: "We'll all have a wedding dress camp-out. It'll be fun!"Barney: "I can't go. I've got this thing."Lily: "What thing?"Barney: "A penis!" - Barney Stinson
