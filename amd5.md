@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 07:45:27
-Random Quote: Did the boy charm you?  He has that gift.  He got it from his father, with the blood.  He knows he is a king's son, but chooses to forget that he is bastard - born. 
+Last updated: 2024-04-06 07:46:00
+Random Quote: Here's the secret, kids: none of us can vow to be perfect. In the end, all we can do is promise to love each other with everything we've got. Because love's the best thing we do. - Ted Mosby
