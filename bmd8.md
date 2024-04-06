@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 09:42:14
-Random Quote: That's where The Boys come in: Spank the bastards when they get out of line. - Billy Butcher
+Last updated: 2024-04-06 09:42:48
+Random Quote: I told you once, there are old sellswords and there are bold sellswords, but there are no old bold sellswords.  -  Brown Ben Plumm
