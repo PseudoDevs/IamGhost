@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 08:46:27
-Random Quote: Your pain defines who you are but it no longer holds power on you - Noah
+Last updated: 2024-04-06 08:47:03
+Random Quote: Just 'cause you fall on your *ss doesn't mean you have to stay there. - Hughie Campbell
