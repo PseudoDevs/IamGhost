@@ -1,5 +1,2 @@
-Last updated: 2024-04-06 12:09:18
-Random Quote: Bo-Katan: "I haven't seen battle droids since the Clone Wars."
-Din: "I have."
-Bo-Katan: "Any of 'em look suspicious?"
-Din: "They all look suspicious." - Din Djarin
+Last updated: 2024-04-06 12:09:51
+Random Quote: Nerds who aren't good at math?Life is going to be rough boys! - Robin Scherbatsky
