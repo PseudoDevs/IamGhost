@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 11:48:52
-Random Quote: I'm really sorry if I gave you the wrong impression. I'm not interested in dating anyone. I'm extremly busy with work and raising my son, and I just have no room in my life for the kind of intimacy you are clearly craving. But I really comment you on your directness and your bravado and I really hope that you find what you're looking for. Goodbye, now. - Dr. Jean Milburn
+Last updated: 2024-04-06 11:49:25
+Random Quote: My lords, when Donal Noye was slain, it was this young man Jon Snow who took the Wall and held it, against all the fury of the north.  He has proved himself valiant, loyal, and resourceful.  Were it not for him, you would have found Mance Rayder sitting here when you arrived, Lord Slynt.  You are doing him a great wrong.  Jon Snow was Lord Mormont's own steward and squire.  He was chosen for that duty because the Lord Commander saw much promise in him.  As do I.  -  Maester Aemon

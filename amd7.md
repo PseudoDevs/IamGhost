@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 11:48:52
-Random Quote: Why the oldest son, and not the best - fitted?  The crown will suit me, as it never suited Robert and would not suit Stannis. 
+Last updated: 2024-04-06 11:49:25
+Random Quote: Everyone was yelling stuff.  Hot Pie yelled hot pie.  He must have yelled it a hundred times.  -  Arya Stark
