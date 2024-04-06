@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 11:23:27
-Random Quote: We are smart. And idiots are banging all the time. We can learn how to do it, too. - Fabiola Torres
+Last updated: 2024-04-06 11:24:00
+Random Quote: His blood ran black.  Made him my brother as much as yours.  -  Yoren of the Night's Watch
