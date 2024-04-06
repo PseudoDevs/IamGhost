@@ -1,3 +1,2 @@
-Last updated: 2024-04-06 07:22:37
-Random Quote: What's in the box? What's in the box? WHAT'S IN THE BOX?
-Right? Brad pitt? Seven? - Robin Scherbatsky
+Last updated: 2024-04-06 07:23:10
+Random Quote: Bronn was no knight, that was true.  Bronn was a battle - hardened killer. 
