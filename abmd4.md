@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 09:13:37
-Random Quote: Money. That's what seperates the haves from the have-nots. But what is money? It's everything if you don't have it, right? - Marty Byrde
+Last updated: 2024-04-06 09:14:10
+Random Quote: Please.  A sword, that's all I ask.  Let me die as Theon, not as Reek.  -  Theon Greyjoy
