@@ -1,2 +1,3 @@
-Last updated: 2024-04-06 09:39:01
-Random Quote: I know this hurts little buddy, but you'll love again someday. Because time will heal a broken heart, but not that bitch's window. - Barney Stinson
+Last updated: 2024-04-06 09:39:35
+Random Quote: Weems: "No doubt you'll find something that tickles your fancy."
+Wednesday: "The last person who tickled me lost a finger." - Wednesday Addams
