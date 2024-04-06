@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 07:27:46
-Random Quote: Time is crucial in a kidnapping. The sooner action's taken, the better your chances of things working out, and everybody coming home in one piece. They put that in the handbook nowadays. - Walt Breslin
+Last updated: 2024-04-06 07:28:19
+Random Quote: Think of me as Yoda - only, instead of being little and green, I wear suits and I'm awesome. I'm your bro. I'm Broda. - Barney Stinson
