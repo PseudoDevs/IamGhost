@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 08:16:57
-Random Quote: The brain drives our thoughts, our behavior. It holds all of the secrets of the universe. There's a whole hidden world inside each of us which only needs to be deciphered. - Maura Franklin
+Last updated: 2024-04-06 08:17:30
+Random Quote: Pictures can be twisted and used against you and haunt you forever. - Hannah Baker
