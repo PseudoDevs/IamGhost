@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 11:46:44
-Random Quote: I pray for a glimpse of Azor Ahai, and R'hllor shows me only Snow.  -  Melisandre
+Last updated: 2024-04-06 11:47:16
+Random Quote: A queen must listen to all.  The highborn and the low, the strong and the weak, the noble and the venal.  One voice may speak you false, but in many there is always truth to be found.  -  Daenerys Targaryen
