@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 08:57:14
-Random Quote: Pictures can be twisted and used against you and haunt you forever. - Hannah Baker
+Last updated: 2024-04-06 08:57:51
+Random Quote: Money. That's what seperates the haves from the have-nots. But what is money? It's everything if you don't have it, right? - Marty Byrde
