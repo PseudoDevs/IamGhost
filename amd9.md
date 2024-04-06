@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 08:39:43
-Random Quote: Did you think your dad was the only Mandalorian? - Bo-Katan
+Last updated: 2024-04-06 08:40:16
+Random Quote: Sometimes you gotta do bad things to catch bad people. - Javier Pe�a
