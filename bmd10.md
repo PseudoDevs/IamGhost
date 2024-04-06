@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 09:16:50
-Random Quote: Freeways have exits, so do relationships. The first exit, my personal favourite, is six hours in: You meet, you talk, you have sex, you exit when she's in the shower. - Barney Stinson
+Last updated: 2024-04-06 09:17:23
+Random Quote: Some of you cared. None of you cared enough. - Hannah Baker
