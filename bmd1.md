@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 11:26:27
-Random Quote: So, what do you want to do tonight? Drink ourselves blind, set a car on fire? Oh, watch a movie that doesn't start with a desk lamp jumping on top of a capital "I"? - Lily Aldrin
+Last updated: 2024-04-06 11:27:34
+Random Quote: Sometimes people make decisions, shit happens, and we gotta act accordingly. - Marty Byrde
