@@ -1,2 +1,4 @@
-Last updated: 2024-04-06 08:11:01
-Random Quote: If that’s true, if you don’t know who I am, then maybe your best course… would be to tread lightly. - Walter White
+Last updated: 2024-04-06 08:11:35
+Random Quote: Joel: "Long way or short way?"
+Tess: "I mean, it's the long way or the 'we're fuckin' dead' way."
+Ellie: "Well, I vote long way just based on that limited information." - Ellie Williams
