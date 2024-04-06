@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 08:34:47
-Random Quote: Dustin: "Even if he is, it doesn't automatically mean that he's bad."Mike: "That's like saying just because someone's from the Death Star doesn't make them bad."Dustin: "We have a bond."Mike: "A bond? Just because he likes nougat?" - Mike Wheeler
+Last updated: 2024-04-06 08:35:21
+Random Quote: His blood is bad.  He needs to be leeched.  The leeches suck away the bad blood, all the rage and pain.  No man can think so full of anger.  Ramsay, though... his tainted blood would poison even leeches, I fear.  -  Roose Bolton
