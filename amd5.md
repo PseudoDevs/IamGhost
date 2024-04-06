@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 11:03:00
-Random Quote: Ted: "Barney, I don't know if the oven is deep enough. Plus, it's a display made of cardboard."Barney: "Huh. I should probably disconnect the gas." - Barney Stinson
+Last updated: 2024-04-06 11:03:33
+Random Quote: Think of the pickup plays we can run as a father-son duo. There's the "Father Knows Breast", there's the "Bush Dynasty", the "Lick Father, Lick Son". - Barney Stinson
