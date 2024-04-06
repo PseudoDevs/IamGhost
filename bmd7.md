@@ -1,2 +1,3 @@
-Last updated: 2024-04-06 09:39:07
-Random Quote: Watch a sunrise at least once a day. - Phil Dunphy
+Last updated: 2024-04-06 09:39:40
+Random Quote: Ted: "So this is what you guys do? You invite other couples over for dinner, to judge them and feel superior?"
+Lily: "Oh, grow up, Ted, that's why any couple invites anyone over ever!" - Lily Aldrin
