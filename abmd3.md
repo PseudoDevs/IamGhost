@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 12:04:21
-Random Quote: Ted, you know who's a million times hotter than the hottest girl I've ever slept with? Her okay-looking friend I haven't seen naked. Why? Because new is always better. - Barney Stinson
+Last updated: 2024-04-06 12:04:54
+Random Quote: Euron Greyjoy is no man's notion of a king, if half of what Theon said of him was true.  -  Robb Stark
