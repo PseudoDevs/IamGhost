@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 12:05:42
-Random Quote: The average American consumes 55 pounds of beef per year. And then there’s Texas, where we can knock that off in a couple of months. Maybe faster if we’re talking about smoked brisket. - Sheldon
+Last updated: 2024-04-06 12:06:15
+Random Quote: He made me kill a rabbit. I guess he thought it would make me into more of a man or something. I cried for a week. - Jonathan Byers
