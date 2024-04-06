@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 07:50:40
-Random Quote: You ever touch me again, I will burn your eyes out! - Starlight
+Last updated: 2024-04-06 07:51:50
+Random Quote: Rhaegar fought valiantly, Rhaegar fought nobly, and Rhaegar died.  -  Jorah Mormont
