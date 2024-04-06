@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 11:52:44
-Random Quote: The truth isn't always to most exciting version of things, or the best, or the worst. It's somewhere inbetween. But it deserves to be heard and remembered. 'The truth will out', like someone said once. It remains. - Hannah Baker
+Last updated: 2024-04-06 11:53:50
+Random Quote: Oh, come on. If you don't laugh, it just seems mean. - Barney Stinson
