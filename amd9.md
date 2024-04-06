@@ -1,2 +1,3 @@
-Last updated: 2024-04-06 09:36:38
-Random Quote: I wouldn't lie to you. Well... that's a lie. - Rick Sanchez
+Last updated: 2024-04-06 09:38:24
+Random Quote: Freddie: "You think I can't handle Tommy Shelby?"
+Polly: "You can't. I am having trouble these days and I'm twice the man you are." - Polly Gray
