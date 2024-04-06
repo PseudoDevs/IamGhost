@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 07:40:44
-Random Quote: The truth isn't always to most exciting version of things, or the best, or the worst. It's somewhere inbetween. But it deserves to be heard and remembered. 'The truth will out', like someone said once. It remains. - Hannah Baker
+Last updated: 2024-04-06 07:41:17
+Random Quote: I just want to stand on top of the Wall and piss off the edge of the world.  -  Tyrion Lannister
