@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 09:45:45
-Random Quote: You have your mother's common sense, but your father's devilment. I see them fighting. Let your mother win! - Polly Gray
+Last updated: 2024-04-06 09:46:18
+Random Quote: We all must choose.  Man or woman, young or old, lord or peasant, our choices are the same.  We choose light or we choose darkness.  -  Melisandre
