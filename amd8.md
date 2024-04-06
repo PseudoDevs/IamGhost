@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 08:20:04
-Random Quote: You need to figure out what the fuck you want. - Nicky Nichols
+Last updated: 2024-04-06 08:20:37
+Random Quote: Barney: "Before you know it, you'll be marrying a man who once ate a vanilla-scented candle!"Robin: "That was on me. I shouldn't have left it in the kitchen. Though, it was lit. Man, he dumb." - Robin Scherbatsky
