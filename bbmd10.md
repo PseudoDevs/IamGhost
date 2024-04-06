@@ -1,2 +1,3 @@
-Last updated: 2024-04-06 10:32:00
-Random Quote: The beauty of a moment, is that it's fleeting. - Ted Mosby
+Last updated: 2024-04-06 10:32:33
+Random Quote: Mi-nyeo: "Deok-su. You betray me... I'll kill you. Okay?"
+Deok-su: "You're the reason that I think I might die tonight." - Jang Deok-su
