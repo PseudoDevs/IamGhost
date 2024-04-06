@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 07:47:49
-Random Quote: That is nostalgia: finding out that things from the past you didn’t even expectwere happiness…. actually were - Tokyo
+Last updated: 2024-04-06 07:48:23
+Random Quote: Oberyn was ever the viper.  Deadly, dangerous, unpredictable.  No man dared tread on him.  I was the grass.  Pleasant, complaisant, sweet - smelling, swaying with every breeze.  Who fears to walk upon the grass?  But it is the grass that hides the viper from his enemies and shelters him until he strikes. 
