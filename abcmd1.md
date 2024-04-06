@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 09:11:44
-Random Quote: They'll bend the knee or I'll destroy them.  -  Stannis Baratheon
+Last updated: 2024-04-06 09:12:18
+Random Quote: There are moments when we must understand that the decisions we make influence more than just our own fates. - 
