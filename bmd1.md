@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 12:07:23
-Random Quote: They'll bend the knee or I'll destroy them.  -  Stannis Baratheon
+Last updated: 2024-04-06 12:07:56
+Random Quote: When the snows fall and the white winds blow, the lone wolf dies, but the pack survives.  -  Eddard Stark
