@@ -1,2 +1,3 @@
-Last updated: 2024-04-06 11:28:16
-Random Quote: I feel like you ruined me forever. - Maddy Perez
+Last updated: 2024-04-06 11:28:50
+Random Quote: Morty: "I don't deserve this. I was just having fun."
+Rick: "So was Jeffrey Dahmer." - Rick Sanchez
