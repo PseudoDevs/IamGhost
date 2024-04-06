@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 10:33:13
-Random Quote: Oh, boy, so you actually learned something today? What is this, Full House? - Rick Sanchez
+Last updated: 2024-04-06 10:33:46
+Random Quote: I dream of a tree sometimes.  A weirwood, like the one in the godswood.  It calls to me.  The wolf dreams are better.  I smell things, and sometimes I can taste the blood.  -  Bran Stark
