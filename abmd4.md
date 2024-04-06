@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 10:01:19
-Random Quote: So young.  Though mayhaps this was a blessing.  Had he lived, he would have grown up to be a Frey.  -  Wyman Manderly
+Last updated: 2024-04-06 10:01:52
+Random Quote: I will go to my grave thinking of my brother's peach.  -  Stannis Baratheon
