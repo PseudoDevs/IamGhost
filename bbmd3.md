@@ -1,3 +1,2 @@
-Last updated: 2024-04-06 10:08:46
-Random Quote: Morty: "I don't like how meta this is getting, Rick."
-Rick: "Shut up, Morty, you're 14. You watch videos of people on YouTube reacting to fing YouTube. I'll be the judge of when we get too meta." - Rick Sanchez
+Last updated: 2024-04-06 10:09:19
+Random Quote: Apart, we're okay. But together we're poison. - Kim Wexler
