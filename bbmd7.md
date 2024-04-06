@@ -1,3 +1,2 @@
-Last updated: 2024-04-06 12:15:27
-Random Quote: Elliot: "I'm not sure it's a good thing we met."
-Rue: "What are you talking about? You're my new favorite person." - Rue Bennett
+Last updated: 2024-04-06 12:16:00
+Random Quote: Nancy Wheeler: "You're supposed to hit the cans, right?"Jonathan Byers: "No, actually - you see the spaces in between the cans? I'm aiming for those." - Jonathan Byers
