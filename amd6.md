@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 10:22:39
-Random Quote: When it comes to locker rooms, I like 'em just like my mother's bathing suits: I only wanna see 'em in one piece. - Jim Hopper
+Last updated: 2024-04-06 10:23:12
+Random Quote: This is the one that you saved? You are as its father. A clan of two. But you have removed your helmet. Then you are a Mandalorian no more. - The Armorer
