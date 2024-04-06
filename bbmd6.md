@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 09:34:18
-Random Quote: What's the difference between peanut butter and jam?You can't peanut butter your dick up someone's ass. - Barney Stinson
+Last updated: 2024-04-06 09:34:52
+Random Quote: Why should I go running to my aunt as if I were a beggar?  My claim is better than her own.  Let her come to me... in Westeros.  -  Aegon Targaryen
