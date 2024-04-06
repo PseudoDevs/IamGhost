@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 10:25:53
-Random Quote: What's the point of having magic keys if we can't even use them? - Bode Locke
+Last updated: 2024-04-06 10:26:26
+Random Quote: Roose Bolton's cold and cunning, aye, but a man can deal with Roose.  We've all known worse.  But this bastard son of his... they say he's mad and cruel, a monster.  -  Locke
