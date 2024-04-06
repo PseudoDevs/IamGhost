@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 07:37:16
-Random Quote: Any man who steps between a father and his vengeance asks for death.  -  Rickard Karstark
+Last updated: 2024-04-06 07:37:49
+Random Quote: If you want my advice? Get out of your own goddamn drama for a minute. - Nicky Nichols
