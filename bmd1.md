@@ -1,3 +1,2 @@
-Last updated: 2024-04-06 07:43:54
-Random Quote: This woman has a hold on my heart that I could not break if I wanted to, and there have been times that I wanted to.
-It has been overwhelming and humbling and even painful at times, but I could not stop loving her any more than I could stop breathing. - Barney Stinson
+Last updated: 2024-04-06 07:44:28
+Random Quote: I'm a simple man making his way through the galaxy. Like my father before me. - Boba Fett
