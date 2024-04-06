@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 11:38:27
-Random Quote: It's not just football. It's life. - Cal Jacobs
+Last updated: 2024-04-06 11:39:01
+Random Quote: Pornstache: "You are not an agent of God, okay? God can do so much better than you. You must know that, right?"Pennsatucky: "Know what?"Pornstache: "Jesus Christ, how the fuck did you survive infancy?"Pennsatucky: "My auntie helped my momma..."Pornstache: "That's a rhetorical question! Do you not understand what a fucking rhetorical question is?" - George 'Pornstache' Mendez
