@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 07:19:15
-Random Quote: Or I look single, 34 and single, which must mean there's something wrong with me. Like, you keep large reptiles in tanks, or I have a very special relationship with my mother. - Larry Bloom
+Last updated: 2024-04-06 07:19:48
+Random Quote: Hey kid, you know how your mom won't let you have icecream 'til after dinner, but then the waiting kind of makes it taste better? Well, I've been waiting two months for that bowl of ice cream - and tonight I'm gonna have sex with it. - Barney Stinson
