@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 07:08:11
-Random Quote: Robert wanted smiles and cheers, always, so he went where he found them, to his friends and his whores.  Robert wanted to be loved.  My brother Tyrion has the same disease.  -  Cersei Lannister
+Last updated: 2024-04-06 07:08:45
+Random Quote: One life, one choice, one moment can destroy the entire universe. - The Watcher
