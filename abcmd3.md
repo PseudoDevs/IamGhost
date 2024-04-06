@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 08:35:09
-Random Quote: I'm supposed to be this hero, idol symbol, but I don't know what the hell I'm doing. - Starlight
+Last updated: 2024-04-06 08:35:43
+Random Quote: Any man who steps between a father and his vengeance asks for death.  -  Rickard Karstark
