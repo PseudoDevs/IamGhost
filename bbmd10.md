@@ -1,5 +1,2 @@
-Last updated: 2024-04-06 11:26:46
-Random Quote: Morty: "Mom, I have a friend coming over. Is that cool?"
-Beth: "I told your sister no parties."
-Morty: "It's one friend."
-Beth: "That's a party to you." - Beth Smith
+Last updated: 2024-04-06 11:27:19
+Random Quote: I waited, and so can he.  I waited half my life.  She had played the dutiful daughter, the blushing bride, the pliant wife.  She had suffered Robert's drunken groping, Jaime's jealousy, Renly's mockery, Varys with his titters, Stannis endlessly grinding his teeth.  She had contended with Jon Arryn, Need Stark, and her vile, treacherous, murderous dwarf brother, all the while promising herself that one day it would be her turn.  If Margaery Tyrell thinks to cheat me of my hour in the sun, she had bloody well think again.  -  Cersei Lannister

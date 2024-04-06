@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 11:26:46
-Random Quote: The years pass in their hundreds and their thousands, and what does any man see of life but a few summers, a few winters?  -  Maester Luwin
+Last updated: 2024-04-06 11:27:19
+Random Quote: Knowledge is a weapon, Jon.  Arm yourself well before you ride forth to battle.  -  Maester Aemon

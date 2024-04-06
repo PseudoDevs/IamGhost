@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 11:26:52
-Random Quote: I was in the desert. But if visiting the sands were a crime, the line of sinners would be longer than the Nile. - Arthur Harrow
+Last updated: 2024-04-06 11:27:25
+Random Quote: You think you're the only one he whispers secrets to?  He gives each of us just enough to convince us that we'd be helpless without him.  -  Cersei Lannister
