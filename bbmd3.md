@@ -1,4 +1,3 @@
-Last updated: 2024-04-06 08:10:50
-Random Quote: Ted: "It's freezing out there. Where's your coat?"
-Robin: "Ted, I'm Canadian. I don't need a coat. This kind of weather is nothing for me."
-Marshall: "Yeah. This is like a spring day back in Minnesota." - Marshall Eriksen
+Last updated: 2024-04-06 08:11:24
+Random Quote: Sam: "What's going on in that cyborg brain of yours?"
+Bucky: "You don't wanna know!" - Bucky Barnes
