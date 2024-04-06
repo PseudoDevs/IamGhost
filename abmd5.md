@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 06:38:10
-Random Quote: If you wish to give up on playing, the 25.5 billion won will be sent to the bereaved families of the late players. - Jang Deok-su
+Last updated: 2024-04-06 06:38:44
+Random Quote: You don't parley when you're on the back foot. We'll strike a blow back first. - Thomas Shelby
