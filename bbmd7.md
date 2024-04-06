@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 08:09:21
-Random Quote: The biggest case of my life and I'd already lost the jury. I mean, I've heard of "Twelve Angry Men",  but this was more like "Twelve Horny Women". - Marshall Eriksen
+Last updated: 2024-04-06 08:09:54
+Random Quote: I'm pretty much the master of handling things completely wrong. - Alex Vause
