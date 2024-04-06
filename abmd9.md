@@ -1,2 +1,3 @@
-Last updated: 2024-04-06 06:28:15
-Random Quote: Talkin' to you was one of the best parts of my whole year. - Fezco
+Last updated: 2024-04-06 06:28:49
+Random Quote: Grace Burgess: "You think I am a wh-re?"
+Tommy Shelby: "Everyone's a wh-re, Grace. We just sell different parts of ourselves." - Thomas Shelby
