@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 07:30:00
-Random Quote: Marshall: "Excuse me, miss. When you get a chance, could you bring over a hundred shots of tequila please?"Barney: "I'll have the same." - Marshall Eriksen
+Last updated: 2024-04-06 07:30:34
+Random Quote: I hate it when you talk sometimes. No... all the time. - Nicky Nichols
