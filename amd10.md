@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 06:58:10
-Random Quote: Khaleesi, better a man should swallow scorpions than trust in the spawn of shadows, who dare not show their face beneath the sun.  It is known.  -  Rakharo
+Last updated: 2024-04-06 06:59:23
+Random Quote: You give me one hour of phone-free bro time, during which we, and by we I mean you, get magnificently, mythologically drunk. I'm talking needing-subtitles-when-you-speak drunk. - Barney Stinson
