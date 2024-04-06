@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 09:23:05
-Random Quote: Better the butcher than the meat.  All kings are butchers.  Are queens so different?  -  Daario Naharis
+Last updated: 2024-04-06 09:23:41
+Random Quote: The Lion does not concern itself with the opinions of sheep.  -  Tywin Lannister
