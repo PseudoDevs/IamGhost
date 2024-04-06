@@ -1,3 +1,3 @@
-Last updated: 2024-04-06 09:40:23
-Random Quote: What do you call a fish with no eyes?
-Fsh. - Marshall Eriksen
+Last updated: 2024-04-06 09:40:56
+Random Quote: Jang Deok-su: "Tell me what you're good at?"
+Han Mi-nyeo: "Everything, except the things I can't do." - Oh Il-nam

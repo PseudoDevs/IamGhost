@@ -1,2 +1,3 @@
-Last updated: 2024-04-06 09:40:23
-Random Quote: All three of you were being a buch of little a-sholes. I was the only reasonable one. - Dustin Henderson
+Last updated: 2024-04-06 09:40:56
+Random Quote: Joel: "A deep breath in, slow breath out. You squeeze the trigger like you love it. Gentle, steady, nice and slow."
+Ellie: "You gonna shoot this thing or get it pregnant?" - Ellie Williams
