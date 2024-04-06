@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 08:56:22
-Random Quote: My lady, I have seen how you look at my brother.  Loras is valiant and handsome, and we all love him dearly... but your Imp will make a better husband.  He is a bigger man than he seems, I think.  -  Garlan Tyrell
+Last updated: 2024-04-06 08:56:55
+Random Quote: I will kill your wife, I will kill your son, I will kill your infant daughter. - Gustavo Fring
