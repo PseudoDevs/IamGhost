@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 11:19:20
-Random Quote: We were king's men, knights, and heroes... but some knights are dark and full of terror, my lady.  War makes monsters of us all.  -  Thoros of Myr
+Last updated: 2024-04-06 11:19:53
+Random Quote: Because family is forever. - Wanda Maximoff
