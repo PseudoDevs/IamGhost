@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 10:49:51
-Random Quote: For some women it was the ashes of my parents. For others it was the trophy from Wimbledon and believe it or not, for one busty dullard, it was both. Game, enormous set and match! - Barney Stinson
+Last updated: 2024-04-06 10:50:24
+Random Quote: Balon was mad, Aeron is madder, and Euron is maddest of them all.  -  Baelor Blacktyde

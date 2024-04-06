@@ -1,2 +1,7 @@
-Last updated: 2024-04-06 10:49:42
-Random Quote: She had a nice face, her booty was in place, but Barney don't chase. - Barney Stinson
+Last updated: 2024-04-06 10:50:15
+Random Quote: Bo-Katan: "You are a disgrace to your armor."
+Boba Fett: "This armor belonged to my father."
+Bo-Katan: "Don't you mean your donor?"
+Boba Fett: "Careful, princess."
+Bo-Katan: "You are a clone. I've heard your voice thousands of times."
+Boba Fett: "Mine might be the last one you hear." - Boba Fett
