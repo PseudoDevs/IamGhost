@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 06:55:31
-Random Quote: Maybe the Big Bang is nothing more than God’s act of creation. - 
+Last updated: 2024-04-06 06:56:05
+Random Quote: A queen must listen to all.  The highborn and the low, the strong and the weak, the noble and the venal.  One voice may speak you false, but in many there is always truth to be found.  -  Daenerys Targaryen
