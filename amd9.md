@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 07:32:06
-Random Quote: I fear the only sorcerer strong enough to stop Dr. Strange is you, Dr. Strange. - Ancient One
+Last updated: 2024-04-06 07:32:39
+Random Quote: Roose Bolton's cold and cunning, aye, but a man can deal with Roose.  We've all known worse.  But this bastard son of his... they say he's mad and cruel, a monster.  -  Locke
