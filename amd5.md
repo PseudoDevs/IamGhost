@@ -1,2 +1,3 @@
-Last updated: 2024-04-06 06:52:08
-Random Quote: I think mothers and fathers made up the gods because they wanted their children to sleep through the night.  -  Davos Seaworth
+Last updated: 2024-04-06 06:52:42
+Random Quote: Freddie: "You think I can't handle Tommy Shelby?"
+Polly: "You can't. I am having trouble these days and I'm twice the man you are." - Polly Gray
