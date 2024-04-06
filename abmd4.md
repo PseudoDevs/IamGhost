@@ -1,5 +1,2 @@
-Last updated: 2024-04-06 10:20:27
-Random Quote: Bo-Katan: "I haven't seen battle droids since the Clone Wars."
-Din: "I have."
-Bo-Katan: "Any of 'em look suspicious?"
-Din: "They all look suspicious." - Din Djarin
+Last updated: 2024-04-06 10:21:00
+Random Quote: I want you to wanna kiss me so bad that you don't even ask. - Jules Vaughn
