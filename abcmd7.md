@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 07:59:09
-Random Quote: Balon was mad, Aeron is madder, and Euron is maddest of them all.  -  Baelor Blacktyde
+Last updated: 2024-04-06 07:59:43
+Random Quote: When dead men come hunting us in the night, do you think it matters who sits the Iron Throne?  -  Jeor Mormont
