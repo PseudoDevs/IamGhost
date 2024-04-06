@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 11:06:56
-Random Quote: Celtigar pronounced it admirable.  If I were to show him the contents of my privy he would pronounce that admirable as well.  -  Stannis Baratheon
+Last updated: 2024-04-06 11:08:02
+Random Quote: Every Halloween I bring a spare costume. In case I strike out with the hottest girl at the party. That way I have a second chance to make a first impression. - Barney Stinson
