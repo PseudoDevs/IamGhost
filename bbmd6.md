@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 11:49:40
-Random Quote: Fool's blood, king's blood, blood on the maiden's thigh, but chains for the guests and chains for the bridegroom, aye aye aye.  -  Patchface
+Last updated: 2024-04-06 11:50:13
+Random Quote: My father knew the worth of Howland Reed.  -  Robb Stark
