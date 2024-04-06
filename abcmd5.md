@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 08:55:20
-Random Quote: By what right does the wolf judge the lion?  -  Jaime Lannister
+Last updated: 2024-04-06 08:55:57
+Random Quote: Words are like arrows, Arianne.  Once loosed, you cannot call them back.  -  Areo Hotah

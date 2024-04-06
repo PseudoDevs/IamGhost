@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 08:55:20
-Random Quote: One minute we're just laying into each other, and then the next minute... well, same thing. - Ted Mosby
+Last updated: 2024-04-06 08:55:57
+Random Quote: I drank when I was pregnant with you, you turned out fine. There's everybody saying 'don't drink, don't smoke'. I swear - Texas is turning into California. - Meemaw
