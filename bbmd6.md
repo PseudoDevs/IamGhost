@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 08:18:36
-Random Quote: Lily: "Ted, you did this all yourself?"Ted: "Just like Ryan Gosling in 'The Notebook'. It was pretty manly 'til I mentioned Ryan Gosling in 'The Notebook', huh?" - Ted Mosby
+Last updated: 2024-04-06 08:19:10
+Random Quote: I will kill your wife, I will kill your son, I will kill your infant daughter. - Gustavo Fring
