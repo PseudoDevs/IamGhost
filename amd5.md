@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 10:57:27
-Random Quote: If you don’t know who I am, then maybe your best course would be to tread lightly. - Walter White
+Last updated: 2024-04-06 10:58:00
+Random Quote: In the United States, the Mafia makes witnesses disappear so they can't testify in court. In Colombia, Pablo Escobar made the whole court disappear. - Steve Murphy
