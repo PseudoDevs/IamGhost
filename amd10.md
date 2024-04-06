@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 07:43:08
-Random Quote: This is the one that you saved? You are as its father. A clan of two. But you have removed your helmet. Then you are a Mandalorian no more. - The Armorer
+Last updated: 2024-04-06 07:43:42
+Random Quote: I hate it when you talk sometimes. No... all the time. - Nicky Nichols
