@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 11:40:54
-Random Quote: You two suck at peddling meth. - Saul Goodman
+Last updated: 2024-04-06 11:41:28
+Random Quote: Quentyn had never felt so much a boy as when he'd stood before Daenerys Targaryen, pleading for her hand.  The thought of bedding her terrified him almost as much as her dragons had.  -  Quentyn Martell
