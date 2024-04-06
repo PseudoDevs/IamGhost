@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 11:39:11
-Random Quote: I understand that if any more words come pouring out of your cunt mouth I'm going to have to eat every fucking chicken in this room.  -  Sandor Clegane
+Last updated: 2024-04-06 11:39:45
+Random Quote: There must always be a Stark in Winterfell.  -  Catelyn Stark
