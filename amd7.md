@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 08:46:28
-Random Quote: No voting, no debate. It's not a democracy - it's a Rickpublic! - Summer Smith
+Last updated: 2024-04-06 08:47:06
+Random Quote: There's kids playing hockey in the back. It's like you want us to make fun of you! - Barney Stinson
