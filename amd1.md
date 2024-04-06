@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 06:26:29
-Random Quote: That's not a law, just a sword.  Happens I got one too.  -  Yoren of the Night's Watch
+Last updated: 2024-04-06 06:27:03
+Random Quote: Not all Mandalorians are bounty hunters. Some of us serve a higher purpose. - Bo-Katan
