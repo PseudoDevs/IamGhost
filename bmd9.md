@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 12:02:09
-Random Quote: And that, kids, is the kind of stupid thing you say, before you've met the person who hits the reset button on the world. Who makes everything new again. Who makes it seem ridiculous that you ever considered settling. - Ted Mosby
+Last updated: 2024-04-06 12:02:42
+Random Quote: Dude, ditch Tiffany and join the Barnacle in the Pharma-Girl-Free-For-All. Side effects may include: loss of clothing, rug burns, shortness of breath and soar abdominals the next morning. What in the world is up! - Barney Stinson
