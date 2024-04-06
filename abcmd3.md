@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 07:26:02
-Random Quote: Because sometimes, even when you know how something's gonna end, that doesn't mean you can't enjoy the ride. - Ted Mosby
+Last updated: 2024-04-06 07:27:10
+Random Quote: Grief never gets any smaller, so you have to make yourself bigger around it. The best way to do that is to open up. Let people in. - Rendell Locke
