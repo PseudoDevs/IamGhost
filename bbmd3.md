@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 07:17:14
-Random Quote: There is entirely too much tut - tutting in this realm, if you ask me.  All these kings would do a deal better if they put down their swords and listended to their mothers. 
+Last updated: 2024-04-06 07:17:47
+Random Quote: Any time, a girl wants to get back at her ex-bodyfriends, we'll be there.Any time, a girl wants to solve her father-issues through promiscuity and binge drinking we will be there.Any time a bachelorette party drives through the city in a limo, sticking their heads out the sunroof, shouting 'what's up New York?', we will be what is 'up' New York! - Barney Stinson
