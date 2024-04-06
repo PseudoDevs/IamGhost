@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 07:36:18
-Random Quote: Now if you'll excuse me, I've got a quick solo adventure to go on - and this one will not be directed by Ron Howard. - Rick Sanchez
+Last updated: 2024-04-06 07:36:51
+Random Quote: I've lost a hand, a father, a son, a sister, and a lover, and soon enough I will lose a brother.  And yet they keep telling me House Lannister has won this war.  -  Jaime Lannister
