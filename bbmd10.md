@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 12:09:54
-Random Quote: If somehow the Lord gave me a second chance at that moment... I would do it all over again. - Joel Miller
+Last updated: 2024-04-06 12:10:27
+Random Quote: Old gods or new, it makes no matter, no man is so accursed as the kinslayer.  -  Rickard Karstark
