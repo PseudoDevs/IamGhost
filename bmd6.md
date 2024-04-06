@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 08:40:57
-Random Quote: Stella: "Ted, you're staring at my breasts."Ted: "In fairness... they were staring at me." - Ted Mosby
+Last updated: 2024-04-06 08:41:31
+Random Quote: Do you know what it is like to be sold, squire?  I do.  My brother sold me to Khal Drogo for the promise of a golden crown.  Well, Drogo crowned him in gold, though not as he had wished, and I... my sun - and
