@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 06:53:14
-Random Quote: I am the Watcher. I am your guide through these vast new realities. Follow me, and dare to face the unknown. And ponder the question, "What if...?" - The Watcher
+Last updated: 2024-04-06 06:55:06
+Random Quote: I am IRONBORN!  I laugh at death.  -  Victarion Greyjoy
