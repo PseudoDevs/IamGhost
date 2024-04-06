@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 08:38:43
-Random Quote: I will put you under the jail. - Hank Schrader
+Last updated: 2024-04-06 08:39:17
+Random Quote: Young or old, a true knight is sworn to protect those who are weaker than himself, or die in the attempt.  -  Brienne of Tarth
