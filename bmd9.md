@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 09:18:52
-Random Quote: I only have one rule. For every three 10's you bang, throw a bone to a 5. They're grateful and hard working and let's face it, sometimes you just want to lay there. - Barney Stinson
+Last updated: 2024-04-06 09:19:30
+Random Quote: Good and evil are a question of perspective - Mikkel

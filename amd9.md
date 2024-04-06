@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 09:18:53
-Random Quote: One of the 24 similarities between women and fish are they're both attracted to shiny objects. - Barney Stinson
+Last updated: 2024-04-06 09:19:30
+Random Quote: Barney: "Fine, we'll just have a nice, tasteful rehearsal dinner. Maybe at a French restaurant, I know just the place."Robin: "What's the name of the restaurant?"Barney: "La Sertag." - Barney Stinson
