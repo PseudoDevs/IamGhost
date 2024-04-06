@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 10:27:14
-Random Quote: Little did I know that I would be stepping into a nightmare full of mystery, mayhem and murder. I think I'm going to love it here. - Wednesday Addams
+Last updated: 2024-04-06 10:27:47
+Random Quote: Bronn was no knight, that was true.  Bronn was a battle - hardened killer. 
