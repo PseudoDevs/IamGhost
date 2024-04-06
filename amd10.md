@@ -1,3 +1,2 @@
-Last updated: 2024-04-06 09:13:57
-Random Quote: Stark: "Can I give you a piece of advice?"
-Carter: "I'd rather you didn't." - Peggy Carter
+Last updated: 2024-04-06 09:14:30
+Random Quote: Any man who steps between a father and his vengeance asks for death.  -  Rickard Karstark
