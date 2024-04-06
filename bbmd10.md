@@ -1,3 +1,3 @@
-Last updated: 2024-04-06 08:46:26
-Random Quote: How does a computer get drunk?
-It takes screenshots. - Will Livingston
+Last updated: 2024-04-06 08:47:02
+Random Quote: Jang Deok-su: "Tell me what you're good at?"
+Han Mi-nyeo: "Everything, except the things I can't do." - Oh Il-nam
