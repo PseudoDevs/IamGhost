@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 10:32:09
-Random Quote: When you're younger, everything feels so permanent. But as you get older, you begin to realize nothing is and everyone you love can drift away. - Rue Bennett
+Last updated: 2024-04-06 10:33:16
+Random Quote: The world is full of such paradoxes we simply choose to ignore them most of the time. - 
