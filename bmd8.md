@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 11:13:16
-Random Quote: I learned form Set Arthur Dayne, the Sword of the Morning, who could have slain all five of you with his left hand while he was taking a piss with the right.  -  Jaime Lannister
+Last updated: 2024-04-06 11:14:22
+Random Quote: Doesn't matter what you did or what you were, you are an Avenger! - Agatha Harkness
