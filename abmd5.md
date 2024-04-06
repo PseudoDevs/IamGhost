@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 07:43:14
-Random Quote: Time is crucial in a kidnapping. The sooner action's taken, the better your chances of things working out, and everybody coming home in one piece. They put that in the handbook nowadays. - Walt Breslin
+Last updated: 2024-04-06 07:43:47
+Random Quote: There have always been men who found it easier to speak vows than to keep them.  -  Arys Oakheart
