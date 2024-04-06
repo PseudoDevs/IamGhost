@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 11:16:31
-Random Quote: You want to rule?  This is what ruling is; lying on a bed of weeds, ripping them out by the root, one by one, before they strangle you in your sleep.  -  Cersei Lannister
+Last updated: 2024-04-06 11:17:03
+Random Quote: Treason is a noxious weed.  It must be torn up, root and stem and seed, lest new traitors sprout from every roadside.  -  Grand Maester Pycelle
