@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 08:10:11
-Random Quote: Friends don't lie. - Eleven
+Last updated: 2024-04-06 08:10:44
+Random Quote: The more you give a king, the more he wants.  We are walking on a bridge of ice with an abyss on either side.  Pleasing one king is difficult enough.  Pleasing two is hardly possible.  -  Jon Snow
