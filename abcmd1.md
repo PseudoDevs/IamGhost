@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 12:03:06
-Random Quote: All I know is, he's not in the same grade as me anymoreAnd I'm thrilled. - Missy
+Last updated: 2024-04-06 12:03:39
+Random Quote: In the game of thrones, even the humblest pieces have wills of their own.  Sometimes they refuse to make the moves you've planned for them.  Mark that well, Alayne.  It's a lesson that Cersei Lannister still has yet to learn.  -  Petyr Baelish
