@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 10:44:28
-Random Quote: In the end, a gentle heart may be worth more than pride or valor.  -  Doran Martell
+Last updated: 2024-04-06 10:45:02
+Random Quote: A Dothraki wedding without at least three deaths is considered a dull affair.  -  Illyrio Mopatis
