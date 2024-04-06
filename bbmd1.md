@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 08:55:10
-Random Quote: Lord Varys, sometimes I feel as though you are the best friend I have in King's Landing and sometimes I feel you are my worst enemy.  -  Tyrion Lannister
+Last updated: 2024-04-06 08:55:43
+Random Quote: That's where The Boys come in: Spank the bastards when they get out of line. - Billy Butcher
