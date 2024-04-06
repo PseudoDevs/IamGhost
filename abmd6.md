@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 11:38:41
-Random Quote: Marshall: "Can we borrow your air mattress? My mom's coming into town for a few days."Ted: "Absolutely not!"Lily: "Bummer, I guess she can't stay with us. Hey, look what I just found! A list of hotels and other creative housing options."Marshall: "Baby, my mom is not staying at a hotel. Or our storage unit." - Lily Aldrin
+Last updated: 2024-04-06 11:39:14
+Random Quote: You're like Hitler! But even Hitler cared about Germany or something. - Morty Smith
