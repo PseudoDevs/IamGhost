@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 09:05:01
-Random Quote: If you don't like where you're heading, there's no shame in going back and changing your path. - Chuck McGill
+Last updated: 2024-04-06 09:05:34
+Random Quote: War. Such a fascinating concept. A temporary salve for a permanent human flaw. - The Handler
