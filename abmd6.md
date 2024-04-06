@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 11:05:12
-Random Quote: My skin has gone from porcelain, to ivory, to steel.  -  Sansa Stark
+Last updated: 2024-04-06 11:05:45
+Random Quote: Marshall: "When a woman puts on an engagement ring, it's like when Bilbo Baggins wears the One Ring in The Hobbit."Robin: "Okay, can you say that again, but not in nerd?"Marshall: "Sure. Uh, the ring is like the cloak that Harry Potter wears to sneak around Hogwarts."Robin: "Yeah, I don't speak virgin either." - Robin Scherbatsky
