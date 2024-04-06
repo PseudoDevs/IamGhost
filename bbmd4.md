@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 11:48:40
-Random Quote: Sometimes it lasts all night. And I lie here and I listen to the shovels, and the picks against that wall there. And I pray the sun will come up at the curtains before they break through. No, I don't pray. I hope. And sometimes it happens. The sun beats them. But mostly the shovels beat the sun. - Thomas Shelby
+Last updated: 2024-04-06 11:49:13
+Random Quote: I don't care if you're so scared you foul your breeches, and I don't care if a thousand wildlings are coming over the walls howling for your blood, you get those birds off, or I swear I'll hunt you through all seven hells and make you damn sorry that you didn't.  -  Jeor Mormont
