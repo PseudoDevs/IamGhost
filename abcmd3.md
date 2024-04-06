@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 06:38:43
-Random Quote: I'm a good boyfriend in my sleep. I can rock a killer foot rub with one hand and brew a kick-ass pot of chamomile in the other, that would make you weep. Hell, I've forgotten more about microwaving fat-free popcorn and watching Sandra Bullock movies than you'll ever know, but: thanks for your concern, rook! - Marshall Eriksen
+Last updated: 2024-04-06 06:39:18
+Random Quote: There have always been men who found it easier to speak vows than to keep them.  -  Arys Oakheart
