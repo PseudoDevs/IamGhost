@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 11:24:48
-Random Quote: A man lives three lives. The first one ends with the loss of naivety, the second, with the loss of innocence and the third… with the loss of life itself. It’s inevitable that we go through all three stages. - Adam
+Last updated: 2024-04-06 11:25:54
+Random Quote: Lily, I think we made a mistake moving out to the suburbs. I miss our home. I miss our booth with our friends. And I'm pretty sure I have a drumstick... somewhere bad. - Marshall Eriksen
