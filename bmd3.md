@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 09:16:09
-Random Quote: Ted: "You're not gonna do it at your wedding?"Lily: "Hell, yeah! I'm gonna take that flower-grenade and chuck it to the crowd and scream, 'Crawl for it, bitches!'" - Lily Aldrin
+Last updated: 2024-04-06 09:16:43
+Random Quote: It's not what you think, he just wants to have sex. Kidding. Just a little hand stuff. Ha, kidding again. Ted's more of a boob man. I seriously can't stop. - Robin Scherbatsky
