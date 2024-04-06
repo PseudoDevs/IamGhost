@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 07:24:13
-Random Quote: The pain is his vessel, desire his compass. It is all that man is capable of. - 
+Last updated: 2024-04-06 07:25:20
+Random Quote: What is the cost of lies? It's not that we mistake them for the truth. The real danger is that if we hear enough lies, then we no longer recognize the truth at all. - Valery Legasov
