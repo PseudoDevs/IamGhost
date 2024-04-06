@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 07:47:15
-Random Quote: I don't take nothin' a drug addict says personally. 'Cause I don't believe nothin' a drug addict say. - Fezco
+Last updated: 2024-04-06 07:47:49
+Random Quote: You know what they say about relationships. Every waking moment's a battle. - Barney Stinson

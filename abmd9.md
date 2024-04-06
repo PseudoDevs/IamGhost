@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 07:47:15
-Random Quote: For a joke to work, it has to have part of truth and part of pain. - Berlin
+Last updated: 2024-04-06 07:47:48
+Random Quote: This is Hawkins, okay? You wanna know the worst thing that's ever happened here in the four years I've been working here? It was when an owl attacked Eleanor Gillespie's head because it though that her hair was a nest. - Jim Hopper
