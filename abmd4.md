@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 09:36:36
-Random Quote: Dreams change. Other things become important. - 
+Last updated: 2024-04-06 09:37:12
+Random Quote: Rattleshirt, we called him.  Treacherous and bloodthirsty.  If there's honor in him, he hides it down beneath his suit of bones.  -  Jon Snow

@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 09:36:36
-Random Quote: I will not be remembered as Set Arys the Unworthy.  I will not soil my cloak.  -  Arys Oakheart
+Last updated: 2024-04-06 09:37:12
+Random Quote: To go north, you must go south.  To reach the west, you must go east.  To go forward you must go back, and to touch the light you must pass beneath the shadow.  -  Quaithe
