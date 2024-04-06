@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 07:46:30
-Random Quote: No matter how much we fight it we are connected by our blood. We can feel estranged from our families and not understand what they do. And still, in the end, we will do anything for them. - Adam
+Last updated: 2024-04-06 07:47:04
+Random Quote: There is entirely too much tut - tutting in this realm, if you ask me.  All these kings would do a deal better if they put down their swords and listended to their mothers. 
