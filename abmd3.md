@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 06:36:20
-Random Quote: Ted: "Grinch, Grinch, Grinch, Grinch!"[The lights turn out]Lily: "Happy? Now you pissed up the big guy upstairs!"Ted: "Yeah, I'm sure god cares if I..."Man: "You use that language again and I turn off your water!"Lily: "It's my super - he lives above me." - Lily Aldrin
+Last updated: 2024-04-06 06:36:53
+Random Quote: I guess we all have things we try to hide. But they can't stay hidden forever. - Hannah Baker
