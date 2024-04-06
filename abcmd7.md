@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 10:18:27
-Random Quote: The Burned Men fear nothing.  Timett, son of Timett will ride with the lions.  -  Timett, son of Timett
+Last updated: 2024-04-06 10:19:00
+Random Quote: Ted: "I could end up marrying this woman; I want our first kiss to be special."Lily: "Oh, that's sweet. So you chickened out like a little bitch?" - Lily Aldrin

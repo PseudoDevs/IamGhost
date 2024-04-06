@@ -1,3 +1,2 @@
-Last updated: 2024-04-06 10:18:21
-Random Quote: George: "I love what you done with the place. Did you do it yourself, or did you get some pouf to help ya?"
-Rebecca: "I could ask the same of your hair." - Rebecca Welton
+Last updated: 2024-04-06 10:18:54
+Random Quote: Marshall: "All pregnant ladies have crazy sex dreams. It's just her hormones going berserk."Barney: "So who's responsible for her rapid thigh movement this time?"Ted: "Oh, my favorite was when she banged George Washington."Barney: "I liked the three-way with Bill Cosby and Papa Smurf."Ted: "Oh, he smurfed the smurf out of her."Marshall: "Yes, while The Cos smurfed off in the corner - we all remember." - Marshall Eriksen
