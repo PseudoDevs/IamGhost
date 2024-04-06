@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 08:16:53
-Random Quote: The only way that entire car is worth 500 bucks, is if there's a $300 hook-r sitting in it. - Saul Goodman
+Last updated: 2024-04-06 08:17:26
+Random Quote: I'm a Mandalorian. Weapons are part of my religion. - Din Djarin
