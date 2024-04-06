@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 09:50:19
-Random Quote: Do you know what it is like to be sold, squire?  I do.  My brother sold me to Khal Drogo for the promise of a golden crown.  Well, Drogo crowned him in gold, though not as he had wished, and I... my sun - and
+Last updated: 2024-04-06 09:50:54
+Random Quote: Barney, check it! Three blond babies drinking bad-decision-juice at eight o'clock. - Lily Aldrin
