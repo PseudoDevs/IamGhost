@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 11:02:09
-Random Quote: God doesn’t have a plan. There is no plan at all. There’s nothing but chaos out there. Pain… and chaos! People are bad. Malicious, evil. Life is nothing but a spiral of pain. And the world is doomed to be destroyed - Noah
+Last updated: 2024-04-06 11:02:42
+Random Quote: She studied Theon Greyjoy's sly smile, wondering what it meant.  That young man had a way of looking as though he knew some secret jest that only he was privy to; Catelyn had never liked it.  -  Catelyn Stark
