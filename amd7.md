@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 10:28:45
-Random Quote: I asked him why he kept her close, if he thought her so grotesque.  He said that all his other knights wanted things of him, castles or honors or riches, but all that Brienne wanted was to die for him.  -  Loras Tyrell
+Last updated: 2024-04-06 10:29:18
+Random Quote: Pardon my French, f-ck those f-ckers! - Billy Butcher
