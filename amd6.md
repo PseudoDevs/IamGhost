@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 11:09:13
-Random Quote: Yes, Lord Umber, leave me to the king.  He means to give me a scolding before he forgives me.  That's how he deals with treason, our King in the North.  Or should I call you the King Who Lost the North, your Grace?  -  Rickard Karstark
+Last updated: 2024-04-06 11:09:46
+Random Quote: Many good men have been bad kings, and some bad men have been good kings.  -  Maester Aemon
