@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 09:39:00
-Random Quote: You need to stop focusing on the darkness behind you. The past is the past. Nothing can change what we’ve done. - Walter White
+Last updated: 2024-04-06 09:39:34
+Random Quote: Nerds who aren't good at math?Life is going to be rough boys! - Robin Scherbatsky

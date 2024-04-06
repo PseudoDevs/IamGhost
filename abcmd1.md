@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 09:39:00
-Random Quote: When something seems too perfect, it's usually anything but. - Allison Hargreeves
+Last updated: 2024-04-06 09:39:34
+Random Quote: In King's Landing, there are two sorts of people.  The players and the pieces.  -  Petyr Baelish
