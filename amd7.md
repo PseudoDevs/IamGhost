@@ -1,3 +1,2 @@
-Last updated: 2024-04-06 08:50:33
-Random Quote: Morty: "What are they mad at you for, anyway?"
-Rick: "Well, we're talking about me. It could be anything." - Rick Sanchez
+Last updated: 2024-04-06 08:51:06
+Random Quote: You'd have been the last lawyer I'd have gone to. - Walter White
