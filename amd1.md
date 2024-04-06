@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 07:17:00
-Random Quote: You're the smartest guy I ever met, and you're too stupid to see he made up his mind 10 minutes ago. - Hank Schrader
+Last updated: 2024-04-06 07:17:33
+Random Quote: I never met a real Mandalorian. Heard stories. I know you're good at killing. - Cobb Vanth
