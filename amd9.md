@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 08:47:39
-Random Quote: If a man does not use his member it grows smaller and smaller, until one day he wants to piss and cannot find it.  -  Tormund Giantsbane
+Last updated: 2024-04-06 08:48:12
+Random Quote: I swear on my name. And the names of the Ancestors, that I shall walk the way of the Mand'alor and the words of the Creed shall be forever forged in my heart. - Din Djarin
