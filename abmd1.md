@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 09:20:02
-Random Quote: Larry Bloom: "Piper, you put a pee stick in my rinsing cup."Piper Chapman: "Well, you put your pee stick in my vagina. And that's why we're in this situation." - Piper Chapman
+Last updated: 2024-04-06 09:20:36
+Random Quote: I'm not in the meth business. I'm in the empire business. - Walter White
