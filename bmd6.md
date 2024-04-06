@@ -1,2 +1,3 @@
-Last updated: 2024-04-06 07:30:06
-Random Quote: You don't get to tell me what to look at, I've seen your Pornhub account! Also, who makes a Pornhub account? - Rick Sanchez
+Last updated: 2024-04-06 07:30:39
+Random Quote: Dragon: "My name is Balthromaw. Breaker of skies, slayer of mountain."
+Rick: "Rule 1: You're now scooper of your own poops, or I will take you down like the black-light poster you are." - Rick Sanchez
