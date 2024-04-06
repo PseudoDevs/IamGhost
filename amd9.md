@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 07:39:19
-Random Quote: If I'm always looking back, I'm never looking ahead. We are who we are because of consequences. You can't live without consequences. - Morty Smith
+Last updated: 2024-04-06 07:39:53
+Random Quote: Pornstache: "You are not an agent of God, okay? God can do so much better than you. You must know that, right?"Pennsatucky: "Know what?"Pornstache: "Jesus Christ, how the fuck did you survive infancy?"Pennsatucky: "My auntie helped my momma..."Pornstache: "That's a rhetorical question! Do you not understand what a fucking rhetorical question is?" - George 'Pornstache' Mendez
