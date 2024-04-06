@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 06:31:05
-Random Quote: It's not Aerys I rue, it's Robert... Why is it no one names Robert oathbreaker?  He tore the realm apart, yet I am the one with shit for honor.  -  Jaime Lannister
+Last updated: 2024-04-06 06:31:42
+Random Quote: Okay, I've missed you. Not in a "we're gonna make out" way, not even in an "I forgive you" way. Just in an "I've missed you" way. - Robin Scherbatsky
