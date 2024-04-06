@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 10:55:30
-Random Quote: People make fun of the guy who stays at home every night doing nothing, but the truth is that guy is a genius. - Ted Mosby
+Last updated: 2024-04-06 10:56:03
+Random Quote: If that’s true, if you don’t know who I am, then maybe your best course… would be to tread lightly. - Walter White
