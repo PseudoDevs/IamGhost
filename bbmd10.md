@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 11:42:55
-Random Quote: If you die before you say her name, Set, I will hunt you through the seven hells.  -  Oberyn Martell
+Last updated: 2024-04-06 11:43:28
+Random Quote: You have courage.  Not battle courage perhaps but... I don't know... a kind of woman's courage.  -  Brienne of Tarth
