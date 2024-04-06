@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 11:21:47
-Random Quote: Barney: "This is one of those things you have to do before you turn 30."Ted: "Sleep with a prostitute?!"Barney: "No, lose your virginity!... What up?" - Barney Stinson
+Last updated: 2024-04-06 11:22:20
+Random Quote: I'm a criminal, yo. - Jesse Pinkman
