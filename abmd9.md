@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 08:16:48
-Random Quote: Business is changing and we must change with it. - Miguel Angel Felix Gallardo
+Last updated: 2024-04-06 08:17:21
+Random Quote: Take the foundling to the city of Calodan on the forest planet Corvus. There, you will find Ahsoka Tano. Tell her you were sent by Bo-Katan. - Bo-Katan
