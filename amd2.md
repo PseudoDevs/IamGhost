@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 09:50:23
-Random Quote: I believe the world's a bad place. And I don't think I'm much better. But we have to try. - Walt Breslin
+Last updated: 2024-04-06 09:50:56
+Random Quote: Barney: "On your tombstone, it will be, 'Lily Aldrin. Caring wife. Loving friend. Slapbet-Commissioner.'"Marshall: "And your tombstone will read, 'Got slapped by Marhsall so hard he died.'" - Marshall Eriksen
