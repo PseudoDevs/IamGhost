@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 11:15:39
-Random Quote: Destined? Aren't you tired of waiting for destiny, Ted? Isn't it time to make your own destiny? - Robin Scherbatsky
+Last updated: 2024-04-06 11:16:12
+Random Quote: Jon, did you ever wonder why the men of the Night's Watch take no wives and father no children?  So they will not love, for love is the bane of honor, the death of duty.  -  Maester Aemon
