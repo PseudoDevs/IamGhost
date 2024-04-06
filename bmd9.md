@@ -1,4 +1,2 @@
-Last updated: 2024-04-06 08:48:09
-Random Quote: Greef: "Be careful, my friend. They've got you outnumbered ten to one."
-Din: "I like these odds."
-Greef: "I bet you do." - Greef Karga
+Last updated: 2024-04-06 08:48:42
+Random Quote: Sometimes, even when you know something's a mistake, you gotta make it anyway. - Ted Mosby
