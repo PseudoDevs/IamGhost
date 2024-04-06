@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 09:20:07
-Random Quote: She had seen Bronn fight on the high road; it was no accident that he had survived the journey while other men had died.  He moved like a panther, and that ugly sword of his seemed a part of his arm.  -  Catelyn Stark
+Last updated: 2024-04-06 09:21:19
+Random Quote: We’re wanderers in the darkness. - 
