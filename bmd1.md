@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 08:11:21
-Random Quote: Will you explain to me how that was offside? No, I'm asking you, seriously. Explain offside to me! It makes no sense. - Rebecca Welton
+Last updated: 2024-04-06 08:11:54
+Random Quote: He would see this country burn if he could be king of the ashes.  -  Varys
