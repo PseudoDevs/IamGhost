@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 08:49:36
-Random Quote: Barney: "On your tombstone, it will be, 'Lily Aldrin. Caring wife. Loving friend. Slapbet-Commissioner.'"Marshall: "And your tombstone will read, 'Got slapped by Marhsall so hard he died.'" - Marshall Eriksen
+Last updated: 2024-04-06 08:50:14
+Random Quote: No matter how tough things get, children always turn out okay. - Berlin
