@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 08:06:53
-Random Quote: Let justice be done though the heavens fall. - Saul Goodman
+Last updated: 2024-04-06 08:07:27
+Random Quote: Do you think I can't tell Lord Stannis from Lord Tywin?  They're both bungholes who think they're too noble to shit, but never mind about that, I know the difference.  -  Walder Frey
