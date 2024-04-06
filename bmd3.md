@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 10:21:16
-Random Quote: If you keep all your treasures in one purse, you only make it easier for those who would rob you.  -  Robb Stark
+Last updated: 2024-04-06 10:21:49
+Random Quote: The man who passes the sentence should swing the sword.  If you would take a man's life, you owe it to him to look into his eyes and hear his final words.  And if you cannot bear to do that, then perhaps the man does not deserve to die.  -  Eddard Stark
