@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 07:04:04
-Random Quote: You have to be as bad as them above in order to survive. - Polly Gray
+Last updated: 2024-04-06 07:04:43
+Random Quote: Robin: "We're like sisters."Ted: "You've never gotten through even one exchange without screaming at her."Robin: "Sisters fight, Ted!" - Robin Scherbatsky
