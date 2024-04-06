@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 11:19:02
-Random Quote: I swear on my name. And the names of the Ancestors, that I shall walk the way of the Mand'alor and the words of the Creed shall be forever forged in my heart. - Din Djarin
+Last updated: 2024-04-06 11:19:35
+Random Quote: Speak into the mic, bitch. - Jesse Pinkman
