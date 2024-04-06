@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 11:58:15
-Random Quote: My name is ASAC Schrader, and you can go f*ck yourself. - Hank Schrader
+Last updated: 2024-04-06 11:58:48
+Random Quote: You could turn King's Landing upside down and not find a single man with a mockingbird sewn over his heart but that does not mean I am friendless.  -  Petyr Baelish
