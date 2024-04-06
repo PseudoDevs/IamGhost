@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 09:41:19
-Random Quote: When you hit rock bottom, you still have a way to go until the abyss. - Tokyo
+Last updated: 2024-04-06 09:41:53
+Random Quote: Fool's blood, king's blood, blood on the maiden's thigh, but chains for the guests and chains for the bridegroom, aye aye aye.  -  Patchface
