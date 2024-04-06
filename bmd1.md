@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 09:41:08
-Random Quote: Have you ever lost someone? It's like you're dying with them. They can move on. And you're stuck. - Eyk Larsen
+Last updated: 2024-04-06 09:41:41
+Random Quote: The biggest case of my life and I'd already lost the jury. I mean, I've heard of "Twelve Angry Men",  but this was more like "Twelve Horny Women". - Marshall Eriksen
