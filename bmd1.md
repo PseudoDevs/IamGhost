@@ -1,3 +1,2 @@
-Last updated: 2024-04-06 09:37:46
-Random Quote: Alien: "I was just reading you."
-Rick: "Congratulations on making it into print media. Real bright future there." - Rick Sanchez
+Last updated: 2024-04-06 09:38:22
+Random Quote: A good act does not wash out the bad, nor a bad act the good.  Each should have its own reward.  -  Stannis Baratheon

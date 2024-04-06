@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 09:37:47
-Random Quote: He would have killed me but for Howland Reed.  -  Eddard Stark
+Last updated: 2024-04-06 09:38:23
+Random Quote: You can tell a lot about a person from his biography. - Phil Dunphy
