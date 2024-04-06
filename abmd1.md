@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 10:37:06
-Random Quote: What do you think a knight is for, girl?  You think it's all taking favors from ladies and looking fine in gold plate?  Knights are for killing.  I killed my first man at twelve.  I've lost count of how many I've killed since then.  High lords with old names, fat rich men dressed in velvet, knights puffed up like bladders with their honors, yes, and women and children too... they're all meat, and I'm the butcher.  -  Sandor Clegane
+Last updated: 2024-04-06 10:37:40
+Random Quote: Lily: "A swordfight? On Monday I'm gonna have to tell my kindergarten class, who I teach not to run with scissors, that my fiancé ran me through with a freakin' broadsword."Marshall: "Well... just to be fair, it didn't go all the way through."Lily: "I'm sorry, is this a discussion of the degree to which you stabbed me?" - Lily Aldrin
