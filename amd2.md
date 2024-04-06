@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 08:04:39
-Random Quote: Death.  There will be death, aye.  Your lordship lost a son at the Red Wedding, I lost four upon the Blackwater.  And why?  Because the Lannisters stole the throne.  Go to King's Landing and look upon Tommen with your own eyes, if you doubt me.  A blind man could see it.  What does Stannis offer you?  Vengeance.  Vengeance for my sons and yours, for your husbands and your fathers and your brothers.  Vengeance for your murdered lord, your murdered king, your butchered princes.  Vengeance!  -  Davos Seaworth
+Last updated: 2024-04-06 08:05:12
+Random Quote: The wolf will prove the boy is who we say he is, should the Dreadfort attempt to deny him.  That is my price, Lord Davos.  Smuggle me back my liege lord, and I will take Stannis Baratheon as my king.  -  Wyman Manderly

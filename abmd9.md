@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 08:02:57
-Random Quote: You want to know the horrible truth?  I can't even remember what she looked like.  I only know she was the one thing I ever wanted, and seven kingdoms couldn't fill the hole she left behind.  -  Robert Baratheon
+Last updated: 2024-04-06 08:05:12
+Random Quote: Marshall: "The broken windows?"Lily: "We had to make it look realistic."Marshall: "But why did you break two of them?"Robin: "It looked like fun when she did it, so I wanted to try."Marshall: "I can't believe this whole time it was you guys; I've been blaming Really Tan Dancing Leotard guy." - Marshall Eriksen
