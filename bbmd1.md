@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 08:26:07
-Random Quote: Barney: "I scoured the dating sites, using my own personal logarithms, factoring in a broad spectrum of variables, filtering out undesirable high-risk negatives, guaranteeing a success-rate of eighty-thr..."Ted: "...you picked the girls that showed the most boob." - Ted Mosby
+Last updated: 2024-04-06 08:27:15
+Random Quote: Success is 1% inspiration, 98% perspiration, and 2% attention to detail. - Phil Dunphy
