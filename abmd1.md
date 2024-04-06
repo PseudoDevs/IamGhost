@@ -1,3 +1,2 @@
-Last updated: 2024-04-06 10:29:19
-Random Quote: Weems: "No doubt you'll find something that tickles your fancy."
-Wednesday: "The last person who tickled me lost a finger." - Wednesday Addams
+Last updated: 2024-04-06 10:29:52
+Random Quote: It was the white cloak that soiled me, not the other way around.  -  Jaime Lannister
