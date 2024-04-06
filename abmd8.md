@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 07:10:36
-Random Quote: You think you're the only one he whispers secrets to?  He gives each of us just enough to convince us that we'd be helpless without him.  -  Cersei Lannister
+Last updated: 2024-04-06 07:11:11
+Random Quote: Honey, don't you think the little rocks would hurt your nose, if you're trying to snort crack? I think you mean coke. - Piper Chapman
