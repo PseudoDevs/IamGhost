@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 09:34:48
-Random Quote: I don't take nothin' a drug addict says personally. 'Cause I don't believe nothin' a drug addict say. - Fezco
+Last updated: 2024-04-06 09:35:23
+Random Quote: I buried an axe so deep into Willem's skull, they had to bury him with it.  -  Yoren of the Knight's Watch
