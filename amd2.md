@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 10:37:32
-Random Quote: That girl was just crying. She's so sad and defenseless... anyone have a condom? - Barney Stinson
+Last updated: 2024-04-06 10:38:06
+Random Quote: Until the Mountain crushed my brother's skull, no Dornishmen had died in this War of the Five Kings.  Tell me, Captain, is that my shame or my glory?  -  Doran Martell
