@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 08:53:02
-Random Quote: Barney: "Ted what is my one rule?"Ted: "You can tell how old a girl is by her elbows?"Barney: "My other one rule."Ted: "Flax seed relieves upset stomach?"Barney: "My other one rule."Ted: "Always have a fake pair of concert tickets in your pocket in case Lily invites you to something stupid?"Barney: "My other one rule."Ted: "Labanese girls sprint to third base and then stay there."Barney: "My other one rule."Ted: "New is always better?"Barney: "New is always better!" - Barney Stinson
+Last updated: 2024-04-06 08:53:35
+Random Quote: Red: "Black girls hear about a chicken, of course this will happen."Piper: "Why, because all black people love chicken?"Red: "Don't be racist. Because they're all on heroin, and somebody's been telling them there's heroin in the chicken." - Galina 'Red' Reznikov
