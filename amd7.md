@@ -1,4 +1,2 @@
-Last updated: 2024-04-06 09:14:33
-Random Quote: Joel: "I need you to tell us where we are."
-Man: "If you got a map, why you lost?"
-Ellie: "Must've missed all the street signs in the enormous f-cking forest." - Ellie Williams
+Last updated: 2024-04-06 09:15:06
+Random Quote: Now if you'll excuse me, I've got a quick solo adventure to go on - and this one will not be directed by Ron Howard. - Rick Sanchez
