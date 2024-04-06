@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 11:01:06
-Random Quote: That girl was just crying. She's so sad and defenseless... anyone have a condom? - Barney Stinson
+Last updated: 2024-04-06 11:01:39
+Random Quote: Even if I meet the girl of my dreams right the second, I'm still one night and nine months away, from having a family on my own. And that's assuming the mother of my childern is just a huge slut. - Ted Mosby
