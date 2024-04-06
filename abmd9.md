@@ -1,2 +1,3 @@
-Last updated: 2024-04-06 07:29:24
-Random Quote: You do seem to have a little “shit creek” action going… You know, FYI, you can buy a paddle. - Saul Goodman
+Last updated: 2024-04-06 07:29:58
+Random Quote: The Deep: "What do we do? We can't just kill everyone."
+Billy Butcher: "That's exactly what we're gonna do!" - Billy Butcher
