@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 09:26:48
-Random Quote: The only person who gets to torture my brother is me. - Wednesday Addams
+Last updated: 2024-04-06 09:27:21
+Random Quote: They'll bend the knee or I'll destroy them.  -  Stannis Baratheon
