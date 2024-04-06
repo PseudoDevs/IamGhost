@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 11:53:21
-Random Quote: Bear Island knows no king save the King in the North, whose name is Stark.  -  Lyanna Mormont
+Last updated: 2024-04-06 11:53:54
+Random Quote: That girl was just crying. She's so sad and defenseless... anyone have a condom? - Barney Stinson
