@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 12:06:03
-Random Quote: Marshall: "When a woman puts on an engagement ring, it's like when Bilbo Baggins wears the One Ring in The Hobbit."Robin: "Okay, can you say that again, but not in nerd?"Marshall: "Sure. Uh, the ring is like the cloak that Harry Potter wears to sneak around Hogwarts."Robin: "Yeah, I don't speak virgin either." - Robin Scherbatsky
+Last updated: 2024-04-06 12:06:36
+Random Quote: A war is coming. I'm afraid your friends at Hawkins are very much in the eye of the storm. I don't know how to say this other than just to say it: without you, we can't win this war. - Sam Owens
