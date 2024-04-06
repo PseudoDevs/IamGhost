@@ -1,2 +1,3 @@
-Last updated: 2024-04-06 09:17:49
-Random Quote: Fine, you guys can have a baby, but only under these conditions:1) You promise to always love me more than the baby.2) Once a month, I get to use the baby to pick up chicks.3) That may involve the baby falling from a two-story window and me heroically catching it.4) No breast-feeding in front of me.5) Forget about 4), you can whip 'em out whenever you want. - Barney Stinson
+Last updated: 2024-04-06 09:18:22
+Random Quote: "Everybody else can see Ben, right?"
+"Yeah, and he's a complete d-ckhead." - Allison Hargreeves
