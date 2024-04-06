@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 08:32:30
-Random Quote: Out there, I don't stand a chance. I do in here. - Jang Deok-su
+Last updated: 2024-04-06 08:33:03
+Random Quote: You don't parley when you're on the back foot. We'll strike a blow back first. - Thomas Shelby
