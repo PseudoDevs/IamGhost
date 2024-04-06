@@ -1,4 +1,3 @@
-Last updated: 2024-04-06 08:15:05
-Random Quote: Lorna Morello: "I need to start tightening up. You're making me feel like a cave."
-Nicky Nichols: "Baby, it's a c-nt, it stretches!"
-Lorna Morello: "Yeah, sometimes I feel like you're trying to climb inside my womb." - Lorna Morello
+Last updated: 2024-04-06 08:15:38
+Random Quote: Ted: "So this is what you guys do? You invite other couples over for dinner, to judge them and feel superior?"
+Lily: "Oh, grow up, Ted, that's why any couple invites anyone over ever!" - Lily Aldrin
