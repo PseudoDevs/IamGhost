@@ -1,4 +1,2 @@
-Last updated: 2024-04-06 10:51:08
-Random Quote: Rebecca: "So, I spoke to the owner of The Sun."
-Ted: "You spoke to God?!"
-Rebecca: "No, the newspaper." - Rebecca Welton
+Last updated: 2024-04-06 10:51:41
+Random Quote: Tequila makes me wanna dance. - Jules Vaughn
