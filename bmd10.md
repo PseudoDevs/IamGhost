@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 08:55:49
-Random Quote: Because you're so broken you don't even trust yourself. And that's scary. - Nate Jacobs
+Last updated: 2024-04-06 08:56:22
+Random Quote: My lady, I have seen how you look at my brother.  Loras is valiant and handsome, and we all love him dearly... but your Imp will make a better husband.  He is a bigger man than he seems, I think.  -  Garlan Tyrell
