@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 06:39:21
-Random Quote: Pardon my French, f-ck those f-ckers! - Billy Butcher
+Last updated: 2024-04-06 06:40:31
+Random Quote: Birds are lost, messages stolen or sold... there are things I might tell you of that eunuch that would chill your blood...  -  Grand Maester Pycelle
