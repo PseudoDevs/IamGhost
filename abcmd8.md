@@ -1,4 +1,2 @@
-Last updated: 2024-04-06 08:33:41
-Random Quote: Morticia: "Please excuse Wednesday. She's allergic to color."
-Enid: "Wow, what happens to you?"
-Wednesday: "I break out into hives, and then the flesh peels off my bones." - Wednesday Addams
+Last updated: 2024-04-06 08:34:14
+Random Quote: Whisky's good proofing water. Tells you who's real and who isn't. - Thomas Shelby
