@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 06:59:11
-Random Quote: A dad makes a toilet look like R2-D2 and it breaks the front page of Reddit. But I'm Charles Manson because I gave you your own world instead of an iPad. - Rick Sanchez
+Last updated: 2024-04-06 06:59:44
+Random Quote: Mando: "I was not born on Mandalore."Greef Karga: "But you're Mandalorian?"Cara Dune: "Mandalorian isn't a race."Mando: "It's a Creed." - Din Djarin
