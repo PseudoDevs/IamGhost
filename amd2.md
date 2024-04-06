@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 10:20:22
-Random Quote: Marshall: "Yes, i want a ball-room and I want a band and I want shoes. I've been dreaming about this day since I was... like...Lily: "...a little girl?" - Lily Aldrin
+Last updated: 2024-04-06 10:20:56
+Random Quote: Fine I'll fill her in and I am so angry I am not even goin' to make a joke about "filling her in"... which I did three times last night. Self-five! - Barney Stinson
