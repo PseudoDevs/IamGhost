@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 11:59:13
-Random Quote: Robin: "I'm such a mess. Why do you even like me?"Barney: "I guess cause you're almost as messed up as I am." - Barney Stinson
+Last updated: 2024-04-06 11:59:46
+Random Quote: Marshall: "Are you sure this poo-poo didn't happen on your watch and you just ran out the clock until it was my problem?"Lily: "Oh, yeah. Yeah, yeah, right. What kind of mother lets her son sit in his own filth for an extra nine minutes and 42 seconds?" - Lily Aldrin
