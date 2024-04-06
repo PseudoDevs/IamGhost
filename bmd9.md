@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 11:05:54
-Random Quote: We just don't wanna rush anything, okay? We decided to wait, until she decides to let me have sex with her. - Barney Stinson
+Last updated: 2024-04-06 11:06:27
+Random Quote: Because they are the knights of summer, and winter is coming.  -  Catelyn Stark
