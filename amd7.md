@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 11:35:37
-Random Quote: You must be blind as well as maimed, Set.  Lift your eyes, and you will see the direwolf still flies above our walls.  -  Brynden Tully
+Last updated: 2024-04-06 11:36:10
+Random Quote: Robin, girls are like cartons of milk. Each one has a hotness expiration date and you've hit yours. I'm not saying the occasional guy won't still open the fridge, pick you up, give a sniff, shrug and take a sip anyway, but it's all downhill from here. - Barney Stinson
