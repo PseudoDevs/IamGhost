@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 07:47:49
-Random Quote: Dragons old and young, true and false, bright and dark.  And you.  A small man with a big shadow, snarling in the midst of it all.  -  Moqorro
+Last updated: 2024-04-06 07:48:22
+Random Quote: After all, what’s more human than the fight for survival? - Tokyo
