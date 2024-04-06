@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 09:53:19
-Random Quote: We are smart. And idiots are banging all the time. We can learn how to do it, too. - Fabiola Torres
+Last updated: 2024-04-06 09:55:42
+Random Quote: If you die before you say her name, Set, I will hunt you through the seven hells.  -  Oberyn Martell
