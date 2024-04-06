@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 07:54:29
-Random Quote: In Colombia, when money's involved, blood inevitably flows. - Steve Murphy
+Last updated: 2024-04-06 07:55:02
+Random Quote: Oberyn was ever the viper.  Deadly, dangerous, unpredictable.  No man dared tread on him.  I was the grass.  Pleasant, complaisant, sweet - smelling, swaying with every breeze.  Who fears to walk upon the grass?  But it is the grass that hides the viper from his enemies and shelters him until he strikes. 
