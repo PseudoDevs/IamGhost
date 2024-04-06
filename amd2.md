@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 11:13:27
-Random Quote: You don't parley when you're on the back foot. We'll strike a blow back first. - Thomas Shelby
+Last updated: 2024-04-06 11:14:33
+Random Quote: The purpose of war is peace. - Pablo Escobar
