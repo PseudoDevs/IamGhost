@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 07:51:15
-Random Quote: There is entirely too much tut - tutting in this realm, if you ask me.  All these kings would do a deal better if they put down their swords and listended to their mothers. 
+Last updated: 2024-04-06 07:53:00
+Random Quote: Finally, you will be among pears who understand you. Maybe you'll even make some friends. - Morticia Addams
