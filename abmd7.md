@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 08:49:31
-Random Quote: (Love is) pain, horrible pain, that you want again and again. - Sophia Burset
+Last updated: 2024-04-06 08:50:04
+Random Quote: A family is like a small business. And with a small business, at times, there comes a bit of transition. - Marty Byrde
