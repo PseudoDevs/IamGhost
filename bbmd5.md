@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 08:15:38
-Random Quote: A face took shape within the hearth.  Stannis?  she thought, for just a moment... but no, these were not his features.  A wooden face, corpse white.  Was this the enemy?  A thousand red eyes floated in the rising flames.  He sees me.  Beside him, a boy with a wolf's face threw back his head and howled.  -  Melisandre
+Last updated: 2024-04-06 08:16:11
+Random Quote: My metabolism is all messed up. See, I can moose down a pint of fudge ripple for a midnight snack and wake up having lost weight. Well, everywhere except for my boobs. So annoying. - Robin Scherbatsky
