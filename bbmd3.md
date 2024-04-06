@@ -1,5 +1,2 @@
-Last updated: 2024-04-06 11:53:33
-Random Quote: Barney: "You can't spell 'game' without 'me' and 'me' has the best game."
-Ted: "Yeah well, I got so much game, I'm Cornish game hen."
-Barney: "Oh, yeah? I'm the New York State gaming commissioner."
-Ted: "Well, I'm The Game. Well-crafted, keep-you-guessing thriller starring Michael Douglas and Sean Penn." - Ted Mosby
+Last updated: 2024-04-06 11:54:39
+Random Quote: In Texas, the holy trinity is God, Football and barbecue. Not necessarily in that order. - Sheldon Cooper
