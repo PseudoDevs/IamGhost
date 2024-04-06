@@ -1,3 +1,2 @@
-Last updated: 2024-04-06 10:00:23
-Random Quote: Journalist: "Mr. Stark, were you injured in the attack?"
-Tony Stark: "No, but I did spill my drink, and it was a '26 Macallan, so I'm pretty sure that's a war crime." - Iron Man
+Last updated: 2024-04-06 10:00:56
+Random Quote: The most beautiful woman in the world has urgent need of my axe.  -  Victarion Greyjoy.
