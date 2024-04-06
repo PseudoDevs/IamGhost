@@ -1,2 +1,2 @@
-Last updated: 2024-04-05 20:32:59
-Random Quote: I'm not surviving, I'm just existing. - Brook Soso
+Last updated: 2024-04-06 06:26:29
+Random Quote: You are slow to learn, Lord Eddard.  Distrusting me was the wisest thing you've don since you climbed down off your horse.  -  Petyr Baelish
