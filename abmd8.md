@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 09:03:15
-Random Quote: A craven's knife can slay a queen as easily as a hero's.  -  Xaro Xhoan Daxos
+Last updated: 2024-04-06 09:04:26
+Random Quote: Everyone sounds like Meryl Streep with a gun to their head. - Mike Ehrmantraut
