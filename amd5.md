@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 07:33:46
-Random Quote: Better the butcher than the meat.  All kings are butchers.  Are queens so different?  -  Daario Naharis
+Last updated: 2024-04-06 07:34:20
+Random Quote: When treating with liars, even an honest man must lie.  -  Wyman Manderly

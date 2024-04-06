@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 07:33:46
-Random Quote: In his chainmail shirt with a sword in his hand, Gendry looked almost a man grown, and dangerous.  Hot Pie looked like Hot Pie.  -  Arya Stark
+Last updated: 2024-04-06 07:34:20
+Random Quote: There's only three things you'll ever see me fight:The stubborn clasp of a bra.Sexual harassment charges - nine for nine!And the urge to vomit when, I see someone wearing brown shoes with a black suit. - Barney Stinson
