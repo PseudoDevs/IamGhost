@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 07:34:38
-Random Quote: It wasn't the violence that scared her. It was the fact that she knew no matter what he did, she'd still love him. - Rue Bennett
+Last updated: 2024-04-06 07:35:44
+Random Quote: Send him to Belize? I'll send YOU to Belize. - Walter White
