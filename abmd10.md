@@ -1,2 +1,5 @@
-Last updated: 2024-04-06 08:25:37
-Random Quote: There's chaos in you. Embrace the chaos! - Arthur Harrow
+Last updated: 2024-04-06 08:26:45
+Random Quote: "What's love to you?"
+Flaca: "It's like getting into a bath, but the water is like warm chocolate pudding. And the Smiths are playing. There Is A Light That Never Goes Out.' There's mood lighting all over, and there's like five dudes massaging you."
+Maritza: "And you have a pizza!"
+Flaca: "She's right. You also have a pizza." - Marisol 'Flaca' Gonzales & Maritza Ramos
