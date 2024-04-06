@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 09:52:04
-Random Quote: In the United States, the Mafia makes witnesses disappear so they can't testify in court. In Colombia, Pablo Escobar made the whole court disappear. - Steve Murphy
+Last updated: 2024-04-06 09:53:19
+Random Quote: We are smart. And idiots are banging all the time. We can learn how to do it, too. - Fabiola Torres
