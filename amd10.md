@@ -1,3 +1,2 @@
-Last updated: 2024-04-06 11:36:25
-Random Quote: Lily: "Swear on the lifes of your unborn boy and girl!"
-Ted: "I swear... on Luke and Leia!" - Ted Mosby
+Last updated: 2024-04-06 11:36:58
+Random Quote: I did the world a favor. People like Dalton shouldn't be allowed to procreate. Getting expelled was just a bonus. - Wednesday Addams
