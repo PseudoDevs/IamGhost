@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 06:50:06
-Random Quote: Oh my god, you have a monocle! Is this real? Is this really happening? Good luck killing James Bond! - Ted Mosby
+Last updated: 2024-04-06 06:50:40
+Random Quote: Your innocence may be as plain as the scar on your face, but it will not save you.  No more than your father will.  But I might.  Not as your judge.  As your champion.  -  Oberyn Martell
