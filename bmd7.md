@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 09:50:58
-Random Quote: Did the boy charm you?  He has that gift.  He got it from his father, with the blood.  He knows he is a king's son, but chooses to forget that he is bastard - born. 
+Last updated: 2024-04-06 09:51:31
+Random Quote: I will go to my grave thinking of my brother's peach.  -  Stannis Baratheon
