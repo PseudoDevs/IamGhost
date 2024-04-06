@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 09:11:25
-Random Quote: You grew up with actors.  You learned their craft and you learned it well.  I grew up with soldiers.  I learned how to die a long time ago.  -  Eddard Stark
+Last updated: 2024-04-06 09:11:58
+Random Quote: All the decisions we made in the past leads us inexorably into the future. - Tokyo
