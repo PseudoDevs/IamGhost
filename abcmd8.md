@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 07:47:17
-Random Quote: The Stranger: We’re not free in what we do, because we’re not free in what we want. We can’t overcome what’s deep within us. - 
+Last updated: 2024-04-06 07:48:23
+Random Quote: I dreamed of the man who came today, the one they call Reek.  You and your brother lay dead at his feet, and he was skinning off your faces with a long red blade.  -  Jojen Reed
