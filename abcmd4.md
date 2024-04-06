@@ -1,2 +1,3 @@
-Last updated: 2024-04-06 10:43:03
-Random Quote: I'm going out of this world the same way I came into it: Buck-naked. Yeah. It's gonna be awesome. Open bar for the guys, open casket for the ladies. What up? - Barney Stinson
+Last updated: 2024-04-06 10:43:36
+Random Quote: Hey look, it's the New York City skyline.
+We built Chip City... we built Chip City on all your dough! - Ted Mosby
