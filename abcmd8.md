@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 06:43:29
-Random Quote: B-Dawg, Barn Door, Stinson-natti, Bro-hio! Talk to me, how's it hangin'? - Robin Scherbatsky
+Last updated: 2024-04-06 06:44:41
+Random Quote: The title was but a courtesy due him as a council member; Varys was lord of nothing but the spiderweb, the master of none but his whispers.  -  Catelyn Stark
