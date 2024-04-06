@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 08:42:39
-Random Quote: We didn't choose this life, we're just living in it. - Number Five
+Last updated: 2024-04-06 08:43:14
+Random Quote: Why the oldest son, and not the best - fitted?  The crown will suit me, as it never suited Robert and would not suit Stannis. 
