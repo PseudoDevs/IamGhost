@@ -1,3 +1,2 @@
-Last updated: 2024-04-06 06:27:45
-Random Quote: Lily: "We don't wanna burden our little angel with all kinds of gender-specific expectations. Boys can do ballet, girls can play football."
-Marshall: "Hell, the Green Bay Packers have been proving that for years." - Marshall Eriksen
+Last updated: 2024-04-06 06:28:18
+Random Quote: I can bring you in warm, or I can bring you in cold. - Din Djarin
