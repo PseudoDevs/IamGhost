@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 08:08:00
-Random Quote: Adam: "Three viagras."Maeve: "Jesus Christ."Adam: "You said there was gonna be no judgement. Is three viagras bad? Her reaction made it seem like it was bad. I feel lightheaded and I can taste scampi."Maeve: "No wonder. You could besiege a castle with that thing."Adam: "I said stop staring at it!"Maeve: "Sorry, it's like a third leg." - Maeve Wiley
+Last updated: 2024-04-06 08:08:32
+Random Quote: All religion is a foolish answer to a foolish question. - Thomas Shelby
