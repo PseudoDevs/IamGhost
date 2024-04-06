@@ -1,4 +1,2 @@
-Last updated: 2024-04-06 08:11:35
-Random Quote: Joel: "Long way or short way?"
-Tess: "I mean, it's the long way or the 'we're fuckin' dead' way."
-Ellie: "Well, I vote long way just based on that limited information." - Ellie Williams
+Last updated: 2024-04-06 08:12:09
+Random Quote: I hate it when you talk sometimes. No... all the time. - Nicky Nichols
