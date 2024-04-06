@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 07:17:05
-Random Quote: You want to rule?  This is what ruling is; lying on a bed of weeds, ripping them out by the root, one by one, before they strangle you in your sleep.  -  Cersei Lannister
+Last updated: 2024-04-06 07:17:39
+Random Quote: It's not like anyone's 100% straight or 100% gay. - Maddy Perez
