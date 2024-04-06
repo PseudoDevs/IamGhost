@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 10:36:33
-Random Quote: If we say some prayers, do we all get to go to heaven? I should really pray too if that's how easy it is. Our God who art in Heaven, we worked as a team to send people to your side. And we sent a bunch of them today. And please help us with a whole lot more to be with you. - Oh Il-nam
+Last updated: 2024-04-06 10:37:06
+Random Quote: What do you think a knight is for, girl?  You think it's all taking favors from ladies and looking fine in gold plate?  Knights are for killing.  I killed my first man at twelve.  I've lost count of how many I've killed since then.  High lords with old names, fat rich men dressed in velvet, knights puffed up like bladders with their honors, yes, and women and children too... they're all meat, and I'm the butcher.  -  Sandor Clegane
