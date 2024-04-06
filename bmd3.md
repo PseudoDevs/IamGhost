@@ -1,4 +1,2 @@
-Last updated: 2024-04-06 10:29:31
-Random Quote: Morticia: "Please excuse Wednesday. She's allergic to color."
-Enid: "Wow, what happens to you?"
-Wednesday: "I break out into hives, and then the flesh peels off my bones." - Wednesday Addams
+Last updated: 2024-04-06 10:30:04
+Random Quote: I poured my blood, sweat and tears into that building. Though, to be fair, a lot of that happened the day I accidentally fell down the elevator shaft. - Ted Mosby
