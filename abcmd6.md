@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 08:00:15
-Random Quote: Morty: "Why don't you admit you don't want anyone else to be happy because you're a sad old fart?"Rick: "How do you saddle a fart?" - Rick Sanchez
+Last updated: 2024-04-06 08:00:48
+Random Quote: Minds are like swords, I do fear.  The old ones go to rust.  -  Grand Maester Pycelle
