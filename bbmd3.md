@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 12:15:08
-Random Quote: Karen: "I'm sure all the exploited diamond miners in Sierra Leone would give you a high-five if they still had all their fingers. But really pretty - meet me upstairs!"Robin: "They only need one finger to give her what I'm thinking." - Robin Scherbatsky
+Last updated: 2024-04-06 12:15:42
+Random Quote: What do you think a knight is for, girl?  You think it's all taking favors from ladies and looking fine in gold plate?  Knights are for killing.  I killed my first man at twelve.  I've lost count of how many I've killed since then.  High lords with old names, fat rich men dressed in velvet, knights puffed up like bladders with their honors, yes, and women and children too... they're all meat, and I'm the butcher.  -  Sandor Clegane
