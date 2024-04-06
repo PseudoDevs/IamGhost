@@ -1,3 +1,2 @@
-Last updated: 2024-04-06 07:03:36
-Random Quote: Wanda: "I had a brother. His name was Pietro."
-Geraldine: "He was killed by Ultron, wasn't he?" - Monica "Geraldine" Rambeau
+Last updated: 2024-04-06 07:04:10
+Random Quote: Better the butcher than the meat.  All kings are butchers.  Are queens so different?  -  Daario Naharis
