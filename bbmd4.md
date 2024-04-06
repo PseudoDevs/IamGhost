@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 09:05:25
-Random Quote: I think sometimes we aren't keeping secrets to hide from other people. I think sometimes we're keeping them to protect those people. - Tony Padilla
+Last updated: 2024-04-06 09:05:58
+Random Quote: Walter Jr., you’re my big man. There are going to be some things that you’ll come to learn about me in the next few days. But just know that no matter how it may look, I only had you in my heart. Goodbye! - Walter White
