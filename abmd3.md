@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 12:12:40
-Random Quote: You'd have been the last lawyer I'd have gone to. - Walter White
+Last updated: 2024-04-06 12:13:13
+Random Quote: The Old Gods have no power in the south.  The weirwoods there were all cut down, thousands of years ago.  -  Osha
