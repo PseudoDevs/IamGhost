@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 09:44:27
-Random Quote: The reason why she doesn't remember is because she's a grown up. That's how this stuff always works. Only kids can get into Narnia. - Bode Locke
+Last updated: 2024-04-06 09:45:00
+Random Quote: Never fear the darkness, Bran.  The strongest trees are rooted in the dark places of the earth.  Darkness will be your cloak, your shield, your mother's milk.  Darkness will make you strong.  -  Bloodraven
