@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 07:17:49
-Random Quote: War. Such a fascinating concept. A temporary salve for a permanent human flaw. - The Handler
+Last updated: 2024-04-06 07:18:23
+Random Quote: The longer Cersei waits, the angrier she'll become, and anger makes her stupid.  I much prefer angry and stupid to composed and cunning.  -  Tyrion Lannister
