@@ -1,5 +1,2 @@
-Last updated: 2024-04-06 07:19:29
-Random Quote: Dina: "You're infuriating."
-Ellie: "Have you met you?"
-Dina: "You make me want to go back outside into that blizzard."
-Ellie: "No one is stopping you." - Joel Miller
+Last updated: 2024-04-06 07:21:45
+Random Quote: Adam: "Three viagras."Maeve: "Jesus Christ."Adam: "You said there was gonna be no judgement. Is three viagras bad? Her reaction made it seem like it was bad. I feel lightheaded and I can taste scampi."Maeve: "No wonder. You could besiege a castle with that thing."Adam: "I said stop staring at it!"Maeve: "Sorry, it's like a third leg." - Maeve Wiley
