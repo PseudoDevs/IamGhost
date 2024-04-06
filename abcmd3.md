@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 07:52:22
-Random Quote: I dreamed of the man who came today, the one they call Reek.  You and your brother lay dead at his feet, and he was skinning off your faces with a long red blade.  -  Jojen Reed
+Last updated: 2024-04-06 07:52:55
+Random Quote: It's not just football. It's life. - Cal Jacobs
