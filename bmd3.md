@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 09:39:34
-Random Quote: Turns out, when you projectile vomit on skates, you roll right into the spray. - Ted Mosby
+Last updated: 2024-04-06 09:40:44
+Random Quote: I am the Greyjoy, Lord Reaper of Pyke, King of Salt and Rock, Son of the Sea Wind, and no man gives me a crown.  I pay the iron price.  I will take my crown, as Urron Redhand did five thousand years ago.  -  Balon Greyjoy
