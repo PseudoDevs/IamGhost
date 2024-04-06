@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 11:08:13
-Random Quote: She studied Theon Greyjoy's sly smile, wondering what it meant.  That young man had a way of looking as though he knew some secret jest that only he was privy to; Catelyn had never liked it.  -  Catelyn Stark
+Last updated: 2024-04-06 11:08:46
+Random Quote: From this day forth, you will not call yourself a craven.  You've faced more things this past year than most men face in a lifetime.  You can face the Citadel, but you'll face it as a Sworn Brother of the Night's Watch.  I can't command you to be brave, but I can command you to hide your fears.  -  Jon Snow
