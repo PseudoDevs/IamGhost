@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 08:05:12
-Random Quote: The wolf will prove the boy is who we say he is, should the Dreadfort attempt to deny him.  That is my price, Lord Davos.  Smuggle me back my liege lord, and I will take Stannis Baratheon as my king.  -  Wyman Manderly
+Last updated: 2024-04-06 08:07:27
+Random Quote: Kids, I'm going to tell you an incredible story, the story of how I met your mother. - Ted Mosby
