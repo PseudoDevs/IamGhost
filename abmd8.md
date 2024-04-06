@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 08:02:57
-Random Quote: Didn't you notice? Those jerks with masks came in and removed the beds of the people who died. Make on mistake out there, and yours is next. - Jang Deok-su
+Last updated: 2024-04-06 08:03:32
+Random Quote: You must be blind as well as maimed, Set.  Lift your eyes, and you will see the direwolf still flies above our walls.  -  Brynden Tully

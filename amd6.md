@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 08:02:58
-Random Quote: My daughter has taken an axe for a lover.  I will not have my son bedeck himself like a whore.  It is as I feared.  The green lands have made you soft, and the Starks have made you theirs.  -  Balon Greyjoy
+Last updated: 2024-04-06 08:03:31
+Random Quote: This guy he's done everything right. He's been loving and devoted since he was 18 years old. There are only a few truly great people on this planet and he is one of them. - Barney Stinson
