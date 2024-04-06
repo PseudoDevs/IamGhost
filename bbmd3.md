@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 11:36:58
-Random Quote: Kids, you may think your only choices are to swallow your anger or throw it in someone's face, but there's a third option: You can just let it go, and only when you do that is it really gone and you can move forward. - Ted Mosby
+Last updated: 2024-04-06 11:37:32
+Random Quote: They're minerals, Marie! Jesus! - Hank Schrader
