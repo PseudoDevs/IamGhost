@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 08:40:52
-Random Quote: Tick Tack. Tick Tack. - 
+Last updated: 2024-04-06 08:41:25
+Random Quote: Why should I go running to my aunt as if I were a beggar?  My claim is better than her own.  Let her come to me... in Westeros.  -  Aegon Targaryen
