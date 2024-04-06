@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 08:55:18
-Random Quote: Death, he knew, but slow.  I still have time.  A year.  Two years.  Five.  Some stone men live for ten.  Time enough to cross the sea, to see Griffin's Roost again.  To end the Usurper's line for good and all, and put Rhaegar's son upon the Iron Throne.  Then Lord Jon Connington could die content.  -  Jon Connington
+Last updated: 2024-04-06 08:55:55
+Random Quote: Robin: "Have plans with Don on Saturday, he's making me Chinese."Lily: "I'll assume you're talking about food, otherwise, I have some follow-up-questions." - Lily Aldrin
