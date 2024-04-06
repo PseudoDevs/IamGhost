@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 11:45:49
-Random Quote: You know how sometimes you'll meet a girl and there'll be that one bewitching little detail that'll make you fall in love with her instantly? You know, a little freckle on the nose, the lilt of her laugh, the way she pronounces a certain word or phrase... - Ted Mosby
+Last updated: 2024-04-06 11:46:22
+Random Quote: You shouldn't like things because people tell you you're supposed to. - Jonathan Byers
