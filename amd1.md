@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 07:24:45
-Random Quote: I am IRONBORN!  I laugh at death.  -  Victarion Greyjoy
+Last updated: 2024-04-06 07:25:18
+Random Quote: Honey, don't you think the little rocks would hurt your nose, if you're trying to snort crack? I think you mean coke. - Piper Chapman

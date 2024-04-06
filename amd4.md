@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 07:24:45
-Random Quote: They get in your head. People tell lies about you, and other people believe them. And it gets to the point where the lies might as well be the truth. - Tyler Down
+Last updated: 2024-04-06 07:25:18
+Random Quote: No man has ever died from bending his knee.  He who kneels may rise again, blade in hand.  He who will not kneel stays dead, stiff legs and all.  -  Balon Greyjoy
