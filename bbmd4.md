@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 07:35:21
-Random Quote: Mike Wheeler: "I'm not prostituting my sister."Lucas Sinclair: "But it's for a good cause." - Lucas Sinclair
+Last updated: 2024-04-06 07:37:01
+Random Quote: Everyone wants something, Alayne.  And when you know what a man wants you know who he is, and how to move him.  -  Petyr Baelish
