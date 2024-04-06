@@ -1,4 +1,2 @@
-Last updated: 2024-04-06 10:05:12
-Random Quote: Greef: "Be careful, my friend. They've got you outnumbered ten to one."
-Din: "I like these odds."
-Greef: "I bet you do." - Greef Karga
+Last updated: 2024-04-06 10:05:46
+Random Quote: I don't feel so good. It's like my testicals mixed poprocks and soda. - Ted Mosby
