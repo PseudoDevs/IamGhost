@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 10:19:27
-Random Quote: Barney: "He's the awesomest, most best-lookingest, greatest guy ever!"Lily: "He's exactly like Barney."Barney: "That's what I just said." - Barney Stinson
+Last updated: 2024-04-06 10:20:00
+Random Quote: Anyone who goes after him is gonna have to come through me. - Mike Ehrmantraut
