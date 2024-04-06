@@ -1,3 +1,2 @@
-Last updated: 2024-04-06 08:23:01
-Random Quote: "I thought Mandalorians were honorable."
-Koska Reeves: "We are, kid. All it takes is a few credits." - Din Djarin
+Last updated: 2024-04-06 08:23:35
+Random Quote: You see, ladies? When you're out with a Blinder, you don't have to queue. - Arthur Shelby
