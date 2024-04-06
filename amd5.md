@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 06:50:28
-Random Quote: There is entirely too much tut - tutting in this realm, if you ask me.  All these kings would do a deal better if they put down their swords and listended to their mothers. 
+Last updated: 2024-04-06 06:51:01
+Random Quote: You're my free pass... bitch! - Jesse Pinkman
