@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 09:19:16
-Random Quote: I let each man cut me once, before I kill him.  Count the cuts and you will know how many Strong Belwas has slain.  -  Strong Belwas
+Last updated: 2024-04-06 09:19:49
+Random Quote: A bag of dragons buys a man's silence for a while, but a well - placed quarrel buys it forever. 
