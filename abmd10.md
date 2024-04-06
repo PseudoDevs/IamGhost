@@ -1,3 +1,2 @@
-Last updated: 2024-04-06 09:30:10
-Random Quote: Freddie: "If you want me out of Birmingham, it'll have to be in a wooden box."
-Polly: "You lay a hand on our Ada, I'll put you in a wooden box myself!" - Polly Gray
+Last updated: 2024-04-06 09:30:44
+Random Quote: Rick: "If it's all the same, could we still get our stories straight? Because you're a terrible liar."Jerry: "You called me a master convincer!"Rick: "You believed me?" - Rick Sanchez
