@@ -1,3 +1,2 @@
-Last updated: 2024-04-06 09:00:17
-Random Quote: Larissa: "So you automatically assume a Nevermore student is the murderer, even though there's no evidence a crime was even committed."
-Donovan: "I'm sorry. I forgot, you only teach the good outcasts here, right?" - Donovan Galpin
+Last updated: 2024-04-06 09:02:05
+Random Quote: Stacey, six kids in five years! The woman's basically a ride to the waterpark. - Ted Mosby
