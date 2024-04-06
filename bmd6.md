@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 11:59:54
-Random Quote: Ted: "You're scared of the seven dwarves?"Robin: "Just of Doc. He's creepy... I mean, the guy went to medical school, what is he doing living with six coalminers." - Robin Scherbatsky
+Last updated: 2024-04-06 12:00:27
+Random Quote: Barney: "Tell me more. Tell me more. Like did he have a car?"Marshall: "So is he the guy who... how shall I say this like a gentleman? Robin, did he take your maple leaf?"Barney: "Sounds to me like he gave you your first 'O Canada' face!" - Barney Stinson
