@@ -1,2 +1,5 @@
-Last updated: 2024-04-06 10:43:13
-Random Quote: Science fact: Sisters are the worst. - Sheldon Cooper
+Last updated: 2024-04-06 10:43:46
+Random Quote: Dina: "You're infuriating."
+Ellie: "Have you met you?"
+Dina: "You make me want to go back outside into that blizzard."
+Ellie: "No one is stopping you." - Joel Miller
