@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 10:48:46
-Random Quote: Ah, Arya.  You have a wildness in you, child.  The 'wolf blood', my father used to call it.  Lyanna had a touch of it, and my brother Brandon more than a touch.  It brought them both to an early grave.  Lyanna might have carried a sword, if my lord father had allowed it.  You remind me of her sometimes.  You even look like her.  -  Eddard Stark
+Last updated: 2024-04-06 10:49:19
+Random Quote: Let's hit a motel, jam in a quickie and get you back to your wedding. - Ted Mosby
