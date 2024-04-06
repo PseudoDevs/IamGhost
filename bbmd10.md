@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 10:44:43
-Random Quote: So how do you take down a crook who's at the top of his game? Who has every cop in town in his pocket? Well, you hold your breath and you hope you get lucky. - Walt Breslin
+Last updated: 2024-04-06 10:45:16
+Random Quote: Marshall: "Neither of you guys has any game, right? Or else you'd be married. Like me. If dating is the game, then marriage is winning the game."Ted: "Yeah, if you're playing in the women's league!" - Ted Mosby
