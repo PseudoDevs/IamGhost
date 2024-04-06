@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 07:58:21
-Random Quote: Mike: "A friend is someone that you'd do anything for."Dustin: "You lend them your cool stuff, like comic books and trading cards."Mike: "And they never break a promise." - Mike Wheeler
+Last updated: 2024-04-06 07:58:54
+Random Quote: Nuncle always had a fondness for freaks and fools.  My father used to fight with him about it.  Let the wizards call upon their gods.  The Damphair will call on ours, and drown them.  -  Asha Greyjoy
