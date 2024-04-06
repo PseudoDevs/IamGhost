@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 08:16:11
-Random Quote: I am not crazy. I am unique. - Suzanne Warren
+Last updated: 2024-04-06 08:16:44
+Random Quote: You think you're the only one he whispers secrets to?  He gives each of us just enough to convince us that we'd be helpless without him.  -  Cersei Lannister
