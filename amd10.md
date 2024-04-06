@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 11:03:49
-Random Quote: I've lost a hand, a father, a son, a sister, and a lover, and soon enough I will lose a brother.  And yet they keep telling me House Lannister has won this war.  -  Jaime Lannister
+Last updated: 2024-04-06 11:04:56
+Random Quote: Bad guys don't play by the rules. That's what makes them bad. - Steve Murphy
