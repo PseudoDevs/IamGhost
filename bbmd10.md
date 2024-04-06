@@ -1,2 +1,3 @@
-Last updated: 2024-04-06 09:58:15
-Random Quote: It wasn't the violence that scared her. It was the fact that she knew no matter what he did, she'd still love him. - Rue Bennett
+Last updated: 2024-04-06 09:58:49
+Random Quote: Freddie: "Are you mad?"
+Ada: "Yeah. Mad as hell with all of them." - Ada Thorne
