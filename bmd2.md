@@ -1,2 +1,5 @@
-Last updated: 2024-04-06 10:21:16
-Random Quote: Why stop at one world, when we can show you all of them? - Yondu Udonta
+Last updated: 2024-04-06 10:21:49
+Random Quote: Dina: "You're infuriating."
+Ellie: "Have you met you?"
+Dina: "You make me want to go back outside into that blizzard."
+Ellie: "No one is stopping you." - Joel Miller
