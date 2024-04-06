@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 07:47:56
-Random Quote: Do it. If you ever want to see these boobs again, crawl, you son of a me. - Lily Aldrin
+Last updated: 2024-04-06 07:48:29
+Random Quote: Pennsatucky: "It weren't my fault. I was just doing as the Spirit commanded."Pussey: "Fuck are you? Joan of Arc?"Pennsatucky: "No, I'm from Waynesboro, my name is Tiffany..." - Tiffany 'Pennsatucky' Doggett
