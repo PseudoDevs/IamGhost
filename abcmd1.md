@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 10:43:56
-Random Quote: She don't speak.  You bloody bastards cut her throat too deep for that.  But she remembers.  -  Lem Lemoncloack
+Last updated: 2024-04-06 10:44:29
+Random Quote: And at some point you make a choice about who you are and what you want. - Rue Bennett
