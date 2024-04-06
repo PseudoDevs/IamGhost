@@ -1,3 +1,2 @@
-Last updated: 2024-04-06 08:31:26
-Random Quote: Doctor: "Hypothetically speaking, every new father-to-be get nervous."
-Vision: "Well, I have nerves of steel, so there goes your theory, Mr. Doctor." - Vision
+Last updated: 2024-04-06 08:32:00
+Random Quote: The last play you'll ever run. - Barney Stinson
