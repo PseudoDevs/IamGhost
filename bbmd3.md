@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 11:14:18
-Random Quote: Run the montage of people who died this year until I get back and add Sandy, because when I find him, I'm gonna kill him. - Robin Scherbatsky
+Last updated: 2024-04-06 11:14:51
+Random Quote: Aye, and from what I saw of Joffrey, you are as unfit a mother as you are a ruler.  -  Kevan Lannister
