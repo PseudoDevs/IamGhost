@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 07:41:28
-Random Quote: The blood of the First Men flows in my veins as much as yours, boy.  You would do well to remember that.  I was named for your grandfather.  I raised my banners against King Aerys for your father, and against King Joffrey for you.  At Oxcross and the Whispering Wood and in the Battle of the Camps, I rode beside you, and I stood with Lord Eddard on the Trident.  We are kin, Stark and Karstark.  -  Rickard Karstark
+Last updated: 2024-04-06 07:42:02
+Random Quote: If I hadn't buried my feelings so deep I would totally be tearing up right now. - Maritza Ramos
