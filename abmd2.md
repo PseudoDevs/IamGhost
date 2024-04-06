@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 08:08:33
-Random Quote: Career has been trouncing romance for years. It's like the Globetrotters versus the Generals: Career's sinking hook shots from half court, romance is just a bunch of slow white guys, who couldn't make it in the Italian league. - Ted Mosby
+Last updated: 2024-04-06 08:09:06
+Random Quote: Everyone pretend podcasting isn't boring! - Rick Sanchez
