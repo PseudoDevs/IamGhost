@@ -1,4 +1,2 @@
-Last updated: 2024-04-06 06:58:10
-Random Quote: Ted: "It's freezing out there. Where's your coat?"
-Robin: "Ted, I'm Canadian. I don't need a coat. This kind of weather is nothing for me."
-Marshall: "Yeah. This is like a spring day back in Minnesota." - Marshall Eriksen
+Last updated: 2024-04-06 06:58:46
+Random Quote: Ted: "You're like Mary Poppins, if her magic purse was also filled with drugs."Robin: "If? Ted, the kids in that movie jumped into a painting and spent 15 minutes chasing a cartoon fox. Spoonful of sugar? Grow Up!" - Robin Scherbatsky
