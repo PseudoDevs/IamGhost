@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 10:23:46
-Random Quote: So Robin? Guess who nailed the chick from "Metro News One" last night! - Barney Stinson
+Last updated: 2024-04-06 10:24:20
+Random Quote: Why the oldest son, and not the best - fitted?  The crown will suit me, as it never suited Robert and would not suit Stannis. 
