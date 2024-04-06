@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 09:02:34
-Random Quote: They say the king loved to hunt.  The things we love destroy us every time, lad.  Remember that.  -  Jeor Mormont
+Last updated: 2024-04-06 09:03:07
+Random Quote: I’d get 30 years. And to be honest, growing old in a prison cell is not my thing. I’d rather run, in body and soul. And if I can’t take my body with me, at least my soul should run. - Tokyo
