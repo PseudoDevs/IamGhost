@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 08:31:13
-Random Quote: F*ck you! And your eyebrows! - Walter White
+Last updated: 2024-04-06 08:31:46
+Random Quote: When you tear out a man's tongue, you are not proving him a liar, you're only telling the world that you fear what he might say.  -  Tyrion Lannister
