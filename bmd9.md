@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 07:21:11
-Random Quote: Breast-feeding... hot!When those things swell up to three times their normal size, so do I. - Barney Stinson
+Last updated: 2024-04-06 07:22:19
+Random Quote: There is entirely too much tut - tutting in this realm, if you ask me.  All these kings would do a deal better if they put down their swords and listended to their mothers. 

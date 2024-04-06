@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 07:21:45
-Random Quote: Ted: "Luckily, you are friends with a former Boy Scout and a Boy Scout is always what?"Robin: "Unpopular?"Lily: "Beaten up?"Barney: "Going to the movies with his mom?"Ted: "A Boy Scout is always prepared..."Robin: "...prepared to spend lunch in his locker?"Marshall: "...prepared to die a virgin?"Barney: "...prepared to paint his sister's nails?" - Ted Mosby
+Last updated: 2024-04-06 07:22:19
+Random Quote: I could keep you safe.  They're all afraid of me.  No one would hurt you again, or I'd kill them.  -  Sandor Clegane
