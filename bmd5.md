@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 08:21:38
-Random Quote: Never give power to the big man. - Alfie Solomons
+Last updated: 2024-04-06 08:22:11
+Random Quote: What is the cost of lies? It's not that we mistake them for the truth. The real danger is that if we hear enough lies, then we no longer recognize the truth at all. - Valery Legasov
