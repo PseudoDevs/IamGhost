@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 09:30:42
-Random Quote: I have been a voice with no body. A body, but not human. And now, a memory made real. Who knows what I might be next? - Vision
+Last updated: 2024-04-06 09:31:16
+Random Quote: I dreamed of the man who came today, the one they call Reek.  You and your brother lay dead at his feet, and he was skinning off your faces with a long red blade.  -  Jojen Reed
