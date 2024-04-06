@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 08:05:16
-Random Quote: Reality is more than neurons firing around in your brain. Reality is not what's on the inside. It's what's happening on the outside. - Daniel Solace
+Last updated: 2024-04-06 08:05:50
+Random Quote: It's not like anyone's 100% straight or 100% gay. - Maddy Perez
