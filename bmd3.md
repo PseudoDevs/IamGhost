@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 09:35:29
-Random Quote: Winter will never come for the likes of us.  Should we die in battle, they will surely sing of us, and it's always summer in the songs.  In the songs all knights are gallant, all maids are beautiful, and the sun is always shining.  -  Brienne of Tarth
+Last updated: 2024-04-06 09:36:02
+Random Quote: Rule Number One: Don't ever fall in love with a straight girl. - Alex Vause
