@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 06:44:49
-Random Quote: If you mean when will Chernobyl be completly save - the half-life of Plutonium 239 is 24,000 years. Perhaps we should just say, 'not in our lifetimes'. - Valery Legasov
+Last updated: 2024-04-06 06:45:22
+Random Quote: Sometimes a truce is the most important part of a war. - Professor
