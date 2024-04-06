@@ -1,2 +1,3 @@
-Last updated: 2024-04-06 06:38:46
-Random Quote: Some dogs crawled atop me during the night.  My cloak was almost dry when one of them pissed in it.  Have you noticed that the rain stopped the instant I had a roof above me?  It will start again now that I'm back out.  Gods and dogs alike delight to piss on me.  -  Dolorous Edd Tollett
+Last updated: 2024-04-06 06:39:21
+Random Quote: Planetina: "Your acid rain is an acid pain... in the butt, Diesel Wiesel!"
+Rick: "Yikes! Who's the chick in need of a dialogue pass?" - Rick Sanchez
