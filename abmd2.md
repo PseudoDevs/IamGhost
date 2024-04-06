@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 07:36:00
-Random Quote: I'm not him, I'm not the turncloak, he died at Winterfell.  My name is Reek.  It rhymes with freak.  -  Reek
+Last updated: 2024-04-06 07:36:33
+Random Quote: Mike: "A friend is someone that you'd do anything for."Dustin: "You lend them your cool stuff, like comic books and trading cards."Mike: "And they never break a promise." - Mike Wheeler
