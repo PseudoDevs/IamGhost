@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 07:44:53
-Random Quote: Khaleesi, better a man should swallow scorpions than trust in the spawn of shadows, who dare not show their face beneath the sun.  It is known.  -  Rakharo
+Last updated: 2024-04-06 07:46:34
+Random Quote: I don't take nothin' a drug addict says personally. 'Cause I don't believe nothin' a drug addict say. - Fezco
