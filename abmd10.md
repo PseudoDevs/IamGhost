@@ -1,3 +1,3 @@
-Last updated: 2024-04-06 09:03:16
-Random Quote: Give it a week, you'll get her back. And her front.
-Oh! Did you feel that? I think we just had a "what up?"-quake! - Barney Stinson
+Last updated: 2024-04-06 09:04:28
+Random Quote: Journalist: "Mr. Stark, were you injured in the attack?"
+Tony Stark: "No, but I did spill my drink, and it was a '26 Macallan, so I'm pretty sure that's a war crime." - Iron Man
