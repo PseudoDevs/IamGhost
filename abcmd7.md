@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 07:53:01
-Random Quote: If you die before you say her name, Set, I will hunt you through the seven hells.  -  Oberyn Martell
+Last updated: 2024-04-06 07:53:35
+Random Quote: It's not just football. It's life. - Cal Jacobs
