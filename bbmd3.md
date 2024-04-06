@@ -1,2 +1,4 @@
-Last updated: 2024-04-06 11:28:07
-Random Quote: If you get pulled over for speeding, tell the policeman your spouse has diarrhea. - Phil Dunphy
+Last updated: 2024-04-06 11:28:40
+Random Quote: Joel: "I need you to tell us where we are."
+Man: "If you got a map, why you lost?"
+Ellie: "Must've missed all the street signs in the enormous f-cking forest." - Ellie Williams
