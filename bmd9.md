@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 11:37:55
-Random Quote: I want you to wanna kiss me so bad that you don't even ask. - Jules Vaughn
+Last updated: 2024-04-06 11:38:28
+Random Quote: His blood is bad.  He needs to be leeched.  The leeches suck away the bad blood, all the rage and pain.  No man can think so full of anger.  Ramsay, though... his tainted blood would poison even leeches, I fear.  -  Roose Bolton
