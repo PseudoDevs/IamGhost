@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 11:38:08
-Random Quote: Our secrecy is our survival. our survival is our strength. - The Armorer
+Last updated: 2024-04-06 11:38:41
+Random Quote: It's not Aerys I rue, it's Robert... Why is it no one names Robert oathbreaker?  He tore the realm apart, yet I am the one with shit for honor.  -  Jaime Lannister
