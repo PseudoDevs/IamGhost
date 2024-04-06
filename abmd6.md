@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 10:43:03
-Random Quote: Marshall: "Can we borrow your air mattress? My mom's coming into town for a few days."Ted: "Absolutely not!"Lily: "Bummer, I guess she can't stay with us. Hey, look what I just found! A list of hotels and other creative housing options."Marshall: "Baby, my mom is not staying at a hotel. Or our storage unit." - Lily Aldrin
+Last updated: 2024-04-06 10:43:36
+Random Quote: Hush, Alerie, don't take that tone with me.  And don't call me mother.  If I'd given birth to you, I'm sure I'd remember.  I'm only to blame for your husband, the lord oaf of Highgarden.  -  Olenna Tyrell
