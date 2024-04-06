@@ -1,2 +1,3 @@
-Last updated: 2024-04-06 06:32:43
-Random Quote: All you Westerosi make a shame of loving.  Ther is no shame in loving.  If your septons say there is, your seven gods must be demons.  In the isles we know better.  Our gods gave us legs to run with, noses to smell with, hands to touch and feel.  What mad cruel god would give a man eyes and tell him he must forever keep them shut, and never look at all the beauty in the world?  Only a monster god, a demon of the darkness.  -  Kojja Mo
+Last updated: 2024-04-06 06:33:16
+Random Quote: Morticia: "That boy's family was going to file attempted murder charges. How would that have looked on your record?"
+Wednesday: "Terrible. Everyone would know I failed to get the job done." - Wednesday Addams
