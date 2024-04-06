@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 11:11:32
-Random Quote: Robert could piss in a cup and men would call it wine, but I offer them cold clear water and they squint in suspicion and mutter to each other about how queer it tastes.  -  Stannis Baratheon
+Last updated: 2024-04-06 11:12:38
+Random Quote: To be a scientist is to be naive. - Valery Legasov
