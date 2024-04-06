@@ -1,3 +1,2 @@
-Last updated: 2024-04-06 07:33:51
-Random Quote: Jang Deok-su: "Tell me what you're good at?"
-Han Mi-nyeo: "Everything, except the things I can't do." - Oh Il-nam
+Last updated: 2024-04-06 07:34:24
+Random Quote: I can't tell the difference between my waking life and dreams. - Arthur Harrow
