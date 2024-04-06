@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 07:57:14
-Random Quote: Summer: "It is a hot photo. I think grief flushes her cheeks. Dad, you hardly put any sirup on."Beth: "Honey, stop raising your father's colesterol so you can take a hot funeral selfie."Summer: "I never get to do anything." - Summer Smith
+Last updated: 2024-04-06 07:57:48
+Random Quote: Barney: "I only smoke in certain situations. Postcoital, when I'm with Germans, sometimes those two overlap, coital, birthdays, to annoy my mom, precoital, on a sailboat, the day the Mets are mathematically eliminated every year and pregnancy scares."Ted: "Why are you smoking right now?"Barney: "I'm always precoital, Ted." - Barney Stinson
