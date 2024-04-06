@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 08:16:15
-Random Quote: The Red God has his due, sweet girl, and only death may pay for life.  This girl took three that were his.  This girl must give three in their places.  Speak the names, and a man will do the rest.  -  Jaqen H'ghar
+Last updated: 2024-04-06 08:16:48
+Random Quote: There are moments in life we should just be able to have a damn remote control, so you could pause it. Even if just for five minutes. But sometimes things happen with irreverent obscenity and there’s nothing you can do to help it. - Tokyo
