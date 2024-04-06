@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 07:48:48
-Random Quote: The only difference between us is, when I made bad decisions in life, I didn't get caught. - Susan Fischer
+Last updated: 2024-04-06 07:50:34
+Random Quote: Barney: "Fine, we'll just have a nice, tasteful rehearsal dinner. Maybe at a French restaurant, I know just the place."Robin: "What's the name of the restaurant?"Barney: "La Sertag." - Barney Stinson
