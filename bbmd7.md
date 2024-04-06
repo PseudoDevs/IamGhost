@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 08:56:35
-Random Quote: Dustin: "Even if he is, it doesn't automatically mean that he's bad."Mike: "That's like saying just because someone's from the Death Star doesn't make them bad."Dustin: "We have a bond."Mike: "A bond? Just because he likes nougat?" - Mike Wheeler
+Last updated: 2024-04-06 08:57:14
+Random Quote: There is entirely too much tut - tutting in this realm, if you ask me.  All these kings would do a deal better if they put down their swords and listended to their mothers. 
