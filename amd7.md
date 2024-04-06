@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 09:28:16
-Random Quote: Nancy Wheeler: "You're supposed to hit the cans, right?"Jonathan Byers: "No, actually - you see the spaces in between the cans? I'm aiming for those." - Jonathan Byers
+Last updated: 2024-04-06 09:28:49
+Random Quote: The Lion does not concern itself with the opinions of sheep.  -  Tywin Lannister
