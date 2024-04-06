@@ -1,5 +1,2 @@
-Last updated: 2024-04-06 10:21:28
-Random Quote: "What's love to you?"
-Flaca: "It's like getting into a bath, but the water is like warm chocolate pudding. And the Smiths are playing. There Is A Light That Never Goes Out.' There's mood lighting all over, and there's like five dudes massaging you."
-Maritza: "And you have a pizza!"
-Flaca: "She's right. You also have a pizza." - Marisol 'Flaca' Gonzales & Maritza Ramos
+Last updated: 2024-04-06 10:22:02
+Random Quote: Theon found himself wondering if he should say a prayer.  Will the Old Gods hear me if I do?  They were not his gods, had never been his gods.  He was ironborn, a son of Pyke, his god was the Drowned God of the islands... but Winterfell was long leagues from the sea.  It had been a lifetime since any god had heard him.  He did not know who he was, or what he was, why he was still alive, why he had ever been born.  -  Theon Greyjoy
