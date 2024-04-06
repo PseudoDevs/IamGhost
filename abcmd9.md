@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 08:32:07
-Random Quote: There is a savage beast in every man, and it stirs when you put a sword in his hand.  -  Jorah Mormont
+Last updated: 2024-04-06 08:32:40
+Random Quote: It's the greatest samurai, who lets his sword rust in its scabbard. - Barney Stinson
