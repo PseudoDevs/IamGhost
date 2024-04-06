@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 09:05:43
-Random Quote: Now don't be a p-ssy, laser my f-cking t-ts! - Stormfront
+Last updated: 2024-04-06 09:06:18
+Random Quote: Marshall: "Baby, you're like 20 slutty chicks all rolled into one."Lily: "Sweet-talk is not gonna change my mind!" - Lily Aldrin
