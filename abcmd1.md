@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 09:24:53
-Random Quote: Missy Cooper: I don't want to die, I've only kissed one boy so far. - Missy Cooper
+Last updated: 2024-04-06 09:25:28
+Random Quote: People are oblivious to reality. They only see what they want to see, when all they have to do is shift their perspective to see the full scope of things. - Yuk Je
