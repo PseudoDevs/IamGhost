@@ -1,4 +1,2 @@
-Last updated: 2024-04-06 07:56:42
-Random Quote: Bo-Katan: "I've scugged off a lot of Imperial warlords."
-Din: "They tend to get mad when you hijack their ships."
-Bo-Katan: "Now you tell me." - Bo-Katan
+Last updated: 2024-04-06 07:57:15
+Random Quote: Catelyn would sooner Lord Umber had seen fit to stay sober, but telling the Greatjon not to drink was like telling him not to breathe for a few hours.  -  Catelyn Stark
