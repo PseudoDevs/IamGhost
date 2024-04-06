@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 08:47:54
-Random Quote: Kill the boy, Jon Snow.  Winter is almost upon us.  Kill the boy and let the man be born.  -  Aemon Targaryen
+Last updated: 2024-04-06 08:48:27
+Random Quote: When you're younger, everything feels so permanent. But as you get older, you begin to realize nothing is and everyone you love can drift away. - Rue Bennett
