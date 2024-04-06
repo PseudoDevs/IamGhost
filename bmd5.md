@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 07:40:36
-Random Quote: I would very much like to return your witty banter, but I am too exhausted to be clever. - Galina 'Red' Reznikov
+Last updated: 2024-04-06 07:42:50
+Random Quote: A craven's knife can slay a queen as easily as a hero's.  -  Xaro Xhoan Daxos
