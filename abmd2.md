@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 09:30:39
-Random Quote: They're minerals, Marie! Jesus! - Hank Schrader
+Last updated: 2024-04-06 09:31:12
+Random Quote: You wear your honor like a suit of armor, Stark.  You think it keeps you safe, but all it does is weigh you down and make it hard for you to move.  -  Petyr Baelish
