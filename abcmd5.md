@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 10:59:13
-Random Quote: Grief never gets any smaller, so you have to make yourself bigger around it. The best way to do that is to open up. Let people in. - Rendell Locke
+Last updated: 2024-04-06 10:59:46
+Random Quote: You will never walk again... but you will fly.  -  Bloodraven
