@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 10:33:40
-Random Quote: My father never bellowed like the Greatjon, but he was no less dangerous in his wroth.  -  Alys Karstark
+Last updated: 2024-04-06 10:34:47
+Random Quote: Many good men have been bad kings, and some bad men have been good kings.  -  Maester Aemon
