@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 11:29:49
-Random Quote: Be proud of your penis and your heritage. 'Cause neither are going anywhere. You should work with what you've got. - Otis Milburn
+Last updated: 2024-04-06 11:30:22
+Random Quote: This sacred text was eventually brought to the New World in 1776 by none other than Christopher Brolumbus. And that's why he got to bang Pocahontas. - Barney Stinson
