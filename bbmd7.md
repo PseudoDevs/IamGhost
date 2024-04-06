@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 08:27:13
-Random Quote: If that’s true, if you don’t know who I am, then maybe your best course… would be to tread lightly. - Walter White
+Last updated: 2024-04-06 08:27:46
+Random Quote: When I look at something, I don't see it for what it is, I see it for what it could be. When I look at something, I see how it ends. - Miguel Angel Felix Gallardo
