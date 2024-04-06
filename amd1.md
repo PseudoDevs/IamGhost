@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 08:45:15
-Random Quote: The man who passes the sentence should swing the sword.  If you would take a man's life, you owe it to him to look into his eyes and hear his final words.  And if you cannot bear to do that, then perhaps the man does not deserve to die.  -  Eddard Stark
+Last updated: 2024-04-06 08:45:52
+Random Quote: The only way that entire car is worth 500 bucks, is if there's a $300 hook-r sitting in it. - Saul Goodman
