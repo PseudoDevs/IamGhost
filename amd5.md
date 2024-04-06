@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 07:29:53
-Random Quote: I’ve spent my life being a bit of a son of a bitch, but today I think I want to die with dignity. - Berlin
+Last updated: 2024-04-06 07:30:26
+Random Quote: Bulls are strong.  Bears.  I have seen my bastard fight.  He is not entirely to blame.  Reek was his tutor, the first Reek, and Reek was never trained at arms.  Ramsay is ferocious, I will grant you, but he swings that sword like a butcher hacking meat.  -  Roose Bolton

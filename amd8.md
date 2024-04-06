@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 07:29:53
-Random Quote: The absolute worst part of depression is that even though you know you're depressed, You're unable to stop yourself from getting worse. - Rue Bennett
+Last updated: 2024-04-06 07:30:26
+Random Quote: My father won all the battles.  He killed Prince Rhaegar and took the crown, while your father was hiding under Casterly Rock.  A strong king acts boldly, he doesn't just talk.  -  Joffrey Baratheon
