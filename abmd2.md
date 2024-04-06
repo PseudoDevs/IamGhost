@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 07:31:32
-Random Quote: Marshall: "Excuse me, miss. When you get a chance, could you bring over a hundred shots of tequila please?"Barney: "I'll have the same." - Marshall Eriksen
+Last updated: 2024-04-06 07:32:39
+Random Quote: There's only three things you'll ever see me fight:The stubborn clasp of a bra.Sexual harassment charges - nine for nine!And the urge to vomit when, I see someone wearing brown shoes with a black suit. - Barney Stinson
