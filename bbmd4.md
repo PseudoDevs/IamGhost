@@ -1,2 +1,3 @@
-Last updated: 2024-04-06 08:02:13
-Random Quote: Dude, ditch Tiffany and join the Barnacle in the Pharma-Girl-Free-For-All. Side effects may include: loss of clothing, rug burns, shortness of breath and soar abdominals the next morning. What in the world is up! - Barney Stinson
+Last updated: 2024-04-06 08:02:47
+Random Quote: Jerry: "Space sperm? Sperm from... space?"
+Rick: "Very impressive verbal forensic work, Jerry." - Rick Sanchez
