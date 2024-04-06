@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 10:10:52
-Random Quote: I’d get 30 years. And to be honest, growing old in a prison cell is not my thing. I’d rather run, in body and soul. And if I can’t take my body with me, at least my soul should run. - Tokyo
+Last updated: 2024-04-06 10:11:25
+Random Quote: His blood ran black.  Made him my brother as much as yours.  -  Yoren of the Night's Watch
