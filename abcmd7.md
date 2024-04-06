@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 12:07:56
-Random Quote: I appreciate your help, but there's a reason your name is "Robin", not "Batman". - Ted Mosby
+Last updated: 2024-04-06 12:09:03
+Random Quote: The man who passes the sentence should swing the sword.  If you would take a man's life, you owe it to him to look into his eyes and hear his final words.  And if you cannot bear to do that, then perhaps the man does not deserve to die.  -  Eddard Stark
