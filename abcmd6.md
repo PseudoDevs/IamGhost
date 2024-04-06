@@ -1,2 +1,5 @@
-Last updated: 2024-04-06 06:35:49
-Random Quote: Lily: "I am gonna have to walk this earth, knowing Barney has touched my boobs."Robin: "Yeah it stays with ya. His e-mail reminders don't help." - Robin Scherbatsky
+Last updated: 2024-04-06 06:36:24
+Random Quote: Marshall: "What the hell happened?"
+Barney: "I said no questions asked."
+Marshall: "Star, clover, horseshoe... Barney, did you swallow real versions of all the Lucky Charms items?"
+Barney: "No questions asked! Now come on. Let's hit the bar. I'm buying. I just won 50 bucks from a little Irish guy on a dare." - Barney Stinson
