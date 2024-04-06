@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 11:57:45
-Random Quote: What's the difference between peanut butter and jam?You can't peanut butter your dick up someone's ass. - Barney Stinson
+Last updated: 2024-04-06 11:58:19
+Random Quote: Strip off their skins.  Lord Bolton, he used to say a naked man has few secrets, but a flayed man's got none.  -  Ramsay Bolton

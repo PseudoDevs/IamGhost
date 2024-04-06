@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 11:57:46
-Random Quote: You could turn King's Landing upside down and not find a single man with a mockingbird sewn over his heart but that does not mean I am friendless.  -  Petyr Baelish
+Last updated: 2024-04-06 11:58:19
+Random Quote: They're all weighing the beskar in their minds, but not me. No. I for one, I celebrate your success, because it is my success as well. Hell, even I'm rich. - Greef Karga
