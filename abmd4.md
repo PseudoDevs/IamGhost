@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 07:26:35
-Random Quote: I feel like you ruined me forever. - Maddy Perez
+Last updated: 2024-04-06 07:27:09
+Random Quote: Old stories are like old friends, Old Nan used to say.  You have to visit them from time to time.  -  Bran Stark
