@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 08:14:55
-Random Quote: You know how they say 'it's been a pleasure'? Well... it hasn't. - Mike Ehrmantraut
+Last updated: 2024-04-06 08:15:28
+Random Quote: I knew quite a few Jedi, you know. I don't know what they taught you about us, but there was a time we actually got along quite well. Fought side by side. - Bo-Katan
