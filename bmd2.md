@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 10:35:02
-Random Quote: Since when do vegans eat fried chicken? - Hank Schrader
+Last updated: 2024-04-06 10:35:35
+Random Quote: The more you give a king, the more he wants.  We are walking on a bridge of ice with an abyss on either side.  Pleasing one king is difficult enough.  Pleasing two is hardly possible.  -  Jon Snow
