@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 07:23:13
-Random Quote: The most important moments are the ones that make you realize there’s no turning back. You’ve crossed a line, and you’re stuck on the other side now. - Tokyo
+Last updated: 2024-04-06 07:23:46
+Random Quote: If you don't trust your men with your money, you have bigger problems than if you trust Saul Goodman. - Kim Wexler
