@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 11:18:56
-Random Quote: Sorry Peter, we're grown-ups now, we can't fly to Netherland with you anymore. - Ted Mosby
+Last updated: 2024-04-06 11:19:29
+Random Quote: They get in your head. People tell lies about you, and other people believe them. And it gets to the point where the lies might as well be the truth. - Tyler Down
