@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 08:59:51
-Random Quote: A thousand eyes, a hundred skins, wisdom deep as the roots of ancient trees.  Greenseers.  -  Bloodraven
+Last updated: 2024-04-06 09:00:25
+Random Quote: The Citadel took my chain, but they could not take my knowledge.  -  Qyburn
