@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 07:07:35
-Random Quote: Every time I go after a busty dullard who can't tell time or thinks I'm the ghost of Leonardo DiCaprio, I'm shallow. But somehow it's okay for Robin to date a guy who can't be trusted around outlets. - Barney Stinson
+Last updated: 2024-04-06 07:08:08
+Random Quote: You want to know the horrible truth?  I can't even remember what she looked like.  I only know she was the one thing I ever wanted, and seven kingdoms couldn't fill the hole she left behind.  -  Robert Baratheon

@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 07:07:00
-Random Quote: Jerry: "I wish that shotgun was my penis."Beth: "If it were, you could call me Ernest Hemingway." - Beth Smith
+Last updated: 2024-04-06 07:08:07
+Random Quote: One day, we'll wake up, and brush our teeth, and go to work. And at some point, we'll suddenly realize that we haven't thought about it at all. None of it. And that's when we'll know. We'll know we can forget. - Saul Goodman
