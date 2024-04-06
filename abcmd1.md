@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 08:08:32
-Random Quote: Eventually, Nick's groin will heal and you'll be back in Sexville, where all the crossword puzzles only have one box to fill. - Lily Aldrin
+Last updated: 2024-04-06 08:09:06
+Random Quote: What do a bunch o' bloody peasants know about a lord's honor?  We know some about murder, though.  -  Lem Lemoncloak
