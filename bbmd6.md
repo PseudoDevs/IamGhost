@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 10:21:02
-Random Quote: Know the men who follow you and let them know you.  Don't ask your men to die for a stranger.  -  Eddard Stark
+Last updated: 2024-04-06 10:21:35
+Random Quote: Just because I don't have fear, doesn't make me irrational. - Kinsey Locke
