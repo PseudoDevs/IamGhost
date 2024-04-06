@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 11:13:04
-Random Quote: You want to know if I was ever really in love with you? Every morning, I wake up wishing I wasn't. You are a constant reminder of what I can't have. A life. Love. You. - Lucien
+Last updated: 2024-04-06 11:13:37
+Random Quote: I don't need to be good at Math, I have beautiful hair. - Missy
