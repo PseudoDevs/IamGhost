@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 11:00:20
-Random Quote: Good and evil are a question of perspective - Mikkel
+Last updated: 2024-04-06 11:00:52
+Random Quote: Your car's gonna be fine, this is the best auto-shop around. Look at this certificate, one of the mechanics here...[reads the certificate]...finished a 64 ounce steak. - Ted Mosby
