@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 12:15:57
-Random Quote: Do you know what it is like to be sold, squire?  I do.  My brother sold me to Khal Drogo for the promise of a golden crown.  Well, Drogo crowned him in gold, though not as he had wished, and I... my sun - and
+Last updated: 2024-04-06 12:16:30
+Random Quote: There's only one thing that could blind a man as smart as you, Tommy. Love. - Polly Gray
