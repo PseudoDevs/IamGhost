@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 10:36:39
-Random Quote: Fear is the worst enemy of progress. - 
+Last updated: 2024-04-06 10:37:13
+Random Quote: I prefer my history dead.  Dead history is writ in ink, the living sort in blood.  -  Rodrik Harlaw
