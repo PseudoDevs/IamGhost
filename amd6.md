@@ -1,2 +1,3 @@
-Last updated: 2024-04-06 09:56:18
-Random Quote: Rule Number One: Don't ever fall in love with a straight girl. - Alex Vause
+Last updated: 2024-04-06 09:56:54
+Random Quote: George: "I love what you done with the place. Did you do it yourself, or did you get some pouf to help ya?"
+Rebecca: "I could ask the same of your hair." - Rebecca Welton

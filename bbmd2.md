@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 09:55:42
-Random Quote: If you die before you say her name, Set, I will hunt you through the seven hells.  -  Oberyn Martell
+Last updated: 2024-04-06 09:56:54
+Random Quote: And, you know, you just can't be mad at me for wanting you to be okay. - Rue Bennett
