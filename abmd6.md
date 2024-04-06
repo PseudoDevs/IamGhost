@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 08:52:46
-Random Quote: Fear cuts deeper than swords.  -  Syrio Forel
+Last updated: 2024-04-06 08:53:24
+Random Quote: This is the one that you saved? You are as its father. A clan of two. But you have removed your helmet. Then you are a Mandalorian no more. - The Armorer
