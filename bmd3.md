@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 09:16:43
-Random Quote: It's not what you think, he just wants to have sex. Kidding. Just a little hand stuff. Ha, kidding again. Ted's more of a boob man. I seriously can't stop. - Robin Scherbatsky
+Last updated: 2024-04-06 09:17:16
+Random Quote: Lord Wyman is not the only one who lost kin at your Red Wedding, Frey.  Do you imagine Whoresbane loves you any better?  If you did not hold the Greatjon, he would pull out your entrails and make you eat them, as Lady Hornwood ate her fingers.  Flints, Cerwyns, Tallharts, Slates... they all had men with the Young Wolf.  The North remembers, Frey.  -  Barbrey Dustin
