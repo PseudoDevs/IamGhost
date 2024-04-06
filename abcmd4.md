@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 07:23:13
-Random Quote: Cara: "It's gonna break his little heart."Mando: "He'll get over it. We all do." - Din Djarin
+Last updated: 2024-04-06 07:23:47
+Random Quote: You're mine.  Mine, as I'm yours.  And if we die, we die.  All men must die, Jon Snow.  But first, we'll live.  -  Ygritte
