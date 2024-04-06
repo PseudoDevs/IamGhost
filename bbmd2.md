@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 11:39:34
-Random Quote: Ted: "Oh hey, where are you guys?"Barney: "We're in a fundraiser, helping young women raise money for community college."Ted: "Stripclub... nice!" - Barney Stinson
+Last updated: 2024-04-06 11:40:07
+Random Quote: Oh, we're busting apple bags? I can bust apple bags. - Robin Scherbatsky
