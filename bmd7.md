@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 09:03:07
-Random Quote: I’d get 30 years. And to be honest, growing old in a prison cell is not my thing. I’d rather run, in body and soul. And if I can’t take my body with me, at least my soul should run. - Tokyo
+Last updated: 2024-04-06 09:03:40
+Random Quote: Listen, Morty. I hate to break it to you, but what people call 'Love' is just a chemical reaction that compells animals to breed. It hits hard, Morty, then it slowly fades. - Rick Sanchez
