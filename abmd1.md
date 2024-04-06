@@ -1,2 +1,6 @@
-Last updated: 2024-04-06 07:32:06
-Random Quote: Celtigar pronounced it admirable.  If I were to show him the contents of my privy he would pronounce that admirable as well.  -  Stannis Baratheon
+Last updated: 2024-04-06 07:32:40
+Random Quote: Polly: "Six."
+John: "Six what?"
+Polly: "Six questions since you walked through that door. Soon you'll have to start being the man with the answers."
+John: "Why?"
+Polly: "Seven." - Polly Gray

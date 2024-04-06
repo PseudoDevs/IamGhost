@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 07:32:06
-Random Quote: People are oblivious to reality. They only see what they want to see, when all they have to do is shift their perspective to see the full scope of things. - Yuk Je
+Last updated: 2024-04-06 07:32:40
+Random Quote: That's not a law, just a sword.  Happens I got one too.  -  Yoren of the Night's Watch
