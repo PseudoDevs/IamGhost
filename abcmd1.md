@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 11:39:14
-Random Quote: These old knights are more cunning than you think, or they would never have lived to see their first grey hair.  -  Dagmer Cleftjaw
+Last updated: 2024-04-06 11:39:47
+Random Quote: I guess we all have things we try to hide. But they can't stay hidden forever. - Hannah Baker
