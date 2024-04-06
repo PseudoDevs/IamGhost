@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 11:01:59
-Random Quote: I'm sorry. I've been told before that my light tread is too elegant to be detected by the human ear. - Kamala
+Last updated: 2024-04-06 11:03:05
+Random Quote: Yes, Lord Umber, leave me to the king.  He means to give me a scolding before he forgives me.  That's how he deals with treason, our King in the North.  Or should I call you the King Who Lost the North, your Grace?  -  Rickard Karstark
