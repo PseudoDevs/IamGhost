@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 09:44:48
-Random Quote: May his death satisfy you. - Gustavo Fring
+Last updated: 2024-04-06 09:45:59
+Random Quote: They get in your head. People tell lies about you, and other people believe them. And it gets to the point where the lies might as well be the truth. - Tyler Down
