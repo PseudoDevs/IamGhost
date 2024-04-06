@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 09:48:58
-Random Quote: For the night is dark and full of terrors.  -  Words of R'hllor
+Last updated: 2024-04-06 09:49:34
+Random Quote: Qhorin was my enemy.  But also my brother, once.  So... shall I thank you for killing him, Jon Snow?  Or curse you?  -  Mance Rayder
