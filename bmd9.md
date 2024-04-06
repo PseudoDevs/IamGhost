@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 10:42:07
-Random Quote: A godly man got no cause to fear such.  I said as much to that Mance Rayder once, when he come sniffing round.  He never listened, no more'n you crows with your swords and your bloody fires.  That won't help you none when the white cold comes.  Only the gods will help you then.  You best get right with the gods.  -  Craster
+Last updated: 2024-04-06 10:42:40
+Random Quote: We all know what my brother would do.  Robert would gallop up to the gates of Winterfell alone, break them with his warhammer, and ride through the rubble to slay Roose Bolton with his left hand and the Bastard with his right.  I am no Robert.  But we will march, and we will free Winterfell... or die in the attempt.  -  Stannis Baratheon
