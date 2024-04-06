@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 07:59:14
-Random Quote: Barney: "Tell me more. Tell me more. Like did he have a car?"Marshall: "So is he the guy who... how shall I say this like a gentleman? Robin, did he take your maple leaf?"Barney: "Sounds to me like he gave you your first 'O Canada' face!" - Barney Stinson
+Last updated: 2024-04-06 07:59:48
+Random Quote: When the snows fall and the white winds blow, the lone wolf dies, but the pack survives.  -  Eddard Stark
