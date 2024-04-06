@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 08:33:19
-Random Quote: Young or old, a true knight is sworn to protect those who are weaker than himself, or die in the attempt.  -  Brienne of Tarth
+Last updated: 2024-04-06 08:33:52
+Random Quote: Is she worth the pain? A man does not suffer like this for his own glory. There is a fine line between devotion and delusion. Love can break more than your heart. It can shatter your mind. - O-Bengh
