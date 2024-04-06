@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 09:28:27
-Random Quote: Robin: "I wouldn't go to Cleveland for 125 million dollars, paid over six years."Ted: "Still with the LeBron jokes? Where's that ring he's supposed to have by now?" - Robin Scherbatsky
+Last updated: 2024-04-06 09:29:01
+Random Quote: Power resides where men believe it resides... It's a trick, a shadow on the wall.  -  Varys
