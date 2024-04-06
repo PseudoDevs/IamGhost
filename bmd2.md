@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 06:52:20
-Random Quote: You are slow to learn, Lord Eddard.  Distrusting me was the wisest thing you've don since you climbed down off your horse.  -  Petyr Baelish
+Last updated: 2024-04-06 06:52:54
+Random Quote: If you're looking for the word that means caring for someone beyond all rationality and wanting them to have everything they want, no matter how much it destroys you, it's love! - Ted Mosby
