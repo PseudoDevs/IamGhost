@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 11:09:36
-Random Quote: Robert... he is in my dreams as well.  Laughing.  Drinking.  Boasting.  Those were the things he was best at.  Those, and fighting.  I never bested him at anything.  -  Stannis Baratheon
+Last updated: 2024-04-06 11:10:10
+Random Quote: Knights?  Dondarrion's a knight, but the rest of you are the sorriest lot of outlaws and broken men I've ever seen.  -  Sandor Clegane
