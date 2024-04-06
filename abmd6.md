@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 10:43:36
-Random Quote: Hush, Alerie, don't take that tone with me.  And don't call me mother.  If I'd given birth to you, I'm sure I'd remember.  I'm only to blame for your husband, the lord oaf of Highgarden.  -  Olenna Tyrell
+Last updated: 2024-04-06 10:44:10
+Random Quote: There's no shame in fear, my father told me, what matters is how we face it.  -  Jon Snow
