@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 08:47:21
-Random Quote: The Horned Lord once said that sorcery is a sword without a hilt.  There is no safe way to grasp it.  -  Dalla
+Last updated: 2024-04-06 08:47:54
+Random Quote: When I knew him, he was. - Kim Wexler
