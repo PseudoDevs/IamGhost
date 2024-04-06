@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 09:41:51
-Random Quote: I guess, if we're splitting hairs, then technically... there was a plurality to the times I've lied to women for sex-having-purposes. - Barney Stinson
+Last updated: 2024-04-06 09:42:24
+Random Quote: Robin, girls are like cartons of milk. Each one has a hotness expiration date and you've hit yours. I'm not saying the occasional guy won't still open the fridge, pick you up, give a sniff, shrug and take a sip anyway, but it's all downhill from here. - Barney Stinson
