@@ -1,11 +1,2 @@
-Last updated: 2024-04-06 06:55:09
-Random Quote: From here on in, every single night of our lives will be a night, we'll never forget. Starting tonight!
- - The night we started a Mariachi Band!
- - The night we ate everything on the menu!
- - The night we brought a horse into the bar!
- - The night we bungee-jumped off the Statue of Liberty!
- - The night we stole a mummy from the Natural History Museum!
- - The night we partied with the mole people
- - The night we tracked down Phil Collins, became best friends with him, and talked him into reuniting with Peter Gabriel, and then we got to sing back-up on the new Genesis album and it was awesome!
- - The night we stole a camel!
- - The night you got locked out in your pajamas and Robin landed a freakin' helicopter and there's still time to reunite Genesis! - Barney Stinson
+Last updated: 2024-04-06 06:56:24
+Random Quote: All you Westerosi make a shame of loving.  Ther is no shame in loving.  If your septons say there is, your seven gods must be demons.  In the isles we know better.  Our gods gave us legs to run with, noses to smell with, hands to touch and feel.  What mad cruel god would give a man eyes and tell him he must forever keep them shut, and never look at all the beauty in the world?  Only a monster god, a demon of the darkness.  -  Kojja Mo

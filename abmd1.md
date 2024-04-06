@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 06:55:46
-Random Quote: Rattleshirt, we called him.  Treacherous and bloodthirsty.  If there's honor in him, he hides it down beneath his suit of bones.  -  Jon Snow
+Last updated: 2024-04-06 06:56:24
+Random Quote: They'll bend the knee or I'll destroy them.  -  Stannis Baratheon
