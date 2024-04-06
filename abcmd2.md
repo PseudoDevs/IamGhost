@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 09:39:45
-Random Quote: Sometimes two people in the universe who aren't meant for each other find each other. - Cal Jacobs
+Last updated: 2024-04-06 09:40:18
+Random Quote: Dismissing Selmy, where was the sense in that?  Yes, the man was old, but the name of Barristan the Bold still has meaning in the realm.  He lent honor to any man he served.  -  Tywin Lannister
