@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 07:34:24
-Random Quote: I can't tell the difference between my waking life and dreams. - Arthur Harrow
+Last updated: 2024-04-06 07:34:58
+Random Quote: Why is it always the innocents who suffer most, when you high lords play your game of thrones?  -  Varys
