@@ -1,4 +1,2 @@
-Last updated: 2024-04-06 08:47:44
-Random Quote: Rick: "Wait a minute! Is that Mountain Dew in my quantum-transport-solution?"
-Morty: "I saw you were marking the level so I had to top it off."
-Rick: "Top it off? Do you know how dangerously toxic this stuff is? And you added it to my portal fluid?" - Rick Sanchez
+Last updated: 2024-04-06 08:48:59
+Random Quote: The "no more surprises"-thing is the best part of being married. - Lily Aldrin
