@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 09:18:18
-Random Quote: Adam: "Three viagras."Maeve: "Jesus Christ."Adam: "You said there was gonna be no judgement. Is three viagras bad? Her reaction made it seem like it was bad. I feel lightheaded and I can taste scampi."Maeve: "No wonder. You could besiege a castle with that thing."Adam: "I said stop staring at it!"Maeve: "Sorry, it's like a third leg." - Maeve Wiley
+Last updated: 2024-04-06 09:18:53
+Random Quote: I've known good criminals and bad cops. Bad priests, honorable thieves. You can be on one side of the law or the other. But if you make a deal with somebody, you keep your word. You can go home today with your money and never do this again. But you took something that wasn't yours. And you sold it for a profit. You're now a criminal. Good one, bad one? That's up to you. - Mike Ehrmantraut
