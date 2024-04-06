@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 07:33:41
-Random Quote: Right down here, the ocean has a depth of almost 4,000 meters. Man has mapped out every corner of this world. Been to the farthest deserts, the top of the highest mountains. But what's down there is still a mystery. A hidden world in the shadows. - Eyk Larsen
+Last updated: 2024-04-06 07:34:47
+Random Quote: Lord Wyman is not the only one who lost kin at your Red Wedding, Frey.  Do you imagine Whoresbane loves you any better?  If you did not hold the Greatjon, he would pull out your entrails and make you eat them, as Lady Hornwood ate her fingers.  Flints, Cerwyns, Tallharts, Slates... they all had men with the Young Wolf.  The North remembers, Frey.  -  Barbrey Dustin
