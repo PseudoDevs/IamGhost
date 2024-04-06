@@ -1,4 +1,2 @@
-Last updated: 2024-04-06 11:28:40
-Random Quote: Joel: "I need you to tell us where we are."
-Man: "If you got a map, why you lost?"
-Ellie: "Must've missed all the street signs in the enormous f-cking forest." - Ellie Williams
+Last updated: 2024-04-06 11:29:13
+Random Quote: There are worse ways to die than warm and drunk.  I knew a brother drowned himself in wine once.  It was a poor vintage, though, and his corpse did not improve it.  -  Dolorous Edd Tollett
