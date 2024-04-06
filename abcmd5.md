@@ -1,2 +1,3 @@
-Last updated: 2024-04-06 11:31:44
-Random Quote: Did Need Stark dress you like that?  Was it his pleasure to garb you in velvets and silks and make you his own sweet daughter?  -  Balon Greyjoy
+Last updated: 2024-04-06 11:32:17
+Random Quote: Darcy Lewis: "No one would notice if you blew up a Dakota. Honestly, I can't tell them apart."
+Carol Danvers: "South Dakota is on the bottom." - Captain Marvel
