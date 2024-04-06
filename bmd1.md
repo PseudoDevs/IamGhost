@@ -1,2 +1,3 @@
-Last updated: 2024-04-06 07:50:40
-Random Quote: You know, it's funny. Almost every woman I've ever met was wrong to give me a chance. You're the first woman who's wrong not to. - Barney Stinson
+Last updated: 2024-04-06 07:51:15
+Random Quote: Miguel: "Would you have really fed me to those hippos?"
+Pablo: "No. Hippos don't like Mexicans either." - Pablo Escobar

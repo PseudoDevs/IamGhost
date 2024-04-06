@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 07:50:40
-Random Quote: I like dogs better than knights... A hound will die for you, but never lie to you.  And he'll look you straight in the face.  -  Sandor Clegane
+Last updated: 2024-04-06 07:51:15
+Random Quote: There is entirely too much tut - tutting in this realm, if you ask me.  All these kings would do a deal better if they put down their swords and listended to their mothers. 
