@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 11:19:41
-Random Quote: Gloria: "It seemd like all what we did was fight and make love. One time, I'm not kidding you, we fell out of the window together."Jay: "Which one were you doing?" - Jay Pritchett
+Last updated: 2024-04-06 11:20:14
+Random Quote: Among all the games that kids played back then, it was the most physical and violent. - Seong Gi-hun
