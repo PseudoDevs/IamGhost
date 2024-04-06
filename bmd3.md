@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 09:29:22
-Random Quote: Robin: "What? I am not keeping Mike on a hook!"Ted: "You are Captain Hook!"Robin: "Dude, I'm a girl, ok? Our girl parts are like a spider webs; sometimes you are gonna catch stuff you don't want." - Robin Scherbatsky
+Last updated: 2024-04-06 09:29:55
+Random Quote: Marshall: "You're really telling me, that when you watch 'The Karate Kid', you don't root for Daniel-san?"Barney: "Nope."Ted: "Who do you root for in 'Die Hard'?"Barney: "Hans Gruber. Charming international bandit. At the end, he died hard. He's the title character."Lily: "Okay, 'The Breakfast Club'?"Barney: "The teacher running detention. He's the only guy in the whole movie wearing a suit."Robin: "I got one. 'Terminator'."Barney: "What's the name of the movie, Robin? Who among us didn't shed a tear when his little red eye went out at the end, and he didn't get to kill these people?" - Barney Stinson
