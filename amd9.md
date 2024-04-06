@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 08:03:30
-Random Quote: It is for my prince to command, for Hotah to obey.  -  Areo Hotah
+Last updated: 2024-04-06 08:04:04
+Random Quote: Get the f out of here and don't stop walking until you hear them speak English! - Guillermo Gonzalez Calderoni
