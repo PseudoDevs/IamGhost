@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 11:49:47
-Random Quote: You want to rule?  This is what ruling is; lying on a bed of weeds, ripping them out by the root, one by one, before they strangle you in your sleep.  -  Cersei Lannister
+Last updated: 2024-04-06 11:50:54
+Random Quote: Just 'cause you fall on your *ss doesn't mean you have to stay there. - Hughie Campbell
