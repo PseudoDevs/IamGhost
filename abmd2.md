@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 10:52:15
-Random Quote: I understand that if any more words come pouring out of your cunt mouth I'm going to have to eat every fucking chicken in this room.  -  Sandor Clegane
+Last updated: 2024-04-06 10:52:47
+Random Quote: Most people are nothing but pawns on a chessboard led by an unknown hand - Noah
