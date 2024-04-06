@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 09:49:37
-Random Quote: The "no more surprises"-thing is the best part of being married. - Lily Aldrin
+Last updated: 2024-04-06 09:50:14
+Random Quote: I like dogs better than knights... A hound will die for you, but never lie to you.  And he'll look you straight in the face.  -  Sandor Clegane
