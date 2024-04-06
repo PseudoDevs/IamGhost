@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 09:37:48
-Random Quote: Rattleshirt, we called him.  Treacherous and bloodthirsty.  If there's honor in him, he hides it down beneath his suit of bones.  -  Jon Snow
+Last updated: 2024-04-06 09:38:24
+Random Quote: That's the weird thing about the Internet. Ten people can feel like the whole world. - Rue Bennett
