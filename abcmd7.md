@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 10:45:00
-Random Quote: You need to figure out what the fuck you want. - Nicky Nichols
+Last updated: 2024-04-06 10:45:33
+Random Quote: Marshall: "Where is your playbook?"Robin: "My playbook? Bro, uh, two-volume set, right here.Ted: "It's a great read, actually."Lily: "Yeah, I'm reading it right now." - Robin Scherbatsky
