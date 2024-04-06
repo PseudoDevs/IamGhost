@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 11:22:06
-Random Quote: These old knights are more cunning than you think, or they would never have lived to see their first grey hair.  -  Dagmer Cleftjaw
+Last updated: 2024-04-06 11:22:39
+Random Quote: I think it passing odd that I am loved by one for a kindness I never did, and reviled by so many for my finest act.  -  Jaime Lannister
