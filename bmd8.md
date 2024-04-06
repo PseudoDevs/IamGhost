@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 11:34:15
-Random Quote: My father never bellowed like the Greatjon, but he was no less dangerous in his wroth.  -  Alys Karstark
+Last updated: 2024-04-06 11:34:48
+Random Quote: You see, ladies? When you're out with a Blinder, you don't have to queue. - Arthur Shelby
