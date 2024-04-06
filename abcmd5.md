@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 10:08:02
-Random Quote: Whenever I feel good I think it will last forever. But it's not like that. - Rue Bennett
+Last updated: 2024-04-06 10:09:11
+Random Quote: I asked him why he kept her close, if he thought her so grotesque.  He said that all his other knights wanted things of him, castles or honors or riches, but all that Brienne wanted was to die for him.  -  Loras Tyrell
