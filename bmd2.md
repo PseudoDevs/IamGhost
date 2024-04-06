@@ -1,2 +1,3 @@
-Last updated: 2024-04-06 11:50:54
-Random Quote: Just 'cause you fall on your *ss doesn't mean you have to stay there. - Hughie Campbell
+Last updated: 2024-04-06 11:51:27
+Random Quote: Summer: "Someone out there is trying to kill us."
+Rick: "Someone's always trying to kill us." - Rick Sanchez
