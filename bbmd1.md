@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 08:15:33
-Random Quote: Marshall: "Yes, i want a ball-room and I want a band and I want shoes. I've been dreaming about this day since I was... like...Lily: "...a little girl?" - Lily Aldrin
+Last updated: 2024-04-06 08:16:06
+Random Quote: Every journey has a beginning. But change one step along the way, and you could end up at a very different destination. - The Watcher
