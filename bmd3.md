@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 09:25:28
-Random Quote: Ties and no playoffs? Why do you even do this? - Jim Hopper
+Last updated: 2024-04-06 09:26:02
+Random Quote: When dead men come hunting us in the night, do you think it matters who sits the Iron Throne?  -  Jeor Mormont
