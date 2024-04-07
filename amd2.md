@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 16:37:17
-Random Quote: My only aim is to take many lives. The more the better I feel. - 
+Last updated: 2024-04-07 16:37:52
+Random Quote: So young.  Though mayhaps this was a blessing.  Had he lived, he would have grown up to be a Frey.  -  Wyman Manderly
