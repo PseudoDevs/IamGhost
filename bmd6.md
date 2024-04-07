@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 16:32:37
-Random Quote: Missy Cooper: I don't want to die, I've only kissed one boy so far. - Missy Cooper
+Last updated: 2024-04-07 16:33:11
+Random Quote: Marshall: "Baby, you're like 20 slutty chicks all rolled into one."Lily: "Sweet-talk is not gonna change my mind!" - Lily Aldrin
