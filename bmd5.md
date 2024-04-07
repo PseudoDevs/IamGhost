@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 07:01:42
-Random Quote: Dear Billy, I don't know if you can even hear this. Ever since you left, everything's been a total disaster. For a while, we tried to be happy... normal. I know that's impossible. - Max Mayfield
+Last updated: 2024-04-07 07:02:19
+Random Quote: I have my voice, and the god is with me.  Mine is the strength of the sea, a strength the Crow's Eye cannot hope to withstand.  The waves may break upon the mountain, yet still they come, wave upon wave, and in the end only pebbles remain where once the mountain stood.  And soon even the pebbles are swept away, to be ground beneath the sea for all eternity.  -  Aeron Greyjoy
