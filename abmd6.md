@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 20:00:38
-Random Quote: Catelyn would sooner Lord Umber had seen fit to stay sober, but telling the Greatjon not to drink was like telling him not to breathe for a few hours.  -  Catelyn Stark
+Last updated: 2024-04-07 20:01:11
+Random Quote: The men of always aren't interested in the children of never. - Pablo Escobar
