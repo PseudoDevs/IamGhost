@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 19:11:47
-Random Quote: A dog who bites every owner he's had can only be disciplined with a firm hand. Or put down. - Gustavo Fring
+Last updated: 2024-04-07 19:12:59
+Random Quote: I will not be remembered as Set Arys the Unworthy.  I will not soil my cloak.  -  Arys Oakheart

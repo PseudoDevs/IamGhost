@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 19:12:23
-Random Quote: Nothing is wrong with him, now turn back around before I break your neck. - Mary
+Last updated: 2024-04-07 19:12:59
+Random Quote: There are worse ways to die than warm and drunk.  I knew a brother drowned himself in wine once.  It was a poor vintage, though, and his corpse did not improve it.  -  Dolorous Edd Tollett
