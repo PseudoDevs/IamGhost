@@ -1,3 +1,2 @@
-Last updated: 2024-04-07 20:18:13
-Random Quote: Freddie: "If you want me out of Birmingham, it'll have to be in a wooden box."
-Polly: "You lay a hand on our Ada, I'll put you in a wooden box myself!" - Polly Gray
+Last updated: 2024-04-07 20:18:47
+Random Quote: Sometimes, even when you know something's a mistake, you gotta make it anyway. - Ted Mosby
