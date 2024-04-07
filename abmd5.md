@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 19:34:18
-Random Quote: Aye, and from what I saw of Joffrey, you are as unfit a mother as you are a ruler.  -  Kevan Lannister
+Last updated: 2024-04-07 19:34:51
+Random Quote: When you start moving furniture around, people stub their toes and get upset. - Don Neto
