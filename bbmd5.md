@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 18:57:55
-Random Quote: Some of you cared. None of you cared enough. - Hannah Baker
+Last updated: 2024-04-07 18:58:31
+Random Quote: A Dothraki wedding without at least three deaths is considered a dull affair.  -  Illyrio Mopatis
