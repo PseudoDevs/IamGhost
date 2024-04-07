@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 04:49:53
-Random Quote: You do seem to have a little “shit creek” action going… You know, FYI, you can buy a paddle. - Saul Goodman
+Last updated: 2024-04-07 04:50:27
+Random Quote: Did the boy charm you?  He has that gift.  He got it from his father, with the blood.  He knows he is a king's son, but chooses to forget that he is bastard - born. 
