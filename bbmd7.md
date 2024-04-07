@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 16:34:52
-Random Quote: Marshall: "I was once with this chick, who liked to do hand stuff underneath a jacket, while we were all sitting around our favorite booth at MacLaren's."Ted: "Gross."Robin: "We share appetizers!" - Robin Scherbatsky
+Last updated: 2024-04-07 16:35:26
+Random Quote: The reason why she doesn't remember is because she's a grown up. That's how this stuff always works. Only kids can get into Narnia. - Bode Locke
