@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 17:16:50
-Random Quote: I never asked for this, no more than I asked to be king.  Yet dare I disregard her?  We do not choose our destinies.  Yet we must... we must do our duty, no?  Great or small, we must do our duty.  -  Stannis Baratheon
+Last updated: 2024-04-07 17:18:03
+Random Quote: You're not gonna believe this because it usually never happens, but I made a mistake! - Rick Sanchez
