@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 05:26:34
-Random Quote: Gods help you, Theon Greyjoy.  Now you are truly lost.  -  Rodrik Cassel
+Last updated: 2024-04-07 05:27:07
+Random Quote: Dragons old and young, true and false, bright and dark.  And you.  A small man with a big shadow, snarling in the midst of it all.  -  Moqorro
