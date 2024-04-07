@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 04:23:46
-Random Quote: Barney: "Our wedding is gonna be legendary."Robin: "No wait for it?"Barney: "I've got you, I don't have to wait for it anymore." - Barney Stinson
+Last updated: 2024-04-07 04:24:23
+Random Quote: Some battles are won with swords and spears, others with quills and ravens.  -  Tywin Lannister
