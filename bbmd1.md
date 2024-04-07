@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 06:17:50
-Random Quote: We’re not free in what we do because we’re not free in what we want. We can’t overcome what’s deep within us - The Stranger
+Last updated: 2024-04-07 06:18:23
+Random Quote: Do you remember that cave?  We should have stayed in that cave.  I told you so.  -  Ygritte
