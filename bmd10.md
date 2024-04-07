@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 04:10:27
-Random Quote: Ted: "Why wouldn't she just come right out and say what she wants?"Marshall: "Men. It's like, if there weren't pickle jars to open and spiders to kill and computers to back up, what would be their point?"Lily: "Mmh-hmm!"Ted: "Okay, when did Marshall become a slightly more feminine you?" - Ted Mosby
+Last updated: 2024-04-07 04:11:01
+Random Quote: Someone has to protect this family from the man who protects this family. - Skyler White
