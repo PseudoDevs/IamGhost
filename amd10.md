@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 18:49:33
-Random Quote: Journey to face the unknown and ponder the question, "What if...?" - The Watcher
+Last updated: 2024-04-07 18:50:07
+Random Quote: Nobody takes an intro class to get on any other path, but the path to not being hungover anymore. I learned that in my intro to something-ology class. - Marshall Eriksen
