@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 17:06:08
-Random Quote: You're the smartest guy I ever met, and you're too stupid to see he made up his mind 10 minutes ago. - Hank Schrader
+Last updated: 2024-04-07 17:06:46
+Random Quote: Why is it always the innocents who suffer most, when you high lords play your game of thrones?  -  Varys
