@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 18:55:11
-Random Quote: You poor stupid blind crippled fool.  Must I spell out every little thing for you?  Very well.  Cersei is a lying whore, she's been fucking Lancel and Osmund  Kettleblack and probably Moon Boy for all I know.  And I am the monster they all say I am.  Yes, I killed your vile son.  -  Tyrion Lannister
+Last updated: 2024-04-07 18:55:44
+Random Quote: The World is going to come to an end tonight. Yes think about it. End of the World, Nostradamus, Notre Dame, Fighting Irish, Irish, St. Patrick's Day. This is it Bro. Bro-calypse Now... Bro-Mageddon. - Barney Stinson
