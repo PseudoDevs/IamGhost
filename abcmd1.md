@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 04:36:45
-Random Quote: You grew up with actors.  You learned their craft and you learned it well.  I grew up with soldiers.  I learned how to die a long time ago.  -  Eddard Stark
+Last updated: 2024-04-07 04:37:24
+Random Quote: Help was not promised, lovely girl.  Only death.  -  Jaqen H'ghar
