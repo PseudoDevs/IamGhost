@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 07:07:17
-Random Quote: I dreamed of the man who came today, the one they call Reek.  You and your brother lay dead at his feet, and he was skinning off your faces with a long red blade.  -  Jojen Reed
+Last updated: 2024-04-07 07:07:53
+Random Quote: It doesn't matter how much you push the envelope, it'll still be stationery. - Will Livingston
