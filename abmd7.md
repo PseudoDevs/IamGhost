@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 20:11:19
-Random Quote: Among all the games that kids played back then, it was the most physical and violent. - Seong Gi-hun
+Last updated: 2024-04-07 20:11:51
+Random Quote: Khaleesi, better a man should swallow scorpions than trust in the spawn of shadows, who dare not show their face beneath the sun.  It is known.  -  Rakharo
