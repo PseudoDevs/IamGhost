@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 20:09:32
-Random Quote: It doesn't matter how tough you are, you're not going to win in this place. Not on your own. - Jang Deok-su
+Last updated: 2024-04-07 20:10:06
+Random Quote: Ted: "Every three years we sit down and Tril' it up big time, agreed?"Marshall: "Agreed-o!" - Marshall Eriksen
