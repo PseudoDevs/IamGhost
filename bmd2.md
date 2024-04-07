@@ -1,2 +1,3 @@
-Last updated: 2024-04-07 05:37:25
-Random Quote: You don't get to blame your problems on anyone but yourself. - Allison Hargreeves
+Last updated: 2024-04-07 05:37:59
+Random Quote: Billy: "Halloween's a magical holiday. All about family, friends, and the thrill of getting to be someone else for a day."
+Tommy: "Wrong! Halloween's about candy. And scaring people, but mostly candy." - Tommy Maximoff

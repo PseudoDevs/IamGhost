@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 05:37:25
-Random Quote: You know how sometimes you'll meet a girl and there'll be that one bewitching little detail that'll make you fall in love with her instantly? You know, a little freckle on the nose, the lilt of her laugh, the way she pronounces a certain word or phrase... - Ted Mosby
+Last updated: 2024-04-07 05:37:59
+Random Quote: Freeways have exits, so do relationships. The first exit, my personal favourite, is six hours in: You meet, you talk, you have sex, you exit when she's in the shower. - Barney Stinson
