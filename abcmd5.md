@@ -1,2 +1,3 @@
-Last updated: 2024-04-07 06:08:25
-Random Quote: Love's not always wise, I've learned.  It can lead us to great folly, but we follow our hearts... wherever they take us.  -  Robb Stark
+Last updated: 2024-04-07 06:08:58
+Random Quote: Lily: "Swear on the lifes of your unborn boy and girl!"
+Ted: "I swear... on Luke and Leia!" - Ted Mosby
