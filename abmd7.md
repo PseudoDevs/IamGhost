@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 19:38:49
-Random Quote: You do seem to have a little “shit creek” action going… You know, FYI, you can buy a paddle. - Saul Goodman
+Last updated: 2024-04-07 19:39:22
+Random Quote: They get in your head. People tell lies about you, and other people believe them. And it gets to the point where the lies might as well be the truth. - Tyler Down
