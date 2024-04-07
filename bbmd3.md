@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 18:28:18
-Random Quote: If you die before you say her name, Set, I will hunt you through the seven hells.  -  Oberyn Martell
+Last updated: 2024-04-07 18:28:55
+Random Quote: I hate kids. They don't drink, they haven't travelled... - Nicky Nichols
