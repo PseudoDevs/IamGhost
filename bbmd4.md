@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 17:47:10
-Random Quote: You grew up with actors.  You learned their craft and you learned it well.  I grew up with soldiers.  I learned how to die a long time ago.  -  Eddard Stark
+Last updated: 2024-04-07 17:47:46
+Random Quote: Why stop at one world, when we can show you all of them? - Yondu Udonta
