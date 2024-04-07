@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 07:21:56
-Random Quote: Real love is when you can't exist without someone, when you'd rather die than be apart. And the whole world goes dark and nothing else matters but the person standing in front of you. - Rue Bennett
+Last updated: 2024-04-07 07:22:30
+Random Quote: Sometimes I think everyone is just pretending to be brave, and none of us really are.  Maybe pretending is how you get brave, I don't know.  -  Grenn
