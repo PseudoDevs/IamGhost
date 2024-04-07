@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 20:28:14
-Random Quote: The only person who gets to torture my brother is me. - Wednesday Addams
+Last updated: 2024-04-07 20:28:47
+Random Quote: Old gods or new, it makes no matter, no man is so accursed as the kinslayer.  -  Rickard Karstark
