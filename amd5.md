@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 05:50:12
-Random Quote: If you love something, you can never let it go. Not even for a second. Or it's gone forever. - Ted Mosby
+Last updated: 2024-04-07 05:50:47
+Random Quote: Edric Storm, they call him.  He is said to be the very image of my brother.  If men were to see him, and then look again at Joffrey and Tommen, they could not help but wonder, I would think.  -  Stannis Baratheon
