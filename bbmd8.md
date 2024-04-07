@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 06:14:36
-Random Quote: Roose Bolton's cold and cunning, aye, but a man can deal with Roose.  We've all known worse.  But this bastard son of his... they say he's mad and cruel, a monster.  -  Locke
+Last updated: 2024-04-07 06:15:13
+Random Quote: We didn't choose this life, we're just living in it. - Number Five
