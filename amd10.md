@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 16:19:56
-Random Quote: Life is a long journey where maps were drawn by a fool. - Juan Nepomuceno Guerra
+Last updated: 2024-04-07 16:20:30
+Random Quote: Because you're so broken you don't even trust yourself. And that's scary. - Nate Jacobs
