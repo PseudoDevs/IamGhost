@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 18:44:34
-Random Quote: Marshall: "I was once with this chick, who liked to do hand stuff underneath a jacket, while we were all sitting around our favorite booth at MacLaren's."Ted: "Gross."Robin: "We share appetizers!" - Robin Scherbatsky
+Last updated: 2024-04-07 18:45:07
+Random Quote: Euron's gifts are poisoned.  -  Victarion Greyjoy
