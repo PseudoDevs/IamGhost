@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 18:25:13
-Random Quote: Rick: "If it's all the same, could we still get our stories straight? Because you're a terrible liar."Jerry: "You called me a master convincer!"Rick: "You believed me?" - Rick Sanchez
+Last updated: 2024-04-07 18:25:50
+Random Quote: Even if I meet the girl of my dreams right the second, I'm still one night and nine months away, from having a family on my own. And that's assuming the mother of my childern is just a huge slut. - Ted Mosby
