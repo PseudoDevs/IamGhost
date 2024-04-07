@@ -1,2 +1,4 @@
-Last updated: 2024-04-07 06:44:12
-Random Quote: I’m just a tiny section of a huge tumor that is much bigger than any of us can imagine. - 
+Last updated: 2024-04-07 06:45:23
+Random Quote: Bo-Katan: "I've scugged off a lot of Imperial warlords."
+Din: "They tend to get mad when you hijack their ships."
+Bo-Katan: "Now you tell me." - Bo-Katan
