@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 18:38:51
-Random Quote: Oh, Cersei is lovely to look at, truly, but cold... the way she guards her cunt, you'd think she had all the gold of Casterly Rock between her legs.  -  Robert Baratheon
+Last updated: 2024-04-07 18:39:24
+Random Quote: You know what they say about relationships. Every waking moment's a battle. - Barney Stinson
