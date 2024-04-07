@@ -1,6 +1,2 @@
-Last updated: 2024-04-07 04:32:11
-Random Quote: Sam: "They might be a part of the big three."
-Bucky: "What big three?"
-Sam: "Androids, aliens and wizards."
-Bucky: "That's not a thing."
-Sam: "That's definitely a thing." - Sam Wilson
+Last updated: 2024-04-07 04:32:49
+Random Quote: We all make our choices and those choices they put us on a road. And sometimes those choices seem small but they put you on the road. You think about getting off but eventually, you're back on it. - Mike Ehrmantraut
