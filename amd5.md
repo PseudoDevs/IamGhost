@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 16:45:16
-Random Quote: Ted: "You're not gonna do it at your wedding?"Lily: "Hell, yeah! I'm gonna take that flower-grenade and chuck it to the crowd and scream, 'Crawl for it, bitches!'" - Lily Aldrin
+Last updated: 2024-04-07 16:45:49
+Random Quote: Kevin: "Well, it's a close one. Lily made 14 awkward references to marriage and Marshall made an even 60."Robin: "I'm so sorry, Kevin."Kevin: "It's okay. I'm gonna go to bed, but you guys think tomorrow we can stop with all the marriage talk?"Lily: "I do."Marshall: "I do."Kevin: "That's a half a point each." - Kevin
