@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 17:06:49
-Random Quote: I think my soul just threw up a little bit. - Lily Aldrin
+Last updated: 2024-04-07 17:07:26
+Random Quote: It's not even the lies that hurt, you know? It's the fact that you're never really emotionally prepared for someone to leave you. - Rue Bennett
