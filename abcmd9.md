@@ -1,3 +1,2 @@
-Last updated: 2024-04-07 18:45:55
-Random Quote: Morty: "Rick, can we not leave without my sister?"
-Rick: "Ugh. You have infinite sisters, Morty. Not that I want to spend the rest of my day looking for another one. Sum-Sum, let's go! Grandpa's concern for your safety is fleeting." - Rick Sanchez
+Last updated: 2024-04-07 18:46:29
+Random Quote: At first, these keys were fun, but now we know they're more than that. They're important. They're part of our family and we need to protect them. - Bode Locke
