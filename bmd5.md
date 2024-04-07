@@ -1,3 +1,2 @@
-Last updated: 2024-04-07 07:04:11
-Random Quote: Joel: "A deep breath in, slow breath out. You squeeze the trigger like you love it. Gentle, steady, nice and slow."
-Ellie: "You gonna shoot this thing or get it pregnant?" - Ellie Williams
+Last updated: 2024-04-07 07:07:54
+Random Quote: Best way to catch the smart ones? Get an idiot working for them. - Jaime Kuykendall
