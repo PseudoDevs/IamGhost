@@ -1,2 +1,3 @@
-Last updated: 2024-04-07 18:15:01
-Random Quote: Time is different for a tree than for a man.  Sun and soil and water, these are the things a weirwood understands, not days and years and centuries.  For men, time is a river.  We are trapped in its flow, hurtling from past to present, always in the same direction.  The lives of trees are different.  They root and grow and die in one place, and that river does not move them.  The oak is the acorn, the acorn is the oak.  And the weirwood... a thousand human years are a moment to a weirwood, and through such gates you and I may gaze into the past.  -  Bloodraven
+Last updated: 2024-04-07 18:15:34
+Random Quote: This woman has a hold on my heart that I could not break if I wanted to, and there have been times that I wanted to.
+It has been overwhelming and humbling and even painful at times, but I could not stop loving her any more than I could stop breathing. - Barney Stinson
