@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 16:26:58
-Random Quote: I knew quite a few Jedi, you know. I don't know what they taught you about us, but there was a time we actually got along quite well. Fought side by side. - Bo-Katan
+Last updated: 2024-04-07 16:28:07
+Random Quote: There is a time to fight and there is a time to be clever. - Pablo Escobar
