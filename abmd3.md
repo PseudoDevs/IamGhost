@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 04:36:06
-Random Quote: When I have kids, and I tell them how I met their mother, I'm gonna tell them everything. The whole damn story. - Ted Mosby
+Last updated: 2024-04-07 04:36:44
+Random Quote: His blood ran black.  Made him my brother as much as yours.  -  Yoren of the Night's Watch
