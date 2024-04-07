@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 04:32:09
-Random Quote: Gods help you, Theon Greyjoy.  Now you are truly lost.  -  Rodrik Cassel
+Last updated: 2024-04-07 04:32:45
+Random Quote: It's probably his... I've spent years, training my boys to swim the other way. - Barney Stinson
