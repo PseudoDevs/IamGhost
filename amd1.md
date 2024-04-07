@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 17:08:08
-Random Quote: Barney: "Canada sucks."Robin: "Okay, well, you're one-quarter Canadian, so by that logic you one-quarter suck!"Barney: "I'm 100% awesome and you know it!"Robin: "Yeah, I do." - Robin Scherbatsky
+Last updated: 2024-04-07 17:11:51
+Random Quote: You two suck at peddling meth. - Saul Goodman
