@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 20:33:27
-Random Quote: Ted: "Our point guard's a 52-year-old virgin, happy as a clam."Barney: "I'm sure he's quite a ball handler." - Barney Stinson
+Last updated: 2024-04-07 20:34:00
+Random Quote: I will kill your wife, I will kill your son, I will kill your infant daughter. - Gustavo Fring
