@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 18:00:12
-Random Quote: Whoever the hell that is. But the Crystal Ship definitely travels. - Jesse Pinkman
+Last updated: 2024-04-07 18:00:48
+Random Quote: Barney: "On your tombstone, it will be, 'Lily Aldrin. Caring wife. Loving friend. Slapbet-Commissioner.'"Marshall: "And your tombstone will read, 'Got slapped by Marhsall so hard he died.'" - Marshall Eriksen

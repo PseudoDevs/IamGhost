@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 18:00:12
-Random Quote: The end of a rope has been this man's destiny since the night he was born. - Chester Campbell
+Last updated: 2024-04-07 18:00:48
+Random Quote: Gustavo. When I looked into your eyes... hate. A little bit's okay. As long as you never forget who's boss. - Don Eladio
