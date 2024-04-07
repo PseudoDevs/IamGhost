@@ -1,2 +1,3 @@
-Last updated: 2024-04-07 17:58:11
-Random Quote: The distinction between past, present, and future is only a stubbornly persistent illusion. - 
+Last updated: 2024-04-07 17:58:44
+Random Quote: Jessica: "I miss you."
+Morty: "You miss the old me. You miss someone that loved you so much, you never had to love him back." - Morty Smith
