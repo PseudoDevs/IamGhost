@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 17:03:57
-Random Quote: Get ready, Cleveland. The last man to screw you that hard and then disappear, was LeBron James! - Barney Stinson
+Last updated: 2024-04-07 17:04:31
+Random Quote: The title was but a courtesy due him as a council member; Varys was lord of nothing but the spiderweb, the master of none but his whispers.  -  Catelyn Stark
