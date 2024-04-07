@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 19:24:13
-Random Quote: Jesus! Just grow some fucking balls! - Walter White
+Last updated: 2024-04-07 19:24:48
+Random Quote: In short, the god mankind has prayed to for thousands of years the god that everything is bound with, this god exists as nothing other than time itself. - 
