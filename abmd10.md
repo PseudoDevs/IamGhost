@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 16:20:33
-Random Quote: All I know is, life is not a Nicholas Sparks novel. - Rue Bennett
+Last updated: 2024-04-07 16:21:07
+Random Quote: The stone is strong... the roots of the trees grow deep, and under the ground the Kings of Winter sit their thrones.  So long as those remained, Winterfell remained.  It was not dead, just broken.  Like me... I'm not dead either.  -  Bran Stark
