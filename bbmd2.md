@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 19:47:23
-Random Quote: Because you're so broken you don't even trust yourself. And that's scary. - Nate Jacobs
+Last updated: 2024-04-07 19:47:56
+Random Quote: Celtigar pronounced it admirable.  If I were to show him the contents of my privy he would pronounce that admirable as well.  -  Stannis Baratheon

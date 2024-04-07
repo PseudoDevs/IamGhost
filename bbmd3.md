@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 19:47:23
-Random Quote: Your pain defines who you are but it no longer holds power on you - Noah
+Last updated: 2024-04-07 19:47:56
+Random Quote: All the tales agreed that the green men had strange magic powers.  Maybe they could help him walk again, even turn him into a knight.  They turned the little crannogman into a knight, even if it was only for a day, he thought.  A day would be enough.  -  Bran Stark
