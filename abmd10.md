@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 18:57:51
-Random Quote: A true man does what he will, not what he must.  -  Cersei Lannister
+Last updated: 2024-04-07 18:58:25
+Random Quote: You're a freak, but what? Do you wanna be normal? Do you wanna be just like everyone else? - Jonathan Byers
