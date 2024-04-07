@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 17:00:34
-Random Quote: The greatest fools are ofttimes more clever than the men who laugh at them.  -  Tywin Lannister
+Last updated: 2024-04-07 17:01:07
+Random Quote: Rattleshirt, we called him.  Treacherous and bloodthirsty.  If there's honor in him, he hides it down beneath his suit of bones.  -  Jon Snow
