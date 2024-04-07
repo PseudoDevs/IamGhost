@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 04:21:51
-Random Quote: Ted: "You're not gonna do it at your wedding?"Lily: "Hell, yeah! I'm gonna take that flower-grenade and chuck it to the crowd and scream, 'Crawl for it, bitches!'" - Lily Aldrin
+Last updated: 2024-04-07 04:22:27
+Random Quote: Ted: "What could she possibly have to say me, that she couldn't write in an email?"Robin: "I've cut out all my fingers?" - Robin Scherbatsky
