@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 18:54:23
-Random Quote: I will not be remembered as Set Arys the Unworthy.  I will not soil my cloak.  -  Arys Oakheart
+Last updated: 2024-04-07 18:54:57
+Random Quote: Even brave men blind themselves sometimes, when they are afraid to see.  -  Beric Dondarrian
