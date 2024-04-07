@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 05:46:32
-Random Quote: Sheldon, faith means believing in something you can't know for sure is realAnd right now, I am struggling with that. - Mary
+Last updated: 2024-04-07 05:47:08
+Random Quote: Sometimes it lasts all night. And I lie here and I listen to the shovels, and the picks against that wall there. And I pray the sun will come up at the curtains before they break through. No, I don't pray. I hope. And sometimes it happens. The sun beats them. But mostly the shovels beat the sun. - Thomas Shelby
