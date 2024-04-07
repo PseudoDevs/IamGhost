@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 04:50:07
-Random Quote: Bad guys don't play by the rules. That's what makes them bad. - Steve Murphy
+Last updated: 2024-04-07 04:51:24
+Random Quote: You can never tell with men. They go for whoever their dcks point at and there's no changing their minds. - Polly Gray
