@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 16:37:51
-Random Quote: Young I was, and vain, but the sea washed my follies and my vanities away.  That man drowned, nephew.  His lungs filled with seawater, and the fish ate the scales off his eyes.  When I rose again, I saw clearly.  -  Aeron Greyjoy
+Last updated: 2024-04-07 16:38:25
+Random Quote: I think mothers and fathers made up the gods because they wanted their children to sleep through the night.  -  Davos Seaworth
