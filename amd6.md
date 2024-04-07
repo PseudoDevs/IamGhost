@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 18:31:55
-Random Quote: Do you know what it is like to be sold, squire?  I do.  My brother sold me to Khal Drogo for the promise of a golden crown.  Well, Drogo crowned him in gold, though not as he had wished, and I... my sun - and
+Last updated: 2024-04-07 18:32:32
+Random Quote: I stayed up all night wondering where the sun went. Then it dawned on me. - Will Livingston
