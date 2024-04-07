@@ -1,3 +1,2 @@
-Last updated: 2024-04-07 20:30:03
-Random Quote: Neither one of us are gonna say, "Hey, how's it going?" or "Good to see you!"
-Because it really will be good to see you. - Barney Stinson
+Last updated: 2024-04-07 20:31:44
+Random Quote: You will never walk again... but you will fly.  -  Bloodraven
