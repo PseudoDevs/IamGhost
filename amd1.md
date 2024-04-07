@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 07:21:16
-Random Quote: I am not in danger, Skyler. I AM the danger! - Walter White
+Last updated: 2024-04-07 07:21:49
+Random Quote: There is entirely too much tut - tutting in this realm, if you ask me.  All these kings would do a deal better if they put down their swords and listended to their mothers. 
