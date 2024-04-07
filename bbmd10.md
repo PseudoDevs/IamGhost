@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 06:55:14
-Random Quote: Piper: "Not every Hispanic person wants the same thing."Lorna: "Oh, sure they do. They all want to come to America."Nicky: "Jesus, your entire world view is based on 'West Side Story', isn't it?" - Nicky Nichols
+Last updated: 2024-04-07 06:55:47
+Random Quote: I got more second-story guys in my book than pimples at a junior prom. - Saul Goodman
