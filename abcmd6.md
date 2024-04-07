@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 16:56:33
-Random Quote: When you play the game of thrones, you win or you die.  There is no middle ground.  -  Cersei Lannister
+Last updated: 2024-04-07 16:57:07
+Random Quote: Our brain isn't always entirely reliable. Everything that we see and feel and hear are the result of electrical impulses. And sometimes we misinterpret those impulses. It's what makes people go mad. - Maura Franklin
