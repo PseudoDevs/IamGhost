@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 19:52:55
-Random Quote: Edric Storm, they call him.  He is said to be the very image of my brother.  If men were to see him, and then look again at Joffrey and Tommen, they could not help but wonder, I would think.  -  Stannis Baratheon
+Last updated: 2024-04-07 19:53:29
+Random Quote: Our country is vulnerable. We need new heroes. - Bucky Barnes
