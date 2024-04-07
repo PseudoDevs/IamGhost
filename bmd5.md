@@ -1,3 +1,2 @@
-Last updated: 2024-04-07 06:48:29
-Random Quote: What did the frustrated cannibal do?
-He threw up his hands. - Will Livingston
+Last updated: 2024-04-07 06:49:05
+Random Quote: I dreamed of the man who came today, the one they call Reek.  You and your brother lay dead at his feet, and he was skinning off your faces with a long red blade.  -  Jojen Reed
