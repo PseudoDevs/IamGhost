@@ -1,2 +1,3 @@
-Last updated: 2024-04-07 20:05:12
-Random Quote: Back boobs! The visual stimulation of missionary meets the emotional detachment of doggy style... patent pending. - Barney Stinson
+Last updated: 2024-04-07 20:05:45
+Random Quote: Grace Burgess: "You think I am a wh-re?"
+Tommy Shelby: "Everyone's a wh-re, Grace. We just sell different parts of ourselves." - Thomas Shelby
