@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 16:30:56
-Random Quote: She don't speak.  You bloody bastards cut her throat too deep for that.  But she remembers.  -  Lem Lemoncloack
+Last updated: 2024-04-07 16:32:03
+Random Quote: Pardon my French, f-ck those f-ckers! - Billy Butcher
