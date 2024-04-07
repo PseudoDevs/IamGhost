@@ -1,4 +1,2 @@
-Last updated: 2024-04-07 20:31:47
-Random Quote: Ted: "Okay, time to get the horn back to the bistro."
-Robin: "Oh Ted, I don't know if I can go again, that tuckered me out."
-Ted: "No euphemism." - Robin Scherbatsky
+Last updated: 2024-04-07 20:32:21
+Random Quote: They may separate us, but they'll never be able to destroy us. - Pablo Escobar
