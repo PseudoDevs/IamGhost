@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 19:52:02
-Random Quote: Ramsay.  Snow, my wife called me before she ate her fingers, but I say Bolton.  -  Ramsay Bolton
+Last updated: 2024-04-07 19:52:35
+Random Quote: And at some point you make a choice about who you are and what you want. - Rue Bennett
