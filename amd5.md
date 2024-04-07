@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 04:22:25
-Random Quote: Barney: "Let me choose your child's middle name! Because I have thought up the most awesome name of all time."Marshall: "What's the middle name?"Barney: "Wait for it."Marshall: "I'm waiting."Barney: "Wait for it."Marshall: "I said I'm waiting."Barney: "Wait for it."Marshall: "What's the middle name?"Barney: "No, the middle name is 'Wait For It'. Let's say his first name is, oh, I don't know, 'Barney'. He'd be Barney 'Wait For It' Eriksen. How awesome is that?" - Barney Stinson
+Last updated: 2024-04-07 04:22:59
+Random Quote: I have people waiting for me. They don't know what I do, they never will. They're protected. But I do what I do so they can have a better life. And if I live or if I die, it really doesn't make a difference to me as long as they have what they need. So when it's my time to go, I will go knowing I did everything I could for them. Now, you ask me how I keep going? That's how. - Mike Ehrmantraut
