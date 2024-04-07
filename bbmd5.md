@@ -1,4 +1,2 @@
-Last updated: 2024-04-07 16:37:43
-Random Quote: Morticia: "Please excuse Wednesday. She's allergic to color."
-Enid: "Wow, what happens to you?"
-Wednesday: "I break out into hives, and then the flesh peels off my bones." - Wednesday Addams
+Last updated: 2024-04-07 16:38:17
+Random Quote: You are not the guy. You're not capable of being the guy. I had a guy but now I don't. You are not the guy. - Mike Ehrmantraut
