@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 18:39:09
-Random Quote: In the United States, the Mafia makes witnesses disappear so they can't testify in court. In Colombia, Pablo Escobar made the whole court disappear. - Steve Murphy
+Last updated: 2024-04-07 18:39:43
+Random Quote: The Bro Code has been around for centuries. Nay... whatever's more than centuries. - Barney Stinson
