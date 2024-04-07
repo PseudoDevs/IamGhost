@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 20:29:29
-Random Quote: I never asked for this crown.  Gold is cold and heavy on the head, but so long as I am the king, I have a duty... if I must sacrifice one child to the flames to save a million from the dark... sacrifice... is never easy, Davos.  Or it is no true sacrifice.  -  Stannis Baratheon
+Last updated: 2024-04-07 20:30:03
+Random Quote: Ted: "Basketball, people don't realize, is all geometry, physics and engineering. If you think like an architect, you could win a thousand games without ever touching a ball."Barney: "What happened to your ball?"Ted: "Some kids from the Hebrew school next door took it and wouldn't give it back." - Ted Mosby
