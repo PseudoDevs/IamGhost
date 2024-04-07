@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 17:21:08
-Random Quote: Rickard Karstark killed more than a Frey and a Lannister.  He killed my honor.  -  Robb Stark
+Last updated: 2024-04-07 17:22:15
+Random Quote: The Peaky Blinders. The vicious, merciless gangs who blind those who see and cut out the tongues of those who talk. - Chester Campbell

@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 17:20:35
-Random Quote: Life hurts. The moment you think you've got it all, it smacks you in the face. - Lucien
+Last updated: 2024-04-07 17:22:15
+Random Quote: There must always be a Stark in Winterfell.  -  Catelyn Stark
