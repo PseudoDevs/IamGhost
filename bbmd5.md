@@ -1,3 +1,2 @@
-Last updated: 2024-04-07 18:51:14
-Random Quote: Darcy Lewis: "No one would notice if you blew up a Dakota. Honestly, I can't tell them apart."
-Carol Danvers: "South Dakota is on the bottom." - Captain Marvel
+Last updated: 2024-04-07 18:51:47
+Random Quote: Men call me Darkstar, and I am of the night.  -  Gerold Dayne
