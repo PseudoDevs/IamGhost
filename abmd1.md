@@ -1,2 +1,5 @@
-Last updated: 2024-04-07 04:39:47
-Random Quote: When you tear out a man's tongue, you are not proving him a liar, you're only telling the world that you fear what he might say.  -  Tyrion Lannister
+Last updated: 2024-04-07 04:40:20
+Random Quote: Abby: "Do we have to go back this way?"
+Owen: "Consider it an opportunity to work on your fears."
+Abby: "How about I work my foot up your ass?"
+Owen: "Abby, stop flirting!" - Joel Miller
