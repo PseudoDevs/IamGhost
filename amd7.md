@@ -1,2 +1,6 @@
-Last updated: 2024-04-07 04:13:03
-Random Quote: Since when did "hopeful" and "naive" become the same thing? I mean, why would you get into this business if not to save the world? That’s all I have ever wanted. - Starlight
+Last updated: 2024-04-07 04:13:42
+Random Quote: When Mom was a groupie in the '70s, her scrambled eggs made her the darling of the MSG loading dock. Lot of songs written about those scrambled eggs:
+ZZ Top's "She's Got Legs"? Originally "She's Got Eggs".
+Led Zeppelin? "Scramble On".
+Steve Miller? "The Yolker".
+If you listen to Pink Floyd's "Dark Side of the Moon" while eating her eggs, it lines up perfectly. - Barney Stinson
