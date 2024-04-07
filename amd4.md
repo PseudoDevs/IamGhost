@@ -1,2 +1,3 @@
-Last updated: 2024-04-07 19:51:18
-Random Quote: Is she worth the pain? A man does not suffer like this for his own glory. There is a fine line between devotion and delusion. Love can break more than your heart. It can shatter your mind. - O-Bengh
+Last updated: 2024-04-07 19:52:22
+Random Quote: Jessica: "I miss you."
+Morty: "You miss the old me. You miss someone that loved you so much, you never had to love him back." - Morty Smith
