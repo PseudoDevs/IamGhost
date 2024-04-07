@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 18:12:02
-Random Quote: I've lost a hand, a father, a son, a sister, and a lover, and soon enough I will lose a brother.  And yet they keep telling me House Lannister has won this war.  -  Jaime Lannister
+Last updated: 2024-04-07 18:12:35
+Random Quote: I'll have to take a page from Robert's book, not that he ever read one.  -  Stannis Baratheon
