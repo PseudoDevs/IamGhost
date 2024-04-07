@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 17:54:05
-Random Quote: We all must choose.  Man or woman, young or old, lord or peasant, our choices are the same.  We choose light or we choose darkness.  -  Melisandre
+Last updated: 2024-04-07 17:54:41
+Random Quote: People say Hawkins is cursed. They're not way off. - Dustin Henderson

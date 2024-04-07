@@ -1,2 +1,3 @@
-Last updated: 2024-04-07 17:52:13
-Random Quote: I found a Bollywood movie about a princess who falls for a lowly street sweeper. It's only seven hours long. - Kamala
+Last updated: 2024-04-07 17:54:41
+Random Quote: Miguel: "Would you have really fed me to those hippos?"
+Pablo: "No. Hippos don't like Mexicans either." - Pablo Escobar
