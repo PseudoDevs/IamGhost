@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 18:11:39
-Random Quote: Ted: "Oh hey, where are you guys?"Barney: "We're in a fundraiser, helping young women raise money for community college."Ted: "Stripclub... nice!" - Barney Stinson
+Last updated: 2024-04-07 18:13:23
+Random Quote: You are the love of my life. Everything I have and everything I am is yours. Forever. - Barney Stinson
