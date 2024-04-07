@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 06:39:17
-Random Quote: By what right does the wolf judge the lion?  -  Jaime Lannister
+Last updated: 2024-04-07 06:39:50
+Random Quote: Death is always inevitable. destiny is nothing but the connection between cause and effect. In light, in shadow. - 
