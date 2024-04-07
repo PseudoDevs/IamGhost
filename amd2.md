@@ -1,3 +1,2 @@
-Last updated: 2024-04-07 17:21:39
-Random Quote: Morty: "Rick, can we not leave without my sister?"
-Rick: "Ugh. You have infinite sisters, Morty. Not that I want to spend the rest of my day looking for another one. Sum-Sum, let's go! Grandpa's concern for your safety is fleeting." - Rick Sanchez
+Last updated: 2024-04-07 17:22:14
+Random Quote: Saul Goodman is the last line of defense for the little guy. Are you getting sold down the river? He's a life raft. You getting stepped on? He's a sharp stick. You got Goliath on your back - Saul's the guy with the slingshot. He's the righter of wrongs. He's friend to the friendless. - Saul Goodman
