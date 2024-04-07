@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 07:02:18
-Random Quote: When a maester donned his collar, he put aside the hope of children, yet Cressen had oft felt a father nonetheless.  Robert, Stannis, Renly: three sons he had raised after the angry sea claimed Lord Steffon.  -  Maester Cressen
+Last updated: 2024-04-07 07:02:54
+Random Quote: Camping is just being homeless... without the change. - Summer Smith
