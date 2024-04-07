@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 16:26:42
-Random Quote: The only person on earth, who loves Ted Mosby more than Marshall Eriksen, is drunk Marshall Eriksen! - Marshall Eriksen
+Last updated: 2024-04-07 16:27:15
+Random Quote: I've got a new bro, a bro that puts all other bros to shame. The bitches love him. He buries bones all day. No one chases tail like him. Why aren't you guys laughing? Oh, wait, I probably should have led with this: he's a dog! I've named him Brover. - Barney Stinson
