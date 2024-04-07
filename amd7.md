@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 20:18:26
-Random Quote: Then odds are he'll be near a settlement, probably close to another city out there. Ain't too many of 'em in Wyoming. - Joel Miller
+Last updated: 2024-04-07 20:18:59
+Random Quote: Why should I go running to my aunt as if I were a beggar?  My claim is better than her own.  Let her come to me... in Westeros.  -  Aegon Targaryen
