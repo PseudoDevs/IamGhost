@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 04:26:22
-Random Quote: Lily, you just gave those children a stapler, a pair of sharp scissors and a pretty decent Pinot Noir. - Marshall Eriksen
+Last updated: 2024-04-07 04:26:59
+Random Quote: You ought to have no trouble catching our uncles.  One is drunk on seawater, after all, and the other is a great grey bullock so dim he'll probably get lost.  -  Asha Greyjoy
