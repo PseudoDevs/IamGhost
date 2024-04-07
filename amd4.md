@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 05:08:17
-Random Quote: Dead people are notoriously bad at returning calls. - Wednesday Addams
+Last updated: 2024-04-07 05:08:51
+Random Quote: Dragons old and young, true and false, bright and dark.  And you.  A small man with a big shadow, snarling in the midst of it all.  -  Moqorro
