@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 20:14:21
-Random Quote: The end is the beginning, and the beginning is the end - 
+Last updated: 2024-04-07 20:14:54
+Random Quote: Old gods or new, it makes no matter, no man is so accursed as the kinslayer.  -  Rickard Karstark
