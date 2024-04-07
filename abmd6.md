@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 05:07:04
-Random Quote: You need to figure out what the fuck you want. - Nicky Nichols
+Last updated: 2024-04-07 05:11:19
+Random Quote: No man has ever died from bending his knee.  He who kneels may rise again, blade in hand.  He who will not kneel stays dead, stiff legs and all.  -  Balon Greyjoy
