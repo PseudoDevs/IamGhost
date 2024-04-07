@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 16:37:52
-Random Quote: We’re wanderers in the darkness. - 
+Last updated: 2024-04-07 16:39:02
+Random Quote: And there's this other band, led by this woman Stoneheart... Lord Beric's lover, according to one tale.  Supposedly she was hanged by the Freys, but Dondarrion kissed her and brought her back to life, and now she cannot die, no more than he.  -  Set Hyle Hunt
