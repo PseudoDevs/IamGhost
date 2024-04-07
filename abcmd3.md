@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 05:39:49
-Random Quote: This is Stannis Baratheon.  The man will fight to the bitter end and then some.  -  Tywin Lannister
+Last updated: 2024-04-07 05:41:03
+Random Quote: You're wrong.  Need Stark was my gaoler, but my blood is still salt and iron.  -  Theon Greyjoy
