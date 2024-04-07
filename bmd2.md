@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 19:28:51
-Random Quote: Cum is kind of like a penis having a sneeze. Ugh, that means when you swallow someone's cum, it's like eating their snot. - Aimee Gibbs
+Last updated: 2024-04-07 19:29:26
+Random Quote: That's not a law, just a sword.  Happens I got one too.  -  Yoren of the Night's Watch
