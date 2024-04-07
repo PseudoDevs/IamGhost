@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 07:23:38
-Random Quote: It doesn't matter how much you push the envelope, it'll still be stationery. - Will Livingston
+Last updated: 2024-04-07 07:24:46
+Random Quote: She don't speak.  You bloody bastards cut her throat too deep for that.  But she remembers.  -  Lem Lemoncloack
