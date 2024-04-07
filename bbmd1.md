@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 16:53:29
-Random Quote: Never forget what you are, for surely the world will not.  Make it your strength.  Then it can never be your weakness.  Armor yourself in it, and it will never be used to hurt you.  -  Tyrion Lannister
+Last updated: 2024-04-07 16:54:05
+Random Quote: Is it your fault that Bronn's an insolent black - hearted rogue?  He's always been an insolent black
