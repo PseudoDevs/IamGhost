@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 16:30:22
-Random Quote: Sometimes, even when you know something's a mistake, you gotta make it anyway. - Ted Mosby
+Last updated: 2024-04-07 16:30:55
+Random Quote: I have my voice, and the god is with me.  Mine is the strength of the sea, a strength the Crow's Eye cannot hope to withstand.  The waves may break upon the mountain, yet still they come, wave upon wave, and in the end only pebbles remain where once the mountain stood.  And soon even the pebbles are swept away, to be ground beneath the sea for all eternity.  -  Aeron Greyjoy
