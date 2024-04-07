@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 17:40:46
-Random Quote: I don't care if you're so scared you foul your breeches, and I don't care if a thousand wildlings are coming over the walls howling for your blood, you get those birds off, or I swear I'll hunt you through all seven hells and make you damn sorry that you didn't.  -  Jeor Mormont
+Last updated: 2024-04-07 17:41:19
+Random Quote: Desperation Day has come and gone and you have neither gone nor come. - Robin Scherbatsky

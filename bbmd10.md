@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 17:40:49
-Random Quote: I only have one rule. For every three 10's you bang, throw a bone to a 5. They're grateful and hard working and let's face it, sometimes you just want to lay there. - Barney Stinson
+Last updated: 2024-04-07 17:41:22
+Random Quote: Barney: "Ted, it's a well-known statistic, that 83% of people, married longer than 6 months, are saving someone on the side."Ted: "Do you know that when you make up a statistic, you always use 83% ?" - Ted Mosby
