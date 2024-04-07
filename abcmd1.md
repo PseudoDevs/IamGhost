@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 18:10:28
-Random Quote: Marshall: "I was once with this chick, who liked to do hand stuff underneath a jacket, while we were all sitting around our favorite booth at MacLaren's."Ted: "Gross."Robin: "We share appetizers!" - Robin Scherbatsky
+Last updated: 2024-04-07 18:11:03
+Random Quote: Aye, and from what I saw of Joffrey, you are as unfit a mother as you are a ruler.  -  Kevan Lannister
