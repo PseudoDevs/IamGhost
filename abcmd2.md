@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 04:52:41
-Random Quote: Everyone pretend podcasting isn't boring! - Rick Sanchez
+Last updated: 2024-04-07 04:53:18
+Random Quote: Women aren't soldiers, and they sure as hell don't fight on the front lines. They might break a nail. - John Flynn
