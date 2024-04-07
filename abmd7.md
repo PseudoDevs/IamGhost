@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 18:40:50
-Random Quote: He made me kill a rabbit. I guess he thought it would make me into more of a man or something. I cried for a week. - Jonathan Byers
+Last updated: 2024-04-07 18:41:24
+Random Quote: All I know is, he's not in the same grade as me anymoreAnd I'm thrilled. - Missy
