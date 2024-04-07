@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 07:06:40
-Random Quote: After all, what’s more human than the fight for survival? - Tokyo
+Last updated: 2024-04-07 07:07:16
+Random Quote: Minds are like swords, I do fear.  The old ones go to rust.  -  Grand Maester Pycelle
