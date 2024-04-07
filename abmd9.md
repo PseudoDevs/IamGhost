@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 06:40:00
-Random Quote: Just as long as you're lakeside cheering us to victory on race day... or you can just glare uncomfortably. Whatever works for you. - Enid Sinclair
+Last updated: 2024-04-07 06:40:35
+Random Quote: You're Reek.  You'll always be Reek, no matter how sweet you smell.  Your nose may lie to you.  Remember your name.  Remember who you are.  -  Ramsay Bolton
