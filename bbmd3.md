@@ -1,5 +1,2 @@
-Last updated: 2024-04-07 16:47:08
-Random Quote: John Flynn: "Rogers, get in there!"
-Peggy Carter: "He can't."
-John Flynn: "Stark, you go in!"
-Howard Stark: "What? Are you crazy? I push the buttons. I'm the buttons guy." - Howard Stark
+Last updated: 2024-04-07 16:47:40
+Random Quote: Sometimes we have to let things go because we can't keep them forever. - Maura Franklin
