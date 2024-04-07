@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 05:51:26
-Random Quote: That's it. Three rules. I call 'em the 'Don't be stupid'-rules. 'Cause we're not stupid, alright? - Jim Hopper
+Last updated: 2024-04-07 05:52:38
+Random Quote: Was snow ever so black?  Ramsay took Lord Hornwood's lands by forcibly wedding his widow, then locked her in a tower and forgot her.  It is said she ate her own fingers in her extremity... and the Lannister notion of king's justice is to reward her killer with Need Stark's little girl.  -  Wyman Manderly
