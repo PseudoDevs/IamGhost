@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 04:43:41
-Random Quote: Miss Garvey's parents may stay at our place as long as they like. Provided they each arrive in an urn. - Barney Stinson
+Last updated: 2024-04-07 04:44:21
+Random Quote: I asked him why he kept her close, if he thought her so grotesque.  He said that all his other knights wanted things of him, castles or honors or riches, but all that Brienne wanted was to die for him.  -  Loras Tyrell
