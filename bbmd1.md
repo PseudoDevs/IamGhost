@@ -1,3 +1,2 @@
-Last updated: 2024-04-07 06:36:13
-Random Quote: Wanda: "I had a brother. His name was Pietro."
-Geraldine: "He was killed by Ultron, wasn't he?" - Monica "Geraldine" Rambeau
+Last updated: 2024-04-07 06:36:46
+Random Quote: The man who passes the sentence should swing the sword.  If you would take a man's life, you owe it to him to look into his eyes and hear his final words.  And if you cannot bear to do that, then perhaps the man does not deserve to die.  -  Eddard Stark
