@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 17:21:39
-Random Quote: Not all final girls make it to the end by fighting the monster. Some of them hide. They stay quiet when their family needs them. They're not waiting for their moment. They don't even know if another moment's coming. They just close their eyes and wait for it to be over. Truth is, some final girls are cowards. - Kinsey Locke
+Last updated: 2024-04-07 17:22:15
+Random Quote: What do you think a knight is for, girl?  You think it's all taking favors from ladies and looking fine in gold plate?  Knights are for killing.  I killed my first man at twelve.  I've lost count of how many I've killed since then.  High lords with old names, fat rich men dressed in velvet, knights puffed up like bladders with their honors, yes, and women and children too... they're all meat, and I'm the butcher.  -  Sandor Clegane
