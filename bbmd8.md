@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 06:36:17
-Random Quote: What about the reality where Hitler cured cancer, Morty? The answer is: don't think about it. - Rick Sanchez
+Last updated: 2024-04-07 06:36:50
+Random Quote: If I'm always looking back, I'm never looking ahead. We are who we are because of consequences. You can't live without consequences. - Morty Smith
