@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 20:10:39
-Random Quote: I asked him why he kept her close, if he thought her so grotesque.  He said that all his other knights wanted things of him, castles or honors or riches, but all that Brienne wanted was to die for him.  -  Loras Tyrell
+Last updated: 2024-04-07 20:11:12
+Random Quote: I already told you what you can do with your money. You seem like a guy who can take a hint, so what are we doing? - Mike Ehrmantraut
