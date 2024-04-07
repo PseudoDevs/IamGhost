@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 07:14:16
-Random Quote: We're done when I say we're done. - Walter White
+Last updated: 2024-04-07 07:14:50
+Random Quote: The plan was to kill you and take the kid. But after what happened last night, I couldn't go through with it. - Greef Karga
