@@ -1,2 +1,5 @@
-Last updated: 2024-04-07 04:24:24
-Random Quote: God. It's me, Barney. What up? I know we don't talk much, but I know a lot of girls call out your name because of me. Awesome! - Barney Stinson
+Last updated: 2024-04-07 04:25:40
+Random Quote: Morty: "I'm dying, Rick!"
+Rick: "People who are really dying don't keep bringing it up."
+Morty: "Is that true?"
+Rick: "I don't know. I'm just usually around people that die faster." - Rick Sanchez
