@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 16:55:59
-Random Quote: Wylla.  Did you see how brave she was.  Even when I threatened to have her tongue out, she reminded me of the debt White Harbor owes to the Starks of Winterfell, a debt that can never be repaid.  Wylla spoke from the heart... not every woman can be as brave as my Wylla.  -  Wyman Manderly
+Last updated: 2024-04-07 16:56:36
+Random Quote: All the decisions we made in the past leads us inexorably into the future. - Tokyo
