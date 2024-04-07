@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 16:24:55
-Random Quote: You give me one hour of phone-free bro time, during which we, and by we I mean you, get magnificently, mythologically drunk. I'm talking needing-subtitles-when-you-speak drunk. - Barney Stinson
+Last updated: 2024-04-07 16:25:29
+Random Quote: What you have to do is show these suckers what you’re capable of. Show them you’re not scared. - Nairobi
