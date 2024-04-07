@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 05:22:04
-Random Quote: No sword is strong until it's been tempered.  The Stark boy is a child.  No doubt he likes the sound of warhorns well enough, and the sight of his banners fluttering in the wind, but in the end it comes down to butcher's work.  I doubt he has the stomach for it.  -  Tywin Lannister
+Last updated: 2024-04-07 05:22:37
+Random Quote: If a man does not use his member it grows smaller and smaller, until one day he wants to piss and cannot find it.  -  Tormund Giantsbane
