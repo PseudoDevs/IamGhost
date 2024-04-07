@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 20:10:06
-Random Quote: From experience, it often takes a new perspective before one is able to see the light. - Elia Kane
+Last updated: 2024-04-07 20:11:13
+Random Quote: Barney: "On your tombstone, it will be, 'Lily Aldrin. Caring wife. Loving friend. Slapbet-Commissioner.'"Marshall: "And your tombstone will read, 'Got slapped by Marhsall so hard he died.'" - Marshall Eriksen

@@ -1,3 +1,2 @@
-Last updated: 2024-04-07 20:10:06
-Random Quote: Alex: "What's Jagermeister?"
-Phil: "Well, you know how in a fairytale there's always a potion that makes the princess fall asleep and then the guys start kissing her? Well, this is like that, except you don't wake up in a castle, you wake up in a frat house with a bad reputation." - Phil Dunphy
+Last updated: 2024-04-07 20:11:13
+Random Quote: The more you give a king, the more he wants.  We are walking on a bridge of ice with an abyss on either side.  Pleasing one king is difficult enough.  Pleasing two is hardly possible.  -  Jon Snow
