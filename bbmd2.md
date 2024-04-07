@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 19:06:51
-Random Quote: Come with me to the House of the Undying, and you shall drink of truth and wisdom.  -  Pyat Pree
+Last updated: 2024-04-07 19:07:24
+Random Quote: We will take them before last night's beer turns to piss. - Chester Campbell
