@@ -1,2 +1,4 @@
-Last updated: 2024-04-07 05:47:08
-Random Quote: You want to know if I was ever really in love with you? Every morning, I wake up wishing I wasn't. You are a constant reminder of what I can't have. A life. Love. You. - Lucien
+Last updated: 2024-04-07 05:49:36
+Random Quote: Stark: "Red, green, blue... who paints a button blue?"
+Carter: "Don't tell me the American playboy needs help pushing buttons."
+Stark: "Hedy Lamarr and I spent a weekend together, but she wasn't teaching me German." - Howard Stark
