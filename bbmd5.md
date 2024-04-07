@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 16:20:39
-Random Quote: Lord Balon's eldest brother had never given up the Old Way, even for a day.  His Silence, with its black sails and dark red hull, was infamous in every port from Ibben to Asshai, it was said.  -  Theon Greyjoy
+Last updated: 2024-04-07 16:21:12
+Random Quote: Sometimes we have to let things go because we can't keep them forever. - Maura Franklin
