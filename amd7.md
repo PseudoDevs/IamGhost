@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 18:07:29
-Random Quote: Ted: "It's the Drunk Train! You crossed out all the stops and wrote Vagina-Ville."Barney: "That's not true. That one says Boner Gardens." - Barney Stinson
+Last updated: 2024-04-07 18:08:04
+Random Quote: That's not a law, just a sword.  Happens I got one too.  -  Yoren of the Night's Watch
