@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 17:29:57
-Random Quote: Your innocence may be as plain as the scar on your face, but it will not save you.  No more than your father will.  But I might.  Not as your judge.  As your champion.  -  Oberyn Martell
+Last updated: 2024-04-07 17:30:33
+Random Quote: You want to dismantle an empire? Divide it! - Guillermo Gonzalez Calderoni
