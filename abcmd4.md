@@ -1,4 +1,2 @@
-Last updated: 2024-04-07 04:10:20
-Random Quote: Joel: "I need you to tell us where we are."
-Man: "If you got a map, why you lost?"
-Ellie: "Must've missed all the street signs in the enormous f-cking forest." - Ellie Williams
+Last updated: 2024-04-07 04:10:55
+Random Quote: Love is poison.  A sweet poison, yes, but it will kill you all the same.  -  Cersei Lannister
