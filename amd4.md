@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 04:33:30
-Random Quote: When you're younger, everything feels so permanent. But as you get older, you begin to realize nothing is and everyone you love can drift away. - Rue Bennett
+Last updated: 2024-04-07 04:35:27
+Random Quote: We all face the same end. Those above have long forgotten us. They do not judge us. In death, I am all alone, and my only judge… is me. - Martha
