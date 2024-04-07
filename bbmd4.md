@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 20:08:27
-Random Quote: I never met a real Mandalorian. Heard stories. I know you're good at killing. - Cobb Vanth
+Last updated: 2024-04-07 20:09:00
+Random Quote: I am the storm, my lord, the first storm, and the last.  -  Euron Greyjoy
