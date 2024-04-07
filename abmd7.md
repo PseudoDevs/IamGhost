@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 18:46:23
-Random Quote: A drum roll?! That's it? So what, you just said good night, came home and... performed a drum solo? - Marshall Eriksen
+Last updated: 2024-04-07 18:46:56
+Random Quote: My father never bellowed like the Greatjon, but he was no less dangerous in his wroth.  -  Alys Karstark
