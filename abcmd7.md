@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 20:15:39
-Random Quote: The only way to keep your people loyal is to make certain they fear you more than they do the enemy.  -  Cersei Lannister
+Last updated: 2024-04-07 20:16:12
+Random Quote: Marshall: "Excuse me, miss. When you get a chance, could you bring over a hundred shots of tequila please?"Barney: "I'll have the same." - Marshall Eriksen
