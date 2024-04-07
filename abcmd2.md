@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 05:21:17
-Random Quote: Tormund Giantsbane seemed to me the sort of man who would make a good friend and a bad enemy, your Grace.  -  Jon Snow
+Last updated: 2024-04-07 05:21:50
+Random Quote: Some of you cared. None of you cared enough. - Hannah Baker
