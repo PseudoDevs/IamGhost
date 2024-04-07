@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 16:35:26
-Random Quote: It's not just football. It's life. - Cal Jacobs
+Last updated: 2024-04-07 16:36:34
+Random Quote: You want to hurt these guys, we gotta take down the ones calling the shots. - Jaime Kuykendall
