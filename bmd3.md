@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 17:39:49
-Random Quote: They may separate us, but they'll never be able to destroy us. - Pablo Escobar
+Last updated: 2024-04-07 17:40:23
+Random Quote: Sometimes you gotta do bad things to catch bad people. - Javier Pe�a
