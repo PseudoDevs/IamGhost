@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 18:03:12
-Random Quote: You don't get to blame your problems on anyone but yourself. - Allison Hargreeves
+Last updated: 2024-04-07 18:03:48
+Random Quote: I like dogs better than knights... A hound will die for you, but never lie to you.  And he'll look you straight in the face.  -  Sandor Clegane
