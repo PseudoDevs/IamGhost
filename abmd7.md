@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 20:25:59
-Random Quote: Stella hated Star Wars! She lied to you. Search your feelings, Ted. You know it to be true! - Marshall Eriksen
+Last updated: 2024-04-07 20:26:32
+Random Quote: We were king's men, knights, and heroes... but some knights are dark and full of terror, my lady.  War makes monsters of us all.  -  Thoros of Myr
