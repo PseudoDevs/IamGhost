@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 19:15:23
-Random Quote: This is Hawkins, okay? You wanna know the worst thing that's ever happened here in the four years I've been working here? It was when an owl attacked Eleanor Gillespie's head because it though that her hair was a nest. - Jim Hopper
+Last updated: 2024-04-07 19:16:33
+Random Quote: I've had shits that I've liked better than Walder Frey.  -  Brynden Tully
