@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 19:19:32
-Random Quote: Ted: "First it was too much eye-contact, then not enough - where do you look during sex?"Barney: "Into the hidden camera at future me, watching it." - Barney Stinson
+Last updated: 2024-04-07 19:21:53
+Random Quote: Because you're so broken you don't even trust yourself. And that's scary. - Nate Jacobs
