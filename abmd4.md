@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 19:49:17
-Random Quote: When you play the game of thrones, you win or you die.  There is no middle ground.  -  Cersei Lannister
+Last updated: 2024-04-07 19:49:50
+Random Quote: They threw him off the goddamn railing. There's no way someone survives that. And yet, here he is. How is that possible? - Eyk Larsen
