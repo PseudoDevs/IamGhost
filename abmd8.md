@@ -1,3 +1,2 @@
-Last updated: 2024-04-07 07:30:16
-Random Quote: George: "I love what you done with the place. Did you do it yourself, or did you get some pouf to help ya?"
-Rebecca: "I could ask the same of your hair." - Rebecca Welton
+Last updated: 2024-04-07 07:30:49
+Random Quote: I let each man cut me once, before I kill him.  Count the cuts and you will know how many Strong Belwas has slain.  -  Strong Belwas
