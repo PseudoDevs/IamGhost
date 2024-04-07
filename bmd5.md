@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 07:24:19
-Random Quote: Doesn't matter what you did or what you were, you are an Avenger! - Agatha Harkness
+Last updated: 2024-04-07 07:25:26
+Random Quote: This is the one that you saved? You are as its father. A clan of two. But you have removed your helmet. Then you are a Mandalorian no more. - The Armorer
