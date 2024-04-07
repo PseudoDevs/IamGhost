@@ -1,4 +1,2 @@
-Last updated: 2024-04-07 06:17:53
-Random Quote: Rick: "F you, Summer! And f the government. And f me for letting my car down, which I will never do again."
-Morty: "Jeez, Rick. You can't say FU to your grand-daughter!"
-Rick: "I just did, Morty. Here's dessert: F you!" - Rick Sanchez
+Last updated: 2024-04-07 06:18:26
+Random Quote: Brandon Stark was never shy about taking what he wanted.  I am old now, a dried - up thing, too long a widow, but I still remember the look of my maiden's blood on his cock the night he claimed me.  I think Brandon liked the sight as well.  A bloody sword is a beautiful thing, yes.  It hurt, but it was a sweet pain. 
