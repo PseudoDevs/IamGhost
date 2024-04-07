@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 05:47:08
-Random Quote: The Bro Code has been around for centuries. Nay... whatever's more than centuries. - Barney Stinson
+Last updated: 2024-04-07 05:47:44
+Random Quote: When dead men come hunting us in the night, do you think it matters who sits the Iron Throne?  -  Jeor Mormont
