@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 20:11:34
-Random Quote: Send him to Belize? I'll send YOU to Belize. - Walter White
+Last updated: 2024-04-07 20:12:41
+Random Quote: The title was but a courtesy due him as a council member; Varys was lord of nothing but the spiderweb, the master of none but his whispers.  -  Catelyn Stark
