@@ -1,6 +1,2 @@
-Last updated: 2024-04-07 17:22:48
-Random Quote: Sam: "They might be a part of the big three."
-Bucky: "What big three?"
-Sam: "Androids, aliens and wizards."
-Bucky: "That's not a thing."
-Sam: "That's definitely a thing." - Sam Wilson
+Last updated: 2024-04-07 17:23:21
+Random Quote: Nobody takes an intro class to get on any other path, but the path to not being hungover anymore. I learned that in my intro to something-ology class. - Marshall Eriksen
