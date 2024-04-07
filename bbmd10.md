@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 18:48:50
-Random Quote: Or I look single, 34 and single, which must mean there's something wrong with me. Like, you keep large reptiles in tanks, or I have a very special relationship with my mother. - Larry Bloom
+Last updated: 2024-04-07 18:49:23
+Random Quote: Pardon my French, f-ck those f-ckers! - Billy Butcher
