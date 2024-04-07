@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 18:28:18
-Random Quote: Every journey has a beginning. But change one step along the way, and you could end up at a very different destination. - The Watcher
+Last updated: 2024-04-07 18:29:30
+Random Quote: When dead men come hunting us in the night, do you think it matters who sits the Iron Throne?  -  Jeor Mormont
