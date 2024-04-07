@@ -1,4 +1,2 @@
-Last updated: 2024-04-07 04:38:46
-Random Quote: Ellie: "Can I have a gun?"
-Joel: "Absolutely not."
-Ellie: "Okay, Jesus. Fine. I'll have to throw a f-ckin' sandwich at them." - Ellie Williams
+Last updated: 2024-04-07 04:39:20
+Random Quote: I did it for me. I liked it. I was good at it. And... I was really... I was alive. - Walter White
