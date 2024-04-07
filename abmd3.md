@@ -1,2 +1,3 @@
-Last updated: 2024-04-07 06:23:39
-Random Quote: Just 'cause you fall on your *ss doesn't mean you have to stay there. - Hughie Campbell
+Last updated: 2024-04-07 06:24:15
+Random Quote: Grace: "I had the phone put in. It's in the back."
+Tommy: "If we knew someone else who had a phone, we could call them." - Thomas Shelby
