@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 20:23:13
-Random Quote: At least I know they didn't spot you. No one could stay that aroused with your mug peeking through the window. - Saul Goodman
+Last updated: 2024-04-07 20:23:46
+Random Quote: I never asked for this, no more than I asked to be king.  Yet dare I disregard her?  We do not choose our destinies.  Yet we must... we must do our duty, no?  Great or small, we must do our duty.  -  Stannis Baratheon

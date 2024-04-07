@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 20:22:39
-Random Quote: You want to know what's really interesting? Aristotle thought that the sound of thunder was due to a collision between two cloudsHe believed the clouds were expelling air, in the way a log on a fire crackles. - Sheldon
+Last updated: 2024-04-07 20:23:46
+Random Quote: The title was but a courtesy due him as a council member; Varys was lord of nothing but the spiderweb, the master of none but his whispers.  -  Catelyn Stark
