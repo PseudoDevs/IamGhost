@@ -1,2 +1,3 @@
-Last updated: 2024-04-07 17:21:16
-Random Quote: I don't feel so good. It's like my testicals mixed poprocks and soda. - Ted Mosby
+Last updated: 2024-04-07 17:21:48
+Random Quote: Joel: "A deep breath in, slow breath out. You squeeze the trigger like you love it. Gentle, steady, nice and slow."
+Ellie: "You gonna shoot this thing or get it pregnant?" - Ellie Williams
