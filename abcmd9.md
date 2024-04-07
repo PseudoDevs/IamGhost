@@ -1,3 +1,2 @@
-Last updated: 2024-04-07 17:28:35
-Random Quote: Joel: "A deep breath in, slow breath out. You squeeze the trigger like you love it. Gentle, steady, nice and slow."
-Ellie: "You gonna shoot this thing or get it pregnant?" - Ellie Williams
+Last updated: 2024-04-07 17:29:40
+Random Quote: Ted: "You name a chubby white kid LeBron and he's the one getting stuffed in the basketball hoop."Marshall: "Then I'm also crossing off Shaquille, Hakeem and Dikembe." - Ted Mosby
