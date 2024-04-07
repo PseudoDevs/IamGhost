@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 04:17:28
-Random Quote: When your enemies defy you, you must serve them steel and fire.  When they go to their knees, however, you must help them back to their feet.  Elsewise no man will ever bend the knee to you.  And any man who must say "I am the king" is no true king at all.  Aerys never understood that, but you will.  When I've won your war for you, we will restore the king's peace and the king's justice.  -  Tywin Lannister
+Last updated: 2024-04-07 04:18:02
+Random Quote: My old septon used to say that books are dead men talking.  Dead men should keep quiet, is what I say.  No one wants to hear a dead man's yabber.  -  Dolorous Edd Tollett
