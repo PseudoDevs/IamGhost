@@ -1,3 +1,2 @@
-Last updated: 2024-04-07 18:12:30
-Random Quote: The boobs on the bus go up and down, up and down, up and down
-The boobs on the bus go up and down, all through the town - Barney Stinson
+Last updated: 2024-04-07 18:13:03
+Random Quote: I just want to say to whoever is voting for me that I would certainly make an awful Lord Commander.  But so would all these others.  -  Dolorous Edd Tollett
