@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 17:11:25
-Random Quote: Some of you cared. None of you cared enough. - Hannah Baker
+Last updated: 2024-04-07 17:11:58
+Random Quote: I have won every battle, yet somehow I'm losing the war.  -  Robb Stark
