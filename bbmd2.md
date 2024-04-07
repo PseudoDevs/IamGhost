@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 18:51:47
-Random Quote: You grew up with actors.  You learned their craft and you learned it well.  I grew up with soldiers.  I learned how to die a long time ago.  -  Eddard Stark
+Last updated: 2024-04-07 18:52:54
+Random Quote: Our power comes from the perception of our power. - Mikhail Gorbachev
