@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 05:42:09
-Random Quote: Barney: "I cannot stop staring at that girl's face."Ted: "Face, huh? That's your weirdest nickname for boobs yet." - Ted Mosby
+Last updated: 2024-04-07 05:42:42
+Random Quote: We go home with an army, sweet sister.  With Khal Drogo's army, that is how we go home.  And if you must wed him and bed him for that, you will.  I'd let his whole khalasar fuck you if need be, sweet sister, all forty thousand men, and their horses too if that was what it took to get my army.  -  Viserys Targaryen
