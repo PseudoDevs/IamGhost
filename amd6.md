@@ -1,2 +1,4 @@
-Last updated: 2024-04-07 19:44:27
-Random Quote: This is Stannis Baratheon.  The man will fight to the bitter end and then some.  -  Tywin Lannister
+Last updated: 2024-04-07 19:45:01
+Random Quote: Ted: "It's freezing out there. Where's your coat?"
+Robin: "Ted, I'm Canadian. I don't need a coat. This kind of weather is nothing for me."
+Marshall: "Yeah. This is like a spring day back in Minnesota." - Marshall Eriksen
