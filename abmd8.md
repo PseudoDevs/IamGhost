@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 18:03:49
-Random Quote: Help was not promised, lovely girl.  Only death.  -  Jaqen H'ghar
+Last updated: 2024-04-07 18:04:25
+Random Quote: Old gods or new, it makes no matter, no man is so accursed as the kinslayer.  -  Rickard Karstark

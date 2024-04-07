@@ -1,2 +1,4 @@
-Last updated: 2024-04-07 18:03:49
-Random Quote: Oh, come on, ref! I haven't seen that much hooking go unpunished since my last trip to Vegas. - Robin Scherbatsky
+Last updated: 2024-04-07 18:04:25
+Random Quote: Stark: "Red, green, blue... who paints a button blue?"
+Carter: "Don't tell me the American playboy needs help pushing buttons."
+Stark: "Hedy Lamarr and I spent a weekend together, but she wasn't teaching me German." - Howard Stark
