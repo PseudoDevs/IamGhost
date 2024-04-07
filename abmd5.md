@@ -1,2 +1,3 @@
-Last updated: 2024-04-07 19:45:52
-Random Quote: Good and evil are a question of perspective - Mikkel
+Last updated: 2024-04-07 19:46:25
+Random Quote: Gor Koresh: "This is no place for a child."
+Mando: "Wherever I go, he goes. I've been quested to bring him to his kind." - Din Djarin
