@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 05:01:26
-Random Quote: His blood ran black.  Made him my brother as much as yours.  -  Yoren of the Night's Watch
+Last updated: 2024-04-07 05:02:40
+Random Quote: Heroes are not born, they're forged in darkness. Shaped in battle. Defined by sacrifice. - The Watcher
