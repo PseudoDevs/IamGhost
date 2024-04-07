@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 16:33:49
-Random Quote: Ted: "I made a bid online, I won the auction the next day and I got approval. I just finalized the paperwork."Barney: "And was the Blair Witch easy to deal with, or did she haggle over the closing costs?" - Barney Stinson
+Last updated: 2024-04-07 16:34:22
+Random Quote: His blood is bad.  He needs to be leeched.  The leeches suck away the bad blood, all the rage and pain.  No man can think so full of anger.  Ramsay, though... his tainted blood would poison even leeches, I fear.  -  Roose Bolton
