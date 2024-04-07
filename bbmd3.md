@@ -1,3 +1,2 @@
-Last updated: 2024-04-07 17:58:29
-Random Quote: Robin: "I can't believe my great grandparents still do that."
-Barney: "And I never imagined a walker being used for anything other than walking." - Barney Stinson
+Last updated: 2024-04-07 17:59:02
+Random Quote: If you don't push, I will shove that baby up your throat and pull it out of your mouth! - Dr. Sonya
