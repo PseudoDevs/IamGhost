@@ -1,3 +1,2 @@
-Last updated: 2024-04-07 06:29:44
-Random Quote: Ravonna: "You really believe in this Loki variant?"
-Mobius: "Luckily, he believes in himself enough for the both of us." - Mobius M. Mobius
+Last updated: 2024-04-07 06:30:19
+Random Quote: All living things, from complex mammals to single-celled organisms, instinctively respond to danger. Expose a bacterium to a toxic chemical and it will flee, or deploy some other defense mechanism. We're very much the same. When we encounter danger, our hearts start pounding. Our palms start to sweat. These are the signs of the physical and emotional state we call 'fear.' - Scott Clarke
