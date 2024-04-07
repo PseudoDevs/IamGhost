@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 20:29:30
-Random Quote: Robb, who had been more a brother to Theon than any son born of Balon Greyjoy's loins.  Murdered at the Red Wedding, butchered by the Freys.  I should have been with him.  Where was I?  I should have died with him.  -  Theon Greyjoy
+Last updated: 2024-04-07 20:30:03
+Random Quote: Until the Mountain crushed my brother's skull, no Dornishmen had died in this War of the Five Kings.  Tell me, Captain, is that my shame or my glory?  -  Doran Martell
