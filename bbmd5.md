@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 18:47:53
-Random Quote: Ted: "Our point guard's a 52-year-old virgin, happy as a clam."Barney: "I'm sure he's quite a ball handler." - Barney Stinson
+Last updated: 2024-04-07 18:48:27
+Random Quote: Not only are you wrong... but you are belligerently sticking to your guns and insulting me in the process. Robin Scherbatsky, you are an American. - Barney Stinson
