@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 17:07:48
-Random Quote: There are moments in life we should just be able to have a damn remote control, so you could pause it. Even if just for five minutes. But sometimes things happen with irreverent obscenity and there’s nothing you can do to help it. - Tokyo
+Last updated: 2024-04-07 17:08:21
+Random Quote: Our secrecy is our survival. our survival is our strength. - The Armorer
