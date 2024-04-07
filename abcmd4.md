@@ -1,2 +1,5 @@
-Last updated: 2024-04-07 05:58:33
-Random Quote: Oh my God, Larry, by the time I get out, there will've been like three new generations of iPhones! - Piper Chapman
+Last updated: 2024-04-07 05:59:09
+Random Quote: Dina: "You're infuriating."
+Ellie: "Have you met you?"
+Dina: "You make me want to go back outside into that blizzard."
+Ellie: "No one is stopping you." - Joel Miller
