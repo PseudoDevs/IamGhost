@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 19:01:33
-Random Quote: There is a savage beast in every man, and it stirs when you put a sword in his hand.  -  Jorah Mormont
+Last updated: 2024-04-07 19:03:21
+Random Quote: Oh, Cersei is lovely to look at, truly, but cold... the way she guards her cunt, you'd think she had all the gold of Casterly Rock between her legs.  -  Robert Baratheon
