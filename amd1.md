@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 19:48:26
-Random Quote: You don't parley when you're on the back foot. We'll strike a blow back first. - Thomas Shelby
+Last updated: 2024-04-07 19:48:59
+Random Quote: Anyone who goes after him is gonna have to come through me. - Mike Ehrmantraut
