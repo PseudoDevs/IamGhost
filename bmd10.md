@@ -1,3 +1,2 @@
-Last updated: 2024-04-07 19:56:59
-Random Quote: Grace: "I had the phone put in. It's in the back."
-Tommy: "If we knew someone else who had a phone, we could call them." - Thomas Shelby
+Last updated: 2024-04-07 19:57:33
+Random Quote: Name one thing in this world that is non negotiable. - Walter White
