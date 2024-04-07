@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 17:19:39
-Random Quote: My daughter has taken an axe for a lover.  I will not have my son bedeck himself like a whore.  It is as I feared.  The green lands have made you soft, and the Starks have made you theirs.  -  Balon Greyjoy
+Last updated: 2024-04-07 17:20:12
+Random Quote: Among all the games that kids played back then, it was the most physical and violent. - Seong Gi-hun
