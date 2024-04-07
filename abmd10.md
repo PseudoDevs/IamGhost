@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 20:33:52
-Random Quote: I learned form Set Arthur Dayne, the Sword of the Morning, who could have slain all five of you with his left hand while he was taking a piss with the right.  -  Jaime Lannister
+Last updated: 2024-04-07 20:34:58
+Random Quote: When I'm king in my own right, I'm going to outlaw beets.  -  Tommen Baratheon
