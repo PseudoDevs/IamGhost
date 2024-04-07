@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 06:45:25
-Random Quote: I got more second-story guys in my book than pimples at a junior prom. - Saul Goodman
+Last updated: 2024-04-07 06:46:39
+Random Quote: There is entirely too much tut - tutting in this realm, if you ask me.  All these kings would do a deal better if they put down their swords and listended to their mothers. 
