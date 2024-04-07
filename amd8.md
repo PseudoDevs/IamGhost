@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 16:43:01
-Random Quote: You don't get to tell me what to look at, I've seen your Pornhub account! Also, who makes a Pornhub account? - Rick Sanchez
+Last updated: 2024-04-07 16:43:34
+Random Quote: You grew up with actors.  You learned their craft and you learned it well.  I grew up with soldiers.  I learned how to die a long time ago.  -  Eddard Stark
