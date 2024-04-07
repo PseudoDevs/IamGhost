@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 05:45:08
-Random Quote: The longer Cersei waits, the angrier she'll become, and anger makes her stupid.  I much prefer angry and stupid to composed and cunning.  -  Tyrion Lannister
+Last updated: 2024-04-07 05:46:14
+Random Quote: I am not in danger, Skyler. I AM the danger! - Walter White
