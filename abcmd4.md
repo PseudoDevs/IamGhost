@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 17:24:39
-Random Quote: Barney, check it! Three blond babies drinking bad-decision-juice at eight o'clock. - Lily Aldrin
+Last updated: 2024-04-07 17:27:33
+Random Quote: A ruler who hides behind paid executioners soon forgets what death is.  -  Eddard Stark
