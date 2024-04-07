@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 06:40:35
-Random Quote: You're Reek.  You'll always be Reek, no matter how sweet you smell.  Your nose may lie to you.  Remember your name.  Remember who you are.  -  Ramsay Bolton
+Last updated: 2024-04-07 06:41:10
+Random Quote: When something seems too perfect, it's usually anything but. - Allison Hargreeves
