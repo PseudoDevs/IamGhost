@@ -1,6 +1,2 @@
-Last updated: 2024-04-07 06:05:10
-Random Quote: Rick: "Just do a Die Hard!"
-Summer: "What does that mean?"
-Rick: "Sneak around! Use air vents! You've never seen Die Hard?"
-Summer: "I'm 17. No, I've never seen Die Hard."
-Rick: "Well, neither did the guy in Die Hard." - Rick Sanchez
+Last updated: 2024-04-07 06:05:43
+Random Quote: No, that you think you'll graduate High-School. - Meemaw
