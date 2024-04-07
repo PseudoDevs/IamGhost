@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 16:18:25
-Random Quote: The plan was to kill you and take the kid. But after what happened last night, I couldn't go through with it. - Greef Karga
+Last updated: 2024-04-07 16:18:59
+Random Quote: Do you know what it is like to be sold, squire?  I do.  My brother sold me to Khal Drogo for the promise of a golden crown.  Well, Drogo crowned him in gold, though not as he had wished, and I... my sun - and
