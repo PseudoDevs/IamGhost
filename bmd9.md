@@ -1,2 +1,4 @@
-Last updated: 2024-04-07 06:18:11
-Random Quote: Mitchell: "It's been five years now and he still does this thing were he announces himself before walking into any room we're in, just to make sure he doesn't ever see us kiss."Cameron: "Wish my mother had that system. Remember?" - Cameron Tucker
+Last updated: 2024-04-07 06:18:46
+Random Quote: Morticia: "Please excuse Wednesday. She's allergic to color."
+Enid: "Wow, what happens to you?"
+Wednesday: "I break out into hives, and then the flesh peels off my bones." - Wednesday Addams
