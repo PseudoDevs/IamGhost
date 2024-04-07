@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 20:08:53
-Random Quote: I’d get 30 years. And to be honest, growing old in a prison cell is not my thing. I’d rather run, in body and soul. And if I can’t take my body with me, at least my soul should run. - Tokyo
+Last updated: 2024-04-07 20:09:26
+Random Quote: A Mandalorian and a Jedi? They'll never see it coming. - Din Djarin
