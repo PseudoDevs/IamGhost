@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 20:12:24
-Random Quote: The only way to keep your people loyal is to make certain they fear you more than they do the enemy.  -  Cersei Lannister
+Last updated: 2024-04-07 20:12:58
+Random Quote: There are dreamers and there are realists in this world. You'd think the dreamers would find the dreamers and the realists would find the realists, but more often than not the opposite is true. You see, the dreamers need the realists to keep them from soaring too close to the sun. And the realists, well without the dreamers, they might not ever get off the ground. - Cameron Tucker
