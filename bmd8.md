@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 05:32:44
-Random Quote: The truth can free you, if you let it. - Hannah Baker
+Last updated: 2024-04-07 05:33:17
+Random Quote: No tales were ever told of me.  Do you think I would be sitting here if it were otherwise?  Your amusements are your own, I will not chide you on that count, but you must be more discreet.  A peaceful land, a quiet people.  That has always been my rule.  Make it yours.  -  Roose Bolton
