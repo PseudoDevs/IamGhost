@@ -1,2 +1,3 @@
-Last updated: 2024-04-07 19:53:26
-Random Quote: Oh man, I am so excited that you're here! It has been forever since I have been around anyone even remotely fun![to Lily, Robin, Ted and Marshall] Huh... yes, offense! - Barney Stinson
+Last updated: 2024-04-07 19:53:59
+Random Quote: Jang Deok-su: "Tell me what you're good at?"
+Han Mi-nyeo: "Everything, except the things I can't do." - Oh Il-nam
