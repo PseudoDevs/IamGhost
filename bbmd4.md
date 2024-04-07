@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 05:32:33
-Random Quote: Many good men have been bad kings, and some bad men have been good kings.  -  Maester Aemon
+Last updated: 2024-04-07 05:33:06
+Random Quote: Now you may be asking yourself why is sports icon John McEnroe narrating this tale? It'll make sense later I promise. - John McEnroe
