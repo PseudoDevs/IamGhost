@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 04:21:15
-Random Quote: A family is like a small business. And with a small business, at times, there comes a bit of transition. - Marty Byrde
+Last updated: 2024-04-07 04:22:31
+Random Quote: Robert was never the same after he put on that crown.  Some men are like swords, made for fighting.  Hang them up and they go to rust.  -  Donal Noye
