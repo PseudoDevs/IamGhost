@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 17:35:31
-Random Quote: In the end, a gentle heart may be worth more than pride or valor.  -  Doran Martell
+Last updated: 2024-04-07 17:36:06
+Random Quote: War. Such a fascinating concept. A temporary salve for a permanent human flaw. - The Handler
