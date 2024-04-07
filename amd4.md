@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 20:10:11
-Random Quote: I don't remember much between the ages of eight and twelve. Just that the world moved fast and my brain moved slow. And every now and then, if I focused too closely on the way I breathed, I'd die. Until every second of every day, you find yourself trying to outrun your anxiety. - Rue Bennett
+Last updated: 2024-04-07 20:10:44
+Random Quote: You'd have been the last lawyer I'd have gone to. - Walter White
