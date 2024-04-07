@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 04:29:50
-Random Quote: We go home with an army, sweet sister.  With Khal Drogo's army, that is how we go home.  And if you must wed him and bed him for that, you will.  I'd let his whole khalasar fuck you if need be, sweet sister, all forty thousand men, and their horses too if that was what it took to get my army.  -  Viserys Targaryen
+Last updated: 2024-04-07 04:30:23
+Random Quote: Droids are not good or bad. They are neutral reflections of those who imprint them. - Kuiil
