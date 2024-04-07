@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 04:25:13
-Random Quote: Don't believe everything you hear. Our enemies want to separate us. But Mandalorians are stronger together. - Bo-Katan
+Last updated: 2024-04-07 04:25:46
+Random Quote: I'm a criminal, yo. - Jesse Pinkman
