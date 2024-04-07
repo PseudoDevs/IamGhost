@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 17:06:29
-Random Quote: I am IRONBORN!  I laugh at death.  -  Victarion Greyjoy
+Last updated: 2024-04-07 17:07:02
+Random Quote: That went surprisingly well. You came off like a naive idiot - and naive idiots are not a threat. - Viktor Bryukhanov
