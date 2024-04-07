@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 18:58:30
-Random Quote: Every Halloween I bring a spare costume. In case I strike out with the hottest girl at the party. That way I have a second chance to make a first impression. - Barney Stinson
+Last updated: 2024-04-07 18:59:06
+Random Quote: .OkaySomebody's got to teach this kid to swear, it's embarrassing. - Meemaw
