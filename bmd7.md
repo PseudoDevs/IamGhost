@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 17:43:30
-Random Quote: So how do you take down a crook who's at the top of his game? Who has every cop in town in his pocket? Well, you hold your breath and you hope you get lucky. - Walt Breslin
+Last updated: 2024-04-07 17:44:05
+Random Quote: I feel like her sobriety is completely dependent on how available I am to her. - Jules Vaughn
