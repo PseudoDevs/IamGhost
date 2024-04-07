@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 20:30:40
-Random Quote: So that's it? A couple of white Urkels offer you sausages and you're gone? - Robin Scherbatsky
+Last updated: 2024-04-07 20:31:13
+Random Quote: You are not the guy. You're not capable of being the guy. I had a guy but now I don't. You are not the guy. - Mike Ehrmantraut
