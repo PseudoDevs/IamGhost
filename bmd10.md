@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 16:29:15
-Random Quote: You have to be as bad as them above in order to survive. - Polly Gray
+Last updated: 2024-04-07 16:30:56
+Random Quote: I'm not sure whose twisted idea it was to put hundreds of adolescents in underfunded schools run by people whose dreams were crushed years ago... but I admire the sadism. - Wednesday Addams
