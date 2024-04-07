@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 20:05:45
-Random Quote: The most beautiful woman in the world has urgent need of my axe.  -  Victarion Greyjoy.
+Last updated: 2024-04-07 20:06:18
+Random Quote: Any man who steps between a father and his vengeance asks for death.  -  Rickard Karstark
