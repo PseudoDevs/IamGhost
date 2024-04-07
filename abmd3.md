@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 20:01:37
-Random Quote: Grief never gets any smaller, so you have to make yourself bigger around it. The best way to do that is to open up. Let people in. - Rendell Locke
+Last updated: 2024-04-07 20:02:11
+Random Quote: Many good men have been bad kings, and some bad men have been good kings.  -  Maester Aemon
