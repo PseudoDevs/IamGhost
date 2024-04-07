@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 16:38:51
-Random Quote: Barney: "Tell me more. Tell me more. Like did he have a car?"Marshall: "So is he the guy who... how shall I say this like a gentleman? Robin, did he take your maple leaf?"Barney: "Sounds to me like he gave you your first 'O Canada' face!" - Barney Stinson
+Last updated: 2024-04-07 16:39:25
+Random Quote: Robin, if you asked a hundred people: "Who's the worst person you could possibly date?" They'd all say "your therapist", except the ones saying "Barney". - Ted Mosby
