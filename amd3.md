@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 16:25:29
-Random Quote: What you have to do is show these suckers what you’re capable of. Show them you’re not scared. - Nairobi
+Last updated: 2024-04-07 16:26:02
+Random Quote: I never wanted the throne, I only ever wanted to be your equal. - Thor
