@@ -1,3 +1,2 @@
-Last updated: 2024-04-07 16:57:11
-Random Quote: I hired a decorator and I asked him: "What would the inside of Tinkerbell's vagina look like?"
-And the kid just ran with it! - Quinn Garvey
+Last updated: 2024-04-07 16:57:47
+Random Quote: See, lad, that's why he's the king and I'm not.  I can outdrink, outfight, and outsing him, and my member's thrice the size o' his, but Mance has cunning.  -  Tormund Giantsbane
