@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 07:30:21
-Random Quote: Marshall: "The broken windows?"Lily: "We had to make it look realistic."Marshall: "But why did you break two of them?"Robin: "It looked like fun when she did it, so I wanted to try."Marshall: "I can't believe this whole time it was you guys; I've been blaming Really Tan Dancing Leotard guy." - Marshall Eriksen
+Last updated: 2024-04-07 07:31:28
+Random Quote: That's where The Boys come in: Spank the bastards when they get out of line. - Billy Butcher
