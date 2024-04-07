@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 07:24:28
-Random Quote: Barney: "I had a drinking game based on Robin. But it was actually ON Robin: I'd pour peach schnapps in her belly button..."Ted: "Dude, we agreed we wouldn't do this."Barney: "Sorry. You're right. She didn't like it anyway. Said it woke her up." - Barney Stinson
+Last updated: 2024-04-07 07:25:01
+Random Quote: You poor stupid blind crippled fool.  Must I spell out every little thing for you?  Very well.  Cersei is a lying whore, she's been fucking Lancel and Osmund  Kettleblack and probably Moon Boy for all I know.  And I am the monster they all say I am.  Yes, I killed your vile son.  -  Tyrion Lannister
