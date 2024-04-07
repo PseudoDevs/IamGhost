@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 05:54:35
-Random Quote: Until the Mountain crushed my brother's skull, no Dornishmen had died in this War of the Five Kings.  Tell me, Captain, is that my shame or my glory?  -  Doran Martell
+Last updated: 2024-04-07 05:55:08
+Random Quote: Put me on your magical boat, man, and sail me down your chocolaty river of meth! - Badger
