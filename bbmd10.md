@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 19:44:36
-Random Quote: No voting, no debate. It's not a democracy - it's a Rickpublic! - Summer Smith
+Last updated: 2024-04-07 19:45:10
+Random Quote: You can never tell with men. They go for whoever their dcks point at and there's no changing their minds. - Polly Gray
