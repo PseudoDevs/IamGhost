@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 18:34:27
-Random Quote: Free folk don't follow names, or little cloth animals sewn on a tunic.  They won't dance for coins, they don't care how you style yourself or what that chain of office means or who your grandsire was.  They follow strength.  They follow the man.  -  Mance Rayder
+Last updated: 2024-04-07 18:35:38
+Random Quote: He made me kill a rabbit. I guess he thought it would make me into more of a man or something. I cried for a week. - Jonathan Byers
