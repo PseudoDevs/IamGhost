@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 17:37:40
-Random Quote: Birds are lost, messages stolen or sold... there are things I might tell you of that eunuch that would chill your blood...  -  Grand Maester Pycelle
+Last updated: 2024-04-07 17:38:13
+Random Quote: Richard, you have desecrated the sacred treaty betwixt land and sea. Now face the wrath of your once and eternal foe - Mr. Nimbus! - Mr. Nimbus
