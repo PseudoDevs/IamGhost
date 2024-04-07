@@ -1,3 +1,2 @@
-Last updated: 2024-04-07 05:37:05
-Random Quote: Billy: "Halloween's a magical holiday. All about family, friends, and the thrill of getting to be someone else for a day."
-Tommy: "Wrong! Halloween's about candy. And scaring people, but mostly candy." - Tommy Maximoff
+Last updated: 2024-04-07 05:37:38
+Random Quote: Many hands make light work. And many mouths make good gossip. - Agatha Harkness
