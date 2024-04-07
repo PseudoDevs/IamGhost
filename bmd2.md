@@ -1,2 +1,4 @@
-Last updated: 2024-04-07 05:51:26
-Random Quote: Hey, ref, check your voicemail! I think you've missed a few calls! - Ted Mosby
+Last updated: 2024-04-07 05:52:03
+Random Quote: Joel: "I need you to tell us where we are."
+Man: "If you got a map, why you lost?"
+Ellie: "Must've missed all the street signs in the enormous f-cking forest." - Ellie Williams
