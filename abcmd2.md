@@ -1,2 +1,3 @@
-Last updated: 2024-04-07 20:31:14
-Random Quote: You two suck at peddling meth. - Saul Goodman
+Last updated: 2024-04-07 20:31:47
+Random Quote: Ellie: "There's not gonna be anything bad in here?"
+Joel: "Just you." - Joel Miller

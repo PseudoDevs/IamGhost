@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 20:31:14
-Random Quote: Jesus was a fag! He said: 'This is my body. Eat me.' - Big Boo
+Last updated: 2024-04-07 20:31:47
+Random Quote: They'll bend the knee or I'll destroy them.  -  Stannis Baratheon
