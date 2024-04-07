@@ -1,4 +1,3 @@
-Last updated: 2024-04-07 07:03:33
-Random Quote: Greef: "Be careful, my friend. They've got you outnumbered ten to one."
-Din: "I like these odds."
-Greef: "I bet you do." - Greef Karga
+Last updated: 2024-04-07 07:04:51
+Random Quote: Planetina: "Your acid rain is an acid pain... in the butt, Diesel Wiesel!"
+Rick: "Yikes! Who's the chick in need of a dialogue pass?" - Rick Sanchez
