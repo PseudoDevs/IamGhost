@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 05:45:55
-Random Quote: Robin: "I'm such a mess. Why do you even like me?"Barney: "I guess cause you're almost as messed up as I am." - Barney Stinson
+Last updated: 2024-04-07 05:46:31
+Random Quote: Good men and true will fight for Joffrey, wrongly believing him the true king.  A northman might even say the same of Robb Stark.  But these lords who flocked to my brother's banners knew him for an usurper.  They turned their backs on their rightful king for no better reason than dreams of power and glory, and I have marked them for what they are.  Pardoned them, yes.  Forgiven, but not forgotten.  -  Stannis Baratheon
