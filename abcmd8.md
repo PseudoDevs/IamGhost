@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 16:20:01
-Random Quote: The Night's Watch is a sworn brotherhood.  We have no families.  None of us will ever father sons.  Our wife is duty.  Our mistress is honor.  -  Benjen Stark
+Last updated: 2024-04-07 16:20:34
+Random Quote: Someone has to protect this family from the man who protects this family. - Skyler White
