@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 20:10:44
-Random Quote: Barney: "Or it's a chance to mess with her head by showing up with someone hotter. Even better. Triple-threat: hotter and bigger boobs."Ted: "That's only two?"Barney: "Count again!" - Barney Stinson
+Last updated: 2024-04-07 20:11:17
+Random Quote: And, you know, you just can't be mad at me for wanting you to be okay. - Rue Bennett
