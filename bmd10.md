@@ -1,3 +1,2 @@
-Last updated: 2024-04-07 17:44:11
-Random Quote: Layla: "Summon the suit!"
-Steven: "Summon the soup? What are you saying?" - Arthur Harrow
+Last updated: 2024-04-07 17:47:50
+Random Quote: Only a fool humbles himself when the world is so full of men eager to do that job for him.  -  Theon Greyjoy
