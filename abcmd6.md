@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 17:05:32
-Random Quote: You're a beautiful, sweet girl. Fuck this guy! - Nicky Nichols
+Last updated: 2024-04-07 17:07:24
+Random Quote: Robin: "Who wants hot-wings?"Lily: "I'm in... or maybe we should just pour hot-sauce on Barney, since he's a total chicken." - Lily Aldrin
