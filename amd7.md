@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 18:03:26
-Random Quote: That changes everything, how do you know who to trust? - Meemaw
+Last updated: 2024-04-07 18:03:59
+Random Quote: Old stories are like old friends, Old Nan used to say.  You have to visit them from time to time.  -  Bran Stark
