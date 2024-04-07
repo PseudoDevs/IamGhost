@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 06:02:34
-Random Quote: Did you think your dad was the only Mandalorian? - Bo-Katan
+Last updated: 2024-04-07 06:03:08
+Random Quote: We can only die.  Why else do we don these black cloaks, but to die in defense of the realm?  -  Qhorin Halfhand
