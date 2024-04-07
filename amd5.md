@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 04:51:25
-Random Quote: Stella hated Star Wars! She lied to you. Search your feelings, Ted. You know it to be true! - Marshall Eriksen
+Last updated: 2024-04-07 04:53:57
+Random Quote: Knights?  Dondarrion's a knight, but the rest of you are the sorriest lot of outlaws and broken men I've ever seen.  -  Sandor Clegane
