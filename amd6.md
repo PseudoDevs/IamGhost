@@ -1,4 +1,2 @@
-Last updated: 2024-04-07 17:55:36
-Random Quote: Marshall: "Except the flames of Lucifer keep singein our back bumper as we drive through this hellish, cheese-infected wasteland."
-Lily: "Wisconsin?"
-Marshall: "Wisconsin!" - Marshall Eriksen
+Last updated: 2024-04-07 17:56:42
+Random Quote: The brain drives our thoughts, our behavior. It holds all of the secrets of the universe. There's a whole hidden world inside each of us which only needs to be deciphered. - Maura Franklin
