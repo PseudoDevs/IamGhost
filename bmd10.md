@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 05:24:45
-Random Quote: Barney: "How's the single life?"Ted: "I wouldn't know. After this whole Robin thing, I'm laying low."Barney: "Laying low as in sleeping with a really short chick? You guys doing thirty-nine?" - Barney Stinson
+Last updated: 2024-04-07 05:25:17
+Random Quote: Ted it's fine, I'm a child of divorce. You guys keep fighting all you want - as long as the expensive gifts keep coming. - Lily Aldrin
