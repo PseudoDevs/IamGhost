@@ -1,3 +1,2 @@
-Last updated: 2024-04-07 16:50:55
-Random Quote: Men and their d-cks never cease to amaze me. John, Lizzie Stark never did a day's work vertical.
-Brave is going where no man has gone before. And with Lizzie Stark, John, that's not what you'll be doing. - Polly Gray
+Last updated: 2024-04-07 16:51:28
+Random Quote: Underneath all of those lies is one true thing. One true thing that can support the weight of all the lies in the world, and that's the fact that I love you. - Barney Stinson
