@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 07:04:11
-Random Quote: You know what else is scary? Walking home alone at night. But us women keep doing it. Take fear by the hand and keep living. Because you have to live, gentlemen! You have to live until the end! - Nairobi
+Last updated: 2024-04-07 07:04:52
+Random Quote: The farther you go, the sharper their blade. Just don't ever give them an opening. - Cal Jacobs
