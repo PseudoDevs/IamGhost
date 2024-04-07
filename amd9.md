@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 18:28:56
-Random Quote: It was the white cloak that soiled me, not the other way around.  -  Jaime Lannister
+Last updated: 2024-04-07 18:29:31
+Random Quote: So young.  Though mayhaps this was a blessing.  Had he lived, he would have grown up to be a Frey.  -  Wyman Manderly
