@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 17:27:17
-Random Quote: No one had expected the broken boy to live.  The gods could not kill Bran, no more than I could.  It was a strange thought, and stranger still to remember that Bran might still be alive.  -  Theon Greyjoy
+Last updated: 2024-04-07 17:27:50
+Random Quote: Everything will be okay in the end. If it's not okay, it's not the end. - Yuk Je
