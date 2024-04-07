@@ -1,3 +1,2 @@
-Last updated: 2024-04-07 17:06:42
-Random Quote: Sam: "How do you know about Gandalf?"
-Bucky: "I read 'The Hobbit' in 1937, when it first came out." - Bucky Barnes
+Last updated: 2024-04-07 17:07:16
+Random Quote: Be careful who you put your faith in. The only people who can betray us, are the ones we trust. - Maria Miller
