@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 06:32:27
-Random Quote: Hush, Alerie, don't take that tone with me.  And don't call me mother.  If I'd given birth to you, I'm sure I'd remember.  I'm only to blame for your husband, the lord oaf of Highgarden.  -  Olenna Tyrell
+Last updated: 2024-04-07 06:33:00
+Random Quote: Alex: "Luke got his head stuck in the banister again."Phil: "I got it. Where's the babyoil?"Claire: "It's on our bedside tip- I Don't know, find it!" - Claire Dunphy
