@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 20:22:00
-Random Quote: Good men and true will fight for Joffrey, wrongly believing him the true king.  A northman might even say the same of Robb Stark.  But these lords who flocked to my brother's banners knew him for an usurper.  They turned their backs on their rightful king for no better reason than dreams of power and glory, and I have marked them for what they are.  Pardoned them, yes.  Forgiven, but not forgotten.  -  Stannis Baratheon
+Last updated: 2024-04-07 20:22:34
+Random Quote: Hey, it's me again. Look, who are we kidding? You and I are both attracted to each other. We're young, we're drunk, half of us anyway. And we only get one life, so why don't you come over to my apartment and we'll think of something stupid to do together? - Ted Mosby
