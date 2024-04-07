@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 20:24:55
-Random Quote: Might be you fooled these others, crow, but don't think you'll be fooling Mance.  He'll take one look a' you and know you're false.  And when he does, I'll make a cloak o' your wolf there, and open your soft boy's belly and sew a weasel up inside.  -  the Lord of Bones
+Last updated: 2024-04-07 20:25:28
+Random Quote: Put me on your magical boat, man, and sail me down your chocolaty river of meth! - Badger
