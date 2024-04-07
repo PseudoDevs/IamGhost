@@ -1,2 +1,3 @@
-Last updated: 2024-04-07 04:57:10
-Random Quote: I've killed a lot more than him, I promise you.  You think that makes me some monster.  Well, maybe it does, but I saved your sister's life too.  The day the mob pulled her off her horse, I cut through them and brought her back to the castle, else she would have gotten what Lollys Stokeworth got.  And she sang for me.  You didn't know that, did you?  Your sister sang me a sweet little song.  -  Sandor Clegane
+Last updated: 2024-04-07 04:57:46
+Random Quote: Bo-Katan: "You are not a Mandalorian."
+Boba: "Never said I was." - Boba Fett
