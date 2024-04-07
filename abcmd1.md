@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 16:41:19
-Random Quote: Miss Addams, you sadly had a very interesting educational journey. Eight schools in five years. - Larissa Weems
+Last updated: 2024-04-07 16:41:53
+Random Quote: If you don’t know who I am, then maybe your best course would be to tread lightly. - Walter White
