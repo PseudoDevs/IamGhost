@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 19:51:45
-Random Quote: Lily, you just gave those children a stapler, a pair of sharp scissors and a pretty decent Pinot Noir. - Marshall Eriksen
+Last updated: 2024-04-07 19:52:52
+Random Quote: Nobody takes an intro class to get on any other path, but the path to not being hungover anymore. I learned that in my intro to something-ology class. - Marshall Eriksen
