@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 07:09:41
-Random Quote: Sometimes I don't know if I love how much I fear Claire, or fear how much I love her. - Phil Dunphy
+Last updated: 2024-04-07 07:10:16
+Random Quote: Get the f out of here and don't stop walking until you hear them speak English! - Guillermo Gonzalez Calderoni
