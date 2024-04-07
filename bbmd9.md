@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 05:53:03
-Random Quote: The biggest case of my life and I'd already lost the jury. I mean, I've heard of "Twelve Angry Men",  but this was more like "Twelve Horny Women". - Marshall Eriksen
+Last updated: 2024-04-07 05:53:36
+Random Quote: Now you may be asking yourself why is sports icon John McEnroe narrating this tale? It'll make sense later I promise. - John McEnroe
