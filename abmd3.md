@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 05:39:57
-Random Quote: Robin: "He has a book of plays he uses to trick women into sleeping with him."Patrice: "Oh, no way. Barney's my honey bear."Robin: "Actually, one of his plays is called 'The Honey Bear'. He dresses up like Winnie the Pooh, and the next thing you know, his hand's stuck in your pot." - Robin Scherbatsky
+Last updated: 2024-04-07 05:40:30
+Random Quote: This is Hawkins, okay? You wanna know the worst thing that's ever happened here in the four years I've been working here? It was when an owl attacked Eleanor Gillespie's head because it though that her hair was a nest. - Jim Hopper
