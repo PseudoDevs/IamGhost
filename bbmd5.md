@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 20:17:30
-Random Quote: What I find interesting, is how so many supervillains are scientistsIf the world doesn't respect me, I might change sides. - Sheldon
+Last updated: 2024-04-07 20:19:12
+Random Quote: Lily: "We'll all have a wedding dress camp-out. It'll be fun!"Barney: "I can't go. I've got this thing."Lily: "What thing?"Barney: "A penis!" - Barney Stinson
