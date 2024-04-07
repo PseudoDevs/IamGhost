@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 16:29:48
-Random Quote: See, lad, that's why he's the king and I'm not.  I can outdrink, outfight, and outsing him, and my member's thrice the size o' his, but Mance has cunning.  -  Tormund Giantsbane
+Last updated: 2024-04-07 16:30:56
+Random Quote: Oh, this dress is totally going to get me laid on my wedding night. - Lily Aldrin
