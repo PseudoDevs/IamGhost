@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 18:10:29
-Random Quote: Despite the stupidity, the lies, you're compelled. The problem has been assigned and you'll stop at nothing until you find an answer. Because that is who you are. - Valery Legasov
+Last updated: 2024-04-07 18:11:04
+Random Quote: You are not the guy. You're not capable of being the guy. I had a guy but now I don't. You are not the guy. - Mike Ehrmantraut

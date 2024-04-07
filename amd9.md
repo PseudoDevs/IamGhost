@@ -1,3 +1,2 @@
-Last updated: 2024-04-07 18:10:29
-Random Quote: Morty: "So, time moves faster in there? Is it like a Narnia thing?"
-Rick: "I'm not a beaver who believes in Jesus Christ, Morty. But yeah, it's pretty much a Narnia thing." - Rick Sanchez
+Last updated: 2024-04-07 18:11:04
+Random Quote: Rick: "If it's all the same, could we still get our stories straight? Because you're a terrible liar."Jerry: "You called me a master convincer!"Rick: "You believed me?" - Rick Sanchez
