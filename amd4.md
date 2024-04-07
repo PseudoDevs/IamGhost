@@ -1,3 +1,2 @@
-Last updated: 2024-04-07 17:33:00
-Random Quote: Float like a butterfly, sting like a bee,
-my name is Steven with a V. - Arthur Harrow
+Last updated: 2024-04-07 17:33:33
+Random Quote: I am the Greyjoy, Lord Reaper of Pyke, King of Salt and Rock, Son of the Sea Wind, and no man gives me a crown.  I pay the iron price.  I will take my crown, as Urron Redhand did five thousand years ago.  -  Balon Greyjoy
