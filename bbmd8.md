@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 19:03:21
-Random Quote: Will you explain to me how that was offside? No, I'm asking you, seriously. Explain offside to me! It makes no sense. - Rebecca Welton
+Last updated: 2024-04-07 19:03:56
+Random Quote: The truth isn't always to most exciting version of things, or the best, or the worst. It's somewhere inbetween. But it deserves to be heard and remembered. 'The truth will out', like someone said once. It remains. - Hannah Baker
