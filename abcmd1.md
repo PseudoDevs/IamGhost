@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 16:46:57
-Random Quote: I have always wanted to have one mahogany desk, but crime and office don’t get along. - Berlin
+Last updated: 2024-04-07 16:47:31
+Random Quote: Bear Island knows no king save the King in the North, whose name is Stark.  -  Lyanna Mormont
