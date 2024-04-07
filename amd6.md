@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 04:24:08
-Random Quote: Tarly, when I was a lad half your age, my lady mother told me that if I stood about with my mouth open, a weasel was like to mistake it for his lair and run down my throat.  If you have something to say, say it.  Otherwise, beware of weasels.  -  Jeor Mormont
+Last updated: 2024-04-07 04:24:40
+Random Quote: I feel like her sobriety is completely dependent on how available I am to her. - Jules Vaughn
