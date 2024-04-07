@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 04:21:47
-Random Quote: I'm not him, I'm not the turncloak, he died at Winterfell.  My name is Reek.  It rhymes with freak.  -  Reek
+Last updated: 2024-04-07 04:22:20
+Random Quote: In this world, a man must learn to seize whatever gifts the gods chose to send him.  That was a lesson I learned at some cost.  -  The Tattered Prince
