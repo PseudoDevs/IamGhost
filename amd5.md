@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 16:35:31
-Random Quote: I pray for a glimpse of Azor Ahai, and R'hllor shows me only Snow.  -  Melisandre
+Last updated: 2024-04-07 16:36:06
+Random Quote: Being a Mandalorian is not just learning about how to fight. You also have to know how to navigate the Galaxy. That way you'll never be lost. - Din Djarin
