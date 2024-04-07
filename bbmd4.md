@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 16:45:06
-Random Quote: The common people pray for rain, healthy children, and a summer that never ends.  It is no matter to them if the high lords play their game of thrones, so long as they are left in peace.  They never are.  -  Jorah Mormont
+Last updated: 2024-04-07 16:45:39
+Random Quote: You know, it's funny. Almost every woman I've ever met was wrong to give me a chance. You're the first woman who's wrong not to. - Barney Stinson
