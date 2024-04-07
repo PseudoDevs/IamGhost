@@ -1,4 +1,2 @@
-Last updated: 2024-04-07 06:54:30
-Random Quote: Rebecca: "So, I spoke to the owner of The Sun."
-Ted: "You spoke to God?!"
-Rebecca: "No, the newspaper." - Rebecca Welton
+Last updated: 2024-04-07 06:55:04
+Random Quote: And, you know, you just can't be mad at me for wanting you to be okay. - Rue Bennett
