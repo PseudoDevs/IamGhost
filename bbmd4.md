@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 20:26:46
-Random Quote: I learned form Set Arthur Dayne, the Sword of the Morning, who could have slain all five of you with his left hand while he was taking a piss with the right.  -  Jaime Lannister
+Last updated: 2024-04-07 20:27:20
+Random Quote: During incarceration, defendant Goodman to receive one pint Blue Bell mint chocolate chip ice cream every Friday for the duration. - Saul Goodman
