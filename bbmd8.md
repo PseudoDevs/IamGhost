@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 20:26:39
-Random Quote: Best way to catch the smart ones? Get an idiot working for them. - Jaime Kuykendall
+Last updated: 2024-04-07 20:27:13
+Random Quote: Old gods or new, it makes no matter, no man is so accursed as the kinslayer.  -  Rickard Karstark
