@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 05:28:57
-Random Quote: You see, ladies? When you're out with a Blinder, you don't have to queue. - Arthur Shelby
+Last updated: 2024-04-07 05:29:33
+Random Quote: A hall to die in, and men to bury me.  I thank you, my lords... but I spit on your pity... I am a knight... I shall die a knight.  -  Barristan Selmy
