@@ -1,2 +1,3 @@
-Last updated: 2024-04-07 20:12:53
-Random Quote: We should have never gotten on this ship. It was a mistake. All of it, a huge mistake. - Yuk Je
+Last updated: 2024-04-07 20:13:26
+Random Quote: Grace Burgess: "You think I am a wh-re?"
+Tommy Shelby: "Everyone's a wh-re, Grace. We just sell different parts of ourselves." - Thomas Shelby
