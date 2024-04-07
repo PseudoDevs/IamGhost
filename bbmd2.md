@@ -1,2 +1,3 @@
-Last updated: 2024-04-07 17:57:44
-Random Quote: When the sun rises in the west and sets in the east.  When the seas go dry and mountains blow in the wind like leaves.  When your womb quickens again, and you bear a living child.  Then he will return, and not before.  -  Mirri Maz Duur
+Last updated: 2024-04-07 17:58:20
+Random Quote: What do I think love is? It's like when someone makes your stomach feel all tight, but floaty at the same time, you know? And your cheeks hurt from smiling. And you smile so much, that people think something's wrong with you.
+...And also fucking. Twenty-four seven, deep-dick, can't-walk-right fucking. - Aleida Diaz
