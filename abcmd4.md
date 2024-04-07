@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 07:29:48
-Random Quote: Know the men who follow you and let them know you.  Don't ask your men to die for a stranger.  -  Eddard Stark
+Last updated: 2024-04-07 07:30:22
+Random Quote: Young or old, a true knight is sworn to protect those who are weaker than himself, or die in the attempt.  -  Brienne of Tarth
