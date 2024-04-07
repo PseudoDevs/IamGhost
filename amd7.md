@@ -1,2 +1,3 @@
-Last updated: 2024-04-07 19:40:40
-Random Quote: Geniuses are always branded as crazy. - Pablo Escobar
+Last updated: 2024-04-07 19:41:13
+Random Quote: Sal: "Does Lily have any other plates? I don't let Sammy eat off this plastic."
+Pepper: "How does she breastfeed him if she doesn't let him near plastic?" - Pepper Saltzman
