@@ -1,3 +1,2 @@
-Last updated: 2024-04-07 18:44:04
-Random Quote: The good news is, Luke has his bike.
-More good news, I taught some random kid a valuable lesson by stealing his bike. - Phil Dunphy
+Last updated: 2024-04-07 18:45:10
+Random Quote: Young I was, and vain, but the sea washed my follies and my vanities away.  That man drowned, nephew.  His lungs filled with seawater, and the fish ate the scales off his eyes.  When I rose again, I saw clearly.  -  Aeron Greyjoy
