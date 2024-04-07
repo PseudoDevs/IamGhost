@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 17:29:40
-Random Quote: Ted: "You name a chubby white kid LeBron and he's the one getting stuffed in the basketball hoop."Marshall: "Then I'm also crossing off Shaquille, Hakeem and Dikembe." - Ted Mosby
+Last updated: 2024-04-07 17:30:14
+Random Quote: Smoking marijuana, eating cheetos, and masturbating do not constitute plans in my book. - Walter White
