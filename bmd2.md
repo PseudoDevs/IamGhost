@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 06:07:34
-Random Quote: Tell the Crow's Eye he's afraid of kinslaying and he'll murder one of his own sons just to prove you wrong.  -  Asha Greyjoy
+Last updated: 2024-04-07 06:08:08
+Random Quote: It's the greatest samurai, who lets his sword rust in its scabbard. - Barney Stinson
