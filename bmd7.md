@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 04:13:55
-Random Quote: I pray for a glimpse of Azor Ahai, and R'hllor shows me only Snow.  -  Melisandre
+Last updated: 2024-04-07 04:14:32
+Random Quote: Because there's no way watching it can be more fun than playing it yourself. - Oh Il-nam
