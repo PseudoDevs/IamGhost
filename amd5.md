@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 05:02:30
-Random Quote: If you die before you say her name, Set, I will hunt you through the seven hells.  -  Oberyn Martell
+Last updated: 2024-04-07 05:03:03
+Random Quote: I've had shits that I've liked better than Walder Frey.  -  Brynden Tully
