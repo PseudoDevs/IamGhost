@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 18:50:57
-Random Quote: Whats your prescription, Dr. Estrogen? Eat Haagen-Dazs and watch "Love... actually" until your periods sync up? - Barney Stinson
+Last updated: 2024-04-07 18:51:31
+Random Quote: The other thing about depression is it kind of collapses time. Suddenly, you find your whole days blending together to create one endless and suffocating loop. So you find yourself trying to remember the things that made you happy. But slowly, your brain begins to erase every memory that ever brought you joy. And eventually, all you can think about is how life has always been this way. And will only continue to be this way. - Rue Bennett
