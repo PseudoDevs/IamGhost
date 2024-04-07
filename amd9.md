@@ -1,2 +1,3 @@
-Last updated: 2024-04-07 17:08:39
-Random Quote: We should have never gotten on this ship. It was a mistake. All of it, a huge mistake. - Yuk Je
+Last updated: 2024-04-07 17:10:33
+Random Quote: The Deep: "What do we do? We can't just kill everyone."
+Billy Butcher: "That's exactly what we're gonna do!" - Billy Butcher
