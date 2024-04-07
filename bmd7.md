@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 04:22:14
-Random Quote: Well, Amanda is going to make Lily a cake, she's a chef! We met when I was at a restaurant last week and I sent some soup back. Luckily she's got such pretty hair I didn't mind eating a little bit of it. - Ted Mosby
+Last updated: 2024-04-07 04:22:47
+Random Quote: The World is going to come to an end tonight. Yes think about it. End of the World, Nostradamus, Notre Dame, Fighting Irish, Irish, St. Patrick's Day. This is it Bro. Bro-calypse Now... Bro-Mageddon. - Barney Stinson
