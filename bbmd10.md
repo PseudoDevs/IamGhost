@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 05:07:04
-Random Quote: Per the student dress and grooming code, this boy's hair is too longThis boy's wearing sports attire outside a designated areaAnd this girl's blouse is diaphanous, which means I can see her brassiere. - Sheldon
+Last updated: 2024-04-07 05:08:18
+Random Quote: They are knights now, all three, and your sister has promised them further advancement.  And the eldest, Set Osmund of the Kingsguard, dreams of certain other... favors... as well.  You can match the queen coin for coin, I have no doubt, but she has a second purse that is quite inexhaustible.  -  Varys
