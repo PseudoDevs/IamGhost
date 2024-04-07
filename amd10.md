@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 16:51:41
-Random Quote: So young.  Though mayhaps this was a blessing.  Had he lived, he would have grown up to be a Frey.  -  Wyman Manderly
+Last updated: 2024-04-07 16:52:18
+Random Quote: What do a bunch o' bloody peasants know about a lord's honor?  We know some about murder, though.  -  Lem Lemoncloak
