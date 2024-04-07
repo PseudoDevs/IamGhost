@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 18:28:25
-Random Quote: The bad guys need to get lucky every time. The good guys just need to get lucky once. - Steve Murphy
+Last updated: 2024-04-07 18:28:58
+Random Quote: Do you think I can't tell Lord Stannis from Lord Tywin?  They're both bungholes who think they're too noble to shit, but never mind about that, I know the difference.  -  Walder Frey
