@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 17:31:50
-Random Quote: She hated her life, not because it was bad, but because when you hate your brain and your body, it's hard to enjoy the rest. - Rue Bennett
+Last updated: 2024-04-07 17:33:05
+Random Quote: Freeways have exits, so do relationships. The first exit, my personal favourite, is six hours in: You meet, you talk, you have sex, you exit when she's in the shower. - Barney Stinson
