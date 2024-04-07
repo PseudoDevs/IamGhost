@@ -1,3 +1,2 @@
-Last updated: 2024-04-07 06:04:42
-Random Quote: Mr. Nimbus: "Say goodbye to your precious dry land! For soon it will be wet!"
-Rick: "Yeah, global warming is already doing that. But sure, yeah, go for it. Make us slightly more wet." - Rick Sanchez
+Last updated: 2024-04-07 06:05:16
+Random Quote: No tales were ever told of me.  Do you think I would be sitting here if it were otherwise?  Your amusements are your own, I will not chide you on that count, but you must be more discreet.  A peaceful land, a quiet people.  That has always been my rule.  Make it yours.  -  Roose Bolton
