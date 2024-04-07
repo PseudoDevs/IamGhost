@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 04:53:48
-Random Quote: When something seems too perfect, it's usually anything but. - Allison Hargreeves
+Last updated: 2024-04-07 04:54:21
+Random Quote: There is entirely too much tut - tutting in this realm, if you ask me.  All these kings would do a deal better if they put down their swords and listended to their mothers. 
