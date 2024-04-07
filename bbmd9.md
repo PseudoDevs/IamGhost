@@ -1,3 +1,2 @@
-Last updated: 2024-04-07 05:29:33
-Random Quote: Planetina: "Your acid rain is an acid pain... in the butt, Diesel Wiesel!"
-Rick: "Yikes! Who's the chick in need of a dialogue pass?" - Rick Sanchez
+Last updated: 2024-04-07 05:30:09
+Random Quote: Richard, you have desecrated the sacred treaty betwixt land and sea. Now face the wrath of your once and eternal foe - Mr. Nimbus! - Mr. Nimbus

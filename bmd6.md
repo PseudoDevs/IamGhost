@@ -1,2 +1,3 @@
-Last updated: 2024-04-07 05:29:33
-Random Quote: A hall to die in, and men to bury me.  I thank you, my lords... but I spit on your pity... I am a knight... I shall die a knight.  -  Barristan Selmy
+Last updated: 2024-04-07 05:30:09
+Random Quote: Morty: "Rick, can we not leave without my sister?"
+Rick: "Ugh. You have infinite sisters, Morty. Not that I want to spend the rest of my day looking for another one. Sum-Sum, let's go! Grandpa's concern for your safety is fleeting." - Rick Sanchez
