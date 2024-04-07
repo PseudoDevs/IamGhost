@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 05:06:41
-Random Quote: We were king's men, knights, and heroes... but some knights are dark and full of terror, my lady.  War makes monsters of us all.  -  Thoros of Myr
+Last updated: 2024-04-07 05:07:14
+Random Quote: I thought I was the inventor, but the greatest invention of all is the free gift of eternal life. - Rick Sanchez
