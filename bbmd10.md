@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 17:40:16
-Random Quote: A war is coming. I'm afraid your friends at Hawkins are very much in the eye of the storm. I don't know how to say this other than just to say it: without you, we can't win this war. - Sam Owens
+Last updated: 2024-04-07 17:40:49
+Random Quote: I only have one rule. For every three 10's you bang, throw a bone to a 5. They're grateful and hard working and let's face it, sometimes you just want to lay there. - Barney Stinson
