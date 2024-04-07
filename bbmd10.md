@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 05:33:42
-Random Quote: Think about it, this is perfect.a) It'll make Robin insanly jealousb) You get to have sex with herc) Maybe by getting to know Mary, you'll come to see that cortisens are people tooand d) B! All night long! - Barney Stinson
+Last updated: 2024-04-07 05:34:19
+Random Quote: Make it easier for those whose vote you can count on. Make it harder for those you can't. That's how you rig an election without leaving a lick of evidence. - Walt Breslin
