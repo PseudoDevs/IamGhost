@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 19:56:16
-Random Quote: Just when you thought things couldn't get any worse, we gotta go to Jersey. - Hulk
+Last updated: 2024-04-07 19:56:50
+Random Quote: No, only a boy who dreams.  The greenseers were more than that.  They were wargs as well, as you are, and the greatest of them could wear the skins of any beast that flies or swims or crawls, and could look through the eyes of the weirwoods as well, and see the truth that lies beneath the world.  -  Jojen Reed
