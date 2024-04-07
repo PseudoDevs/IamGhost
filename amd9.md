@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 17:14:00
-Random Quote: Ted: "So, you are mad about me and Robin holding hands."Barney: "Of course I'm mad Ted. Holding hands is like the fourth grade equivalent of banging. Well in your case, twelfth grade. Self-five!" - Barney Stinson
+Last updated: 2024-04-07 17:14:33
+Random Quote: So how do you take down a crook who's at the top of his game? Who has every cop in town in his pocket? Well, you hold your breath and you hope you get lucky. - Walt Breslin
