@@ -1,2 +1,3 @@
-Last updated: 2024-04-07 19:48:54
-Random Quote: Talking to a woman that you have already had sex with, is like changing the oil on a rental car! - Barney Stinson
+Last updated: 2024-04-07 19:49:27
+Random Quote: Morty: "I don't deserve this. I was just having fun."
+Rick: "So was Jeffrey Dahmer." - Rick Sanchez
