@@ -1,3 +1,2 @@
-Last updated: 2024-04-07 04:30:15
-Random Quote: Morticia: "That boy's family was going to file attempted murder charges. How would that have looked on your record?"
-Wednesday: "Terrible. Everyone would know I failed to get the job done." - Wednesday Addams
+Last updated: 2024-04-07 04:30:54
+Random Quote: Sometimes our best decisions are the ones that don't make any sense at all. - Ted Mosby
