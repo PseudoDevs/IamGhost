@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 19:55:05
-Random Quote: I've only known one other being like this. A wise Jedi Master named Yoda. - Ahsoka Tano
+Last updated: 2024-04-07 19:55:39
+Random Quote: Jon was not afraid of death, but he did not want to die like that, trussed and bound and beheaded like a common brigand.  If he must perish, let it be with a sword in his hand, fighting his father's killers.  He was no true Stark, had never been one... but he could die like one.  Let them say that Eddard Stark had fathered four sons, not three.  -  Jon Snow
