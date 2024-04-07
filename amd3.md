@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 19:10:33
-Random Quote: Doctor: "Don't worry, it's totally safe. Unless part of your big date involves connecting yourself to a car battery."Barney: "Well, now it doesn't." - Barney Stinson
+Last updated: 2024-04-07 19:11:06
+Random Quote: Many good men have been bad kings, and some bad men have been good kings.  -  Maester Aemon
