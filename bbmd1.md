@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 19:09:23
-Random Quote: Eighty-six years. But with good behavior... who knows? - Saul Goodman
+Last updated: 2024-04-07 19:09:57
+Random Quote: I've lost a hand, a father, a son, a sister, and a lover, and soon enough I will lose a brother.  And yet they keep telling me House Lannister has won this war.  -  Jaime Lannister
