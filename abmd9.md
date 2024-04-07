@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 18:42:53
-Random Quote: You all know exactly who I am. Say my name. - Walter White
+Last updated: 2024-04-07 18:44:00
+Random Quote: To go north, you must go south.  To reach the west, you must go east.  To go forward you must go back, and to touch the light you must pass beneath the shadow.  -  Quaithe
