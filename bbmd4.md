@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 18:51:30
-Random Quote: Lily: "Ted, you did this all yourself?"Ted: "Just like Ryan Gosling in 'The Notebook'. It was pretty manly 'til I mentioned Ryan Gosling in 'The Notebook', huh?" - Ted Mosby
+Last updated: 2024-04-07 18:52:05
+Random Quote: A lie is just a great story that someone ruined with the truth. - Barney Stinson
