@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 19:26:34
-Random Quote: I just want to say to whoever is voting for me that I would certainly make an awful Lord Commander.  But so would all these others.  -  Dolorous Edd Tollett
+Last updated: 2024-04-07 19:27:08
+Random Quote: Because someday, something will go wrong. It could cost you your life or something worse. And on that day what you can’t be thinking is that you are to be blamed for something you couldn’t control. That’s life. Enjoy it, until the party is over. - Berlin
