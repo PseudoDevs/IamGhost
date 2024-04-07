@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 19:47:19
-Random Quote: Give me back my spear, Uncle.  Cersei sent us a head.  We should send her back a bag of them.  -  Obara Sand
+Last updated: 2024-04-07 19:47:52
+Random Quote: Since I stopped dating Robin, there's this thing I haven't used as much as I would like. It's kind of big. Surprisingly heavy. Kind of leathery. And it's black.This, my friends, is the playbook! - Barney Stinson
