@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 05:52:02
-Random Quote: They are children, Sansa thought.  They are silly little girls, even Elinor.  They've never seen a battle, they've never seen a man die, they know nothing.  Their dreams were full of songs and stories, the way hers had been before Joffrey cut her father's head off.  Sansa pitied them.  Sansa envied them.  -  Sansa Stark
+Last updated: 2024-04-07 05:52:37
+Random Quote: Walter Jr., you’re my big man. There are going to be some things that you’ll come to learn about me in the next few days. But just know that no matter how it may look, I only had you in my heart. Goodbye! - Walter White
