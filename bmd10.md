@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 16:51:52
-Random Quote: These old knights are more cunning than you think, or they would never have lived to see their first grey hair.  -  Dagmer Cleftjaw
+Last updated: 2024-04-07 16:52:25
+Random Quote: Our secrecy is our survival. our survival is our strength. - The Armorer
