@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 04:17:10
-Random Quote: Sheldon, faith means believing in something you can't know for sure is realAnd right now, I am struggling with that. - Mary
+Last updated: 2024-04-07 04:17:43
+Random Quote: All the tales agreed that the green men had strange magic powers.  Maybe they could help him walk again, even turn him into a knight.  They turned the little crannogman into a knight, even if it was only for a day, he thought.  A day would be enough.  -  Bran Stark
