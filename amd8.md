@@ -1,3 +1,2 @@
-Last updated: 2024-04-07 16:24:56
-Random Quote: Neither one of us are gonna say, "Hey, how's it going?" or "Good to see you!"
-Because it really will be good to see you. - Barney Stinson
+Last updated: 2024-04-07 16:25:30
+Random Quote: Your pain defines who you are but it no longer holds power on you - Noah
