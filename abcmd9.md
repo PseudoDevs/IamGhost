@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 16:48:22
-Random Quote: When the truth offends me, we lie and we lie until we can no longer remember it is even there. Every lie we tell incurs a debt to the truth. Sooner or later, that debt is paid. - Valery Legasov
+Last updated: 2024-04-07 16:48:55
+Random Quote: Gustavo. When I looked into your eyes... hate. A little bit's okay. As long as you never forget who's boss. - Don Eladio
