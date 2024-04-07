@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 16:20:34
-Random Quote: We all wanted to be loved by a man incapable of giving love. - Number Five
+Last updated: 2024-04-07 16:22:22
+Random Quote: If you wish to give up on playing, the 25.5 billion won will be sent to the bereaved families of the late players. - Jang Deok-su
