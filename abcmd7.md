@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 19:27:42
-Random Quote: If you don't think there's hope for the world, why bother going on? - Ellie Williams
+Last updated: 2024-04-07 19:30:01
+Random Quote: She don't speak.  You bloody bastards cut her throat too deep for that.  But she remembers.  -  Lem Lemoncloack
