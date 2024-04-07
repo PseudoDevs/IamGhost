@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 17:55:17
-Random Quote: As fun as this place is, it's late. So, what's our play? And don't say, "The Siamese Twins", we're not stretching out another one of my jackets! - Ted Mosby
+Last updated: 2024-04-07 17:57:07
+Random Quote: That's not a law, just a sword.  Happens I got one too.  -  Yoren of the Night's Watch
