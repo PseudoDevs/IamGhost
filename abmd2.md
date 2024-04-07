@@ -1,3 +1,2 @@
-Last updated: 2024-04-07 16:52:25
-Random Quote: Wednesday: "So you were guided by latent chivalry, the tool of the patriarchy, to extract my undying gratitude?"
-Xavier: "Most people just say 'thank you'." - Xavier Thorpe
+Last updated: 2024-04-07 16:52:58
+Random Quote: You are slow to learn, Lord Eddard.  Distrusting me was the wisest thing you've don since you climbed down off your horse.  -  Petyr Baelish
