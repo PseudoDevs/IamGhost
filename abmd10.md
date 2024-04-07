@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 18:04:26
-Random Quote: I like dogs better than knights... A hound will die for you, but never lie to you.  And he'll look you straight in the face.  -  Sandor Clegane
+Last updated: 2024-04-07 18:05:03
+Random Quote: I know the poison that my father used, and there is none slower or more agonizing.  Soon we may hear the Mountain screaming, even here in Sunspear.  -  Tyene Sand
