@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 16:19:22
-Random Quote: You're wrong.  Need Stark was my gaoler, but my blood is still salt and iron.  -  Theon Greyjoy
+Last updated: 2024-04-07 16:19:56
+Random Quote: Fire in the hole, bitch! - Jesse Pinkman
