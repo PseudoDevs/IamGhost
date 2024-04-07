@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 18:18:41
-Random Quote: You could help a friend, but instead you're choosing the hot girl in the tight tank-top. Your training is complete, I'm so proud of this kid! - Barney Stinson
+Last updated: 2024-04-07 18:19:16
+Random Quote: I will go to my grave thinking of my brother's peach.  -  Stannis Baratheon
