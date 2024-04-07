@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 17:03:15
-Random Quote: I'd invite you to stay as well, Gustavo, but I don't want my breakfast ruined by all the "ding, ding ding." - Don Eladio
+Last updated: 2024-04-07 17:03:48
+Random Quote: For the night is dark and full of terrors.  -  Words of R'hllor
