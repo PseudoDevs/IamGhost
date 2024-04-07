@@ -1,11 +1,2 @@
-Last updated: 2024-04-07 18:03:49
-Random Quote: From here on in, every single night of our lives will be a night, we'll never forget. Starting tonight!
- - The night we started a Mariachi Band!
- - The night we ate everything on the menu!
- - The night we brought a horse into the bar!
- - The night we bungee-jumped off the Statue of Liberty!
- - The night we stole a mummy from the Natural History Museum!
- - The night we partied with the mole people
- - The night we tracked down Phil Collins, became best friends with him, and talked him into reuniting with Peter Gabriel, and then we got to sing back-up on the new Genesis album and it was awesome!
- - The night we stole a camel!
- - The night you got locked out in your pajamas and Robin landed a freakin' helicopter and there's still time to reunite Genesis! - Barney Stinson
+Last updated: 2024-04-07 18:05:02
+Random Quote: We all know what my brother would do.  Robert would gallop up to the gates of Winterfell alone, break them with his warhammer, and ride through the rubble to slay Roose Bolton with his left hand and the Bastard with his right.  I am no Robert.  But we will march, and we will free Winterfell... or die in the attempt.  -  Stannis Baratheon
