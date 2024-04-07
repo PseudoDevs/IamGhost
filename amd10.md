@@ -1,3 +1,2 @@
-Last updated: 2024-04-07 20:27:53
-Random Quote: Freddie: "Are you mad?"
-Ada: "Yeah. Mad as hell with all of them." - Ada Thorne
+Last updated: 2024-04-07 20:28:26
+Random Quote: You gonna ruin my life? I f'ing promise you I can do that a lot better than you can! - Rue Bennett
