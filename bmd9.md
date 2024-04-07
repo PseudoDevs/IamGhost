@@ -1,2 +1,3 @@
-Last updated: 2024-04-07 19:23:02
-Random Quote: My metabolism is all messed up. See, I can moose down a pint of fudge ripple for a midnight snack and wake up having lost weight. Well, everywhere except for my boobs. So annoying. - Robin Scherbatsky
+Last updated: 2024-04-07 19:23:35
+Random Quote: Stark: "Can I give you a piece of advice?"
+Carter: "I'd rather you didn't." - Peggy Carter
