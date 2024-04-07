@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 20:21:00
-Random Quote: When you're younger, everything feels so permanent. But as you get older, you begin to realize nothing is and everyone you love can drift away. - Rue Bennett
+Last updated: 2024-04-07 20:22:06
+Random Quote: My father knew the worth of Howland Reed.  -  Robb Stark
