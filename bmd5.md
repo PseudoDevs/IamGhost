@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 05:58:35
-Random Quote: Always look people in the eye. Even if they're blind. Just say, 'I am looking you in the eye.' - Phil Dunphy
+Last updated: 2024-04-07 05:59:48
+Random Quote: Folly and desperation are ofttimes hard to tell apart.  -  Maester Luwin
