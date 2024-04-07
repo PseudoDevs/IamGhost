@@ -1,3 +1,2 @@
-Last updated: 2024-04-07 16:34:38
-Random Quote: Robin: "I'm drinking 'til I forget the 1999 NFC Championship?"
-Marshall: "The Vikings were two minutes away from going to the Super Bowl, when our kicker, who hadn't missed all year, shanked a field goal, and we lost in overtime. Damn!" - Marshall Eriksen
+Last updated: 2024-04-07 16:35:11
+Random Quote: If we're together long enough I hope that one day you see yourself like I do. - Kevin
