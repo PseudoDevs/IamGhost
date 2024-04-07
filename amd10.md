@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 18:44:00
-Random Quote: A good act does not wash out the bad, nor a bad act the good.  Each should have its own reward.  -  Stannis Baratheon
+Last updated: 2024-04-07 18:44:33
+Random Quote: Freeways have exits, so do relationships. The first exit, my personal favourite, is six hours in: You meet, you talk, you have sex, you exit when she's in the shower. - Barney Stinson
