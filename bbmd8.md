@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 06:56:48
-Random Quote: You need to figure out what the fuck you want. - Nicky Nichols
+Last updated: 2024-04-07 06:57:24
+Random Quote: Ted: "You're not gonna do it at your wedding?"Lily: "Hell, yeah! I'm gonna take that flower-grenade and chuck it to the crowd and scream, 'Crawl for it, bitches!'" - Lily Aldrin
