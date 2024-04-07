@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 16:41:17
-Random Quote: Just when you thought things couldn't get any worse, we gotta go to Jersey. - Hulk
+Last updated: 2024-04-07 16:41:49
+Random Quote: I knew Brienne when she was no more than a girl playing at her father's feet in Evenfall Hall, and I knew her still better when the Evenstar sent her here to Storm's End.  She loved Renly Baratheon from the first moment she laid eyes on him, a blind man could see it.  -  Cortnay Penrose
