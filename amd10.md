@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 18:07:15
-Random Quote: Barney: "Looks like that bee got busy."Ted: "Looks like that French maid didn't turn down somebody's bed."Marshall: "Oh, looks like Pocahontas has a couple of wounded knees." - Marshall Eriksen
+Last updated: 2024-04-07 18:07:48
+Random Quote: There's only one thing that could blind a man as smart as you, Tommy. Love. - Polly Gray
