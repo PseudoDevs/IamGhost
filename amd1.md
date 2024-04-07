@@ -1,2 +1,4 @@
-Last updated: 2024-04-07 07:13:17
-Random Quote: Friendships are the foundation that we stand on. - Nina Locke
+Last updated: 2024-04-07 07:13:53
+Random Quote: Marshall: "Except the flames of Lucifer keep singein our back bumper as we drive through this hellish, cheese-infected wasteland."
+Lily: "Wisconsin?"
+Marshall: "Wisconsin!" - Marshall Eriksen
