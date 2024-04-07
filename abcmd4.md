@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 06:30:28
-Random Quote: Yes, I'm in a rotten mood. No, I don't want to talk about it. Yes, this has booze in it. No, it's not my first. - Lily Aldrin
+Last updated: 2024-04-07 06:31:01
+Random Quote: Whisky's good proofing water. Tells you who's real and who isn't. - Thomas Shelby
