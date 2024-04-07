@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 17:25:57
-Random Quote: Yes, it's you who ought to run, you and Lord Tywin and the Mountain and Set Addam and Set Amory and stupid Set Lyonel whoever he is, all of you better run or my brother will kill you, he's a Stark, he's more wolf than man, and so am I.  -  Arya Stark
+Last updated: 2024-04-07 17:26:31
+Random Quote: Once, she had loved Prince Joffrey with all her heart, and admired and trusted his mother, the queen.  They had repaid that love and trust with her father's head.  Sansa would never make that mistake again.  -  Sansa Stark
