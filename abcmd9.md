@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 17:03:34
-Random Quote: Your pain defines who you are but it no longer holds power on you - Noah
+Last updated: 2024-04-07 17:04:07
+Random Quote: I will kill your wife, I will kill your son, I will kill your infant daughter. - Gustavo Fring
