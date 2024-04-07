@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 20:30:24
-Random Quote: Ted: "What do you say?"Robin: "Yes! No! I don't know..."Ted: "Those are the three options." - Ted Mosby
+Last updated: 2024-04-07 20:31:30
+Random Quote: I've had shits that I've liked better than Walder Frey.  -  Brynden Tully
