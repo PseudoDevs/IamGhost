@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 07:27:39
-Random Quote: Ted: "My mother is not one-night-stand material!"Barney: "Yeah, you're right. It wasn't night and we weren't standing." - Barney Stinson
+Last updated: 2024-04-07 07:28:14
+Random Quote: You're mine.  Mine, as I'm yours.  And if we die, we die.  All men must die, Jon Snow.  But first, we'll live.  -  Ygritte
