@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 18:24:01
-Random Quote: You gotta move...The fuck...On! - Gloria Mendoza
+Last updated: 2024-04-07 18:25:50
+Random Quote: Why should I go running to my aunt as if I were a beggar?  My claim is better than her own.  Let her come to me... in Westeros.  -  Aegon Targaryen
