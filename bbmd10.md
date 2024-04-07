@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 04:17:30
-Random Quote: They get in your head. People tell lies about you, and other people believe them. And it gets to the point where the lies might as well be the truth. - Tyler Down
+Last updated: 2024-04-07 04:18:42
+Random Quote: Mike Wheeler: "I'm not prostituting my sister."Lucas Sinclair: "But it's for a good cause." - Lucas Sinclair
