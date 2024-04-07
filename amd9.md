@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 07:24:34
-Random Quote: The Boltons have always been as cruel as they are cunning, but this one seems a beast in human skin.  -  Robett Glover
+Last updated: 2024-04-07 07:25:07
+Random Quote: If you don’t know who I am, then maybe your best course would be to tread lightly. - Walter White
