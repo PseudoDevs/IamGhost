@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 05:49:13
-Random Quote: Ted: "I hate how you're always right."Lily: "It's my best, and most annoying, trait." - Lily Aldrin
+Last updated: 2024-04-07 05:49:46
+Random Quote: He would see this country burn if he could be king of the ashes.  -  Varys
