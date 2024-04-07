@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 04:55:50
-Random Quote: I don't take nothin' a drug addict says personally. 'Cause I don't believe nothin' a drug addict say. - Fezco
+Last updated: 2024-04-07 04:56:25
+Random Quote: Someone has to protect this family from the man who protects this family. - Skyler White
