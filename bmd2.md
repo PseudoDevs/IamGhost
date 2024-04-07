@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 16:32:38
-Random Quote: So roll me further bitch! - Jesse Pinkman
+Last updated: 2024-04-07 16:34:53
+Random Quote: There is a savage beast in every man, and it stirs when you put a sword in his hand.  -  Jorah Mormont
