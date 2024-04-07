@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 20:10:43
-Random Quote: Old stories are like old friends, Old Nan used to say.  You have to visit them from time to time.  -  Bran Stark
+Last updated: 2024-04-07 20:11:17
+Random Quote: I'm a Mandalorian. Weapons are part of my religion. - Din Djarin
