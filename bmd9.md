@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 17:23:56
-Random Quote: Send him to Belize? I'll send YOU to Belize. - Walter White
+Last updated: 2024-04-07 17:24:29
+Random Quote: The Night's Watch is a sworn brotherhood.  We have no families.  None of us will ever father sons.  Our wife is duty.  Our mistress is honor.  -  Benjen Stark
