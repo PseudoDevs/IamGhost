@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 05:25:43
-Random Quote: Barney: "Fine, we'll just have a nice, tasteful rehearsal dinner. Maybe at a French restaurant, I know just the place."Robin: "What's the name of the restaurant?"Barney: "La Sertag." - Barney Stinson
+Last updated: 2024-04-07 05:26:16
+Random Quote: Lies are necessary, when the truth is too difficult to believe. - Pablo Escobar
