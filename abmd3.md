@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 16:55:21
-Random Quote: You want to hurt these guys, we gotta take down the ones calling the shots. - Jaime Kuykendall
+Last updated: 2024-04-07 16:56:36
+Random Quote: So how do you take down a crook who's at the top of his game? Who has every cop in town in his pocket? Well, you hold your breath and you hope you get lucky. - Walt Breslin
