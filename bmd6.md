@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 05:36:07
-Random Quote: I'm really sorry if I gave you the wrong impression. I'm not interested in dating anyone. I'm extremly busy with work and raising my son, and I just have no room in my life for the kind of intimacy you are clearly craving. But I really comment you on your directness and your bravado and I really hope that you find what you're looking for. Goodbye, now. - Dr. Jean Milburn
+Last updated: 2024-04-07 05:36:44
+Random Quote: People are oblivious to reality. They only see what they want to see, when all they have to do is shift their perspective to see the full scope of things. - Yuk Je
