@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 04:10:21
-Random Quote: It's probably his... I've spent years, training my boys to swim the other way. - Barney Stinson
+Last updated: 2024-04-07 04:10:56
+Random Quote: That was the night I was born. I rose like a phoenix from her mentholated bosom and strode into the world, Armani-clad and fully awesome. - Barney Stinson
