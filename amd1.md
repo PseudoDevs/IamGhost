@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 04:31:29
-Random Quote: We can only die.  Why else do we don these black cloaks, but to die in defense of the realm?  -  Qhorin Halfhand
+Last updated: 2024-04-07 04:32:04
+Random Quote: Robb Stark won the war on the battlefield and lost it in a bedchamber.  -  Jaime Lannister
