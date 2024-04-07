@@ -1,6 +1,4 @@
-Last updated: 2024-04-07 05:06:27
-Random Quote: When Mom was a groupie in the '70s, her scrambled eggs made her the darling of the MSG loading dock. Lot of songs written about those scrambled eggs:
-ZZ Top's "She's Got Legs"? Originally "She's Got Eggs".
-Led Zeppelin? "Scramble On".
-Steve Miller? "The Yolker".
-If you listen to Pink Floyd's "Dark Side of the Moon" while eating her eggs, it lines up perfectly. - Barney Stinson
+Last updated: 2024-04-07 05:07:41
+Random Quote: Jimmy: "I can't believe Wanda and Vision are having a baby."
+Darcy Lewis: "You want any?"
+Jimmy: "Heck, I thought about it for sure. A little Jimmy Woo. Get him a tiny little FBI badge... oh, you... chip? Sure." - Jimmy Woo
