@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 17:41:05
-Random Quote: Sometimes it just feels better not to talk. At All. About Anything. To Anyone. - Walter White
+Last updated: 2024-04-07 17:43:32
+Random Quote: It's just, I know I can be a jerk like him sometimes, and I do not want to be like him. Ever. - Max Mayfield
