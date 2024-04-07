@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 16:31:30
-Random Quote: Marshall: "Robin, I need you to delete the last text that Lily got before she sees it."Robin: "Bro, it's my wedding weekend. Just because you didn't know better than to take a naked selfie while you were in the coldest part of the country..."Marshall: "...first, I'm an Eriksen. Cold has a plumping effect." - Marshall Eriksen
+Last updated: 2024-04-07 16:32:04
+Random Quote: The septons preach about the seven hells.  What do they know?  Only a man who's been burned knows what hell is truly like.  -  Sandor Clegane
