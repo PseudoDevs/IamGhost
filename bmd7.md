@@ -1,2 +1,4 @@
-Last updated: 2024-04-07 17:36:35
-Random Quote: Ran: "We were all young, tryin' to make a name for ourselves. But runnin' with a Mandalorian, that brought us some reputation."Mayfeld: "Oh, yeah? What did he get out of it?"Ran: "I asked him that one time. You remember what you said, Mando? Target Practice." - Din Djarin
+Last updated: 2024-04-07 17:37:08
+Random Quote: Joel: "Where'd you get the money for this?"
+Sarah: "Drugs. I sell hardcore drugs."
+Joel: "It's better than what I do." - Joel Miller
