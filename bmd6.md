@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 04:40:54
-Random Quote: I buried an axe so deep into Willem's skull, they had to bury him with it.  -  Yoren of the Knight's Watch
+Last updated: 2024-04-07 04:41:27
+Random Quote: Stella hated Star Wars! She lied to you. Search your feelings, Ted. You know it to be true! - Marshall Eriksen
