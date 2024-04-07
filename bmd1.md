@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 05:16:04
-Random Quote: I don't feel so good. It's like my testicals mixed poprocks and soda. - Ted Mosby
+Last updated: 2024-04-07 05:16:37
+Random Quote: Marshall: "Can we borrow your air mattress? My mom's coming into town for a few days."Ted: "Absolutely not!"Lily: "Bummer, I guess she can't stay with us. Hey, look what I just found! A list of hotels and other creative housing options."Marshall: "Baby, my mom is not staying at a hotel. Or our storage unit." - Lily Aldrin
