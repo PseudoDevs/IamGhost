@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 17:43:33
-Random Quote: Larry: "She's guilty she's leaving. It's a guilt pig roasting box."Pete: "At least you get something. I'm not getting laid for a year too. But what do I get?"Larry: "A baby?"Pete: "You can't eat it." - Pete Harper
+Last updated: 2024-04-07 17:44:47
+Random Quote: Talkin' to you was one of the best parts of my whole year. - Fezco
