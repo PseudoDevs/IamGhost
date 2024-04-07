@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 04:30:41
-Random Quote: Dragons old and young, true and false, bright and dark.  And you.  A small man with a big shadow, snarling in the midst of it all.  -  Moqorro
+Last updated: 2024-04-07 04:31:14
+Random Quote: Ted, no! You never break up a girl fight! Never! - Barney Stinson
