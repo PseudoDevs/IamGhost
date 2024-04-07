@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 16:44:32
-Random Quote: Robin: "Sometimes in life you have to be assertive and stand up for yourself."Ted: "You called her a whore!"Robin: "Who wears that much make up?"Ted: "Old ladies!"Robin: "Who take money for sex, exactly!" - Robin Scherbatsky
+Last updated: 2024-04-07 16:45:37
+Random Quote: I like my testicles attached to my body, rather than rolling around next to some eyeliner in Robin's purse. Stinson out! - Barney Stinson
