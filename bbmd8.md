@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 05:06:52
-Random Quote: There was this sadness in his eyes. The kind you sometimes see in those who want to die, but life won’t let them - Noah
+Last updated: 2024-04-07 05:07:25
+Random Quote: Aye, and from what I saw of Joffrey, you are as unfit a mother as you are a ruler.  -  Kevan Lannister
