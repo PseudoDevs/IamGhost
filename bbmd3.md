@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 06:11:00
-Random Quote: In this world, a man must learn to seize whatever gifts the gods chose to send him.  That was a lesson I learned at some cost.  -  The Tattered Prince
+Last updated: 2024-04-07 06:12:09
+Random Quote: You're Reek.  You'll always be Reek, no matter how sweet you smell.  Your nose may lie to you.  Remember your name.  Remember who you are.  -  Ramsay Bolton
