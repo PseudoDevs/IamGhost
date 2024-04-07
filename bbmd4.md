@@ -1,3 +1,2 @@
-Last updated: 2024-04-07 05:29:47
-Random Quote: Ellie: "Everybody I've cared for, either died or left me."
-Joel: "You have no idea what loss is." - Joel Miller
+Last updated: 2024-04-07 05:30:20
+Random Quote: There's no shame in fear, my father told me, what matters is how we face it.  -  Jon Snow
