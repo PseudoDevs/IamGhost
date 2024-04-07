@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 17:31:48
-Random Quote: Never trust a pirate. - Din Djarin
+Last updated: 2024-04-07 17:32:24
+Random Quote: Kids, morals usually come at the end of stories, but this one is so important, I'm gonna tell you now. Don't ever, ever invite an ex to your wedding. - Ted Mosby
