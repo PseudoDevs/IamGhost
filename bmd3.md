@@ -1,3 +1,2 @@
-Last updated: 2024-04-07 16:32:19
-Random Quote: Mi-nyeo: "Deok-su. You betray me... I'll kill you. Okay?"
-Deok-su: "You're the reason that I think I might die tonight." - Jang Deok-su
+Last updated: 2024-04-07 16:32:52
+Random Quote: Are you allowed to say that to people in my tax bracket? - Iron Man
