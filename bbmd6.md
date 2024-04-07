@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 07:04:52
-Random Quote: Anyone who goes after him is gonna have to come through me. - Mike Ehrmantraut
+Last updated: 2024-04-07 07:07:17
+Random Quote: A man will tell you poison is dishonorable, but a woman's honor is different.  The Mother shaped us to protect our children, and our only dishonor is failure.  -  Lysa Arryn
