@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 06:55:34
-Random Quote: Place was overrun with rats when we moved in.  The spearwives killed the nasty buggers.  Now the place is overrun with spearwives.  There's days I want the rats back.  -  Dolorous Edd Tollett
+Last updated: 2024-04-07 06:56:47
+Random Quote: Shut the f*ck up and let me die in peace. - Mike Ehrmantraut
