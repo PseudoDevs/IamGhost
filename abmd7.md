@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 17:30:32
-Random Quote: Those called "fools" are the only ones brave enough to see the truth. - Rick Sanchez
+Last updated: 2024-04-07 17:31:07
+Random Quote: You could turn King's Landing upside down and not find a single man with a mockingbird sewn over his heart but that does not mean I am friendless.  -  Petyr Baelish
