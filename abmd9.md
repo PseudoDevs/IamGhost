@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 05:46:32
-Random Quote: Sometimes you gotta do bad things to catch bad people. - Javier Pe�a
+Last updated: 2024-04-07 05:47:07
+Random Quote: I don't wanna be choosing between two girls, I wanna be a complete head over heels idiot for one! - Ted Mosby
