@@ -1,9 +1,2 @@
-Last updated: 2024-04-07 20:17:20
-Random Quote: If my love were an ocean,
-there would be no more land.
-If my love were a desert,
-you would see only sand.
-If my love were a star-
-late at night, only light.
-And if my love could grow wings,
-I'd be soaring in flight. - Jay Asher
+Last updated: 2024-04-07 20:17:53
+Random Quote: Barney: "Check it out, I made a little game."Lottery Girl: "And tonight's lotto numbers are: 19..."Barney: "...age you moved to New York after a photographer 'discovered' you at a food court and said he would get you into Vogue Magazine."Lotto Girl: "53..."Barney: "...number of semi-nude pictures he took of you before you realized he had no connection to Vogue Magazine."Lotto Girl: "22..."Barney: "...age you claim you are."Lotto Girl: "31..."Barney: "...age you actually are."Lotto Girl: "45..."Barney: "...number of minutes it would take me to get you into a cab, out of your dress and into my Jacuzzi."Lotto Girl: "And tonight's Super Big Ball is..."Barney: "...what happens after we get out of the Jacuzzi. What Up?!" - Barney Stinson
