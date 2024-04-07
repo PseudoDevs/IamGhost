@@ -1,5 +1,2 @@
-Last updated: 2024-04-07 16:40:12
-Random Quote: John Flynn: "Rogers, get in there!"
-Peggy Carter: "He can't."
-John Flynn: "Stark, you go in!"
-Howard Stark: "What? Are you crazy? I push the buttons. I'm the buttons guy." - Howard Stark
+Last updated: 2024-04-07 16:41:55
+Random Quote: You wear your honor like a suit of armor, Stark.  You think it keeps you safe, but all it does is weigh you down and make it hard for you to move.  -  Petyr Baelish
