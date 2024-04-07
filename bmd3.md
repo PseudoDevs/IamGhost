@@ -1,2 +1,5 @@
-Last updated: 2024-04-07 17:11:13
-Random Quote: Everyone was yelling stuff.  Hot Pie yelled hot pie.  He must have yelled it a hundred times.  -  Arya Stark
+Last updated: 2024-04-07 17:11:50
+Random Quote: Morty: "Mom, I have a friend coming over. Is that cool?"
+Beth: "I told your sister no parties."
+Morty: "It's one friend."
+Beth: "That's a party to you." - Beth Smith
