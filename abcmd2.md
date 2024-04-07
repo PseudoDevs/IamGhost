@@ -1,3 +1,2 @@
-Last updated: 2024-04-07 16:48:06
-Random Quote: Jang Deok-su: "Tell me what you're good at?"
-Han Mi-nyeo: "Everything, except the things I can't do." - Oh Il-nam
+Last updated: 2024-04-07 16:48:42
+Random Quote: The most beautiful woman in the world has urgent need of my axe.  -  Victarion Greyjoy.
