@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 05:08:25
-Random Quote: A mind needs books as a sword needs a whetstone, if it is to keep its edge.  -  Tyrion Lannister
+Last updated: 2024-04-07 05:08:58
+Random Quote: Elia Martell, Princess of Dorne.  You raped her!  You murdered her!  You killed her children!  -  Oberyn Martell
