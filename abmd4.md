@@ -1,2 +1,4 @@
-Last updated: 2024-04-07 19:05:14
-Random Quote: If you waste time trying to get people to love you, you'll end up the most popular dead man in town.  -  Bronn
+Last updated: 2024-04-07 19:05:49
+Random Quote: Joel: "Long way or short way?"
+Tess: "I mean, it's the long way or the 'we're fuckin' dead' way."
+Ellie: "Well, I vote long way just based on that limited information." - Ellie Williams
