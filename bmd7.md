@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 04:22:47
-Random Quote: The World is going to come to an end tonight. Yes think about it. End of the World, Nostradamus, Notre Dame, Fighting Irish, Irish, St. Patrick's Day. This is it Bro. Bro-calypse Now... Bro-Mageddon. - Barney Stinson
+Last updated: 2024-04-07 04:23:20
+Random Quote: Adam: "Three viagras."Maeve: "Jesus Christ."Adam: "You said there was gonna be no judgement. Is three viagras bad? Her reaction made it seem like it was bad. I feel lightheaded and I can taste scampi."Maeve: "No wonder. You could besiege a castle with that thing."Adam: "I said stop staring at it!"Maeve: "Sorry, it's like a third leg." - Maeve Wiley
