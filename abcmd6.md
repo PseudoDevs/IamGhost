@@ -1,2 +1,3 @@
-Last updated: 2024-04-07 16:41:46
-Random Quote: People say Hawkins is cursed. They're not way off. - Dustin Henderson
+Last updated: 2024-04-07 16:42:19
+Random Quote: HR: "I know this is classic HR to say, but: You're not alone."
+Steven: "Yeah. That's like, part of the problem, innit?" - Arthur Harrow
