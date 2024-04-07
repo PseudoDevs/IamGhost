@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 19:42:49
-Random Quote: Looks like somebody suffered from premature slapulation. - Marshall Eriksen
+Last updated: 2024-04-07 19:43:22
+Random Quote: I asked him why he kept her close, if he thought her so grotesque.  He said that all his other knights wanted things of him, castles or honors or riches, but all that Brienne wanted was to die for him.  -  Loras Tyrell
