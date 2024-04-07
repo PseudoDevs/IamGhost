@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 18:11:04
-Random Quote: You have courage.  Not battle courage perhaps but... I don't know... a kind of woman's courage.  -  Brienne of Tarth
+Last updated: 2024-04-07 18:11:39
+Random Quote: Everyone sounds like Meryl Streep with a gun to their head. - Mike Ehrmantraut
