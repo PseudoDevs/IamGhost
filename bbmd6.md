@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 16:32:34
-Random Quote: Phil: "What a beautiful dress."Gloria: "Thank you, Phil."Phil: "Oh, okay."Claire: "Phil! She said Phil, not feel!" - Claire Dunphy
+Last updated: 2024-04-07 16:33:07
+Random Quote: Never give power to the big man. - Alfie Solomons
