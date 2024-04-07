@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 19:39:28
-Random Quote: Just 'cause you fall on your *ss doesn't mean you have to stay there. - Hughie Campbell
+Last updated: 2024-04-07 19:40:02
+Random Quote: Marshall: "Dude, if we fail this econ final, for the rest of our lives we're not gonna be able to... we won't know how to... do you even know what 'econ' is?"Ted: "No idea. We're screwed." - Ted Mosby
