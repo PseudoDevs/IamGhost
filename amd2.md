@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 18:44:53
-Random Quote: If I'm always looking back, I'm never looking ahead. We are who we are because of consequences. You can't live without consequences. - Morty Smith
+Last updated: 2024-04-07 18:45:26
+Random Quote: Here's the secret, kids: none of us can vow to be perfect. In the end, all we can do is promise to love each other with everything we've got. Because love's the best thing we do. - Ted Mosby
