@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 20:16:35
-Random Quote: Pennsatucky: "It weren't my fault. I was just doing as the Spirit commanded."Pussey: "Fuck are you? Joan of Arc?"Pennsatucky: "No, I'm from Waynesboro, my name is Tiffany..." - Tiffany 'Pennsatucky' Doggett
+Last updated: 2024-04-07 20:17:08
+Random Quote: When I get sad, I stop being sad and be awesome instead. True Story. - Barney Stinson
