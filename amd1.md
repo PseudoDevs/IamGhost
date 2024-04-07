@@ -1,2 +1,4 @@
-Last updated: 2024-04-07 04:56:43
-Random Quote: Richard, you have desecrated the sacred treaty betwixt land and sea. Now face the wrath of your once and eternal foe - Mr. Nimbus! - Mr. Nimbus
+Last updated: 2024-04-07 04:57:17
+Random Quote: Morticia: "Please excuse Wednesday. She's allergic to color."
+Enid: "Wow, what happens to you?"
+Wednesday: "I break out into hives, and then the flesh peels off my bones." - Wednesday Addams
