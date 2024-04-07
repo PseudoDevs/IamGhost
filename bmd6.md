@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 06:10:41
-Random Quote: So, what do you want to do tonight? Drink ourselves blind, set a car on fire? Oh, watch a movie that doesn't start with a desk lamp jumping on top of a capital "I"? - Lily Aldrin
+Last updated: 2024-04-07 06:11:14
+Random Quote: A craven's knife can slay a queen as easily as a hero's.  -  Xaro Xhoan Daxos
