@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 04:25:48
-Random Quote: Remember. Once they find out who you are, you die. - Jang Deok-su
+Last updated: 2024-04-07 04:26:22
+Random Quote: The Old Gods have no power in the south.  The weirwoods there were all cut down, thousands of years ago.  -  Osha
