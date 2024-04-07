@@ -1,3 +1,2 @@
-Last updated: 2024-04-07 17:09:52
-Random Quote: Jay: "I got you a little gift to celebrate. I know it’s not much...-"
-Gloria: "It’s practically nothing!" - Gloria Pritchett
+Last updated: 2024-04-07 17:10:28
+Random Quote: Silver or lead. You decide. - Pablo Escobar
