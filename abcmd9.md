@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 04:41:41
-Random Quote: Is it your fault that Bronn's an insolent black - hearted rogue?  He's always been an insolent black
+Last updated: 2024-04-07 04:42:14
+Random Quote: I don't know what kind of fed up sht you got going inside of your head. I don't know how to help, but I could tell you one thing: This drug sht - it's not the answer. - Fezco
