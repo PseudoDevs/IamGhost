@@ -1,5 +1,2 @@
-Last updated: 2024-04-07 05:36:10
-Random Quote: Dina: "You're infuriating."
-Ellie: "Have you met you?"
-Dina: "You make me want to go back outside into that blizzard."
-Ellie: "No one is stopping you." - Joel Miller
+Last updated: 2024-04-07 05:37:21
+Random Quote: I've heard so many stories about me now that I don't know which one is the most popular. But I do know which is the least popular: the truth. - Hannah Baker
