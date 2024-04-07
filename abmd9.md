@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 05:49:23
-Random Quote: Miss Addams, you sadly had a very interesting educational journey. Eight schools in five years. - Larissa Weems
+Last updated: 2024-04-07 05:49:56
+Random Quote: A ruler who hides behind paid executioners soon forgets what death is.  -  Eddard Stark
