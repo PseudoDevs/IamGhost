@@ -1,3 +1,2 @@
-Last updated: 2024-04-07 18:20:46
-Random Quote: Stark: "Can I give you a piece of advice?"
-Carter: "I'd rather you didn't." - Peggy Carter
+Last updated: 2024-04-07 18:21:19
+Random Quote: I am the storm, my lord, the first storm, and the last.  -  Euron Greyjoy
