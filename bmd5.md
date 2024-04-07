@@ -1,4 +1,2 @@
-Last updated: 2024-04-07 06:12:15
-Random Quote: Ellie: "Can I have a gun?"
-Joel: "Absolutely not."
-Ellie: "Okay, Jesus. Fine. I'll have to throw a f-ckin' sandwich at them." - Ellie Williams
+Last updated: 2024-04-07 06:13:24
+Random Quote: Ted: "Robin! I just had a great idea!"Robin: "Oh, do whatever you want to me, just don't wake me up." - Robin Scherbatsky
