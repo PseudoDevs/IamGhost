@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 18:29:31
-Random Quote: I have my voice, and the god is with me.  Mine is the strength of the sea, a strength the Crow's Eye cannot hope to withstand.  The waves may break upon the mountain, yet still they come, wave upon wave, and in the end only pebbles remain where once the mountain stood.  And soon even the pebbles are swept away, to be ground beneath the sea for all eternity.  -  Aeron Greyjoy
+Last updated: 2024-04-07 18:30:44
+Random Quote: A man who sees nothing has no use for his eyes, cut them out and give them to your next outrider.  Tell him you hope that four eyes might see better than two... and if not, the man after him will have six.  -  Gregor Clegane
