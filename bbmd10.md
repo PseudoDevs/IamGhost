@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 19:11:10
-Random Quote: Marshall: "The last time I lived this far from him, was my semester abroad."Lily: "You never did a semester abroad?"Marshall: "That's what I called it, when we lived on opposite sides of the campus." - Marshall Eriksen
+Last updated: 2024-04-07 19:11:46
+Random Quote: During incarceration, defendant Goodman to receive one pint Blue Bell mint chocolate chip ice cream every Friday for the duration. - Saul Goodman
