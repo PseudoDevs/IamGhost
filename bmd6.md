@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 06:13:26
-Random Quote: You have a passing clever father, Devan.  He makes me wish I had more smugglers in my service.  And fewer lords.  -  Stannis Baratheon
+Last updated: 2024-04-07 06:15:49
+Random Quote: Some battles are won with swords and spears, others with quills and ravens.  -  Tywin Lannister
