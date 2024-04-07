@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 17:34:17
-Random Quote: If one of the Vancouver Canucks walked in here, my panties would drop so hard, there would be a hole in the floor halfway to China. - Robin Scherbatsky
+Last updated: 2024-04-07 17:34:55
+Random Quote: My daughter has taken an axe for a lover.  I will not have my son bedeck himself like a whore.  It is as I feared.  The green lands have made you soft, and the Starks have made you theirs.  -  Balon Greyjoy
