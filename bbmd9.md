@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 04:22:41
-Random Quote: I don't need to be good at Math, I have beautiful hair. - Missy
+Last updated: 2024-04-07 04:23:15
+Random Quote: Rhaegar fought valiantly, Rhaegar fought nobly, and Rhaegar died.  -  Jorah Mormont
