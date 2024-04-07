@@ -1,2 +1,11 @@
-Last updated: 2024-04-07 05:55:36
-Random Quote: He has got to go. You need to be like:You are the weakest link goodbye!Punchy, the tribe has spoken.Please pack up your knives and go.Your work of art, didn't work for me.You're times up.I have to ask you to leave the mansion.You must leave the chateau.Your tour ends here.You've been chopped!You've been evicted from the Big Brother house.Your desert just didn't measure up.Sashay away!Give me your jacket and leave Hell's kitchen!You did not get a rose.You have been eliminated from the race.You are no longer in the running to be America's Next Top Model.You're fired.Auf Wiedersehen. - Barney Stinson
+Last updated: 2024-04-07 05:57:21
+Random Quote: From here on in, every single night of our lives will be a night, we'll never forget. Starting tonight!
+ - The night we started a Mariachi Band!
+ - The night we ate everything on the menu!
+ - The night we brought a horse into the bar!
+ - The night we bungee-jumped off the Statue of Liberty!
+ - The night we stole a mummy from the Natural History Museum!
+ - The night we partied with the mole people
+ - The night we tracked down Phil Collins, became best friends with him, and talked him into reuniting with Peter Gabriel, and then we got to sing back-up on the new Genesis album and it was awesome!
+ - The night we stole a camel!
+ - The night you got locked out in your pajamas and Robin landed a freakin' helicopter and there's still time to reunite Genesis! - Barney Stinson
