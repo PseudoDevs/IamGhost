@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 20:06:08
-Random Quote: Did you just bring a bomb into a hospital? - Jesse Pinkman
+Last updated: 2024-04-07 20:06:41
+Random Quote: Yes, Lord Umber, leave me to the king.  He means to give me a scolding before he forgives me.  That's how he deals with treason, our King in the North.  Or should I call you the King Who Lost the North, your Grace?  -  Rickard Karstark
