@@ -1,3 +1,2 @@
-Last updated: 2024-04-07 06:28:32
-Random Quote: Jessica: "I miss you."
-Morty: "You miss the old me. You miss someone that loved you so much, you never had to love him back." - Morty Smith
+Last updated: 2024-04-07 06:29:08
+Random Quote: Science is neat, but I’m afraid it’s not very forgiving. - Scott Clarke
