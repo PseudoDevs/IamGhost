@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 19:20:07
-Random Quote: Ted: "Everyone has an opinion on how long it takes to recover from a breakup."Lily: "Half the length of the relationship."Marshall: "One week for every month you were together."Robin: "Exactly 10,000 drinks, however long that takes."Barney: "You can't measure something like this in time. There's a series of steps: From her bed to the front door. Bam! Out of there.... next!" - Barney Stinson
+Last updated: 2024-04-07 19:21:53
+Random Quote: When you date someone, it's like you're taking one long course in who that person is and then, when you break up, all that stuff becomes useless. It's the emotional equivalent of an English degree... - Ted Mosby
