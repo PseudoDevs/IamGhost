@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 16:18:47
-Random Quote: I feel like love is super dark and no one ever talks about it. - Cassie Howard
+Last updated: 2024-04-07 16:19:21
+Random Quote: No man has ever died from bending his knee.  He who kneels may rise again, blade in hand.  He who will not kneel stays dead, stiff legs and all.  -  Balon Greyjoy
