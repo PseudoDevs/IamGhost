@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 04:31:14
-Random Quote: Ted, no! You never break up a girl fight! Never! - Barney Stinson
+Last updated: 2024-04-07 04:31:47
+Random Quote: I have sinned and must atone, must parade my shame before the eyes of every beggar in the city.  They think that this will break my pride, that it will make an end to me, but they are wrong.  -  Cersei Lannister
