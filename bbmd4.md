@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 20:15:39
-Random Quote: Elia of Dorne.  I killed her screaming whelp.  Then I raped her.  Then I smashed her fucking head in like this.  -  Gregor Clegane
+Last updated: 2024-04-07 20:17:20
+Random Quote: God doesn’t have a plan. There is no plan at all. There’s nothing but chaos out there. Pain… and chaos! People are bad. Malicious, evil. Life is nothing but a spiral of pain. And the world is doomed to be destroyed - Noah
