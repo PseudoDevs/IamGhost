@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 20:17:29
-Random Quote: Have you been arrested in a mall?Dumped in a mall?Turned out you're Canadian in a mall? - Ted Mosby
+Last updated: 2024-04-07 20:18:02
+Random Quote: Dude, ditch Tiffany and join the Barnacle in the Pharma-Girl-Free-For-All. Side effects may include: loss of clothing, rug burns, shortness of breath and soar abdominals the next morning. What in the world is up! - Barney Stinson
