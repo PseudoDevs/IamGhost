@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 16:51:08
-Random Quote: Most people are nothing but pawns on a chessboard led by an unknown hand - Noah
+Last updated: 2024-04-07 16:51:41
+Random Quote: Don’t take it so personally, okay? I don’t like most people. He’s in the vast majority. - Jonathan Byers

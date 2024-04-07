@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 16:51:08
-Random Quote: You gonna ruin my life? I f'ing promise you I can do that a lot better than you can! - Rue Bennett
+Last updated: 2024-04-07 16:51:41
+Random Quote: So young.  Though mayhaps this was a blessing.  Had he lived, he would have grown up to be a Frey.  -  Wyman Manderly
