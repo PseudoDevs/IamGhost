@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 18:43:17
-Random Quote: Kingthlayer... you are my captifth.  -  Vargo Hoat
+Last updated: 2024-04-07 18:43:50
+Random Quote: The more you move up in the world, the more enemies you make. - Rue Bennett
