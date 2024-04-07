@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 20:26:32
-Random Quote: We were king's men, knights, and heroes... but some knights are dark and full of terror, my lady.  War makes monsters of us all.  -  Thoros of Myr
+Last updated: 2024-04-07 20:27:06
+Random Quote: If you don't think there's hope for the world, why bother going on? - Ellie Williams
