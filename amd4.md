@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 20:01:51
-Random Quote: Celtigar pronounced it admirable.  If I were to show him the contents of my privy he would pronounce that admirable as well.  -  Stannis Baratheon
+Last updated: 2024-04-07 20:02:24
+Random Quote: Our secrecy is our survival. our survival is our strength. - The Armorer
