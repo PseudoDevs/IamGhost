@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 04:45:37
-Random Quote: I don't know what kind of fed up sht you got going inside of your head. I don't know how to help, but I could tell you one thing: This drug sht - it's not the answer. - Fezco
+Last updated: 2024-04-07 04:46:14
+Random Quote: Bronn was no knight, that was true.  Bronn was a battle - hardened killer. 
