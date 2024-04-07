@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 07:09:39
-Random Quote: If I got serious with Nora, it would be like if Mother Teresa focused all her attention on one really hot orphan. With great penis comes great responsibility. - Barney Stinson
+Last updated: 2024-04-07 07:10:13
+Random Quote: I've had shits that I've liked better than Walder Frey.  -  Brynden Tully
