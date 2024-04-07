@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 07:09:52
-Random Quote: Love's not always wise, I've learned.  It can lead us to great folly, but we follow our hearts... wherever they take us.  -  Robb Stark
+Last updated: 2024-04-07 07:10:25
+Random Quote: I will see, and hear, and learn, and when I have I will carry the word back to the Wall.  The wildlings had taken him for an oathbreaker, but in his heart he was still a man of the Night's Watch, doing the last duty that Qhorin Halfhand had laid on him.  Before I killed him.  -  Jon Snow
