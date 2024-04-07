@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 06:18:46
-Random Quote: You know what else is scary? Walking home alone at night. But us women keep doing it. Take fear by the hand and keep living. Because you have to live, gentlemen! You have to live until the end! - Nairobi
+Last updated: 2024-04-07 06:20:33
+Random Quote: Quinn: "In the event of divorce, Miss Garvey shall get full custody of Mr. Stinson's suits."Barney: "Why? What would you do with them?"Quinn: "Nothing. I'd just sit around and watch them go out of style." - Quinn Garvey
