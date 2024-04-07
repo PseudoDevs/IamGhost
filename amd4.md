@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 17:47:49
-Random Quote: Even if I meet the girl of my dreams right the second, I'm still one night and nine months away, from having a family on my own. And that's assuming the mother of my childern is just a huge slut. - Ted Mosby
+Last updated: 2024-04-07 17:51:35
+Random Quote: There's only one thing that could blind a man as smart as you, Tommy. Love. - Polly Gray
