@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 06:27:18
-Random Quote: It's easier when you're a kid anyway. You don't have anybody else relying on you. That's the hardest part. - Joel Miller
+Last updated: 2024-04-07 06:27:54
+Random Quote: No matter how much we fight it we are connected by our blood. We can feel estranged from our families and not understand what they do. And still, in the end, we will do anything for them. - Adam
