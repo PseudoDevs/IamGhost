@@ -1,3 +1,2 @@
-Last updated: 2024-04-07 18:45:52
-Random Quote: Bo-Katan: "You are not a Mandalorian."
-Boba: "Never said I was." - Boba Fett
+Last updated: 2024-04-07 18:47:00
+Random Quote: Will you explain to me how that was offside? No, I'm asking you, seriously. Explain offside to me! It makes no sense. - Rebecca Welton

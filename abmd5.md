@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 18:46:26
-Random Quote: He made me kill a rabbit. I guess he thought it would make me into more of a man or something. I cried for a week. - Jonathan Byers
+Last updated: 2024-04-07 18:47:00
+Random Quote: What's the difference between peanut butter and jam?You can't peanut butter your dick up someone's ass. - Barney Stinson
