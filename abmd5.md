@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 17:15:35
-Random Quote: They're minerals, Marie! Jesus! - Hank Schrader
+Last updated: 2024-04-07 17:16:49
+Random Quote: We can only die.  Why else do we don these black cloaks, but to die in defense of the realm?  -  Qhorin Halfhand
