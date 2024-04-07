@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 06:40:01
-Random Quote: You, Vision, are the piece of the Mind Stone that lives in me. You are a body of wires and blood and bone that I created. You are my sadness and my hope. But mostly, you're my love. - Wanda Maximoff
+Last updated: 2024-04-07 06:40:36
+Random Quote: Nobody takes an intro class to get on any other path, but the path to not being hungover anymore. I learned that in my intro to something-ology class. - Marshall Eriksen
