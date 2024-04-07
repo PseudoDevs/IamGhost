@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 16:36:39
-Random Quote: I act as if I don't care if people dislike me. Deep down, I actually enjoy it. - Wednesday Addams
+Last updated: 2024-04-07 16:37:12
+Random Quote: My real father died in King's Landing.  I made a choice, and I chose wrong.  -  Theon Greyjoy
