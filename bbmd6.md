@@ -1,2 +1,3 @@
-Last updated: 2024-04-07 04:36:42
-Random Quote: She studied Theon Greyjoy's sly smile, wondering what it meant.  That young man had a way of looking as though he knew some secret jest that only he was privy to; Catelyn had never liked it.  -  Catelyn Stark
+Last updated: 2024-04-07 04:37:52
+Random Quote: Alien: "I was just reading you."
+Rick: "Congratulations on making it into print media. Real bright future there." - Rick Sanchez
