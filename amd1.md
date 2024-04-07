@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 19:41:46
-Random Quote: Presumptuous... that's a good thing, right? - Dustin Henderson
+Last updated: 2024-04-07 19:42:19
+Random Quote: Pennsatucky: "It weren't my fault. I was just doing as the Spirit commanded."Pussey: "Fuck are you? Joan of Arc?"Pennsatucky: "No, I'm from Waynesboro, my name is Tiffany..." - Tiffany 'Pennsatucky' Doggett
