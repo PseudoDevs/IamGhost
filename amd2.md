@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 04:23:07
-Random Quote: Hey, takin' on a challenge is a lot like ridin' a horse. If you're comfortable while you're doin' it, you're probably doin' it wrong. - Jim Hopper
+Last updated: 2024-04-07 04:23:44
+Random Quote: Knowledge is a weapon, Jon.  Arm yourself well before you ride forth to battle.  -  Maester Aemon
