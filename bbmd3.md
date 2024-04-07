@@ -1,3 +1,2 @@
-Last updated: 2024-04-07 05:32:30
-Random Quote: Jang Deok-su: "Tell me what you're good at?"
-Han Mi-nyeo: "Everything, except the things I can't do." - Oh Il-nam
+Last updated: 2024-04-07 05:33:06
+Random Quote: A ruler who hides behind paid executioners soon forgets what death is.  -  Eddard Stark
