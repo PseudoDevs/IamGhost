@@ -1,2 +1,7 @@
-Last updated: 2024-04-07 04:22:04
-Random Quote: The Freys slashed her throat from ear to ear.  When we found her by the river she was three days dead.  Harwin begged me to give her the kiss of life, but it had been too long.  I would not do it, so Lord Beric put his lips to hers instead, and the flame of life passed from him to her.  And... she rose.  May the Lord of Light protect us.  She rose.  -  Thoros of Myr
+Last updated: 2024-04-07 04:22:37
+Random Quote: "Nevermore was founded over 200 years ago to educate outcasts."
+"Students from all walks of life."
+"And death."
+"Our mission is to help each student master their unique abilities. So we offer a full range of extracurricular activities. From painting... to archery."
+"For centuries, notable alumni have roamed these majestic halls, from the master of macabre, Edgar Allan Poe, to personal heroes like Ignatius Itt, and of course, Morticia and Gomez Addams."
+"Our highly trained faculty educate our young outcasts on a wide range of subjects. Everything from werewolf reproduction to Gorgon anatomy." - Larissa Weems
