@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 17:38:38
-Random Quote: It's not even the lies that hurt, you know? It's the fact that you're never really emotionally prepared for someone to leave you. - Rue Bennett
+Last updated: 2024-04-07 17:39:14
+Random Quote: Small wonder that the Seven Kingdoms thought the free folk scarcely human.  They have no laws, no honor, not even simple decency.  They steal endlessly from each other, breed like beasts, prefer rape to marriage, and fill the world with baseborn children.  Yet he was growing fond of Tormund Giantsbane, great bag of wind and lies though he was.  -  Jon Snow
