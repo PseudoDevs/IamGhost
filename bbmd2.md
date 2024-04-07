@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 20:33:47
-Random Quote: No matter how tough things get, children always turn out okay. - Berlin
+Last updated: 2024-04-07 20:34:19
+Random Quote: Asha Greyjoy did not intend to be taken alive.  She would die as she had lived, with an axe in her hand and a laugh upon her lips.  -  Asha Greyjoy
