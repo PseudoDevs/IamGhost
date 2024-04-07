@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 16:41:08
-Random Quote: I'm a Mandalorian. Weapons are part of my religion. - Din Djarin
+Last updated: 2024-04-07 16:41:42
+Random Quote: When you date someone, it's like you're taking one long course in who that person is and then, when you break up, all that stuff becomes useless. It's the emotional equivalent of an English degree... - Ted Mosby
