@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 04:14:17
-Random Quote: You want to hurt these guys, we gotta take down the ones calling the shots. - Jaime Kuykendall
+Last updated: 2024-04-07 04:14:50
+Random Quote: There's no shame in fear, my father told me, what matters is how we face it.  -  Jon Snow
