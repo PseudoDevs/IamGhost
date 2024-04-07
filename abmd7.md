@@ -1,2 +1,3 @@
-Last updated: 2024-04-07 20:01:56
-Random Quote: No matter how much we fight it we are connected by our blood. We can feel estranged from our families and not understand what they do. And still, in the end, we will do anything for them. - Adam
+Last updated: 2024-04-07 20:02:29
+Random Quote: Peter Parker: "Splitting up? Do you guys just not have horror movies in Wakanda?"
+Okoye: "We don't need them. We have American reality shows." - Okoye
