@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 04:46:14
-Random Quote: Grey Wind ate two of his fingers, and he laughed about it.  -  Robb Stark on Greatjon Umber
+Last updated: 2024-04-07 04:46:55
+Random Quote: You want to rule?  This is what ruling is; lying on a bed of weeds, ripping them out by the root, one by one, before they strangle you in your sleep.  -  Cersei Lannister
