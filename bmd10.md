@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 20:26:37
-Random Quote: People are oblivious to reality. They only see what they want to see, when all they have to do is shift their perspective to see the full scope of things. - Yuk Je
+Last updated: 2024-04-07 20:27:09
+Random Quote: I feel like her sobriety is completely dependent on how available I am to her. - Jules Vaughn
