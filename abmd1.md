@@ -1,3 +1,2 @@
-Last updated: 2024-04-07 16:36:05
-Random Quote: The Deep: "What do we do? We can't just kill everyone."
-Billy Butcher: "That's exactly what we're gonna do!" - Billy Butcher
+Last updated: 2024-04-07 16:36:40
+Random Quote: In the game of thrones, even the humblest pieces have wills of their own.  Sometimes they refuse to make the moves you've planned for them.  Mark that well, Alayne.  It's a lesson that Cersei Lannister still has yet to learn.  -  Petyr Baelish
