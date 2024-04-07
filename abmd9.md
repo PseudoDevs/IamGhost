@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 04:16:37
-Random Quote: You know nothing, Jon Snow.  -  Ygritte
+Last updated: 2024-04-07 04:17:11
+Random Quote: Nuncle always had a fondness for freaks and fools.  My father used to fight with him about it.  Let the wizards call upon their gods.  The Damphair will call on ours, and drown them.  -  Asha Greyjoy
