@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 05:57:06
-Random Quote: It's like...It's like I'm a fucked-up-shit magnet. - Maria Ruiz
+Last updated: 2024-04-07 05:57:39
+Random Quote: I was weaned on venom, Dalt.  Any viper takes a bite of me will rue it.  -  Gerold Dayne
