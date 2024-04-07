@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 19:30:01
-Random Quote: She don't speak.  You bloody bastards cut her throat too deep for that.  But she remembers.  -  Lem Lemoncloack
+Last updated: 2024-04-07 19:31:09
+Random Quote: When I'm king in my own right, I'm going to outlaw beets.  -  Tommen Baratheon
