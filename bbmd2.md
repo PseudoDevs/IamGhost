@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 19:51:15
-Random Quote: I understand that if any more words come pouring out of your cunt mouth I'm going to have to eat every fucking chicken in this room.  -  Sandor Clegane
+Last updated: 2024-04-07 19:53:30
+Random Quote: This sacred text was eventually brought to the New World in 1776 by none other than Christopher Brolumbus. And that's why he got to bang Pocahontas. - Barney Stinson
