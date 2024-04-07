@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 18:24:38
-Random Quote: Ted: "Victoria was great."Robin: "Exactly, and you threw it all away to chase after some hot piece of ass."Ted: "You mean you?"Robin: "Thank you!" - Robin Scherbatsky
+Last updated: 2024-04-07 18:25:52
+Random Quote: Euron Greyjoy is no man's notion of a king, if half of what Theon said of him was true.  -  Robb Stark
