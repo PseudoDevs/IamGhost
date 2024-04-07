@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 17:42:25
-Random Quote: That's it. Three rules. I call 'em the 'Don't be stupid'-rules. 'Cause we're not stupid, alright? - Jim Hopper
+Last updated: 2024-04-07 17:42:58
+Random Quote: When I'm king in my own right, I'm going to outlaw beets.  -  Tommen Baratheon
