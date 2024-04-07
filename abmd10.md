@@ -1,4 +1,2 @@
-Last updated: 2024-04-07 17:20:43
-Random Quote: Jimmy: "I can't believe Wanda and Vision are having a baby."
-Darcy Lewis: "You want any?"
-Jimmy: "Heck, I thought about it for sure. A little Jimmy Woo. Get him a tiny little FBI badge... oh, you... chip? Sure." - Jimmy Woo
+Last updated: 2024-04-07 17:21:16
+Random Quote: I don't feel so good. It's like my testicals mixed poprocks and soda. - Ted Mosby
