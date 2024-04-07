@@ -1,2 +1,3 @@
-Last updated: 2024-04-07 19:49:35
-Random Quote: The most amazing things that can happen to a human being will happen to you, if you just lower your expectations. - Phil Dunphy
+Last updated: 2024-04-07 19:50:41
+Random Quote: Give it a week, you'll get her back. And her front.
+Oh! Did you feel that? I think we just had a "what up?"-quake! - Barney Stinson
