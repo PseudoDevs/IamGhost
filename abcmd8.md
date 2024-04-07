@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 20:21:32
-Random Quote: Ted: "What do you say?"Robin: "Yes! No! I don't know..."Ted: "Those are the three options." - Ted Mosby
+Last updated: 2024-04-07 20:22:06
+Random Quote: Why should I go running to my aunt as if I were a beggar?  My claim is better than her own.  Let her come to me... in Westeros.  -  Aegon Targaryen
