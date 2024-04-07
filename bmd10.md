@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 18:14:33
-Random Quote: Think of me as Yoda - only, instead of being little and green, I wear suits and I'm awesome. I'm your bro. I'm Broda. - Barney Stinson
+Last updated: 2024-04-07 18:15:08
+Random Quote: Marshall: "When a woman puts on an engagement ring, it's like when Bilbo Baggins wears the One Ring in The Hobbit."Robin: "Okay, can you say that again, but not in nerd?"Marshall: "Sure. Uh, the ring is like the cloak that Harry Potter wears to sneak around Hogwarts."Robin: "Yeah, I don't speak virgin either." - Robin Scherbatsky
