@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 16:55:58
-Random Quote: I guess we all have things we try to hide. But they can't stay hidden forever. - Hannah Baker
+Last updated: 2024-04-07 16:56:35
+Random Quote: Some people wander around their whole lives looking for a way out, but there’s only one path and it leads you ever deeper. - 
