@@ -1,2 +1,3 @@
-Last updated: 2024-04-07 06:48:12
-Random Quote: Not all Mandalorians are bounty hunters. Some of us serve a higher purpose. - Bo-Katan
+Last updated: 2024-04-07 06:48:46
+Random Quote: Morty: "What are they mad at you for, anyway?"
+Rick: "Well, we're talking about me. It could be anything." - Rick Sanchez
