@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 19:40:28
-Random Quote: I get my best ideas when everybody else is asleep. - Lalo Salamanca
+Last updated: 2024-04-07 19:41:01
+Random Quote: Bulls are strong.  Bears.  I have seen my bastard fight.  He is not entirely to blame.  Reek was his tutor, the first Reek, and Reek was never trained at arms.  Ramsay is ferocious, I will grant you, but he swings that sword like a butcher hacking meat.  -  Roose Bolton
