@@ -1,2 +1,3 @@
-Last updated: 2024-04-07 05:27:55
-Random Quote: My uncle Kevan would make a passably good regent if someone pressed the duty on him, but he will never reach for it.  The gods shaped him to be a follower, not a leader.  -  Tyrion Lannister
+Last updated: 2024-04-07 05:28:28
+Random Quote: Freddie: "Are you mad?"
+Ada: "Yeah. Mad as hell with all of them." - Ada Thorne
