@@ -1,2 +1,4 @@
-Last updated: 2024-04-07 17:09:54
-Random Quote: Why stop at one world, when we can show you all of them? - Yondu Udonta
+Last updated: 2024-04-07 17:11:15
+Random Quote: Bo-Katan: "I've scugged off a lot of Imperial warlords."
+Din: "They tend to get mad when you hijack their ships."
+Bo-Katan: "Now you tell me." - Bo-Katan
