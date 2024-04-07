@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 18:19:14
-Random Quote: Sometimes you gotta do bad things to catch bad people. - Javier Pe�a
+Last updated: 2024-04-07 18:19:49
+Random Quote: Ted, every little boy wants to grow up to nail the doctor, or the lawyer. Somebody's gotta nail the receptionist. - Barney Stinson
