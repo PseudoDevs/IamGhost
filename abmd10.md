@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 17:32:10
-Random Quote: You know, it's funny. Almost every woman I've ever met was wrong to give me a chance. You're the first woman who's wrong not to. - Barney Stinson
+Last updated: 2024-04-07 17:32:43
+Random Quote: Marshall: "All pregnant ladies have crazy sex dreams. It's just her hormones going berserk."Barney: "So who's responsible for her rapid thigh movement this time?"Ted: "Oh, my favorite was when she banged George Washington."Barney: "I liked the three-way with Bill Cosby and Papa Smurf."Ted: "Oh, he smurfed the smurf out of her."Marshall: "Yes, while The Cos smurfed off in the corner - we all remember." - Marshall Eriksen
