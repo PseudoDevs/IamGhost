@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 05:03:22
-Random Quote: Being a Mandalorian is not just learning about how to fight. You also have to know how to navigate the Galaxy. That way you'll never be lost. - Din Djarin
+Last updated: 2024-04-07 05:03:57
+Random Quote: Growing up, I'd always lose my umbrella so my mom would get angry. So then, she gave me broken ones to bring to school. - Seong Gi-hun
