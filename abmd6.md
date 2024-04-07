@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 19:00:58
-Random Quote: I knew quite a few Jedi, you know. I don't know what they taught you about us, but there was a time we actually got along quite well. Fought side by side. - Bo-Katan
+Last updated: 2024-04-07 19:01:33
+Random Quote: I can't tell the difference between my waking life and dreams. - Arthur Harrow

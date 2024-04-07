@@ -1,3 +1,2 @@
-Last updated: 2024-04-07 18:59:08
-Random Quote: Lily: "Swear on the lifes of your unborn boy and girl!"
-Ted: "I swear... on Luke and Leia!" - Ted Mosby
+Last updated: 2024-04-07 19:01:33
+Random Quote: There is a savage beast in every man, and it stirs when you put a sword in his hand.  -  Jorah Mormont
