@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 16:43:28
-Random Quote: I have always wanted to have one mahogany desk, but crime and office don’t get along. - Berlin
+Last updated: 2024-04-07 16:45:10
+Random Quote: No tales were ever told of me.  Do you think I would be sitting here if it were otherwise?  Your amusements are your own, I will not chide you on that count, but you must be more discreet.  A peaceful land, a quiet people.  That has always been my rule.  Make it yours.  -  Roose Bolton
