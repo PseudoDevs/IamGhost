@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 19:04:35
-Random Quote: Always keep your foes confused.  If they are never certain who you are or what you want, they cannot know what you are like to do next.  Sometimes the best way to baffle them is to make moves that have no purpose, or even seem to work against you.  Remember that, Sansa, when you come to play the game.  -  Petyr Baelish
+Last updated: 2024-04-07 19:05:12
+Random Quote: If you don't like where you're heading, there's no shame in going back and changing your path. - Chuck McGill
