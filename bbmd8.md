@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 07:25:39
-Random Quote: A craven's knife can slay a queen as easily as a hero's.  -  Xaro Xhoan Daxos
+Last updated: 2024-04-07 07:26:12
+Random Quote: Fear cuts deeper than swords.  -  Syrio Forel
