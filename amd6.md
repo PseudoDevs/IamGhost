@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 07:29:53
-Random Quote: Judy: "Who got Cousin Daphne drunk? She is 15 years old."Robin: "Whoa, they grow big out here."Barney: "And here's your phone number back." - Barney Stinson
+Last updated: 2024-04-07 07:31:00
+Random Quote: Ah, Arya.  You have a wildness in you, child.  The 'wolf blood', my father used to call it.  Lyanna had a touch of it, and my brother Brandon more than a touch.  It brought them both to an early grave.  Lyanna might have carried a sword, if my lord father had allowed it.  You remind me of her sometimes.  You even look like her.  -  Eddard Stark
