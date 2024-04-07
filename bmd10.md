@@ -1,2 +1,3 @@
-Last updated: 2024-04-07 06:00:51
-Random Quote: Barney: "I am so sorry, Cornelius. You deserve a better end than this."Lily: "You got ketchup on a red tie, you can't even see it!" - Lily Aldrin
+Last updated: 2024-04-07 06:01:25
+Random Quote: Morticia: "That boy's family was going to file attempted murder charges. How would that have looked on your record?"
+Wednesday: "Terrible. Everyone would know I failed to get the job done." - Wednesday Addams
