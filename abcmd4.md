@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 18:43:26
-Random Quote: I only have one rule. For every three 10's you bang, throw a bone to a 5. They're grateful and hard working and let's face it, sometimes you just want to lay there. - Barney Stinson
+Last updated: 2024-04-07 18:44:01
+Random Quote: What men want does not matter.  Winter is almost upon us, boy.  And winter is death.  I would sooner my men die fighting for the Ned's little girl than alone and hungry in the snow, weeping tears that freeze upon their cheeks.  No one sings songs of men who die like that.  As for me, I am old.  This will be my last winter.  Let me bathe in Bolton blood before I die.  I want to feel it splatter across my face when my axe bites deep into a Bolton skull.  I want to lick it off my lips and die with the taste of it on my tongue.  -  Hugo Wull
