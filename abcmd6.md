@@ -1,2 +1,3 @@
-Last updated: 2024-04-07 16:55:19
-Random Quote: Kids, you may think your only choices are to swallow your anger or throw it in someone's face, but there's a third option: You can just let it go, and only when you do that is it really gone and you can move forward. - Ted Mosby
+Last updated: 2024-04-07 16:55:56
+Random Quote: Morty: "So, time moves faster in there? Is it like a Narnia thing?"
+Rick: "I'm not a beaver who believes in Jesus Christ, Morty. But yeah, it's pretty much a Narnia thing." - Rick Sanchez
