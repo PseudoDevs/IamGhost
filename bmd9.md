@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 20:30:20
-Random Quote: Larry Bloom: "Are we at least gonna talk about other options?"Piper Chapman: "You mean..."Larry Bloom: "It's not Voldemort, you can say it. Abortion." - Larry Bloom
+Last updated: 2024-04-07 20:30:53
+Random Quote: Grey Wind ate two of his fingers, and he laughed about it.  -  Robb Stark on Greatjon Umber
