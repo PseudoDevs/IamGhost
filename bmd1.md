@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 06:04:07
-Random Quote: A feeling of unresolved resentment against injustices suffered, a sense of helplessness because of the overwhelming odds against one, a feeling of acute pain in one's guts and bowels, making the whole body writhe and squirm, and an obstinate urge to take revenge and to right the wrong - all these combined. - Seong Gi-hun
+Last updated: 2024-04-07 06:04:42
+Random Quote: I've killed a lot more than him, I promise you.  You think that makes me some monster.  Well, maybe it does, but I saved your sister's life too.  The day the mob pulled her off her horse, I cut through them and brought her back to the castle, else she would have gotten what Lollys Stokeworth got.  And she sang for me.  You didn't know that, did you?  Your sister sang me a sweet little song.  -  Sandor Clegane
