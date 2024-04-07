@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 07:16:11
-Random Quote: Remember. Once they find out who you are, you die. - Jang Deok-su
+Last updated: 2024-04-07 07:16:46
+Random Quote: Never fear the darkness, Bran.  The strongest trees are rooted in the dark places of the earth.  Darkness will be your cloak, your shield, your mother's milk.  Darkness will make you strong.  -  Bloodraven
