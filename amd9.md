@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 19:59:34
-Random Quote: He let me have her. I have to say, it was pretty noble of him. He fell on his sword so that she could fall on mine. - Barney Stinson
+Last updated: 2024-04-07 20:00:41
+Random Quote: You must be blind as well as maimed, Set.  Lift your eyes, and you will see the direwolf still flies above our walls.  -  Brynden Tully
