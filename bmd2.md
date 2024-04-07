@@ -1,3 +1,2 @@
-Last updated: 2024-04-07 18:20:48
-Random Quote: Lily: "Swear on the lifes of your unborn boy and girl!"
-Ted: "I swear... on Luke and Leia!" - Ted Mosby
+Last updated: 2024-04-07 18:21:21
+Random Quote: Sorry buddy, wish I could help you, but my hands are tied. Oh no wait, that was last night! - Barney Stinson
