@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 18:08:40
-Random Quote: The other thing about depression is it kind of collapses time. Suddenly, you find your whole days blending together to create one endless and suffocating loop. So you find yourself trying to remember the things that made you happy. But slowly, your brain begins to erase every memory that ever brought you joy. And eventually, all you can think about is how life has always been this way. And will only continue to be this way. - Rue Bennett
+Last updated: 2024-04-07 18:09:15
+Random Quote: If the cancer doesn't get him, it'll be the cops or a bullet to the head. - Mike Ehrmantraut
