@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 18:57:19
-Random Quote: New York! Home of the Mets, the Chrysler Building, those ladies from Sex and the City and now, the zombie apocalypse. If you can make it here, you can make it anywhere - but first, you have to not get eaten. - Spider-Man
+Last updated: 2024-04-07 18:57:54
+Random Quote: I thought I was the inventor, but the greatest invention of all is the free gift of eternal life. - Rick Sanchez
