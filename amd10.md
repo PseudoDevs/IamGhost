@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 19:54:32
-Random Quote: When dead men come hunting us in the night, do you think it matters who sits the Iron Throne?  -  Jeor Mormont
+Last updated: 2024-04-07 19:55:05
+Random Quote: I've only known one other being like this. A wise Jedi Master named Yoda. - Ahsoka Tano
