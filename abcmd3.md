@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 17:36:10
-Random Quote: Ted: "You always kept your toothbrush in the bedroom. Also weird, by the way."Lily: "No. We kept it in the bathroom."Ted: "No, there was only one toothbrush in the bathroom, and it was mine..." - Ted Mosby
+Last updated: 2024-04-07 17:36:47
+Random Quote: The only way to keep your people loyal is to make certain they fear you more than they do the enemy.  -  Cersei Lannister
