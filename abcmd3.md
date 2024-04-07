@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 17:24:39
-Random Quote: Barney, check it! Three blond babies drinking bad-decision-juice at eight o'clock. - Lily Aldrin
+Last updated: 2024-04-07 17:26:59
+Random Quote: No one had expected the broken boy to live.  The gods could not kill Bran, no more than I could.  It was a strange thought, and stranger still to remember that Bran might still be alive.  -  Theon Greyjoy
