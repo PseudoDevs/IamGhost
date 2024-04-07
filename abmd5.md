@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 17:35:44
-Random Quote: Dismissing Selmy, where was the sense in that?  Yes, the man was old, but the name of Barristan the Bold still has meaning in the realm.  He lent honor to any man he served.  -  Tywin Lannister
+Last updated: 2024-04-07 17:36:17
+Random Quote: Whisky's good proofing water. Tells you who's real and who isn't. - Thomas Shelby
