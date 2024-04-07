@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 04:21:13
-Random Quote: Marshall: "It's kind of a big, professional meeting. You might want to trade out that lollipop for a shirt."Ted: "Yeah. I'll just give it to one of these kids."Marshall: "Oh, buddy. You're half naked, you're not a parent to any of these children. Don't offer 'em candy!" - Marshall Eriksen
+Last updated: 2024-04-07 04:21:51
+Random Quote: Aunties are older Indian women who have no blood-relation to you. But are allowed to have opinions about your life and all your shortcomings. And you have to be nice to them because you're Indian. - John McEnroe
