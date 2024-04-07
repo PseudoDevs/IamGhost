@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 17:52:13
-Random Quote: See, lad, that's why he's the king and I'm not.  I can outdrink, outfight, and outsing him, and my member's thrice the size o' his, but Mance has cunning.  -  Tormund Giantsbane
+Last updated: 2024-04-07 17:53:29
+Random Quote: I can't tell the difference between my waking life and dreams. - Arthur Harrow
