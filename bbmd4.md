@@ -1,2 +1,5 @@
-Last updated: 2024-04-07 16:18:25
-Random Quote: God doesn’t have a plan. There is no plan at all. There’s nothing but chaos out there. Pain… and chaos! People are bad. Malicious, evil. Life is nothing but a spiral of pain. And the world is doomed to be destroyed - Noah
+Last updated: 2024-04-07 16:19:00
+Random Quote: Dina: "You're infuriating."
+Ellie: "Have you met you?"
+Dina: "You make me want to go back outside into that blizzard."
+Ellie: "No one is stopping you." - Joel Miller
