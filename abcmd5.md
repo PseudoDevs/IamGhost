@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 07:04:50
-Random Quote: Barney: "Her butt?"Marshall: "What is it, too much?"Lily: "Too low?"Robin: "Or ist it an issue of access?" - Robin Scherbatsky
+Last updated: 2024-04-07 07:05:26
+Random Quote: Then odds are he'll be near a settlement, probably close to another city out there. Ain't too many of 'em in Wyoming. - Joel Miller
