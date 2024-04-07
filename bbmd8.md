@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 18:12:14
-Random Quote: And there's this other band, led by this woman Stoneheart... Lord Beric's lover, according to one tale.  Supposedly she was hanged by the Freys, but Dondarrion kissed her and brought her back to life, and now she cannot die, no more than he.  -  Set Hyle Hunt
+Last updated: 2024-04-07 18:13:23
+Random Quote: The bad guys need to get lucky every time. The good guys just need to get lucky once. - Steve Murphy
