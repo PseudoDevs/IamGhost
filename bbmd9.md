@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 05:15:39
-Random Quote: Usually after a sandwich, I feel paranoid, but I'm not. WHY AM I NOT BEING PARANOID?? - Marshall Eriksen
+Last updated: 2024-04-07 05:16:15
+Random Quote: Some battles are won with swords and spears, others with quills and ravens.  -  Tywin Lannister
