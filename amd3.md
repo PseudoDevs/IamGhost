@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 20:22:53
-Random Quote: Marshall: "Dude, if we fail this econ final, for the rest of our lives we're not gonna be able to... we won't know how to... do you even know what 'econ' is?"Ted: "No idea. We're screwed." - Ted Mosby
+Last updated: 2024-04-07 20:23:26
+Random Quote: I dreamt a wolf howling in the rain, but no one heard his grief.  I dreamt such a clangor I thought my head myght burst, drums and horns and pipes and screams, but the saddest sound was the little bells.  I dreamt of a maid at a feast with purple serpents in her hair, venom dripping from their fangs.  And later I dreamt that maid again, slaying a savage giant in a castle built of snow.  -  The Ghost of High Heart
