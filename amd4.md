@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 07:17:24
-Random Quote: Many years later, my brother would use the same argument in front of a judge. He was still convicted for urinating in a phone booth. - Sheldon Cooper
+Last updated: 2024-04-07 07:17:57
+Random Quote: Knights?  Dondarrion's a knight, but the rest of you are the sorriest lot of outlaws and broken men I've ever seen.  -  Sandor Clegane
