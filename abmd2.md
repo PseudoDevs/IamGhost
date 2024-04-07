@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 16:41:08
-Random Quote: Ted: "You name a chubby white kid LeBron and he's the one getting stuffed in the basketball hoop."Marshall: "Then I'm also crossing off Shaquille, Hakeem and Dikembe." - Ted Mosby
+Last updated: 2024-04-07 16:41:42
+Random Quote: Since when do vegans eat fried chicken? - Hank Schrader
