@@ -1,2 +1,6 @@
-Last updated: 2024-04-07 07:11:52
-Random Quote: My father never bellowed like the Greatjon, but he was no less dangerous in his wroth.  -  Alys Karstark
+Last updated: 2024-04-07 07:12:26
+Random Quote: Beth: "Do you want homeless people to have homes?"
+Jerry: "Yes."
+Beth: "Are you gonna build them?"
+Jerry: "No."
+Beth: "Then what good was the 'yes'?" - Beth Smith
