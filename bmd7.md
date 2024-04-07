@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 20:08:15
-Random Quote: There's no such thing as a bad idea, Morty. It's about execution. - Rick Sanchez
+Last updated: 2024-04-07 20:08:48
+Random Quote: They are children, Sansa thought.  They are silly little girls, even Elinor.  They've never seen a battle, they've never seen a man die, they know nothing.  Their dreams were full of songs and stories, the way hers had been before Joffrey cut her father's head off.  Sansa pitied them.  Sansa envied them.  -  Sansa Stark
