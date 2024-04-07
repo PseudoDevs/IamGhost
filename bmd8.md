@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 05:46:36
-Random Quote: You grew up with actors.  You learned their craft and you learned it well.  I grew up with soldiers.  I learned how to die a long time ago.  -  Eddard Stark
+Last updated: 2024-04-07 05:47:10
+Random Quote: Ted: "That beer looks a little flat."Robin: "Yeah.. it's scotch." - Robin Scherbatsky
