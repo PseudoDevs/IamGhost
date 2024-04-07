@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 19:02:47
-Random Quote: I've killed a lot more than him, I promise you.  You think that makes me some monster.  Well, maybe it does, but I saved your sister's life too.  The day the mob pulled her off her horse, I cut through them and brought her back to the castle, else she would have gotten what Lollys Stokeworth got.  And she sang for me.  You didn't know that, did you?  Your sister sang me a sweet little song.  -  Sandor Clegane
+Last updated: 2024-04-07 19:03:22
+Random Quote: Robin: "That was not cool, Ted."Lily: "Contraction!"Robin: "That wasn't cool, Ted?" - Robin Scherbatsky
