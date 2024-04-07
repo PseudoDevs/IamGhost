@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 19:58:25
-Random Quote: The septons preach about the seven hells.  What do they know?  Only a man who's been burned knows what hell is truly like.  -  Sandor Clegane
+Last updated: 2024-04-07 19:58:58
+Random Quote: When I get sad, I stop being sad and be awesome instead. True Story. - Barney Stinson
