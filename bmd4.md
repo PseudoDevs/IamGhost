@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 16:29:31
-Random Quote: It's "The Little Engine with Wood", "The Whore-ient Express", "The Long Island Tail Road"! - Barney Stinson
+Last updated: 2024-04-07 16:30:03
+Random Quote: Tarly, when I was a lad half your age, my lady mother told me that if I stood about with my mouth open, a weasel was like to mistake it for his lair and run down my throat.  If you have something to say, say it.  Otherwise, beware of weasels.  -  Jeor Mormont
