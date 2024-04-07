@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 06:18:43
-Random Quote: A king's son, with the power of kingsblood in his veins.  Do you think you've saved this boy, Onion Knight?  When the long night falls, Edric Storm shall die with the rest, wherever he is hidden.  Your own sons as well.  Darkness and cold will cover the earth.  You meddle in matters you do not understand.  -  Melisandre
+Last updated: 2024-04-07 06:19:18
+Random Quote: I hate it when you talk sometimes. No... all the time. - Nicky Nichols
