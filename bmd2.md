@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 20:30:37
-Random Quote: No one had expected the broken boy to live.  The gods could not kill Bran, no more than I could.  It was a strange thought, and stranger still to remember that Bran might still be alive.  -  Theon Greyjoy
+Last updated: 2024-04-07 20:31:10
+Random Quote: Every night can't be legendary. If all nights are legendary, no nights are legendary! - Ted Mosby
