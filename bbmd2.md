@@ -1,4 +1,2 @@
-Last updated: 2024-04-07 18:24:50
-Random Quote: Greef: "Nevarro is a very fine planet. And now that the scum and villainy have been washed away, it's very respectable again."
-Mando: "As a bounty hunter hive?"
-Greef: "Some of my favorite people are bounty hunters." - Greef Karga
+Last updated: 2024-04-07 18:25:24
+Random Quote: Barney: "On your tombstone, it will be, 'Lily Aldrin. Caring wife. Loving friend. Slapbet-Commissioner.'"Marshall: "And your tombstone will read, 'Got slapped by Marhsall so hard he died.'" - Marshall Eriksen
