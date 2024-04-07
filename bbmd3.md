@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 17:48:34
-Random Quote: No one had expected the broken boy to live.  The gods could not kill Bran, no more than I could.  It was a strange thought, and stranger still to remember that Bran might still be alive.  -  Theon Greyjoy
+Last updated: 2024-04-07 17:49:07
+Random Quote: To have power does not mean that one can abuse the poor. - Pablo Escobar
