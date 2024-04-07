@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 06:13:22
-Random Quote: Listen, Morty. I hate to break it to you, but what people call 'Love' is just a chemical reaction that compells animals to breed. It hits hard, Morty, then it slowly fades. - Rick Sanchez
+Last updated: 2024-04-07 06:14:35
+Random Quote: Marshall: "The tiniest little burger joint you ever saw. Tucked between a taxidermist and a XXX bookstore."Barney: "Name two places where things get stuffed." - Barney Stinson
