@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 17:19:16
-Random Quote: Quinn: "What is an executive strategy coordinator?"Barney: "It's three corporate-sounding words which, when added together, equal a fake job for which you get a real paycheck." - Barney Stinson
+Last updated: 2024-04-07 17:19:53
+Random Quote: You don't parley when you're on the back foot. We'll strike a blow back first. - Thomas Shelby
