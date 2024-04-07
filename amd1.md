@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 18:59:43
-Random Quote: I do have an angle, Craig. It's an angle called justice. - Saul Goodman
+Last updated: 2024-04-07 19:00:19
+Random Quote: I dream of a tree sometimes.  A weirwood, like the one in the godswood.  It calls to me.  The wolf dreams are better.  I smell things, and sometimes I can taste the blood.  -  Bran Stark
