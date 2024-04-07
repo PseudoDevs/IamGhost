@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 17:44:44
-Random Quote: There's something that I need to ask you and I want you to be honest with me. Why do white people like Carrot Top? - Barney Stinson
+Last updated: 2024-04-07 17:45:52
+Random Quote: So I will only ask you once, Lord Snow.  Are you a brother of the Night's Watch, or a bastard boy who wants to play at war?  -  Jeor Mormont
