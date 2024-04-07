@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 19:05:12
-Random Quote: Quentyn had never felt so much a boy as when he'd stood before Daenerys Targaryen, pleading for her hand.  The thought of bedding her terrified him almost as much as her dragons had.  -  Quentyn Martell
+Last updated: 2024-04-07 19:05:48
+Random Quote: Oh my God, Larry, by the time I get out, there will've been like three new generations of iPhones! - Piper Chapman
