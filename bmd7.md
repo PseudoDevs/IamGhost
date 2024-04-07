@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 18:21:19
-Random Quote: I am the storm, my lord, the first storm, and the last.  -  Euron Greyjoy
+Last updated: 2024-04-07 18:21:52
+Random Quote: Never give power to the big man. - Alfie Solomons
