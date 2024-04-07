@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 18:30:09
-Random Quote: Old gods or new, it makes no matter, no man is so accursed as the kinslayer.  -  Rickard Karstark
+Last updated: 2024-04-07 18:32:31
+Random Quote: Yes! Tonight is gonna be Legen... wait, are we sure it's a good idea to go to a strip club? Shut up, Lily! I'm in charge now... Dary! - Barney Stinson
