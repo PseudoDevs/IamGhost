@@ -1,3 +1,2 @@
-Last updated: 2024-04-07 04:58:23
-Random Quote: Woman: "You know this isn't Vegas, right?"
-Robin: "Well sure, in Vegas the casinos pump in oxygen, in Atlantic City it looks like everyone brought their own." - Robin Scherbatsky
+Last updated: 2024-04-07 04:59:36
+Random Quote: When Barney overhears that Ted and Robin have a secret to reveal at the wedding reception, he begins to guess what it might be. - Lily Aldrin
