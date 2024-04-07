@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 20:07:24
-Random Quote: If you love something, you can never let it go. Not even for a second. Or it's gone forever. - Ted Mosby
+Last updated: 2024-04-07 20:07:57
+Random Quote: I was a better smuggler than a knight, he had written to his wife, a better knight than a King's hand, a better King's hand than a husband.  I am so sorry Marya, I have loved you.  Please forgive the wrongs I did you.  -  Davos Seaworth
