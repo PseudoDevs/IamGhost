@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 16:37:50
-Random Quote: Well, maybe this isn't a breakup. Maybe this is two friends getting back together. - Robin Scherbatsky
+Last updated: 2024-04-07 16:38:24
+Random Quote: People are oblivious to reality. They only see what they want to see, when all they have to do is shift their perspective to see the full scope of things. - Yuk Je
