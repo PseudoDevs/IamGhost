@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 06:12:21
-Random Quote: Robb, who had been more a brother to Theon than any son born of Balon Greyjoy's loins.  Murdered at the Red Wedding, butchered by the Freys.  I should have been with him.  Where was I?  I should have died with him.  -  Theon Greyjoy
+Last updated: 2024-04-07 06:12:54
+Random Quote: What you have to do is show these suckers what you’re capable of. Show them you’re not scared. - Nairobi
