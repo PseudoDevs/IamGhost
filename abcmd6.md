@@ -1,3 +1,3 @@
-Last updated: 2024-04-07 16:31:09
-Random Quote: Freddie Thorne: "What kind of a list would have the name of a communist and the name of a bookmaker side by side?"
-Thomas Shelby: "Perhaps it's a list of men who give false hope to the poor." - Thomas Shelby
+Last updated: 2024-04-07 16:31:42
+Random Quote: Elliot: "I'm not sure it's a good thing we met."
+Rue: "What are you talking about? You're my new favorite person." - Rue Bennett
