@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 19:52:22
-Random Quote: The only person on earth, who loves Ted Mosby more than Marshall Eriksen, is drunk Marshall Eriksen! - Marshall Eriksen
+Last updated: 2024-04-07 19:52:55
+Random Quote: Rattleshirt, we called him.  Treacherous and bloodthirsty.  If there's honor in him, he hides it down beneath his suit of bones.  -  Jon Snow
