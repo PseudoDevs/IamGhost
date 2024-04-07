@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 19:26:36
-Random Quote: I think maybe you're the only person who really knows who I am and still likes me anyway. - Allison Hargreeves
+Last updated: 2024-04-07 19:29:27
+Random Quote: Nuncle always had a fondness for freaks and fools.  My father used to fight with him about it.  Let the wizards call upon their gods.  The Damphair will call on ours, and drown them.  -  Asha Greyjoy
