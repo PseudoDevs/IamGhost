@@ -1,2 +1,4 @@
-Last updated: 2024-04-07 05:31:54
-Random Quote: What about the reality where Hitler cured cancer, Morty? The answer is: don't think about it. - Rick Sanchez
+Last updated: 2024-04-07 05:32:30
+Random Quote: Greef: "Nevarro is a very fine planet. And now that the scum and villainy have been washed away, it's very respectable again."
+Mando: "As a bounty hunter hive?"
+Greef: "Some of my favorite people are bounty hunters." - Greef Karga
