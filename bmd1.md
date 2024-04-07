@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 05:26:56
-Random Quote: She studied Theon Greyjoy's sly smile, wondering what it meant.  That young man had a way of looking as though he knew some secret jest that only he was privy to; Catelyn had never liked it.  -  Catelyn Stark
+Last updated: 2024-04-07 05:27:30
+Random Quote: I think my soul just threw up a little bit. - Lily Aldrin
