@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 19:44:08
-Random Quote: Miss Garvey's parents may stay at our place as long as they like. Provided they each arrive in an urn. - Barney Stinson
+Last updated: 2024-04-07 19:44:41
+Random Quote: Jon, did you ever wonder why the men of the Night's Watch take no wives and father no children?  So they will not love, for love is the bane of honor, the death of duty.  -  Maester Aemon
