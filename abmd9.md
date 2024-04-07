@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 16:23:57
-Random Quote: We all face the same end. Those above have long forgotten us. They do not judge us. In death, I am all alone, and my only judge… is me. - Martha
+Last updated: 2024-04-07 16:25:03
+Random Quote: People are oblivious to reality. They only see what they want to see, when all they have to do is shift their perspective to see the full scope of things. - Yuk Je
