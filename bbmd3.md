@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 16:38:51
-Random Quote: It doesn't matter how much you push the envelope, it'll still be stationery. - Will Livingston
+Last updated: 2024-04-07 16:39:24
+Random Quote: Robert... he is in my dreams as well.  Laughing.  Drinking.  Boasting.  Those were the things he was best at.  Those, and fighting.  I never bested him at anything.  -  Stannis Baratheon
