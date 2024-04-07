@@ -1,2 +1,4 @@
-Last updated: 2024-04-07 07:22:06
-Random Quote: My father won all the battles.  He killed Prince Rhaegar and took the crown, while your father was hiding under Casterly Rock.  A strong king acts boldly, he doesn't just talk.  -  Joffrey Baratheon
+Last updated: 2024-04-07 07:23:13
+Random Quote: Morticia: "Please excuse Wednesday. She's allergic to color."
+Enid: "Wow, what happens to you?"
+Wednesday: "I break out into hives, and then the flesh peels off my bones." - Wednesday Addams
