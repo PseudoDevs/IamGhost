@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 06:11:36
-Random Quote: Lucas: "Do you think she's acting weird?"Dustin: "You're asking if the weirdo is acting weird?" - Dustin Henderson
+Last updated: 2024-04-07 06:12:11
+Random Quote: Lily, I think we made a mistake moving out to the suburbs. I miss our home. I miss our booth with our friends. And I'm pretty sure I have a drumstick... somewhere bad. - Marshall Eriksen
