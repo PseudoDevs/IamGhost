@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 16:28:40
-Random Quote: People say Hawkins is cursed. They're not way off. - Dustin Henderson
+Last updated: 2024-04-07 16:29:14
+Random Quote: There is entirely too much tut - tutting in this realm, if you ask me.  All these kings would do a deal better if they put down their swords and listended to their mothers. 
