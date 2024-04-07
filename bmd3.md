@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 16:45:49
-Random Quote: In the United States, the Mafia makes witnesses disappear so they can't testify in court. In Colombia, Pablo Escobar made the whole court disappear. - Steve Murphy
+Last updated: 2024-04-07 16:46:58
+Random Quote: Geniuses are always branded as crazy. - Pablo Escobar
