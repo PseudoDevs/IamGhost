@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 18:29:29
-Random Quote: I'm a genetic goldmine! No family history of diabetes or heart disease, everyone has non-porous teeth and perfect eyesight. I had one schizophrenic uncle, but even he had perfect vision. Which was unfortunate for the people around the bell tower he was in. - Robin Scherbatsky
+Last updated: 2024-04-07 18:30:03
+Random Quote: Tell the Crow's Eye he's afraid of kinslaying and he'll murder one of his own sons just to prove you wrong.  -  Asha Greyjoy
