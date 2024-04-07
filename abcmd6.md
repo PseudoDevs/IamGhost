@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 17:35:33
-Random Quote: A godly man got no cause to fear such.  I said as much to that Mance Rayder once, when he come sniffing round.  He never listened, no more'n you crows with your swords and your bloody fires.  That won't help you none when the white cold comes.  Only the gods will help you then.  You best get right with the gods.  -  Craster
+Last updated: 2024-04-07 17:36:09
+Random Quote: Some had been heroes, some weaklings, knaves, or cravens.  Most were only men, quicker and stronger than most, more skilled with sword and shield, but still prey to pride, ambition, lust, love, anger, jealousy, greed for gold, hunger for power, and all the other failings that afflicted lesser mortals.  The best of them overcame their flaws, did their duty, and died with their swords in their hands.  The worst... the worst were those who played the game of thrones.  -  Barristan Selmy
