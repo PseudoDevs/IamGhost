@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 05:10:41
-Random Quote: They're all weighing the beskar in their minds, but not me. No. I for one, I celebrate your success, because it is my success as well. Hell, even I'm rich. - Greef Karga
+Last updated: 2024-04-07 05:11:16
+Random Quote: From experience, it often takes a new perspective before one is able to see the light. - Elia Kane
