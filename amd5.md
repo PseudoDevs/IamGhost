@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 17:09:51
-Random Quote: Roose Bolton's cold and cunning, aye, but a man can deal with Roose.  We've all known worse.  But this bastard son of his... they say he's mad and cruel, a monster.  -  Locke
+Last updated: 2024-04-07 17:10:26
+Random Quote: The world is one great web, and no man dare not touch a single strand lest all the others tremble.  -  Illyrio Mopatis
