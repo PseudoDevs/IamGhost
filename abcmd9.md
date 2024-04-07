@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 17:04:40
-Random Quote: Lord Seaworth is a man of humble birth, but he reminded me of my duty, when all I could think of was my rights.  I had the cart before the horse, Davos said.  I was trying to win the throne to save the kingdom, when I should have been trying to save the kingdom to win the throne.  -  Stannis Baratheon
+Last updated: 2024-04-07 17:05:13
+Random Quote: Might be you fooled these others, crow, but don't think you'll be fooling Mance.  He'll take one look a' you and know you're false.  And when he does, I'll make a cloak o' your wolf there, and open your soft boy's belly and sew a weasel up inside.  -  the Lord of Bones
