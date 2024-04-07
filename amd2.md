@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 18:21:02
-Random Quote: You two suck at peddling meth. - Saul Goodman
+Last updated: 2024-04-07 18:22:12
+Random Quote: Look at us, riding around in a limo, eating hot dogs... It's like we're the president. - Marshall Eriksen
