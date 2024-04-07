@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 06:29:08
-Random Quote: Science is neat, but I’m afraid it’s not very forgiving. - Scott Clarke
+Last updated: 2024-04-07 06:29:44
+Random Quote: His blood is bad.  He needs to be leeched.  The leeches suck away the bad blood, all the rage and pain.  No man can think so full of anger.  Ramsay, though... his tainted blood would poison even leeches, I fear.  -  Roose Bolton
