@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 19:24:15
-Random Quote: When dead men come hunting us in the night, do you think it matters who sits the Iron Throne?  -  Jeor Mormont
+Last updated: 2024-04-07 19:24:49
+Random Quote: And, you know, you just can't be mad at me for wanting you to be okay. - Rue Bennett
