@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 06:31:31
-Random Quote: You have to be as bad as them above in order to survive. - Polly Gray
+Last updated: 2024-04-07 06:33:23
+Random Quote: You could turn King's Landing upside down and not find a single man with a mockingbird sewn over his heart but that does not mean I am friendless.  -  Petyr Baelish
