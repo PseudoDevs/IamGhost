@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 16:58:54
-Random Quote: Barney: "Fine, we'll just have a nice, tasteful rehearsal dinner. Maybe at a French restaurant, I know just the place."Robin: "What's the name of the restaurant?"Barney: "La Sertag." - Barney Stinson
+Last updated: 2024-04-07 16:59:27
+Random Quote: If a song makes a maid want to slip off her clothes and feel the good warm sun kiss her skin, why is that the singer's fault?  -  Tom of Sevenstreams
