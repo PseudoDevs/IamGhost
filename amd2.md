@@ -1,3 +1,2 @@
-Last updated: 2024-04-07 06:16:59
-Random Quote: Mi-nyeo: "Deok-su. You betray me... I'll kill you. Okay?"
-Deok-su: "You're the reason that I think I might die tonight." - Jang Deok-su
+Last updated: 2024-04-07 06:18:10
+Random Quote: The man who passes the sentence should swing the sword.  If you would take a man's life, you owe it to him to look into his eyes and hear his final words.  And if you cannot bear to do that, then perhaps the man does not deserve to die.  -  Eddard Stark
