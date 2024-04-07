@@ -1,3 +1,2 @@
-Last updated: 2024-04-07 19:57:35
-Random Quote: Sam: "What's going on in that cyborg brain of yours?"
-Bucky: "You don't wanna know!" - Bucky Barnes
+Last updated: 2024-04-07 19:58:08
+Random Quote: I learned form Set Arthur Dayne, the Sword of the Morning, who could have slain all five of you with his left hand while he was taking a piss with the right.  -  Jaime Lannister
