@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 16:57:47
-Random Quote: See, lad, that's why he's the king and I'm not.  I can outdrink, outfight, and outsing him, and my member's thrice the size o' his, but Mance has cunning.  -  Tormund Giantsbane
+Last updated: 2024-04-07 16:58:22
+Random Quote: Ted: "Robin and I already had our backslide. Last Thanksgiving, not even that long ago."Stella: "Did you place a large bet against yourself?" - Stella Zinman
