@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 16:46:10
-Random Quote: The only way to keep your people loyal is to make certain they fear you more than they do the enemy.  -  Cersei Lannister
+Last updated: 2024-04-07 16:46:43
+Random Quote: I have been called many things, my lord, byt kind is seldom one of them.  -  Maester Aemon
