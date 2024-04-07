@@ -1,2 +1,3 @@
-Last updated: 2024-04-07 04:17:49
-Random Quote: If the cancer doesn't get him, it'll be the cops or a bullet to the head. - Mike Ehrmantraut
+Last updated: 2024-04-07 04:18:22
+Random Quote: Ellie: "There's not gonna be anything bad in here?"
+Joel: "Just you." - Joel Miller
