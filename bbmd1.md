@@ -1,2 +1,3 @@
-Last updated: 2024-04-07 20:13:26
-Random Quote: My only aim is to take many lives. The more the better I feel. - 
+Last updated: 2024-04-07 20:13:59
+Random Quote: The Deep: "What do we do? We can't just kill everyone."
+Billy Butcher: "That's exactly what we're gonna do!" - Billy Butcher
