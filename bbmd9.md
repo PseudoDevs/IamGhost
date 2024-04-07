@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 16:42:49
-Random Quote: The bad guys need to get lucky every time. The good guys just need to get lucky once. - Steve Murphy
+Last updated: 2024-04-07 16:43:22
+Random Quote: Rhaegar fought valiantly, Rhaegar fought nobly, and Rhaegar died.  -  Jorah Mormont
