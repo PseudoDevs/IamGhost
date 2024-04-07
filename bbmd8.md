@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 07:01:40
-Random Quote: If you want my advice? Get out of your own goddamn drama for a minute. - Nicky Nichols
+Last updated: 2024-04-07 07:02:18
+Random Quote: You came in the door like thunder, Then hit the floor like thunder, Laying me down you wonder, Shaking the walls like thunder - 
