@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 05:13:09
-Random Quote: In the end, a gentle heart may be worth more than pride or valor.  -  Doran Martell
+Last updated: 2024-04-07 05:13:46
+Random Quote: Birds are lost, messages stolen or sold... there are things I might tell you of that eunuch that would chill your blood...  -  Grand Maester Pycelle
