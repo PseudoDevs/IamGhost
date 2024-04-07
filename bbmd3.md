@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 19:57:57
-Random Quote: Love's not always wise, I've learned.  It can lead us to great folly, but we follow our hearts... wherever they take us.  -  Robb Stark
+Last updated: 2024-04-07 19:58:29
+Random Quote: Look, if Michael Jordan's healthy, you don't let Scottie Pippen run the offense. Oh, you're from Canada, right. If Wayne Gretzky's healthy, you don't let François... what I'm saying is: hockey is stupid and I'm point guy! - Barney Stinson
