@@ -1,2 +1,3 @@
-Last updated: 2024-04-07 04:33:43
-Random Quote: Whenever I feel good I think it will last forever. But it's not like that. - Rue Bennett
+Last updated: 2024-04-07 04:34:16
+Random Quote: Morticia: "That boy's family was going to file attempted murder charges. How would that have looked on your record?"
+Wednesday: "Terrible. Everyone would know I failed to get the job done." - Wednesday Addams
