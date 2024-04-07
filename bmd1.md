@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 04:55:52
-Random Quote: You will never walk again... but you will fly.  -  Bloodraven
+Last updated: 2024-04-07 04:56:28
+Random Quote: Robert wanted smiles and cheers, always, so he went where he found them, to his friends and his whores.  Robert wanted to be loved.  My brother Tyrion has the same disease.  -  Cersei Lannister
