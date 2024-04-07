@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 19:39:02
-Random Quote: Knowledge is a weapon, Jon.  Arm yourself well before you ride forth to battle.  -  Maester Aemon
+Last updated: 2024-04-07 19:39:35
+Random Quote: You're like Hitler! But even Hitler cared about Germany or something. - Morty Smith
