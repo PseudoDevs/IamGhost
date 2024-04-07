@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 04:19:21
-Random Quote: Joe Caputo: "You ever notice how some dog breeds, they sound kind of dirty? Like, shih tzu, cocker, Jack-something."Susan Fischer: "Poodle."Joe Caputo: "That is good, I didn't think of that one." - Joe Caputo
+Last updated: 2024-04-07 04:19:56
+Random Quote: Barney: "Fine, we'll just have a nice, tasteful rehearsal dinner. Maybe at a French restaurant, I know just the place."Robin: "What's the name of the restaurant?"Barney: "La Sertag." - Barney Stinson
