@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 18:25:14
-Random Quote: You're Reek.  You'll always be Reek, no matter how sweet you smell.  Your nose may lie to you.  Remember your name.  Remember who you are.  -  Ramsay Bolton
+Last updated: 2024-04-07 18:27:07
+Random Quote: Only their shadows, One most of all.  A tall and twisted thing with one black eye and ten long arms, sailing on a sea of blood.  -  Moqorro
