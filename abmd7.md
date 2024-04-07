@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 19:37:10
-Random Quote: Clearly, his taste in women is the same as his taste in lawyers. - Saul Goodman
+Last updated: 2024-04-07 19:37:43
+Random Quote: I don't know what kind of fed up sht you got going inside of your head. I don't know how to help, but I could tell you one thing: This drug sht - it's not the answer. - Fezco
