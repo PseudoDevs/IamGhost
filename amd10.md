@@ -1,2 +1,4 @@
-Last updated: 2024-04-07 19:25:06
-Random Quote: Come on, baby, do the magic hand thing! - Greef Karga
+Last updated: 2024-04-07 19:25:39
+Random Quote: Ellie: "Can I have a gun?"
+Joel: "Absolutely not."
+Ellie: "Okay, Jesus. Fine. I'll have to throw a f-ckin' sandwich at them." - Ellie Williams
