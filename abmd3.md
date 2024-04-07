@@ -1,2 +1,6 @@
-Last updated: 2024-04-07 16:27:11
-Random Quote: What we know is a drop. What we don’t know is an ocean - 
+Last updated: 2024-04-07 16:27:45
+Random Quote: Beth: "Do you want homeless people to have homes?"
+Jerry: "Yes."
+Beth: "Are you gonna build them?"
+Jerry: "No."
+Beth: "Then what good was the 'yes'?" - Beth Smith
