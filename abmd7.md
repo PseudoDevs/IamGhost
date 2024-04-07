@@ -1,2 +1,4 @@
-Last updated: 2024-04-07 19:19:45
-Random Quote: Robin, girls are like cartons of milk. Each one has a hotness expiration date and you've hit yours. I'm not saying the occasional guy won't still open the fridge, pick you up, give a sniff, shrug and take a sip anyway, but it's all downhill from here. - Barney Stinson
+Last updated: 2024-04-07 19:20:18
+Random Quote: Bro McDonald had a farm, E-I-E-I-bro
+And on that farm he had some chicks, E-I-E-I-bro
+With a hot chick here and a dumb chick there... - Barney Stinson
