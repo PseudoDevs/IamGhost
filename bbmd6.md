@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 16:25:50
-Random Quote: Good and evil are a question of perspective - Mikkel
+Last updated: 2024-04-07 16:26:24
+Random Quote: Piper: "Not every Hispanic person wants the same thing."Lorna: "Oh, sure they do. They all want to come to America."Nicky: "Jesus, your entire world view is based on 'West Side Story', isn't it?" - Nicky Nichols
