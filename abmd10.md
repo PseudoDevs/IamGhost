@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 17:48:25
-Random Quote: Colombians say, God made our land so beautiful it was unfair to the rest of the world. So to even the score, God populated the land with a race of evil men. - C� sar Gaviria
+Last updated: 2024-04-07 17:50:58
+Random Quote: We are smart. And idiots are banging all the time. We can learn how to do it, too. - Fabiola Torres
