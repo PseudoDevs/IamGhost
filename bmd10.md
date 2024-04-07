@@ -1,2 +1,3 @@
-Last updated: 2024-04-07 07:00:28
-Random Quote: We all have things we keep hidden. Sometimes, keeping secrets is how you survive. Because in High School, one rumor, one picture, one incident, can define you forever. - Hannah Baker
+Last updated: 2024-04-07 07:01:42
+Random Quote: Morty: "I don't like how meta this is getting, Rick."
+Rick: "Shut up, Morty, you're 14. You watch videos of people on YouTube reacting to fing YouTube. I'll be the judge of when we get too meta." - Rick Sanchez
