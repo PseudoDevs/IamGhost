@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 04:57:07
-Random Quote: I don't need a calculator, dad. I am one. - Sheldon Cooper
+Last updated: 2024-04-07 04:57:45
+Random Quote: She had made the mistake of speaking when Set Gregor wanted quiet, so the Mountain had smashed her teeth to splinters with a mailed fist and broken her pretty little nose as well.  He would have done worse, no doubt, if Cersei had not called him down to King's Landing to face the Red Viper's spear.  Jaime would not mourn him.  -  Jaime Lannister
