@@ -1,6 +1,2 @@
-Last updated: 2024-04-07 05:03:16
-Random Quote: When Mom was a groupie in the '70s, her scrambled eggs made her the darling of the MSG loading dock. Lot of songs written about those scrambled eggs:
-ZZ Top's "She's Got Legs"? Originally "She's Got Eggs".
-Led Zeppelin? "Scramble On".
-Steve Miller? "The Yolker".
-If you listen to Pink Floyd's "Dark Side of the Moon" while eating her eggs, it lines up perfectly. - Barney Stinson
+Last updated: 2024-04-07 05:03:55
+Random Quote: You poor stupid blind crippled fool.  Must I spell out every little thing for you?  Very well.  Cersei is a lying whore, she's been fucking Lancel and Osmund  Kettleblack and probably Moon Boy for all I know.  And I am the monster they all say I am.  Yes, I killed your vile son.  -  Tyrion Lannister
