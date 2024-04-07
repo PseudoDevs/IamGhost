@@ -1,2 +1,3 @@
-Last updated: 2024-04-07 04:57:45
-Random Quote: The Old Gods have no power in the south.  The weirwoods there were all cut down, thousands of years ago.  -  Osha
+Last updated: 2024-04-07 04:58:23
+Random Quote: Woman: "You know this isn't Vegas, right?"
+Robin: "Well sure, in Vegas the casinos pump in oxygen, in Atlantic City it looks like everyone brought their own." - Robin Scherbatsky
