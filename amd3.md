@@ -1,3 +1,2 @@
-Last updated: 2024-04-07 17:22:50
-Random Quote: Morticia: "That boy's family was going to file attempted murder charges. How would that have looked on your record?"
-Wednesday: "Terrible. Everyone would know I failed to get the job done." - Wednesday Addams
+Last updated: 2024-04-07 17:23:25
+Random Quote: I only have one rule. For every three 10's you bang, throw a bone to a 5. They're grateful and hard working and let's face it, sometimes you just want to lay there. - Barney Stinson
