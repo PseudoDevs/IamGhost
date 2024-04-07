@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 19:44:33
-Random Quote: In my body, where the shame gland should be, there is a second awesome gland. True story! - Barney Stinson
+Last updated: 2024-04-07 19:45:06
+Random Quote: When dead men come hunting us in the night, do you think it matters who sits the Iron Throne?  -  Jeor Mormont
