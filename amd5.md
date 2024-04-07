@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 17:08:37
-Random Quote: Okay, I've missed you. Not in a "we're gonna make out" way, not even in an "I forgive you" way. Just in an "I've missed you" way. - Robin Scherbatsky
+Last updated: 2024-04-07 17:09:14
+Random Quote: Barney: "Tell me more. Tell me more. Like did he have a car?"Marshall: "So is he the guy who... how shall I say this like a gentleman? Robin, did he take your maple leaf?"Barney: "Sounds to me like he gave you your first 'O Canada' face!" - Barney Stinson
