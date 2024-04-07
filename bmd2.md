@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 04:20:35
-Random Quote: Kids, morals usually come at the end of stories, but this one is so important, I'm gonna tell you now. Don't ever, ever invite an ex to your wedding. - Ted Mosby
+Last updated: 2024-04-07 04:21:12
+Random Quote: How do you keep a girl from becoming your girlfriend?1. Never get them wet. In other words, don't let her take a shower at your place.2. Keep them away from sunlight - i. e. don't ever see them during the day.3. Never feed them after midnight. Meaning she doesn't sleep over and you don't have breakfast. - Barney Stinson
