@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 19:00:04
-Random Quote: The men of Westeros are ever rushing.  What good is this, I ask you?  He who hurries through life hurries to his grave.  -  Salladhor Saan
+Last updated: 2024-04-07 19:00:38
+Random Quote: Hey, want to come to my house and play telephone? I got the string, you got the cans. - Barney Stinson
