@@ -1,5 +1,2 @@
-Last updated: 2024-04-07 20:23:12
-Random Quote: "What's love to you?"
-Flaca: "It's like getting into a bath, but the water is like warm chocolate pudding. And the Smiths are playing. There Is A Light That Never Goes Out.' There's mood lighting all over, and there's like five dudes massaging you."
-Maritza: "And you have a pizza!"
-Flaca: "She's right. You also have a pizza." - Marisol 'Flaca' Gonzales & Maritza Ramos
+Last updated: 2024-04-07 20:23:45
+Random Quote: Either get out early, or you get out too late. - Pacho Herrera
