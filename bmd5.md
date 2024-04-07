@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 05:17:10
-Random Quote: This is the one that you saved? You are as its father. A clan of two. But you have removed your helmet. Then you are a Mandalorian no more. - The Armorer
+Last updated: 2024-04-07 05:17:43
+Random Quote: Destined? Aren't you tired of waiting for destiny, Ted? Isn't it time to make your own destiny? - Robin Scherbatsky
