@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 20:31:14
-Random Quote: I cost a girl her life because I was afraid to love her - Clay Jensen
+Last updated: 2024-04-07 20:31:47
+Random Quote: Barney: "This is one of those things you have to do before you turn 30."Ted: "Sleep with a prostitute?!"Barney: "No, lose your virginity!... What up?" - Barney Stinson
