@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 18:00:43
-Random Quote: What's the difference between peanut butter and jam?You can't peanut butter your dick up someone's ass. - Barney Stinson
+Last updated: 2024-04-07 18:01:16
+Random Quote: Quentyn had never felt so much a boy as when he'd stood before Daenerys Targaryen, pleading for her hand.  The thought of bedding her terrified him almost as much as her dragons had.  -  Quentyn Martell
