@@ -1,2 +1,4 @@
-Last updated: 2024-04-07 16:44:09
-Random Quote: Ted: "It's the Drunk Train! You crossed out all the stops and wrote Vagina-Ville."Barney: "That's not true. That one says Boner Gardens." - Barney Stinson
+Last updated: 2024-04-07 16:45:16
+Random Quote: Greef: "Be careful, my friend. They've got you outnumbered ten to one."
+Din: "I like these odds."
+Greef: "I bet you do." - Greef Karga
