@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 06:59:49
-Random Quote: You have just become victims of the cheerleader-effect. Glad you asked: The cheerleader-effect is when a group of women seems hot, but only as a group. Just like with cheerleaders. They seem hot, but take each one of them individually? Sled dogs! - Barney Stinson
+Last updated: 2024-04-07 07:00:27
+Random Quote: Do you know what it is like to be sold, squire?  I do.  My brother sold me to Khal Drogo for the promise of a golden crown.  Well, Drogo crowned him in gold, though not as he had wished, and I... my sun - and

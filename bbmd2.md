@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 06:59:13
-Random Quote: I have never liked you, Cersei, but you were my own sister, so I never did you harm.  You've ended that.  I will hurt you for this.  I don't know how yet, but give me time.  A day will come when you think yourself safe and happy, and suddenly your joy will turn to ashes in your mouth, and you'll know the debt is paid.  -  Tyrion Lannister
+Last updated: 2024-04-07 07:00:26
+Random Quote: Jon was not afraid of death, but he did not want to die like that, trussed and bound and beheaded like a common brigand.  If he must perish, let it be with a sword in his hand, fighting his father's killers.  He was no true Stark, had never been one... but he could die like one.  Let them say that Eddard Stark had fathered four sons, not three.  -  Jon Snow
