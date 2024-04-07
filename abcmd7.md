@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 16:42:19
-Random Quote: A wolf is not a kraken.  What the kraken grasps it does not lose, be it longship or leviathan.  -  Victarion Greyjoy
+Last updated: 2024-04-07 16:42:53
+Random Quote: The septons preach about the seven hells.  What do they know?  Only a man who's been burned knows what hell is truly like.  -  Sandor Clegane
