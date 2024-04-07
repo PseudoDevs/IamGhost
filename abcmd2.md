@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 07:27:39
-Random Quote: By "entertainment" they mean "table-shuffle-board", Makramee classes and other non-stimulating activities which are only used in Manhatten to calm down drug-addicts and the criminaly insane. - Robin Scherbatsky
+Last updated: 2024-04-07 07:28:13
+Random Quote: We go home with an army, sweet sister.  With Khal Drogo's army, that is how we go home.  And if you must wed him and bed him for that, you will.  I'd let his whole khalasar fuck you if need be, sweet sister, all forty thousand men, and their horses too if that was what it took to get my army.  -  Viserys Targaryen

@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 07:27:39
-Random Quote: Just keep your nose out of my business and up the teacher's butt where it usually is. - Devi Vishwakumar
+Last updated: 2024-04-07 07:28:13
+Random Quote: Place was overrun with rats when we moved in.  The spearwives killed the nasty buggers.  Now the place is overrun with spearwives.  There's days I want the rats back.  -  Dolorous Edd Tollett
