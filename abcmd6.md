@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 20:00:44
-Random Quote: Nobody takes an intro class to get on any other path, but the path to not being hungover anymore. I learned that in my intro to something-ology class. - Marshall Eriksen
+Last updated: 2024-04-07 20:01:18
+Random Quote: Discouraging premarital sex is against my religion. - Barney Stinson
