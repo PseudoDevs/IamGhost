@@ -1,3 +1,2 @@
-Last updated: 2024-04-07 04:23:09
-Random Quote: What do I think love is? It's like when someone makes your stomach feel all tight, but floaty at the same time, you know? And your cheeks hurt from smiling. And you smile so much, that people think something's wrong with you.
-...And also fucking. Twenty-four seven, deep-dick, can't-walk-right fucking. - Aleida Diaz
+Last updated: 2024-04-07 04:24:22
+Random Quote: You need to stop focusing on the darkness behind you. The past is the past. Nothing can change what we’ve done. - Walter White
