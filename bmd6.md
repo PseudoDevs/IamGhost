@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 16:19:30
-Random Quote: Doesn't matter what you did or what you were, you are an Avenger! - Agatha Harkness
+Last updated: 2024-04-07 16:20:03
+Random Quote: Whisky's good proofing water. Tells you who's real and who isn't. - Thomas Shelby
