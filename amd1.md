@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 06:21:48
-Random Quote: I dream of a tree sometimes.  A weirwood, like the one in the godswood.  It calls to me.  The wolf dreams are better.  I smell things, and sometimes I can taste the blood.  -  Bran Stark
+Last updated: 2024-04-07 06:23:02
+Random Quote: What's a bigger feeling than love? - Elliot
