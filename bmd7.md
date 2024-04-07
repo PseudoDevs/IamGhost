@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 18:16:53
-Random Quote: When you date someone, it's like you're taking one long course in who that person is and then, when you break up, all that stuff becomes useless. It's the emotional equivalent of an English degree... - Ted Mosby
+Last updated: 2024-04-07 18:18:02
+Random Quote: You ever touch me again, I will burn your eyes out! - Starlight
