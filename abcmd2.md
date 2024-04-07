@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 05:59:47
-Random Quote: Death.  There will be death, aye.  Your lordship lost a son at the Red Wedding, I lost four upon the Blackwater.  And why?  Because the Lannisters stole the throne.  Go to King's Landing and look upon Tommen with your own eyes, if you doubt me.  A blind man could see it.  What does Stannis offer you?  Vengeance.  Vengeance for my sons and yours, for your husbands and your fathers and your brothers.  Vengeance for your murdered lord, your murdered king, your butchered princes.  Vengeance!  -  Davos Seaworth
+Last updated: 2024-04-07 06:00:34
+Random Quote: When you spend years thinking about something obsessively, that something is your whole world, your perfect world. - Tokyo
