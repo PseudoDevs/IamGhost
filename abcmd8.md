@@ -1,2 +1,4 @@
-Last updated: 2024-04-07 17:08:03
-Random Quote: The only way that entire car is worth 500 bucks, is if there's a $300 hook-r sitting in it. - Saul Goodman
+Last updated: 2024-04-07 17:08:39
+Random Quote: Rebecca: "So, I spoke to the owner of The Sun."
+Ted: "You spoke to God?!"
+Rebecca: "No, the newspaper." - Rebecca Welton
