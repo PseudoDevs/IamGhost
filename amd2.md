@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 04:44:18
-Random Quote: That's it. Three rules. I call 'em the 'Don't be stupid'-rules. 'Cause we're not stupid, alright? - Jim Hopper
+Last updated: 2024-04-07 04:44:54
+Random Quote: That's not a law, just a sword.  Happens I got one too.  -  Yoren of the Night's Watch
