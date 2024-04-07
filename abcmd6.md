@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 17:49:40
-Random Quote: Nymeria was least dangerous when nearly naked.  Elsewise she was sure to have a dozen blades concealed about her person.  -  Areo Hotah
+Last updated: 2024-04-07 17:50:18
+Random Quote: Lily: "A swordfight? On Monday I'm gonna have to tell my kindergarten class, who I teach not to run with scissors, that my fiancé ran me through with a freakin' broadsword."Marshall: "Well... just to be fair, it didn't go all the way through."Lily: "I'm sorry, is this a discussion of the degree to which you stabbed me?" - Lily Aldrin
