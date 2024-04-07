@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 20:21:27
-Random Quote: I feel like you ruined me forever. - Maddy Perez
+Last updated: 2024-04-07 20:22:34
+Random Quote: Is she worth the pain? A man does not suffer like this for his own glory. There is a fine line between devotion and delusion. Love can break more than your heart. It can shatter your mind. - O-Bengh
