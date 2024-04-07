@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 19:36:37
-Random Quote: If you had to fall into a woman's arms, my son, why couldn't they have been Margaery Tyrell's?  -  Catelyn Stark
+Last updated: 2024-04-07 19:37:10
+Random Quote: Clearly, his taste in women is the same as his taste in lawyers. - Saul Goodman
