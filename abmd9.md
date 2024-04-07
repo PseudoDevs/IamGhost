@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 06:43:57
-Random Quote: Rick: "If it's all the same, could we still get our stories straight? Because you're a terrible liar."Jerry: "You called me a master convincer!"Rick: "You believed me?" - Rick Sanchez
+Last updated: 2024-04-07 06:44:31
+Random Quote: Some battles are won with swords and spears, others with quills and ravens.  -  Tywin Lannister
