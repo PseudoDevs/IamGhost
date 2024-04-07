@@ -1,3 +1,2 @@
-Last updated: 2024-04-07 04:54:35
-Random Quote: Jerry: "Why Florida?"
-Cat: "Because they don't ask questions. They play Volleyball, they party and they have fun." - Rick and Morty
+Last updated: 2024-04-07 04:55:50
+Random Quote: I don't take nothin' a drug addict says personally. 'Cause I don't believe nothin' a drug addict say. - Fezco
