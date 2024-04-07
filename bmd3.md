@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 18:47:02
-Random Quote: I was a better smuggler than a knight, he had written to his wife, a better knight than a King's hand, a better King's hand than a husband.  I am so sorry Marya, I have loved you.  Please forgive the wrongs I did you.  -  Davos Seaworth
+Last updated: 2024-04-07 18:47:36
+Random Quote: All I know is, he's not in the same grade as me anymoreAnd I'm thrilled. - Missy
