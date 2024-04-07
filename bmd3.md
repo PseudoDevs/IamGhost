@@ -1,3 +1,2 @@
-Last updated: 2024-04-07 17:02:21
-Random Quote: Summer: "Someone out there is trying to kill us."
-Rick: "Someone's always trying to kill us." - Rick Sanchez
+Last updated: 2024-04-07 17:02:57
+Random Quote: A hall to die in, and men to bury me.  I thank you, my lords... but I spit on your pity... I am a knight... I shall die a knight.  -  Barristan Selmy
