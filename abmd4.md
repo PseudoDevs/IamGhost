@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 19:23:39
-Random Quote: I’ve spent my life being a bit of a son of a bitch, but today I think I want to die with dignity. - Berlin
+Last updated: 2024-04-07 19:27:42
+Random Quote: Grief never gets any smaller, so you have to make yourself bigger around it. The best way to do that is to open up. Let people in. - Rendell Locke
