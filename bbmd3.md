@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 19:49:34
-Random Quote: Look, if Michael Jordan's healthy, you don't let Scottie Pippen run the offense. Oh, you're from Canada, right. If Wayne Gretzky's healthy, you don't let François... what I'm saying is: hockey is stupid and I'm point guy! - Barney Stinson
+Last updated: 2024-04-07 19:51:14
+Random Quote: In this world, a man must learn to seize whatever gifts the gods chose to send him.  That was a lesson I learned at some cost.  -  The Tattered Prince
