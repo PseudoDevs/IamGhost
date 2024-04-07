@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 05:01:26
-Random Quote: Old gods or new, it makes no matter, no man is so accursed as the kinslayer.  -  Rickard Karstark
+Last updated: 2024-04-07 05:02:40
+Random Quote: Oh man, I am so excited that you're here! It has been forever since I have been around anyone even remotely fun![to Lily, Robin, Ted and Marshall] Huh... yes, offense! - Barney Stinson

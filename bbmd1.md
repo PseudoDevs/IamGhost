@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 05:02:03
-Random Quote: I knew Brienne when she was no more than a girl playing at her father's feet in Evenfall Hall, and I knew her still better when the Evenstar sent her here to Storm's End.  She loved Renly Baratheon from the first moment she laid eyes on him, a blind man could see it.  -  Cortnay Penrose
+Last updated: 2024-04-07 05:02:40
+Random Quote: The Old Gods stir and will not let me sleep.  I dreamt I saw a shadow with a burning heart butchering a golden stag, aye.  I dreamt of a man without a face, waiting on a bridge that swayed and swung.  On his shoulder perched a drowned crow with seaweed hanging from his wings.  I dreamt of a roaring river and a woman that was a fish.  Dead she drifted, with red tears on her cheeks, but when her eyes did open, oh, I woke from terror.  All this I dreamt, and more.  -  The Ghost of High Heart
