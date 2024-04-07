@@ -1,5 +1,2 @@
-Last updated: 2024-04-07 07:08:28
-Random Quote: Abby: "Do we have to go back this way?"
-Owen: "Consider it an opportunity to work on your fears."
-Abby: "How about I work my foot up your ass?"
-Owen: "Abby, stop flirting!" - Joel Miller
+Last updated: 2024-04-07 07:09:04
+Random Quote: When I'm king in my own right, I'm going to outlaw beets.  -  Tommen Baratheon
