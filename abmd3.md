@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 17:06:09
-Random Quote: And, you know, you just can't be mad at me for wanting you to be okay. - Rue Bennett
+Last updated: 2024-04-07 17:06:48
+Random Quote: Birds are lost, messages stolen or sold... there are things I might tell you of that eunuch that would chill your blood...  -  Grand Maester Pycelle
