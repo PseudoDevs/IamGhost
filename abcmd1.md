@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 18:19:32
-Random Quote: She's gotta start working on tightening her pussy muscles, 'cause her fiance's dick is so small, it's like a hot dog in a hallway. - Nicky Nichols
+Last updated: 2024-04-07 18:20:05
+Random Quote: They'll bend the knee or I'll destroy them.  -  Stannis Baratheon
