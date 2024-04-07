@@ -1,2 +1,3 @@
-Last updated: 2024-04-07 20:22:39
-Random Quote: Better the butcher than the meat.  All kings are butchers.  Are queens so different?  -  Daario Naharis
+Last updated: 2024-04-07 20:24:57
+Random Quote: Mi-nyeo: "Deok-su. You betray me... I'll kill you. Okay?"
+Deok-su: "You're the reason that I think I might die tonight." - Jang Deok-su
