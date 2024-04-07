@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 19:46:16
-Random Quote: If we're together long enough I hope that one day you see yourself like I do. - Kevin
+Last updated: 2024-04-07 19:46:50
+Random Quote: Robb Stark won the war on the battlefield and lost it in a bedchamber.  -  Jaime Lannister
