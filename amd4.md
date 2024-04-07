@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 17:06:46
-Random Quote: Why is it always the innocents who suffer most, when you high lords play your game of thrones?  -  Varys
+Last updated: 2024-04-07 17:07:23
+Random Quote: I'm growing a child in my belly, a child that just developed ears, and it's a very thin sweater. So, please, if you must tell your story, just make it cheerful. - Lily Aldrin
