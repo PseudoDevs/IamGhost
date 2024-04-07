@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 19:49:34
-Random Quote: To go north, you must go south.  To reach the west, you must go east.  To go forward you must go back, and to touch the light you must pass beneath the shadow.  -  Quaithe
+Last updated: 2024-04-07 19:50:08
+Random Quote: Strip off their skins.  Lord Bolton, he used to say a naked man has few secrets, but a flayed man's got none.  -  Ramsay Bolton
