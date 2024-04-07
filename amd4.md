@@ -1,2 +1,4 @@
-Last updated: 2024-04-07 17:14:59
-Random Quote: He would have killed me but for Howland Reed.  -  Eddard Stark
+Last updated: 2024-04-07 17:16:12
+Random Quote: Oh Il-nam: "As a kid, I'm willing to bet you got spanked a lot."
+Seong Gi-hun: "How did you know?"
+Oh Il-nam: "My son did too. He was just like you, friend." - Oh Il-nam
