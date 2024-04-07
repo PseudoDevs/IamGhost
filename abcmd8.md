@@ -1,3 +1,2 @@
-Last updated: 2024-04-07 18:47:34
-Random Quote: Neither one of us are gonna say, "Hey, how's it going?" or "Good to see you!"
-Because it really will be good to see you. - Barney Stinson
+Last updated: 2024-04-07 18:48:07
+Random Quote: My skin has gone from porcelain, to ivory, to steel.  -  Sansa Stark
