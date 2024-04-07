@@ -1,2 +1,3 @@
-Last updated: 2024-04-07 07:27:37
-Random Quote: Hey, nice shirt, Ted. Is it yesterday already? - Lily Aldrin
+Last updated: 2024-04-07 07:28:11
+Random Quote: The Deep: "What do we do? We can't just kill everyone."
+Billy Butcher: "That's exactly what we're gonna do!" - Billy Butcher
