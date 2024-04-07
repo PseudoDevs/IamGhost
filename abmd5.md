@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 17:27:33
-Random Quote: If we're together long enough I hope that one day you see yourself like I do. - Kevin
+Last updated: 2024-04-07 17:28:08
+Random Quote: You'd have been the last lawyer I'd have gone to. - Walter White
