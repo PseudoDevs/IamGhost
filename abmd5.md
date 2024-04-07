@@ -1,4 +1,2 @@
-Last updated: 2024-04-07 19:55:12
-Random Quote: Morty: "Mom told me she wanted me to stay here to make sure you didn't die."
-Jerry: "Well, you tell your mother that I'm gonna be fine."
-Rick: "Don't train your child to lie, Jerry." - Rick Sanchez
+Last updated: 2024-04-07 19:56:18
+Random Quote: Love's not always wise, I've learned.  It can lead us to great folly, but we follow our hearts... wherever they take us.  -  Robb Stark
