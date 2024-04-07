@@ -1,2 +1,4 @@
-Last updated: 2024-04-07 19:48:20
-Random Quote: Money. That's what seperates the haves from the have-nots. But what is money? It's everything if you don't have it, right? - Marty Byrde
+Last updated: 2024-04-07 19:48:53
+Random Quote: Rick: "Wait a minute! Is that Mountain Dew in my quantum-transport-solution?"
+Morty: "I saw you were marking the level so I had to top it off."
+Rick: "Top it off? Do you know how dangerously toxic this stuff is? And you added it to my portal fluid?" - Rick Sanchez
