@@ -1,3 +1,2 @@
-Last updated: 2024-04-07 17:01:45
-Random Quote: Summer: "Someone out there is trying to kill us."
-Rick: "Someone's always trying to kill us." - Rick Sanchez
+Last updated: 2024-04-07 17:03:37
+Random Quote: Always look people in the eye. Even if they're blind. Just say, 'I am looking you in the eye.' - Phil Dunphy
