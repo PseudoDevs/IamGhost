@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 07:30:25
-Random Quote: What good is having all the money in the world if you can't go home? - Tata Escobar
+Last updated: 2024-04-07 07:30:59
+Random Quote: The frightened child who sheltered in my manse died on the Dothraki Sea, and was reborn in blood and fire.  This dragon queen who wears her name is a true Targaryen.  -  Illyrio Mopatis
