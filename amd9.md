@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 18:14:33
-Random Quote: Frustration and boredom are great motivators to seek out other pleasures. Human behavior is quite predictable. - Virginia Wilson
+Last updated: 2024-04-07 18:15:08
+Random Quote: It is R'hllor who brings you back, my lord.  The Lord of Light.  I am only his instrument.  -  Thoros of Myr
