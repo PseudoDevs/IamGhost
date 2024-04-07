@@ -1,2 +1,4 @@
-Last updated: 2024-04-07 05:45:19
-Random Quote: New Mexico. It's another state. I mean, it's like California, just less traffic. - Lalo Salamanca
+Last updated: 2024-04-07 05:45:54
+Random Quote: Ellie: "Can I have a gun?"
+Joel: "Absolutely not."
+Ellie: "Okay, Jesus. Fine. I'll have to throw a f-ckin' sandwich at them." - Ellie Williams
