@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 16:48:20
-Random Quote: There is one problem with success. Not everyone can handle it. - Walt Breslin
+Last updated: 2024-04-07 16:49:25
+Random Quote: What do a bunch o' bloody peasants know about a lord's honor?  We know some about murder, though.  -  Lem Lemoncloak
