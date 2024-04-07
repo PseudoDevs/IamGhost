@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 05:07:05
-Random Quote: What if Einstein's parents had held him back? We wouldn't even have the... - I was gonna say atomic bomb, but there's probably a better example. - Meemaw
+Last updated: 2024-04-07 05:07:43
+Random Quote: Serve, Obey, Protect.  Simple vows for a simple man.  -  Areo Hotah
