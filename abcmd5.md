@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 04:46:01
-Random Quote: Even if I meet the girl of my dreams right the second, I'm still one night and nine months away, from having a family on my own. And that's assuming the mother of my childern is just a huge slut. - Ted Mosby
+Last updated: 2024-04-07 04:48:16
+Random Quote: There are only two reasons to date a girl you've already dated: breast implants. - Barney Stinson
