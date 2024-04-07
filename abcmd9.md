@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 18:44:49
-Random Quote: The day is won, and yet you do not smile, boy.  The living should smile, for the dead cannot.  -  Dagmer Cleftjaw
+Last updated: 2024-04-07 18:45:22
+Random Quote: I have served six kings, but here before us lies the greatest man I ever knew.  Lord Tywin wore no crown, yet he was all a king should be.  -  Grand Maester Pycelle
