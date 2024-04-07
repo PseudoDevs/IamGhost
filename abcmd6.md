@@ -1,2 +1,3 @@
-Last updated: 2024-04-07 17:55:19
-Random Quote: Larry Bloom: "Are we at least gonna talk about other options?"Piper Chapman: "You mean..."Larry Bloom: "It's not Voldemort, you can say it. Abortion." - Larry Bloom
+Last updated: 2024-04-07 17:55:54
+Random Quote: Marylin Thornhill: "I trust Enid has given you the old Nevermore welcome."
+Wednesday: "She's been smothering me with hospitality. I hope to return the favor... in her sleep." - Wednesday Addams
