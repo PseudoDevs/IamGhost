@@ -1,2 +1,4 @@
-Last updated: 2024-04-07 19:42:19
-Random Quote: Pennsatucky: "It weren't my fault. I was just doing as the Spirit commanded."Pussey: "Fuck are you? Joan of Arc?"Pennsatucky: "No, I'm from Waynesboro, my name is Tiffany..." - Tiffany 'Pennsatucky' Doggett
+Last updated: 2024-04-07 19:42:52
+Random Quote: Tony Stark: "Lieutenant Killmonger? What is that? German?"
+Killmonger: "A nickname."
+Tony Stark: "That's clearly a good fit." - Killmonger
