@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 07:10:16
-Random Quote: I understand that if any more words come pouring out of your cunt mouth I'm going to have to eat every fucking chicken in this room.  -  Sandor Clegane
+Last updated: 2024-04-07 07:10:52
+Random Quote: You are the love of my life. Everything I have and everything I am is yours. Forever. - Barney Stinson

@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 07:10:16
-Random Quote: I found a Bollywood movie about a princess who falls for a lowly street sweeper. It's only seven hours long. - Kamala
+Last updated: 2024-04-07 07:10:52
+Random Quote: And there's this other band, led by this woman Stoneheart... Lord Beric's lover, according to one tale.  Supposedly she was hanged by the Freys, but Dondarrion kissed her and brought her back to life, and now she cannot die, no more than he.  -  Set Hyle Hunt
