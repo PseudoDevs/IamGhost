@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 18:37:14
-Random Quote: You have to be as bad as them above in order to survive. - Polly Gray
+Last updated: 2024-04-07 18:38:20
+Random Quote: Mitchell: "It's been five years now and he still does this thing were he announces himself before walking into any room we're in, just to make sure he doesn't ever see us kiss."Cameron: "Wish my mother had that system. Remember?" - Cameron Tucker
