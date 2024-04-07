@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 20:33:24
-Random Quote: Rick: "Hey Morty, quick favor."Morty: "What, cover me in gasoline and spiders? Fine, yeah, I'm in."Rick: "Wasn't my first pitch but hey, not gonna waste this opportunity." - Rick Sanchez
+Last updated: 2024-04-07 20:33:58
+Random Quote: I never wanted the throne, I only ever wanted to be your equal. - Thor
