@@ -1,3 +1,2 @@
-Last updated: 2024-04-07 17:54:40
-Random Quote: Freddie Thorne: "What kind of a list would have the name of a communist and the name of a bookmaker side by side?"
-Thomas Shelby: "Perhaps it's a list of men who give false hope to the poor." - Thomas Shelby
+Last updated: 2024-04-07 17:55:16
+Random Quote: When I'm king in my own right, I'm going to outlaw beets.  -  Tommen Baratheon
