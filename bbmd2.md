@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 16:36:35
-Random Quote: Ted: "Do you have a cold?"Barney: "I'm fine. My nose is just overflowing with awesome and I had to get some of it out." - Barney Stinson
+Last updated: 2024-04-07 16:37:09
+Random Quote: Jesus was a fag! He said: 'This is my body. Eat me.' - Big Boo

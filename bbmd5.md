@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 16:36:35
-Random Quote: You see, ladies? When you're out with a Blinder, you don't have to queue. - Arthur Shelby
+Last updated: 2024-04-07 16:37:09
+Random Quote: Folly and desperation are ofttimes hard to tell apart.  -  Maester Luwin
