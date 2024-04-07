@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 05:02:49
-Random Quote: I want you to wanna kiss me so bad that you don't even ask. - Jules Vaughn
+Last updated: 2024-04-07 05:03:22
+Random Quote: Being a Mandalorian is not just learning about how to fight. You also have to know how to navigate the Galaxy. That way you'll never be lost. - Din Djarin
