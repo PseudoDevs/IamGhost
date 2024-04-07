@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 17:10:05
-Random Quote: Things never work out the way you imagine they will. - Lucien
+Last updated: 2024-04-07 17:10:38
+Random Quote: The truth is always there, whether we see it or not - whether we choose to or not. The truth doesn't care about our needs or wants. It doesn't care about our governments, our ideologies, our religions. - Valery Legasov
