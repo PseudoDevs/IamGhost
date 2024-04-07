@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 06:50:12
-Random Quote: When you play the game of thrones, you win or you die.  There is no middle ground.  -  Cersei Lannister
+Last updated: 2024-04-07 06:50:45
+Random Quote: That's it. Three rules. I call 'em the 'Don't be stupid'-rules. 'Cause we're not stupid, alright? - Jim Hopper
