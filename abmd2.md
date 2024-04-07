@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 16:37:49
-Random Quote: You know, it's funny. Almost every woman I've ever met was wrong to give me a chance. You're the first woman who's wrong not to. - Barney Stinson
+Last updated: 2024-04-07 16:38:22
+Random Quote: His blood ran black.  Made him my brother as much as yours.  -  Yoren of the Night's Watch
