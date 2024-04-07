@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 19:57:22
-Random Quote: A thousand eyes, a hundred skins, wisdom deep as the roots of ancient trees.  Greenseers.  -  Bloodraven
+Last updated: 2024-04-07 19:57:55
+Random Quote: Dragons old and young, true and false, bright and dark.  And you.  A small man with a big shadow, snarling in the midst of it all.  -  Moqorro
