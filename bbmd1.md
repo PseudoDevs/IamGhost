@@ -1,2 +1,4 @@
-Last updated: 2024-04-07 17:11:58
-Random Quote: I have won every battle, yet somehow I'm losing the war.  -  Robb Stark
+Last updated: 2024-04-07 17:12:31
+Random Quote: Rick: "F you, Summer! And f the government. And f me for letting my car down, which I will never do again."
+Morty: "Jeez, Rick. You can't say FU to your grand-daughter!"
+Rick: "I just did, Morty. Here's dessert: F you!" - Rick Sanchez
