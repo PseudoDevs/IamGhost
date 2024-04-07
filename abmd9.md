@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 04:24:59
-Random Quote: The only person who gets to torture my brother is me. - Wednesday Addams
+Last updated: 2024-04-07 04:25:35
+Random Quote: Italy doesn't need something that is wrinkled, red and leaky, and smells like booze and narcotics. They've already got former Prime Minister Silvio Berlusconi. - Marshall Eriksen
