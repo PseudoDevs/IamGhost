@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 07:13:53
-Random Quote: When I knew him, he was. - Kim Wexler
+Last updated: 2024-04-07 07:15:02
+Random Quote: Better the butcher than the meat.  All kings are butchers.  Are queens so different?  -  Daario Naharis
