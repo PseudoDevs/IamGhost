@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 18:49:49
-Random Quote: Lord Pea Pod.  If you were a man, I would kill you for that, but my sword is made of too fine a steel to besmirch with craven's blood.  Aye, men are dying.  More will die before we see Winterfell.  What of it?  This is war.  Men die in war.  That is as it should be.  As it has always been.  -  Hugo Wull
+Last updated: 2024-04-07 18:50:22
+Random Quote: Omera: "You haven't shown your face to anyone since you were a kid?"Mando: "No. I was happy that they took me in. My parents were killed and the Mandalorians took care of me. This is the way." - Din Djarin
