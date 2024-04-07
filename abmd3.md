@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 07:29:58
-Random Quote: I'm not surviving, I'm just existing. - Brook Soso
+Last updated: 2024-04-07 07:30:32
+Random Quote: I will not be remembered as Set Arys the Unworthy.  I will not soil my cloak.  -  Arys Oakheart
