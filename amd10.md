@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 18:16:17
-Random Quote: There are no men like me.  There's only me.  -  Jaime Lannister
+Last updated: 2024-04-07 18:16:51
+Random Quote: Though I would treasure your friendship, I'm mainly interested in your facility with murder.  And if the day ever comes when you're tempted to sell me out, remember this; whatever their price, I'll beat it.  I like living.  -  Tyrion Lannister
