@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 17:42:47
-Random Quote: He can hear youHe knows if you've been bad or goodLike Santa, but he can send you to hell. - Missy
+Last updated: 2024-04-07 17:43:20
+Random Quote: The gods be damned.  It was a hollow victory they gave me.  A crown... it was the girl I prayed them for.  Your sister, safe... and mine again, as she was meant to be.  I ask you, Need, what good is it to wear a crown?  The gods mock the prayers of kings and cowherds alike.  -  Robert Baratheon
