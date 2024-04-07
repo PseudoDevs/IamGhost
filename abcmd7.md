@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 19:21:53
-Random Quote: I'm the Homelander. And I can do whatever the f-ck I want. - Homelander
+Last updated: 2024-04-07 19:23:03
+Random Quote: Edric Storm, they call him.  He is said to be the very image of my brother.  If men were to see him, and then look again at Joffrey and Tommen, they could not help but wonder, I would think.  -  Stannis Baratheon
