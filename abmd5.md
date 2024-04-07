@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 18:17:29
-Random Quote: A war is coming. I'm afraid your friends at Hawkins are very much in the eye of the storm. I don't know how to say this other than just to say it: without you, we can't win this war. - Sam Owens
+Last updated: 2024-04-07 18:18:05
+Random Quote: The reason why she doesn't remember is because she's a grown up. That's how this stuff always works. Only kids can get into Narnia. - Bode Locke
