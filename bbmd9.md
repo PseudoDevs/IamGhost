@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 04:15:44
-Random Quote: All due respect, sir, isn't that a lot of firepower to aim at a country most Americans can't find on a map? - Pepper Potts
+Last updated: 2024-04-07 04:16:19
+Random Quote: What you have to do is show these suckers what you’re capable of. Show them you’re not scared. - Nairobi
