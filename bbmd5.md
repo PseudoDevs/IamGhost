@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 18:14:41
-Random Quote: Oh, this dress is totally going to get me laid on my wedding night. - Lily Aldrin
+Last updated: 2024-04-07 18:15:14
+Random Quote: Marshall: "I don't care if the dishes aren't done, okay? If you care, you do it."Lily: "Great, then I don't care if you have an orgasm. If you care, you do it." - Lily Aldrin
