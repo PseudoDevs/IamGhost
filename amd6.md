@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 06:05:17
-Random Quote: Life is a long journey where maps were drawn by a fool. - Juan Nepomuceno Guerra
+Last updated: 2024-04-07 06:05:51
+Random Quote: When one chooses to walk the way of the Mandalore, you are both hunter and prey. How can one be a coward if one chooses this way of life? - The Armorer
