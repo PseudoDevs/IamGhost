@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 05:03:18
-Random Quote: If that’s true, if you don’t know who I am, then maybe your best course… would be to tread lightly. - Walter White
+Last updated: 2024-04-07 05:03:56
+Random Quote: Name one thing in this world that is non negotiable. - Walter White
