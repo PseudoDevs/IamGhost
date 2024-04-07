@@ -1,4 +1,2 @@
-Last updated: 2024-04-07 18:22:55
-Random Quote: Rick: "Guests are fans, Morty, which we are not. We'd like professional badges."
-"Do you have a crew?"
-Rick: "Yes. He's a getaway driver with Asperger's and my butt is a demolitions expert." - Rick Sanchez
+Last updated: 2024-04-07 18:23:28
+Random Quote: I'm mature enough to be on my own. Now, if you'll excuse me, I'm gonna Google how to buy a credit card. - Devi Vishwakumar
