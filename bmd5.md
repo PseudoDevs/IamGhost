@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 05:26:00
-Random Quote: Power resides where men believe it resides... It's a trick, a shadow on the wall.  -  Varys
+Last updated: 2024-04-07 05:26:36
+Random Quote: You're the smartest guy I ever met, and you're too stupid to see he made up his mind 10 minutes ago. - Hank Schrader
