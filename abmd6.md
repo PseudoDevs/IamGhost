@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 04:28:11
-Random Quote: I'm a cool dad. That's my thang. I surf the web... I text LOL - Laugh Out Loud, OMG - Oh My God, WTF - Why The Face. - Phil Dunphy
+Last updated: 2024-04-07 04:28:43
+Random Quote: I have sinned and must atone, must parade my shame before the eyes of every beggar in the city.  They think that this will break my pride, that it will make an end to me, but they are wrong.  -  Cersei Lannister
