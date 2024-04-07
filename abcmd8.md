@@ -1,3 +1,2 @@
-Last updated: 2024-04-07 05:50:56
-Random Quote: Joel: "A deep breath in, slow breath out. You squeeze the trigger like you love it. Gentle, steady, nice and slow."
-Ellie: "You gonna shoot this thing or get it pregnant?" - Ellie Williams
+Last updated: 2024-04-07 05:51:29
+Random Quote: I'd say hump her brain out, but somebody obviously already has. - Ted Mosby
