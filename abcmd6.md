@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 18:58:15
-Random Quote: I never met a real Mandalorian. Heard stories. I know you're good at killing. - Cobb Vanth
+Last updated: 2024-04-07 18:58:48
+Random Quote: Better the butcher than the meat.  All kings are butchers.  Are queens so different?  -  Daario Naharis
