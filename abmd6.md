@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 16:23:23
-Random Quote: Stacey, six kids in five years! The woman's basically a ride to the waterpark. - Ted Mosby
+Last updated: 2024-04-07 16:23:56
+Random Quote: The septons preach about the seven hells.  What do they know?  Only a man who's been burned knows what hell is truly like.  -  Sandor Clegane
