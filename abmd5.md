@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 16:42:51
-Random Quote: Do not tell me you're gonna start searching for "the one" again. The only time I wanna hear you saying "the one", is if it's followed by the word "hundred". - Barney Stinson
+Last updated: 2024-04-07 16:43:26
+Random Quote: Don't believe everything you hear. Our enemies want to separate us. But Mandalorians are stronger together. - Bo-Katan
