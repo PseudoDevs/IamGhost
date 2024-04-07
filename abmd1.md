@@ -1,2 +1,3 @@
-Last updated: 2024-04-07 05:32:22
-Random Quote: The Old Gods have no power in the south.  The weirwoods there were all cut down, thousands of years ago.  -  Osha
+Last updated: 2024-04-07 05:32:55
+Random Quote: What do I think love is? It's like when someone makes your stomach feel all tight, but floaty at the same time, you know? And your cheeks hurt from smiling. And you smile so much, that people think something's wrong with you.
+...And also fucking. Twenty-four seven, deep-dick, can't-walk-right fucking. - Aleida Diaz
