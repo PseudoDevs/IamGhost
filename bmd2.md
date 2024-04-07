@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 20:21:33
-Random Quote: He climbed onto his throne over the corpses of children, though I will grant you he was no Joffrey.  -  Arianne Martell
+Last updated: 2024-04-07 20:22:06
+Random Quote: Very nice, Lily. You know, she is a guest in this country. So while you may choose to turn your back on her, I choose... to turn my front on her. What up! - Barney Stinson
