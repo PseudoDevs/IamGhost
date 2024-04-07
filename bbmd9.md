@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 04:50:27
-Random Quote: Did the boy charm you?  He has that gift.  He got it from his father, with the blood.  He knows he is a king's son, but chooses to forget that he is bastard - born. 
+Last updated: 2024-04-07 04:51:00
+Random Quote: Here's what's gonna happen. One day you're gonna wake up, eat your breakfast, brush your teeth, go about your business. And sooner or later, you're gonna realize you haven't thought about it. None of it. And that's the moment you realize you can forget. When you know that's possible, it all gets easier. - Mike Ehrmantraut

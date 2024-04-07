@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 04:50:27
-Random Quote: Once, at the Citadel, I came into an empty room and saw an empty chair.  Yet I knew a woman had been there, only a moment before.  The cushion was dented where she'd sat, the cloth was still warm, and her scent lingered in the air.  If we leave our smells behind us when we leave a room, surely something of our souls must remain when we leave this life?  The archmaesters did not like my thinking, though.  Well, Marwyn did, but he was the only one.  -  Qyburn
+Last updated: 2024-04-07 04:51:00
+Random Quote: Ted: "As a kid, I was known as a bit of a detective. In fact, when my friend's retainer went missing, the Mosby Boys were put on the case, and it was..."Victoria: "The retainer was in the garbage. The Mosby Boys were you, your sister, and a neighborhood squirrel you thought you had tamed."Ted: "I can't believe Squirrel-lock Holmes turned on us like that, eight weeks of training down the drain." - Ted Mosby
