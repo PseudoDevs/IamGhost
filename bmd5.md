@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 06:06:09
-Random Quote: Alex: "Luke got his head stuck in the banister again."Phil: "I got it. Where's the babyoil?"Claire: "It's on our bedside tip- I Don't know, find it!" - Claire Dunphy
+Last updated: 2024-04-07 06:06:42
+Random Quote: You don't parley when you're on the back foot. We'll strike a blow back first. - Thomas Shelby
