@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 16:56:35
-Random Quote: You have courage.  Not battle courage perhaps but... I don't know... a kind of woman's courage.  -  Brienne of Tarth
+Last updated: 2024-04-07 16:57:12
+Random Quote: It's not even the lies that hurt, you know? It's the fact that you're never really emotionally prepared for someone to leave you. - Rue Bennett

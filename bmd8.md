@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 16:56:37
-Random Quote: I'm not sure whose twisted idea it was to put hundreds of adolescents in underfunded schools run by people whose dreams were crushed years ago... but I admire the sadism. - Wednesday Addams
+Last updated: 2024-04-07 16:57:14
+Random Quote: You have a passing clever father, Devan.  He makes me wish I had more smugglers in my service.  And fewer lords.  -  Stannis Baratheon
