@@ -1,3 +1,2 @@
-Last updated: 2024-04-07 18:01:24
-Random Quote: Alex: "What's Jagermeister?"
-Phil: "Well, you know how in a fairytale there's always a potion that makes the princess fall asleep and then the guys start kissing her? Well, this is like that, except you don't wake up in a castle, you wake up in a frat house with a bad reputation." - Phil Dunphy
+Last updated: 2024-04-07 18:02:00
+Random Quote: Mitchell: "It's been five years now and he still does this thing were he announces himself before walking into any room we're in, just to make sure he doesn't ever see us kiss."Cameron: "Wish my mother had that system. Remember?" - Cameron Tucker
