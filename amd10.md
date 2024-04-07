@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 20:10:06
-Random Quote: No matter how tough things get, children always turn out okay. - Berlin
+Last updated: 2024-04-07 20:10:40
+Random Quote: It's not Aerys I rue, it's Robert... Why is it no one names Robert oathbreaker?  He tore the realm apart, yet I am the one with shit for honor.  -  Jaime Lannister
