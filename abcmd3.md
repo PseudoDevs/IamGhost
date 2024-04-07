@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 04:26:58
-Random Quote: The beautiful thing about getting high is that time ceases to exist. - Rue Bennett
+Last updated: 2024-04-07 04:27:38
+Random Quote: Marshall: "Yes, i want a ball-room and I want a band and I want shoes. I've been dreaming about this day since I was... like...Lily: "...a little girl?" - Lily Aldrin
