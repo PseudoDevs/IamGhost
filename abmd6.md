@@ -1,2 +1,3 @@
-Last updated: 2024-04-07 17:21:33
-Random Quote: And at some point you make a choice about who you are and what you want. - Rue Bennett
+Last updated: 2024-04-07 17:22:06
+Random Quote: Miguel: "Would you have really fed me to those hippos?"
+Pablo: "No. Hippos don't like Mexicans either." - Pablo Escobar
