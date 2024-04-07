@@ -1,3 +1,2 @@
-Last updated: 2024-04-07 19:56:26
-Random Quote: Joel: "You got any advice on the best way west?"
-Man: "Yeah. Go east." - Ellie Williams
+Last updated: 2024-04-07 19:57:32
+Random Quote: Women aren't soldiers, and they sure as hell don't fight on the front lines. They might break a nail. - John Flynn
