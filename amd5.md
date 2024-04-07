@@ -1,3 +1,2 @@
-Last updated: 2024-04-07 05:54:09
-Random Quote: Lily: "I can't believe I unloaded like that on a high-school senior."
-Robin: "I can't believe a high-school senior unloaded like that on me." - Robin Scherbatsky
+Last updated: 2024-04-07 05:54:43
+Random Quote: Eight years ago I made an ass of myself chasing after you and I made an ass of myself chasing after you a bunch of times since then. And I have no regrets because it led me to something I wouldn't trade for the world, it led to you being my friend. So as your friend and a leading expert in the field of making an ass of yourself. I say to you, from the heart, get the hell out of this car! - Ted Mosby
