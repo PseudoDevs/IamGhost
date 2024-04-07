@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 19:00:55
-Random Quote: The biggest case of my life and I'd already lost the jury. I mean, I've heard of "Twelve Angry Men",  but this was more like "Twelve Horny Women". - Marshall Eriksen
+Last updated: 2024-04-07 19:01:31
+Random Quote: You ever touch me again, I will burn your eyes out! - Starlight
