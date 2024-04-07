@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 04:10:55
-Random Quote: Love is poison.  A sweet poison, yes, but it will kill you all the same.  -  Cersei Lannister
+Last updated: 2024-04-07 04:11:28
+Random Quote: I'm honest.  It's the world that's awful.  -  Sandor Clegane
