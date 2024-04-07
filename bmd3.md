@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 04:58:24
-Random Quote: Robb, if that sword could bring him back, I should never let you sheathe it until Need stood at my side once more... but he is gone, and a hundred Whispering Woods will not change that.  -  Catelyn Stark
+Last updated: 2024-04-07 04:59:37
+Random Quote: And there's this other band, led by this woman Stoneheart... Lord Beric's lover, according to one tale.  Supposedly she was hanged by the Freys, but Dondarrion kissed her and brought her back to life, and now she cannot die, no more than he.  -  Set Hyle Hunt
