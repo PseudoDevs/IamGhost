@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 16:41:54
-Random Quote: Piper: "Not every Hispanic person wants the same thing."Lorna: "Oh, sure they do. They all want to come to America."Nicky: "Jesus, your entire world view is based on 'West Side Story', isn't it?" - Nicky Nichols
+Last updated: 2024-04-07 16:42:27
+Random Quote: Having just any boyfriend, no matter who he is, is not going to make you happier or change who you are. - Fabiola Torres
