@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 16:36:09
-Random Quote: There's only one thing that could blind a man as smart as you, Tommy. Love. - Polly Gray
+Last updated: 2024-04-07 16:36:43
+Random Quote: Some battles are won with swords and spears, others with quills and ravens.  -  Tywin Lannister
