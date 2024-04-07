@@ -1,2 +1,3 @@
-Last updated: 2024-04-07 07:01:55
-Random Quote: Think of the pickup plays we can run as a father-son duo. There's the "Father Knows Breast", there's the "Bush Dynasty", the "Lick Father, Lick Son". - Barney Stinson
+Last updated: 2024-04-07 07:02:28
+Random Quote: Miguel: "Would you have really fed me to those hippos?"
+Pablo: "No. Hippos don't like Mexicans either." - Pablo Escobar
