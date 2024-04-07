@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 05:28:11
-Random Quote: Khaleesi, better a man should swallow scorpions than trust in the spawn of shadows, who dare not show their face beneath the sun.  It is known.  -  Rakharo
+Last updated: 2024-04-07 05:28:44
+Random Quote: This guy he's done everything right. He's been loving and devoted since he was 18 years old. There are only a few truly great people on this planet and he is one of them. - Barney Stinson
