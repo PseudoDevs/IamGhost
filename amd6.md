@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 18:08:41
-Random Quote: Nobody takes an intro class to get on any other path, but the path to not being hungover anymore. I learned that in my intro to something-ology class. - Marshall Eriksen
+Last updated: 2024-04-07 18:09:52
+Random Quote: We're done when I say we're done. - Walter White
