@@ -1,5 +1,2 @@
-Last updated: 2024-04-07 06:06:02
-Random Quote: Barney: "You can't spell 'game' without 'me' and 'me' has the best game."
-Ted: "Yeah well, I got so much game, I'm Cornish game hen."
-Barney: "Oh, yeah? I'm the New York State gaming commissioner."
-Ted: "Well, I'm The Game. Well-crafted, keep-you-guessing thriller starring Michael Douglas and Sean Penn." - Ted Mosby
+Last updated: 2024-04-07 06:06:35
+Random Quote: Mike: "A friend is someone that you'd do anything for."Dustin: "You lend them your cool stuff, like comic books and trading cards."Mike: "And they never break a promise." - Mike Wheeler
