@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 05:11:21
-Random Quote: Here's the secret, kids: none of us can vow to be perfect. In the end, all we can do is promise to love each other with everything we've got. Because love's the best thing we do. - Ted Mosby
+Last updated: 2024-04-07 05:12:33
+Random Quote: Is it your fault that Bronn's an insolent black - hearted rogue?  He's always been an insolent black
