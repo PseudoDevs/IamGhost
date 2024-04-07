@@ -1,2 +1,5 @@
-Last updated: 2024-04-07 18:08:40
-Random Quote: She's gotta start working on tightening her pussy muscles, 'cause her fiance's dick is so small, it's like a hot dog in a hallway. - Nicky Nichols
+Last updated: 2024-04-07 18:09:50
+Random Quote: Abby: "Do we have to go back this way?"
+Owen: "Consider it an opportunity to work on your fears."
+Abby: "How about I work my foot up your ass?"
+Owen: "Abby, stop flirting!" - Joel Miller
