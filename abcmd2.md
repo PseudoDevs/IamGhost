@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 17:38:04
-Random Quote: Some of you cared. None of you cared enough. - Hannah Baker
+Last updated: 2024-04-07 17:38:38
+Random Quote: I have served six kings, but here before us lies the greatest man I ever knew.  Lord Tywin wore no crown, yet he was all a king should be.  -  Grand Maester Pycelle
