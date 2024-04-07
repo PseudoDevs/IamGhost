@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 16:18:47
-Random Quote: When the sun rises in the west and sets in the east.  When the seas go dry and mountains blow in the wind like leaves.  When your womb quickens again, and you bear a living child.  Then he will return, and not before.  -  Mirri Maz Duur
+Last updated: 2024-04-07 16:19:55
+Random Quote: Folly and desperation are ofttimes hard to tell apart.  -  Maester Luwin
