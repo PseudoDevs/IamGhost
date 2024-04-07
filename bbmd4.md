@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 19:31:43
-Random Quote: The day is won, and yet you do not smile, boy.  The living should smile, for the dead cannot.  -  Dagmer Cleftjaw
+Last updated: 2024-04-07 19:32:17
+Random Quote: We have to control this fing world, or it will control you. And if you don't protect yourself, it makes a mess and breaks you. - Miguel Angel Felix Gallardo
