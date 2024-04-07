@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 04:20:35
-Random Quote: Why is it always the innocents who suffer most, when you high lords play your game of thrones?  -  Varys
+Last updated: 2024-04-07 04:21:51
+Random Quote: I think the word you're looking for is 'audacious'. - Kim Wexler
