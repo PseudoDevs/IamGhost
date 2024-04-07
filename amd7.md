@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 19:18:56
-Random Quote: You Westerosi are all the same.  You sew some beast upon a scrap of silk, and suddenly you are all lions or dragons or eagles.  -  Illyrio Mopatis
+Last updated: 2024-04-07 19:19:31
+Random Quote: You are slow to learn, Lord Eddard.  Distrusting me was the wisest thing you've don since you climbed down off your horse.  -  Petyr Baelish
