@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 07:02:55
-Random Quote: All I know is, he's not in the same grade as me anymoreAnd I'm thrilled. - Missy
+Last updated: 2024-04-07 07:03:30
+Random Quote: I'm not sure whose twisted idea it was to put hundreds of adolescents in underfunded schools run by people whose dreams were crushed years ago... but I admire the sadism. - Wednesday Addams
