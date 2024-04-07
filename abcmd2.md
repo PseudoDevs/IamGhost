@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 16:45:15
-Random Quote: Elia of Dorne.  I killed her screaming whelp.  Then I raped her.  Then I smashed her fucking head in like this.  -  Gregor Clegane
+Last updated: 2024-04-07 16:45:49
+Random Quote: Better the butcher than the meat.  All kings are butchers.  Are queens so different?  -  Daario Naharis
