@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 06:08:44
-Random Quote: I act as if I don't care if people dislike me. Deep down, I actually enjoy it. - Wednesday Addams
+Last updated: 2024-04-07 06:09:18
+Random Quote: Place was overrun with rats when we moved in.  The spearwives killed the nasty buggers.  Now the place is overrun with spearwives.  There's days I want the rats back.  -  Dolorous Edd Tollett

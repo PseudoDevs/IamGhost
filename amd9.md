@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 06:08:47
-Random Quote: America, Freddie. They've already had their revolution, you won't have to bother. - Ada Thorne
+Last updated: 2024-04-07 06:09:21
+Random Quote: Your innocence may be as plain as the scar on your face, but it will not save you.  No more than your father will.  But I might.  Not as your judge.  As your champion.  -  Oberyn Martell
