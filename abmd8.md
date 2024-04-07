@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 06:33:52
-Random Quote: I'm honest.  It's the world that's awful.  -  Sandor Clegane
+Last updated: 2024-04-07 06:34:25
+Random Quote: It wasn't the violence that scared her. It was the fact that she knew no matter what he did, she'd still love him. - Rue Bennett
