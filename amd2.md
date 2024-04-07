@@ -1,3 +1,2 @@
-Last updated: 2024-04-07 04:55:27
-Random Quote: Lily: "We're going to Atlantic City to elope - right now!"
-Barney: "Oh, congratulations Lily! Marshall, you're getting married? What the hell?" - Barney Stinson
+Last updated: 2024-04-07 04:56:34
+Random Quote: This is my own private domicile and I will not be harassed…bitch! - Jesse Pinkman
