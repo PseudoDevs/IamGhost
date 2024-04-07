@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 18:34:25
-Random Quote: Barney: "Fine, we'll just have a nice, tasteful rehearsal dinner. Maybe at a French restaurant, I know just the place."Robin: "What's the name of the restaurant?"Barney: "La Sertag." - Barney Stinson
+Last updated: 2024-04-07 18:36:49
+Random Quote: Know what time it is? It's do-o-clock, lets ride! - Barney Stinson
