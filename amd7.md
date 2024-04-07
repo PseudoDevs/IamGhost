@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 19:22:25
-Random Quote: Ted: "All my friends from high-school, they're here with their wifes or kids. My date for the night is a sticky magazine..."Robin: "Sounds like high-school all over again!" - Robin Scherbatsky
+Last updated: 2024-04-07 19:22:58
+Random Quote: You know, I hear you say things like that, and I wonder if maybe I did have a few too many whiskey sours when you were in my belly. - Meemaw
