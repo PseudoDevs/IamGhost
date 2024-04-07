@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 04:12:11
-Random Quote: Barney: "I had a drinking game based on Robin. But it was actually ON Robin: I'd pour peach schnapps in her belly button..."Ted: "Dude, we agreed we wouldn't do this."Barney: "Sorry. You're right. She didn't like it anyway. Said it woke her up." - Barney Stinson
+Last updated: 2024-04-07 04:13:18
+Random Quote: Women aren't soldiers, and they sure as hell don't fight on the front lines. They might break a nail. - John Flynn

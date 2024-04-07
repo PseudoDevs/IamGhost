@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 04:12:44
-Random Quote: Some dogs crawled atop me during the night.  My cloak was almost dry when one of them pissed in it.  Have you noticed that the rain stopped the instant I had a roof above me?  It will start again now that I'm back out.  Gods and dogs alike delight to piss on me.  -  Dolorous Edd Tollett
+Last updated: 2024-04-07 04:13:18
+Random Quote: This is the one that you saved? You are as its father. A clan of two. But you have removed your helmet. Then you are a Mandalorian no more. - The Armorer

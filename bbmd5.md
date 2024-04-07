@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 04:12:10
-Random Quote: We all must choose.  Man or woman, young or old, lord or peasant, our choices are the same.  We choose light or we choose darkness.  -  Melisandre
+Last updated: 2024-04-07 04:13:18
+Random Quote: Aunties are older Indian women who have no blood-relation to you. But are allowed to have opinions about your life and all your shortcomings. And you have to be nice to them because you're Indian. - John McEnroe
