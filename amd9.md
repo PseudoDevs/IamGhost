@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 20:14:32
-Random Quote: Jane Goodall had to go to Africa to study the apes. I just had to go to dinner. - Sheldon Cooper
+Last updated: 2024-04-07 20:15:06
+Random Quote: Mando: "I was not born on Mandalore."Greef Karga: "But you're Mandalorian?"Cara Dune: "Mandalorian isn't a race."Mando: "It's a Creed." - Din Djarin
