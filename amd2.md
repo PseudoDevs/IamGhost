@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 07:27:35
-Random Quote: I think my soul just threw up a little bit. - Lily Aldrin
+Last updated: 2024-04-07 07:28:10
+Random Quote: Mitchell: "We didn't just go to Vietnam for pleasure. We kinda have some big news."Jay: "Oh God, if Cam comes out there with boobs, I'm leaving." - Jay Pritchett
