@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 04:23:10
-Random Quote: If you're looking for the word that means caring for someone beyond all rationality and wanting them to have everything they want, no matter how much it destroys you, it's love! - Ted Mosby
+Last updated: 2024-04-07 04:24:23
+Random Quote: I only have one rule. For every three 10's you bang, throw a bone to a 5. They're grateful and hard working and let's face it, sometimes you just want to lay there. - Barney Stinson
