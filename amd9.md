@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 06:14:34
-Random Quote: Jane Goodall had to go to Africa to study the apes. I just had to go to dinner. - Sheldon Cooper
+Last updated: 2024-04-07 06:15:08
+Random Quote: Edric Storm, they call him.  He is said to be the very image of my brother.  If men were to see him, and then look again at Joffrey and Tommen, they could not help but wonder, I would think.  -  Stannis Baratheon
