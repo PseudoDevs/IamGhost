@@ -1,2 +1,3 @@
-Last updated: 2024-04-07 04:54:49
-Random Quote: If I ever get anal polyps, I'll know what to name them. - Saul Goodman
+Last updated: 2024-04-07 04:55:22
+Random Quote: Ellie: "Everybody I've cared for, either died or left me."
+Joel: "You have no idea what loss is." - Joel Miller
