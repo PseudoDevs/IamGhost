@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 06:54:04
-Random Quote: Robin: "I'm pregnant."Barney: "Are you sure you're not just getting fat?" - Barney Stinson
+Last updated: 2024-04-07 06:54:37
+Random Quote: What you have to do is show these suckers what you’re capable of. Show them you’re not scared. - Nairobi
