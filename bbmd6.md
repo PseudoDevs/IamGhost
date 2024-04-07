@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 05:05:04
-Random Quote: Lily: "I'm not paying for room service the hooker ordered."Barney: "I've been there." - Barney Stinson
+Last updated: 2024-04-07 05:05:37
+Random Quote: Lord Seaworth is a man of humble birth, but he reminded me of my duty, when all I could think of was my rights.  I had the cart before the horse, Davos said.  I was trying to win the throne to save the kingdom, when I should have been trying to save the kingdom to win the throne.  -  Stannis Baratheon
