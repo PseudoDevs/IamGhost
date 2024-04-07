@@ -1,2 +1,3 @@
-Last updated: 2024-04-07 18:15:30
-Random Quote: That's the thing with guys like Nate. They don't actually want a person. They want something they can own and possess. - Rue Bennett
+Last updated: 2024-04-07 18:16:03
+Random Quote: Morty: "Rick, can we not leave without my sister?"
+Rick: "Ugh. You have infinite sisters, Morty. Not that I want to spend the rest of my day looking for another one. Sum-Sum, let's go! Grandpa's concern for your safety is fleeting." - Rick Sanchez
