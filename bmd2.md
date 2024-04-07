@@ -1,3 +1,2 @@
-Last updated: 2024-04-07 19:59:25
-Random Quote: Journalist: "Mr. Stark, were you injured in the attack?"
-Tony Stark: "No, but I did spill my drink, and it was a '26 Macallan, so I'm pretty sure that's a war crime." - Iron Man
+Last updated: 2024-04-07 19:59:58
+Random Quote: Are you allowed to say that to people in my tax bracket? - Iron Man
