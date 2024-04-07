@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 18:09:36
-Random Quote: The Old Gods have no power in the south.  The weirwoods there were all cut down, thousands of years ago.  -  Osha
+Last updated: 2024-04-07 18:10:09
+Random Quote: Did you think your dad was the only Mandalorian? - Bo-Katan
