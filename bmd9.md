@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 19:30:43
-Random Quote: Among all the games that kids played back then, it was the most physical and violent. - Seong Gi-hun
+Last updated: 2024-04-07 19:31:16
+Random Quote: Old stories are like old friends, Old Nan used to say.  You have to visit them from time to time.  -  Bran Stark
