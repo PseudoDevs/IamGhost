@@ -1,3 +1,2 @@
-Last updated: 2024-04-07 04:31:30
-Random Quote: Men and their d-cks never cease to amaze me. John, Lizzie Stark never did a day's work vertical.
-Brave is going where no man has gone before. And with Lizzie Stark, John, that's not what you'll be doing. - Polly Gray
+Last updated: 2024-04-07 04:32:06
+Random Quote: I swear on my name. And the names of the Ancestors, that I shall walk the way of the Mand'alor and the words of the Creed shall be forever forged in my heart. - Din Djarin
