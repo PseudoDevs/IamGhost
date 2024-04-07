@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 20:18:26
-Random Quote: 'Damn, you look like hell, Chief."Jim Hopper: "Oh yeah? Well, I looked better than your wife when I left her this morning." - Jim Hopper
+Last updated: 2024-04-07 20:18:59
+Random Quote: To live is to risk it all. Otherwise you're just an inert chunk of randomly assembled molecules drifting wherever the universe blows you. - Rick Sanchez
