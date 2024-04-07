@@ -1,7 +1,2 @@
-Last updated: 2024-04-07 17:54:54
-Random Quote: "Nevermore was founded over 200 years ago to educate outcasts."
-"Students from all walks of life."
-"And death."
-"Our mission is to help each student master their unique abilities. So we offer a full range of extracurricular activities. From painting... to archery."
-"For centuries, notable alumni have roamed these majestic halls, from the master of macabre, Edgar Allan Poe, to personal heroes like Ignatius Itt, and of course, Morticia and Gomez Addams."
-"Our highly trained faculty educate our young outcasts on a wide range of subjects. Everything from werewolf reproduction to Gorgon anatomy." - Larissa Weems
+Last updated: 2024-04-07 17:55:27
+Random Quote: My daughter has taken an axe for a lover.  I will not have my son bedeck himself like a whore.  It is as I feared.  The green lands have made you soft, and the Starks have made you theirs.  -  Balon Greyjoy
