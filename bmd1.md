@@ -1,2 +1,4 @@
-Last updated: 2024-04-07 16:37:08
-Random Quote: Congratulations, you’ve just left your family a second-hand Subaru. - Saul Goodman
+Last updated: 2024-04-07 16:37:43
+Random Quote: Joel: "Where'd you get the money for this?"
+Sarah: "Drugs. I sell hardcore drugs."
+Joel: "It's better than what I do." - Joel Miller
