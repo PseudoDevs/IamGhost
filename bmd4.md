@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 17:06:08
-Random Quote: Ted: "Victoria was great."Robin: "Exactly, and you threw it all away to chase after some hot piece of ass."Ted: "You mean you?"Robin: "Thank you!" - Robin Scherbatsky
+Last updated: 2024-04-07 17:07:20
+Random Quote: Is it your fault that Bronn's an insolent black - hearted rogue?  He's always been an insolent black
