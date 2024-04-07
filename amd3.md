@@ -1,2 +1,3 @@
-Last updated: 2024-04-07 19:59:33
-Random Quote: Bitch! - Jesse Pinkman
+Last updated: 2024-04-07 20:00:07
+Random Quote: Jay: "I got you a little gift to celebrate. I know it’s not much...-"
+Gloria: "It’s practically nothing!" - Gloria Pritchett

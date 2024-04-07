@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 19:59:33
-Random Quote: The farther you go, the sharper their blade. Just don't ever give them an opening. - Cal Jacobs
+Last updated: 2024-04-07 20:00:08
+Random Quote: Marshall: "Baby, you're like 20 slutty chicks all rolled into one."Lily: "Sweet-talk is not gonna change my mind!" - Lily Aldrin
