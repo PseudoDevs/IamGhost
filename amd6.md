@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 20:30:03
-Random Quote: Ted: "Basketball, people don't realize, is all geometry, physics and engineering. If you think like an architect, you could win a thousand games without ever touching a ball."Barney: "What happened to your ball?"Ted: "Some kids from the Hebrew school next door took it and wouldn't give it back." - Ted Mosby
+Last updated: 2024-04-07 20:30:36
+Random Quote: Lily Aldrin: "Guys, The Captain just made me a very interesting offer."Barney Stinson: "Finally we get around to the real reason he hired you. Just promise you film it, and please use a tripod. There's nothing artistic about shaky-cam, it just looks sloppy." - Barney Stinson
