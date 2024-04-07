@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 17:15:28
-Random Quote: I stayed up all night wondering where the sun went. Then it dawned on me. - Will Livingston
+Last updated: 2024-04-07 17:16:01
+Random Quote: I will see, and hear, and learn, and when I have I will carry the word back to the Wall.  The wildlings had taken him for an oathbreaker, but in his heart he was still a man of the Night's Watch, doing the last duty that Qhorin Halfhand had laid on him.  Before I killed him.  -  Jon Snow
