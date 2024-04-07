@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 07:04:52
-Random Quote: We all know what my brother would do.  Robert would gallop up to the gates of Winterfell alone, break them with his warhammer, and ride through the rubble to slay Roose Bolton with his left hand and the Bastard with his right.  I am no Robert.  But we will march, and we will free Winterfell... or die in the attempt.  -  Stannis Baratheon
+Last updated: 2024-04-07 07:06:06
+Random Quote: Barney: "Looks like that bee got busy."Ted: "Looks like that French maid didn't turn down somebody's bed."Marshall: "Oh, looks like Pocahontas has a couple of wounded knees." - Marshall Eriksen
