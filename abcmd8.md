@@ -1,2 +1,3 @@
-Last updated: 2024-04-07 16:42:17
-Random Quote: Marshall: "If economic sanctions and trade-restrictions aren't enforced, the destruction of the rainforest will continue and over a million species will be wiped out!"Ted: "So you don't want coffee?" - Ted Mosby
+Last updated: 2024-04-07 16:43:27
+Random Quote: Sal: "Does Lily have any other plates? I don't let Sammy eat off this plastic."
+Pepper: "How does she breastfeed him if she doesn't let him near plastic?" - Pepper Saltzman
