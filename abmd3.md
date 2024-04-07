@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 20:16:33
-Random Quote: Master Mott said Thoros could outdrink even King Robert.  They were pease in a pod, he told me, both gluttons and sots.  -  Gendry
+Last updated: 2024-04-07 20:17:06
+Random Quote: Ted, you know who's a million times hotter than the hottest girl I've ever slept with? Her okay-looking friend I haven't seen naked. Why? Because new is always better. - Barney Stinson
