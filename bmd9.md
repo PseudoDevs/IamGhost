@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 18:25:51
-Random Quote: So young.  Though mayhaps this was a blessing.  Had he lived, he would have grown up to be a Frey.  -  Wyman Manderly
+Last updated: 2024-04-07 18:26:27
+Random Quote: I've had shits that I've liked better than Walder Frey.  -  Brynden Tully

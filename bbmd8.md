@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 18:25:52
-Random Quote: Nobody exists on purpose. Nobody belongs anywhere. We're all going to die. Come watch TV? - Morty Smith
+Last updated: 2024-04-07 18:26:28
+Random Quote: Bring on your storm, my lord... and recall, if you do, the name of this castle.  -  Cortnay Penrose
