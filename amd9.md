@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 06:04:55
-Random Quote: Your pain defines who you are but it no longer holds power on you - Noah
+Last updated: 2024-04-07 06:05:28
+Random Quote: Place was overrun with rats when we moved in.  The spearwives killed the nasty buggers.  Now the place is overrun with spearwives.  There's days I want the rats back.  -  Dolorous Edd Tollett
