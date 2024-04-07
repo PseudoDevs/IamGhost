@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 17:45:12
-Random Quote: You two suck at peddling meth. - Saul Goodman
+Last updated: 2024-04-07 17:45:45
+Random Quote: My old septon used to say that books are dead men talking.  Dead men should keep quiet, is what I say.  No one wants to hear a dead man's yabber.  -  Dolorous Edd Tollett
