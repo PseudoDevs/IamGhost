@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 19:18:56
-Random Quote: It is so nice to be out in the fresh air. You smell that? That's the smell of urine that isn't Marvin's. - Marshall Eriksen
+Last updated: 2024-04-07 19:19:31
+Random Quote: This is the one that you saved? You are as its father. A clan of two. But you have removed your helmet. Then you are a Mandalorian no more. - The Armorer
