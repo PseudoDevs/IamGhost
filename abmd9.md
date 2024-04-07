@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 07:31:06
-Random Quote: I fear the only sorcerer strong enough to stop Dr. Strange is you, Dr. Strange. - Ancient One
+Last updated: 2024-04-07 16:18:16
+Random Quote: There is a savage beast in every man, and it stirs when you put a sword in his hand.  -  Jorah Mormont
