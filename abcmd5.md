@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 07:06:34
-Random Quote: Perhaps we can fly.  All of us.  How will we ever know unless we leap from some tall tower?  No man ever truly knows what he can do unless he dares to leap.  -  Euron Greyjoy
+Last updated: 2024-04-07 07:07:07
+Random Quote: You ought to have no trouble catching our uncles.  One is drunk on seawater, after all, and the other is a great grey bullock so dim he'll probably get lost.  -  Asha Greyjoy
