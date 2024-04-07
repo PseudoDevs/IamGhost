@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 18:02:20
-Random Quote: Do you think I can't tell Lord Stannis from Lord Tywin?  They're both bungholes who think they're too noble to shit, but never mind about that, I know the difference.  -  Walder Frey
+Last updated: 2024-04-07 18:02:53
+Random Quote: A Mandalorian and a Jedi? They'll never see it coming. - Din Djarin
