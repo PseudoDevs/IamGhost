@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 16:27:56
-Random Quote: He would see this country burn if he could be king of the ashes.  -  Varys
+Last updated: 2024-04-07 16:28:29
+Random Quote: In this world, everything is governed by balance. There’s what you stand to gain and what you stand to lose. And when you think you’ve got nothing to lose, you become overconfident - Professor
