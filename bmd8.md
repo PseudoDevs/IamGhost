@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 04:30:28
-Random Quote: Mando: "I was not born on Mandalore."Greef Karga: "But you're Mandalorian?"Cara Dune: "Mandalorian isn't a race."Mando: "It's a Creed." - Din Djarin
+Last updated: 2024-04-07 04:31:02
+Random Quote: "I never win anything.  The gods always smiled on Watt, though.  When the wildlings knocked him off the Bridge of Skulls, somehow he landed in a nice deep pool of water.  How lucky was that, missing all those rocks?"  "Was it a long fall?  Did landing in the pool of water save his life?"  "No.  He was dead already, from that axe in his head.  Still, it was pretty lucky, missing the rocks."  -  Dolorous Edd and Grenn
