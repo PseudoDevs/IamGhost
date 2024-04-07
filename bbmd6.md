@@ -1,4 +1,2 @@
-Last updated: 2024-04-07 06:02:14
-Random Quote: Greef: "Be careful, my friend. They've got you outnumbered ten to one."
-Din: "I like these odds."
-Greef: "I bet you do." - Greef Karga
+Last updated: 2024-04-07 06:02:47
+Random Quote: It's like...It's like I'm a fucked-up-shit magnet. - Maria Ruiz
