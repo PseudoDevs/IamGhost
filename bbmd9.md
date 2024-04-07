@@ -1,4 +1,2 @@
-Last updated: 2024-04-07 05:50:48
-Random Quote: Joel: "Where'd you get the money for this?"
-Sarah: "Drugs. I sell hardcore drugs."
-Joel: "It's better than what I do." - Joel Miller
+Last updated: 2024-04-07 05:51:24
+Random Quote: You want to rule?  This is what ruling is; lying on a bed of weeds, ripping them out by the root, one by one, before they strangle you in your sleep.  -  Cersei Lannister
