@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 17:40:28
-Random Quote: I feel like you ruined me forever. - Maddy Perez
+Last updated: 2024-04-07 17:41:04
+Random Quote: He would have killed me but for Howland Reed.  -  Eddard Stark
