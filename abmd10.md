@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 19:29:18
-Random Quote: Robin: "Our boy's back in the game."Lily: "Thank God, it's been a hundred years since Mosby scored a dame."Marshall: "The last time he saw boobies was the screen-test scene in 'Fame'."Robin: "The last girl he dated, I think 'Righty' was her name." - Robin Scherbatsky
+Last updated: 2024-04-07 19:29:51
+Random Quote: Sorry Peter, we're grown-ups now, we can't fly to Netherland with you anymore. - Ted Mosby
