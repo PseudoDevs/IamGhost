@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 19:47:51
-Random Quote: Get the keys and remove those chains from him, before you make me rue the day I raped your mother.  -  Roose Bolton
+Last updated: 2024-04-07 19:48:25
+Random Quote: Don’t take it so personally, okay? I don’t like most people. He’s in the vast majority. - Jonathan Byers
