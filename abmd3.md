@@ -1,4 +1,2 @@
-Last updated: 2024-04-07 16:51:41
-Random Quote: Ted: "Okay, time to get the horn back to the bistro."
-Robin: "Oh Ted, I don't know if I can go again, that tuckered me out."
-Ted: "No euphemism." - Robin Scherbatsky
+Last updated: 2024-04-07 16:54:06
+Random Quote: Stella's sister: "I'm a vegan. I wish I could tune out that moral voice inside me, that says eating animals is murder. But I guess I'm just not as strong as you are."Ted: "That's 'cause you need protein. I'll have the lamb." - Ted Mosby
