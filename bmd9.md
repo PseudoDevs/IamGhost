@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 20:19:46
-Random Quote: When you tear out a man's tongue, you are not proving him a liar, you're only telling the world that you fear what he might say.  -  Tyrion Lannister
+Last updated: 2024-04-07 20:20:20
+Random Quote: I dream of a tree sometimes.  A weirwood, like the one in the godswood.  It calls to me.  The wolf dreams are better.  I smell things, and sometimes I can taste the blood.  -  Bran Stark
