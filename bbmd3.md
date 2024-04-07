@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 05:19:10
-Random Quote: We will take them before last night's beer turns to piss. - Chester Campbell
+Last updated: 2024-04-07 05:19:43
+Random Quote: What the hell is the matter with you? You tryin' out for the retard Olympics? - George 'Pornstache' Mendez
