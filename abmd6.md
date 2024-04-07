@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 07:21:22
-Random Quote: I learned form Set Arthur Dayne, the Sword of the Morning, who could have slain all five of you with his left hand while he was taking a piss with the right.  -  Jaime Lannister
+Last updated: 2024-04-07 07:21:56
+Random Quote: Sometimes it just feels better not to talk. At All. About Anything. To Anyone. - Walter White
