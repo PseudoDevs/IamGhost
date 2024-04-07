@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 19:15:58
-Random Quote: The purpose of war is peace. - Pablo Escobar
+Last updated: 2024-04-07 19:16:32
+Random Quote: It's not Aerys I rue, it's Robert... Why is it no one names Robert oathbreaker?  He tore the realm apart, yet I am the one with shit for honor.  -  Jaime Lannister

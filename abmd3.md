@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 19:15:57
-Random Quote: Marshall: "Baby, you're like 20 slutty chicks all rolled into one."Lily: "Sweet-talk is not gonna change my mind!" - Lily Aldrin
+Last updated: 2024-04-07 19:16:32
+Random Quote: I am not in danger, Skyler. I AM the danger! - Walter White
