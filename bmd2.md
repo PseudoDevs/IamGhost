@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 17:52:13
-Random Quote: Dragons old and young, true and false, bright and dark.  And you.  A small man with a big shadow, snarling in the midst of it all.  -  Moqorro
+Last updated: 2024-04-07 17:54:40
+Random Quote: There are things out there that our little minds will never comprehend - 
