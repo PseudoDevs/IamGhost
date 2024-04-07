@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 06:38:14
-Random Quote: His blood ran black.  Made him my brother as much as yours.  -  Yoren of the Night's Watch
+Last updated: 2024-04-07 06:40:01
+Random Quote: Marshall: "All pregnant ladies have crazy sex dreams. It's just her hormones going berserk."Barney: "So who's responsible for her rapid thigh movement this time?"Ted: "Oh, my favorite was when she banged George Washington."Barney: "I liked the three-way with Bill Cosby and Papa Smurf."Ted: "Oh, he smurfed the smurf out of her."Marshall: "Yes, while The Cos smurfed off in the corner - we all remember." - Marshall Eriksen
