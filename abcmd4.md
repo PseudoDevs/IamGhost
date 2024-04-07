@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 06:25:28
-Random Quote: No matter how much we fight it we are connected by our blood. We can feel estranged from our families and not understand what they do. And still, in the end, we will do anything for them. - Adam
+Last updated: 2024-04-07 06:26:03
+Random Quote: Why is it always the innocents who suffer most, when you high lords play your game of thrones?  -  Varys
