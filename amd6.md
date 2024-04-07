@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 19:25:24
-Random Quote: More beast than boy, that one, puffed up with pride and bloodlust... Robb Stark betrayed us all.  He abandoned the north to the cruel mercies of the ironmen to carve out a fairer kingdom for himself along the Trident.  Then he abandoned the riverlords who had risked much and more for him, breaking his marriage pact with my grandfather to wed the first western wench who caught his eye.  The Young Wolf?  He was a vile dog and died like one.  -  Rhaegar Frey
+Last updated: 2024-04-07 19:25:59
+Random Quote: Celtigar pronounced it admirable.  If I were to show him the contents of my privy he would pronounce that admirable as well.  -  Stannis Baratheon
