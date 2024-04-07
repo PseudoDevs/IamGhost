@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 16:41:55
-Random Quote: You wear your honor like a suit of armor, Stark.  You think it keeps you safe, but all it does is weigh you down and make it hard for you to move.  -  Petyr Baelish
+Last updated: 2024-04-07 16:42:28
+Random Quote: Folly and desperation are ofttimes hard to tell apart.  -  Maester Luwin
