@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 07:26:08
-Random Quote: We were king's men, knights, and heroes... but some knights are dark and full of terror, my lady.  War makes monsters of us all.  -  Thoros of Myr
+Last updated: 2024-04-07 07:26:41
+Random Quote: You are the love of my life. Everything I have and everything I am is yours. Forever. - Barney Stinson
