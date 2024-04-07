@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 18:39:59
-Random Quote: Ted: "Do you have a cold?"Barney: "I'm fine. My nose is just overflowing with awesome and I had to get some of it out." - Barney Stinson
+Last updated: 2024-04-07 18:40:32
+Random Quote: I thought you where vomit-free since nintythree... so that was a lie? - Marshall Eriksen
