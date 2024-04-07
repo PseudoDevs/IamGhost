@@ -1,4 +1,2 @@
-Last updated: 2024-04-07 07:30:32
-Random Quote: Joel: "Long way or short way?"
-Tess: "I mean, it's the long way or the 'we're fuckin' dead' way."
-Ellie: "Well, I vote long way just based on that limited information." - Ellie Williams
+Last updated: 2024-04-07 07:31:39
+Random Quote: Just remember who your friends and who your enemies are. - Billy Butcher
