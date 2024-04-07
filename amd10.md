@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 20:23:26
-Random Quote: Rattleshirt, we called him.  Treacherous and bloodthirsty.  If there's honor in him, he hides it down beneath his suit of bones.  -  Jon Snow
+Last updated: 2024-04-07 20:23:59
+Random Quote: Don Eladio, look into Fring's eyes. There you will see the truth. The Chicken Man hates you. He is our enemy. He plots against us. I demand blood for blood. - Hector Salamanca

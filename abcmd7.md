@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 20:22:52
-Random Quote: They're all weighing the beskar in their minds, but not me. No. I for one, I celebrate your success, because it is my success as well. Hell, even I'm rich. - Greef Karga
+Last updated: 2024-04-07 20:23:59
+Random Quote: February 13th. A magical night, where a ten has the self esteem of a four and the depraved enthusiasm of a two. - Barney Stinson
