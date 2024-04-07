@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 07:22:23
-Random Quote: Robb Stark has won more battles in a year than the Lord of Highgarden had in twenty.  -  Tyrion Lannister
+Last updated: 2024-04-07 07:22:56
+Random Quote: I've had shits that I've liked better than Walder Frey.  -  Brynden Tully
