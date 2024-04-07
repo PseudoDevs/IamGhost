@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 16:20:38
-Random Quote: You give me one hour of phone-free bro time, during which we, and by we I mean you, get magnificently, mythologically drunk. I'm talking needing-subtitles-when-you-speak drunk. - Barney Stinson
+Last updated: 2024-04-07 16:21:11
+Random Quote: Karen: "I'm sure all the exploited diamond miners in Sierra Leone would give you a high-five if they still had all their fingers. But really pretty - meet me upstairs!"Robin: "They only need one finger to give her what I'm thinking." - Robin Scherbatsky
