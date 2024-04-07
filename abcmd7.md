@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 06:44:56
-Random Quote: Just because you shot Jesse James doesn't mean you are Jesse James. - Mike Ehrmantraut
+Last updated: 2024-04-07 06:45:29
+Random Quote: A Dothraki wedding without at least three deaths is considered a dull affair.  -  Illyrio Mopatis
