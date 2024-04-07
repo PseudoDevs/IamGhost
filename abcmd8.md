@@ -1,4 +1,2 @@
-Last updated: 2024-04-07 20:02:17
-Random Quote: Ellie: "Can I have a gun?"
-Joel: "Absolutely not."
-Ellie: "Okay, Jesus. Fine. I'll have to throw a f-ckin' sandwich at them." - Ellie Williams
+Last updated: 2024-04-07 20:02:50
+Random Quote: Marshall: "If economic sanctions and trade-restrictions aren't enforced, the destruction of the rainforest will continue and over a million species will be wiped out!"Ted: "So you don't want coffee?" - Ted Mosby
