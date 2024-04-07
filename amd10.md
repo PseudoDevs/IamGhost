@@ -1,2 +1,4 @@
-Last updated: 2024-04-07 19:29:31
-Random Quote: I'm honest.  It's the world that's awful.  -  Sandor Clegane
+Last updated: 2024-04-07 19:31:10
+Random Quote: Joel: "Where'd you get the money for this?"
+Sarah: "Drugs. I sell hardcore drugs."
+Joel: "It's better than what I do." - Joel Miller
