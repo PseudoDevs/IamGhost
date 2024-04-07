@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 20:31:13
-Random Quote: You are not the guy. You're not capable of being the guy. I had a guy but now I don't. You are not the guy. - Mike Ehrmantraut
+Last updated: 2024-04-07 20:32:21
+Random Quote: No man has ever died from bending his knee.  He who kneels may rise again, blade in hand.  He who will not kneel stays dead, stiff legs and all.  -  Balon Greyjoy
