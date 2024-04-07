@@ -1,4 +1,2 @@
-Last updated: 2024-04-07 05:46:57
-Random Quote: Ted: "It's freezing out there. Where's your coat?"
-Robin: "Ted, I'm Canadian. I don't need a coat. This kind of weather is nothing for me."
-Marshall: "Yeah. This is like a spring day back in Minnesota." - Marshall Eriksen
+Last updated: 2024-04-07 05:47:30
+Random Quote: Robin: "Sometimes in life you have to be assertive and stand up for yourself."Ted: "You called her a whore!"Robin: "Who wears that much make up?"Ted: "Old ladies!"Robin: "Who take money for sex, exactly!" - Robin Scherbatsky
