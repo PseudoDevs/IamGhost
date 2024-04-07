@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 19:35:41
-Random Quote: Colombians say, God made our land so beautiful it was unfair to the rest of the world. So to even the score, God populated the land with a race of evil men. - C� sar Gaviria
+Last updated: 2024-04-07 19:37:55
+Random Quote: You ever hear about Wall Street, Morty? You know what those guys do in their fancy boardrooms? They take their balls and they dip them in cocaine and wipe them all over each other. - Rick Sanchez
