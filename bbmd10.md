@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 07:20:48
-Random Quote: Summer will end soon enough, and childhood as well.  -  Eddard Stark
+Last updated: 2024-04-07 07:21:56
+Random Quote: Oh, Cersei is lovely to look at, truly, but cold... the way she guards her cunt, you'd think she had all the gold of Casterly Rock between her legs.  -  Robert Baratheon
