@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 19:19:32
-Random Quote: There is a savage beast in every man, and it stirs when you put a sword in his hand.  -  Jorah Mormont
+Last updated: 2024-04-07 19:20:43
+Random Quote: The only thing The Umbrella Academy knows about love is how to screw it up. - Klaus Hargreeves
