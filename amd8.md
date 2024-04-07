@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 04:16:39
-Random Quote: What you have to do is show these suckers what you’re capable of. Show them you’re not scared. - Nairobi
+Last updated: 2024-04-07 04:17:12
+Random Quote: Marshall: "Neither of you guys has any game, right? Or else you'd be married. Like me. If dating is the game, then marriage is winning the game."Ted: "Yeah, if you're playing in the women's league!" - Ted Mosby
