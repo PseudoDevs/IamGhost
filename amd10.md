@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 16:50:35
-Random Quote: She had seen Bronn fight on the high road; it was no accident that he had survived the journey while other men had died.  He moved like a panther, and that ugly sword of his seemed a part of his arm.  -  Catelyn Stark
+Last updated: 2024-04-07 16:51:08
+Random Quote: You gonna ruin my life? I f'ing promise you I can do that a lot better than you can! - Rue Bennett
