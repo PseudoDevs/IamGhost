@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 19:23:10
-Random Quote: If you don’t know who I am, then maybe your best course would be to tread lightly. - Walter White
+Last updated: 2024-04-07 19:23:43
+Random Quote: You wear your honor like a suit of armor, Stark.  You think it keeps you safe, but all it does is weigh you down and make it hard for you to move.  -  Petyr Baelish
