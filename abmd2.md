@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 16:37:15
-Random Quote: Camping is just being homeless... without the change. - Summer Smith
+Last updated: 2024-04-07 16:37:49
+Random Quote: You know, it's funny. Almost every woman I've ever met was wrong to give me a chance. You're the first woman who's wrong not to. - Barney Stinson
