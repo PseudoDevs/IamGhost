@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 16:48:42
-Random Quote: You think you're the only one he whispers secrets to?  He gives each of us just enough to convince us that we'd be helpless without him.  -  Cersei Lannister
+Last updated: 2024-04-07 16:49:17
+Random Quote: I feel like her sobriety is completely dependent on how available I am to her. - Jules Vaughn

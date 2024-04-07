@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 16:48:43
-Random Quote: One minute we're just laying into each other, and then the next minute... well, same thing. - Ted Mosby
+Last updated: 2024-04-07 16:49:18
+Random Quote: You Westerosi are all the same.  You sew some beast upon a scrap of silk, and suddenly you are all lions or dragons or eagles.  -  Illyrio Mopatis

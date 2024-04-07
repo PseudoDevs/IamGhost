@@ -1,2 +1,9 @@
-Last updated: 2024-04-07 16:48:42
-Random Quote: Marshall: "Let the dinnertainment begin!"Barney: "That reminds me there's this other restaurant we should try sometime. What they do is, they cook you a meal, in a little room called a 'kitchen'." - Barney Stinson
+Last updated: 2024-04-07 16:49:18
+Random Quote: If my love were an ocean,
+there would be no more land.
+If my love were a desert,
+you would see only sand.
+If my love were a star-
+late at night, only light.
+And if my love could grow wings,
+I'd be soaring in flight. - Jay Asher

@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 16:48:42
-Random Quote: When the snows fall and the white winds blow, the lone wolf dies, but the pack survives.  -  Eddard Stark
+Last updated: 2024-04-07 16:49:18
+Random Quote: Dear Billy, I don't know if you can even hear this. Ever since you left, everything's been a total disaster. For a while, we tried to be happy... normal. I know that's impossible. - Max Mayfield
