@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 06:57:07
-Random Quote: I know the poison that my father used, and there is none slower or more agonizing.  Soon we may hear the Mountain screaming, even here in Sunspear.  -  Tyene Sand
+Last updated: 2024-04-07 06:57:40
+Random Quote: No voting, no debate. It's not a democracy - it's a Rickpublic! - Summer Smith
