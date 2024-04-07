@@ -1,2 +1,3 @@
-Last updated: 2024-04-07 04:32:50
-Random Quote: My father won all the battles.  He killed Prince Rhaegar and took the crown, while your father was hiding under Casterly Rock.  A strong king acts boldly, he doesn't just talk.  -  Joffrey Baratheon
+Last updated: 2024-04-07 04:33:31
+Random Quote: Man: "Hello, sir. Can I talk to you?"
+Gi-hun: "I don't believe in Jesus." - Seong Gi-hun

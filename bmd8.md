@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 04:32:12
-Random Quote: One minute we're just laying into each other, and then the next minute... well, same thing. - Ted Mosby
+Last updated: 2024-04-07 04:33:31
+Random Quote: Barney: "Or it's a chance to mess with her head by showing up with someone hotter. Even better. Triple-threat: hotter and bigger boobs."Ted: "That's only two?"Barney: "Count again!" - Barney Stinson
