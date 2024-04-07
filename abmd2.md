@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 16:54:44
-Random Quote: Mitchell: "It's been five years now and he still does this thing were he announces himself before walking into any room we're in, just to make sure he doesn't ever see us kiss."Cameron: "Wish my mother had that system. Remember?" - Cameron Tucker
+Last updated: 2024-04-07 16:55:21
+Random Quote: Be proud of your penis and your heritage. 'Cause neither are going anywhere. You should work with what you've got. - Otis Milburn
