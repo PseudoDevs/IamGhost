@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 16:27:23
-Random Quote: Fine, you guys can have a baby, but only under these conditions:1) You promise to always love me more than the baby.2) Once a month, I get to use the baby to pick up chicks.3) That may involve the baby falling from a two-story window and me heroically catching it.4) No breast-feeding in front of me.5) Forget about 4), you can whip 'em out whenever you want. - Barney Stinson
+Last updated: 2024-04-07 16:27:56
+Random Quote: Have you ever thought that if you could go back in time, you might still make the same decisions? We all make our own snowballs out of our bad decisions. Balls that become massive, like the Indiana Jones boulder, chasing you down-hill only to crush you in the end. - Tokyo

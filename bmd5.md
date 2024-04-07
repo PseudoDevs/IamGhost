@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 16:27:30
-Random Quote: If we're together long enough I hope that one day you see yourself like I do. - Kevin
+Last updated: 2024-04-07 16:28:03
+Random Quote: Men call me Darkstar, and I am of the night.  -  Gerold Dayne
