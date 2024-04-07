@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 07:22:30
-Random Quote: If one of the Vancouver Canucks walked in here, my panties would drop so hard, there would be a hole in the floor halfway to China. - Robin Scherbatsky
+Last updated: 2024-04-07 07:23:04
+Random Quote: They shall come day and night to see the wonder that has been born again into the world, and when they see they shall lust.  For dragons are fire made flesh, and fire is power.  -  Quaithe
