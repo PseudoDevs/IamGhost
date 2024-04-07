@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 19:59:37
-Random Quote: I never asked for this crown.  Gold is cold and heavy on the head, but so long as I am the king, I have a duty... if I must sacrifice one child to the flames to save a million from the dark... sacrifice... is never easy, Davos.  Or it is no true sacrifice.  -  Stannis Baratheon
+Last updated: 2024-04-07 20:00:10
+Random Quote: Your lord father did not come to the wedding.  An insult, as I see it.  Even if he is dying.  He never came to my last wedding either.  He calls me the Late Lord Frey, you know.  Does he think I'm dead?  I'm not dead, and I promise you, I'lll outlive him as I outlived his father.  Your family has always pissed on me, don't deny it, don't lie, you know it's true.  -  Walder Frey
