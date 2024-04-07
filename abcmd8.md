@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 18:33:53
-Random Quote: I have won every battle, yet somehow I'm losing the war.  -  Robb Stark
+Last updated: 2024-04-07 18:34:27
+Random Quote: Free folk don't follow names, or little cloth animals sewn on a tunic.  They won't dance for coins, they don't care how you style yourself or what that chain of office means or who your grandsire was.  They follow strength.  They follow the man.  -  Mance Rayder
