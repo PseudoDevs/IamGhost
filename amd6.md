@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 20:18:13
-Random Quote: Ties and no playoffs? Why do you even do this? - Jim Hopper
+Last updated: 2024-04-07 20:18:46
+Random Quote: The Citadel took my chain, but they could not take my knowledge.  -  Qyburn
