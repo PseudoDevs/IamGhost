@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 20:32:13
-Random Quote: For a joke to work, it has to have part of truth and part of pain. - Berlin
+Last updated: 2024-04-07 20:32:46
+Random Quote: Is it your fault that Bronn's an insolent black - hearted rogue?  He's always been an insolent black
