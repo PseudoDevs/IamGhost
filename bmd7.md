@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 04:21:09
-Random Quote: To live is to risk it all. Otherwise you're just an inert chunk of randomly assembled molecules drifting wherever the universe blows you. - Rick Sanchez
+Last updated: 2024-04-07 04:21:42
+Random Quote: Do you think I can't tell Lord Stannis from Lord Tywin?  They're both bungholes who think they're too noble to shit, but never mind about that, I know the difference.  -  Walder Frey
