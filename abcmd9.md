@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 19:45:02
-Random Quote: Do you remember that cave?  We should have stayed in that cave.  I told you so.  -  Ygritte
+Last updated: 2024-04-07 19:45:35
+Random Quote: In this world, a man must learn to seize whatever gifts the gods chose to send him.  That was a lesson I learned at some cost.  -  The Tattered Prince

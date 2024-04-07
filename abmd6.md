@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 19:43:56
-Random Quote: Since I stopped dating Robin, there's this thing I haven't used as much as I would like. It's kind of big. Surprisingly heavy. Kind of leathery. And it's black.This, my friends, is the playbook! - Barney Stinson
+Last updated: 2024-04-07 19:45:35
+Random Quote: Ted: "Barney! I'm allowed to miss them, okay? They're my two best friends."Barney: "I'm your two best friends!" - Barney Stinson
