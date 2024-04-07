@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 17:23:12
-Random Quote: He is strong with the Force, but talent without training is nothing. I will give my life to protect the child, but he will not be safe until he masters his abilities. - Luke Skywalker
+Last updated: 2024-04-07 17:23:45
+Random Quote: Small wonder that the Seven Kingdoms thought the free folk scarcely human.  They have no laws, no honor, not even simple decency.  They steal endlessly from each other, breed like beasts, prefer rape to marriage, and fill the world with baseborn children.  Yet he was growing fond of Tormund Giantsbane, great bag of wind and lies though he was.  -  Jon Snow
