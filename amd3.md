@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 19:07:36
-Random Quote: If there's one thing I've learned in the narco world, it's that life is more complicated than you think. Good and bad, they're relative concepts. - Steve Murphy
+Last updated: 2024-04-07 19:08:12
+Random Quote: When I knew him, he was. - Kim Wexler
