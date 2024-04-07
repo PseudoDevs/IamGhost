@@ -1,6 +1,2 @@
-Last updated: 2024-04-07 20:21:47
-Random Quote: Morty: "Rick, when you say you made an exact replica of the house, did you mean, like, an exact replica?"
-Rick: "I know about the Yosemite T-Shirt, Morty."
-Morty: "Shit."
-Rick: "You know you can use tissues, right?"
-Morty: "I can't finish without it!" - Morty Smith
+Last updated: 2024-04-07 20:22:20
+Random Quote: When you're younger, everything feels so permanent. But as you get older, you begin to realize nothing is and everyone you love can drift away. - Rue Bennett
