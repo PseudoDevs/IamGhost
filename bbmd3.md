@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 17:49:43
-Random Quote: Marshall: "You're really telling me, that when you watch 'The Karate Kid', you don't root for Daniel-san?"Barney: "Nope."Ted: "Who do you root for in 'Die Hard'?"Barney: "Hans Gruber. Charming international bandit. At the end, he died hard. He's the title character."Lily: "Okay, 'The Breakfast Club'?"Barney: "The teacher running detention. He's the only guy in the whole movie wearing a suit."Robin: "I got one. 'Terminator'."Barney: "What's the name of the movie, Robin? Who among us didn't shed a tear when his little red eye went out at the end, and he didn't get to kill these people?" - Barney Stinson
+Last updated: 2024-04-07 17:51:35
+Random Quote: We are smart. And idiots are banging all the time. We can learn how to do it, too. - Fabiola Torres
