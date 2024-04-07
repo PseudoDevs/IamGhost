@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 19:54:37
-Random Quote: You all know exactly who I am. Say my name. - Walter White
+Last updated: 2024-04-07 19:55:10
+Random Quote: We can only die.  Why else do we don these black cloaks, but to die in defense of the realm?  -  Qhorin Halfhand
