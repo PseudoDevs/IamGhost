@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 05:24:11
-Random Quote: Here are a few fun facts about Long Island... Number 1: It's Brooklyn's fart-trail. - Robin Scherbatsky
+Last updated: 2024-04-07 05:24:48
+Random Quote: They say the king loved to hunt.  The things we love destroy us every time, lad.  Remember that.  -  Jeor Mormont
