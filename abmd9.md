@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 20:31:43
-Random Quote: My lady, I have seen how you look at my brother.  Loras is valiant and handsome, and we all love him dearly... but your Imp will make a better husband.  He is a bigger man than he seems, I think.  -  Garlan Tyrell
+Last updated: 2024-04-07 20:32:17
+Random Quote: I've only known one other being like this. A wise Jedi Master named Yoda. - Ahsoka Tano
