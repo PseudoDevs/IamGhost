@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 04:13:56
-Random Quote: I think I literally have a better understanding of who killed Kennedy than what is offside. - Rebecca Welton
+Last updated: 2024-04-07 04:14:32
+Random Quote: Spare me your empty little compliments, girl... and your ser's.  I am no knight.  I spit on them and their vows.  My brother is a knight.  -  Sandor Clegane
