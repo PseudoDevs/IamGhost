@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 19:34:32
-Random Quote: The absolute worst part of depression is that even though you know you're depressed, You're unable to stop yourself from getting worse. - Rue Bennett
+Last updated: 2024-04-07 19:35:05
+Random Quote: Name one thing in this world that is non negotiable. - Walter White
