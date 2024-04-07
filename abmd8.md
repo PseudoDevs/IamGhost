@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 17:43:33
-Random Quote: I found a Bollywood movie about a princess who falls for a lowly street sweeper. It's only seven hours long. - Kamala
+Last updated: 2024-04-07 17:44:10
+Random Quote: When the truth offends me, we lie and we lie until we can no longer remember it is even there. Every lie we tell incurs a debt to the truth. Sooner or later, that debt is paid. - Valery Legasov

@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 17:43:33
-Random Quote: So you're half cold, unfeeling reptile, half also cold, equally unfeeling machine? Wow, so your origin is what? You fell into a vat of redundancy? - Rick Sanchez
+Last updated: 2024-04-07 17:44:10
+Random Quote: I like dogs better than knights... A hound will die for you, but never lie to you.  And he'll look you straight in the face.  -  Sandor Clegane
