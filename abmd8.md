@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 17:34:56
-Random Quote: Catelyn would sooner Lord Umber had seen fit to stay sober, but telling the Greatjon not to drink was like telling him not to breathe for a few hours.  -  Catelyn Stark
+Last updated: 2024-04-07 17:35:33
+Random Quote: Just remember who your friends and who your enemies are. - Billy Butcher
