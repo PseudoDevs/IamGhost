@@ -1,3 +1,2 @@
-Last updated: 2024-04-07 20:34:11
-Random Quote: Sam: "How do you know about Gandalf?"
-Bucky: "I read 'The Hobbit' in 1937, when it first came out." - Bucky Barnes
+Last updated: 2024-04-07 20:34:44
+Random Quote: I've been dreaming of that since I was five. Well, that and my own operational Death Star. - Barney Stinson
