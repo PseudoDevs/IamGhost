@@ -1,2 +1,3 @@
-Last updated: 2024-04-07 06:19:36
-Random Quote: The Old Gods have no power in the south.  The weirwoods there were all cut down, thousands of years ago.  -  Osha
+Last updated: 2024-04-07 06:20:42
+Random Quote: Kids, you can't talk yourself into falling in love. It doesn't take days of deliberation. When it's real, you know pretty quickly and with absolute certainty.
+I had forgotten that, but I was about to be reminded... - Ted Mosby
