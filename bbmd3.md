@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 19:00:37
-Random Quote: Listen, you have a choice, okay? You can pay up now or bleed to death in court. - Saul Goodman
+Last updated: 2024-04-07 19:01:10
+Random Quote: They are children, Sansa thought.  They are silly little girls, even Elinor.  They've never seen a battle, they've never seen a man die, they know nothing.  Their dreams were full of songs and stories, the way hers had been before Joffrey cut her father's head off.  Sansa pitied them.  Sansa envied them.  -  Sansa Stark
