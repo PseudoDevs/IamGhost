@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 06:58:01
-Random Quote: Sometimes, the cure is a little taste of the disease. The difference between medicine and poison sometimes is only dosage. - Arthur Harrow
+Last updated: 2024-04-07 06:58:37
+Random Quote: Honey, don't you think the little rocks would hurt your nose, if you're trying to snort crack? I think you mean coke. - Piper Chapman
