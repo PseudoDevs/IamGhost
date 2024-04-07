@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 19:46:42
-Random Quote: The Lion does not concern itself with the opinions of sheep.  -  Tywin Lannister
+Last updated: 2024-04-07 19:47:15
+Random Quote: Grey Wind ate two of his fingers, and he laughed about it.  -  Robb Stark on Greatjon Umber
