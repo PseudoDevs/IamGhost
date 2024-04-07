@@ -1,3 +1,2 @@
-Last updated: 2024-04-07 17:21:48
-Random Quote: Joel: "A deep breath in, slow breath out. You squeeze the trigger like you love it. Gentle, steady, nice and slow."
-Ellie: "You gonna shoot this thing or get it pregnant?" - Ellie Williams
+Last updated: 2024-04-07 17:22:21
+Random Quote: Lily, you just gave those children a stapler, a pair of sharp scissors and a pretty decent Pinot Noir. - Marshall Eriksen
