@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 16:56:18
-Random Quote: I feel like you ruined me forever. - Maddy Perez
+Last updated: 2024-04-07 16:56:52
+Random Quote: The Citadel took my chain, but they could not take my knowledge.  -  Qyburn
