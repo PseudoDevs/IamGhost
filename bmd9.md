@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 19:52:55
-Random Quote: Rattleshirt, we called him.  Treacherous and bloodthirsty.  If there's honor in him, he hides it down beneath his suit of bones.  -  Jon Snow
+Last updated: 2024-04-07 19:53:30
+Random Quote: Friends... they tell each other things. Things that parents don't know. - Mike Wheeler
