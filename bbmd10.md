@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 06:23:41
-Random Quote: Once, at the Citadel, I came into an empty room and saw an empty chair.  Yet I knew a woman had been there, only a moment before.  The cushion was dented where she'd sat, the cloth was still warm, and her scent lingered in the air.  If we leave our smells behind us when we leave a room, surely something of our souls must remain when we leave this life?  The archmaesters did not like my thinking, though.  Well, Marwyn did, but he was the only one.  -  Qyburn
+Last updated: 2024-04-07 06:24:55
+Random Quote: The Freys slashed her throat from ear to ear.  When we found her by the river she was three days dead.  Harwin begged me to give her the kiss of life, but it had been too long.  I would not do it, so Lord Beric put his lips to hers instead, and the flame of life passed from him to her.  And... she rose.  May the Lord of Light protect us.  She rose.  -  Thoros of Myr
