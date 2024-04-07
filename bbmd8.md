@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 05:30:44
-Random Quote: You'd have been the last lawyer I'd have gone to. - Walter White
+Last updated: 2024-04-07 05:31:18
+Random Quote: Ted: "Grinch, Grinch, Grinch, Grinch!"[The lights turn out]Lily: "Happy? Now you pissed up the big guy upstairs!"Ted: "Yeah, I'm sure god cares if I..."Man: "You use that language again and I turn off your water!"Lily: "It's my super - he lives above me." - Lily Aldrin
