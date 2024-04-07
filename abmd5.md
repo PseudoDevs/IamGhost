@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 17:10:38
-Random Quote: See, lad, that's why he's the king and I'm not.  I can outdrink, outfight, and outsing him, and my member's thrice the size o' his, but Mance has cunning.  -  Tormund Giantsbane
+Last updated: 2024-04-07 17:11:15
+Random Quote: Your pain defines who you are but it no longer holds power on you - Noah
