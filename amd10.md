@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 20:01:14
-Random Quote: I hate kids. They don't drink, they haven't travelled... - Nicky Nichols
+Last updated: 2024-04-07 20:01:47
+Random Quote: Know the men who follow you and let them know you.  Don't ask your men to die for a stranger.  -  Eddard Stark
