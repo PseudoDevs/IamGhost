@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 19:34:36
-Random Quote: Here's the thing, kids: When you believe in people, people come through. - Ted Mosby
+Last updated: 2024-04-07 19:35:08
+Random Quote: Why should I go running to my aunt as if I were a beggar?  My claim is better than her own.  Let her come to me... in Westeros.  -  Aegon Targaryen
