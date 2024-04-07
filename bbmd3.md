@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 19:26:27
-Random Quote: My skin has gone from porcelain, to ivory, to steel.  -  Sansa Stark
+Last updated: 2024-04-07 19:27:00
+Random Quote: Phil: "Little heads up - there's no way I'm not crying at this wedding."Claire: "Phil, you cried on the way here."Phil: "I was on the brink already. I watched 'Dirty Dancing' before we left." - Phil Dunphy
