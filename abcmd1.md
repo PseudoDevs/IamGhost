@@ -1,4 +1,2 @@
-Last updated: 2024-04-07 18:06:19
-Random Quote: Bo-Katan: "I've scugged off a lot of Imperial warlords."
-Din: "They tend to get mad when you hijack their ships."
-Bo-Katan: "Now you tell me." - Bo-Katan
+Last updated: 2024-04-07 18:06:53
+Random Quote: I knew quite a few Jedi, you know. I don't know what they taught you about us, but there was a time we actually got along quite well. Fought side by side. - Bo-Katan
