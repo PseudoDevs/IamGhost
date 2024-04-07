@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 18:23:24
-Random Quote: Lily: "Whenever we board a flight, you lick the plane!"Marshall: "Have we crashed even once?" - Marshall Eriksen
+Last updated: 2024-04-07 18:24:00
+Random Quote: Grief never gets any smaller, so you have to make yourself bigger around it. The best way to do that is to open up. Let people in. - Rendell Locke
