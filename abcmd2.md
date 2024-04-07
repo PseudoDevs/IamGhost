@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 17:59:21
-Random Quote: The truth can free you, if you let it. - Hannah Baker
+Last updated: 2024-04-07 17:59:55
+Random Quote: Knights?  Dondarrion's a knight, but the rest of you are the sorriest lot of outlaws and broken men I've ever seen.  -  Sandor Clegane
