@@ -1,2 +1,5 @@
-Last updated: 2024-04-07 20:22:19
-Random Quote: It's like...It's like I'm a fucked-up-shit magnet. - Maria Ruiz
+Last updated: 2024-04-07 20:22:53
+Random Quote: Morty: "Mom, I have a friend coming over. Is that cool?"
+Beth: "I told your sister no parties."
+Morty: "It's one friend."
+Beth: "That's a party to you." - Beth Smith
