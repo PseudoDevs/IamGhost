@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 19:13:02
-Random Quote: God wasn't protecting you. The kid had shitty aim. - Grace Young
+Last updated: 2024-04-07 19:13:36
+Random Quote: That everything’s repeating That this has all happened before Like a massive déjĂ  Vu - 
