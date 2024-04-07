@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 05:40:30
-Random Quote: This is Hawkins, okay? You wanna know the worst thing that's ever happened here in the four years I've been working here? It was when an owl attacked Eleanor Gillespie's head because it though that her hair was a nest. - Jim Hopper
+Last updated: 2024-04-07 05:41:05
+Random Quote: When I get sad, I stop being sad and be awesome instead. True Story. - Barney Stinson

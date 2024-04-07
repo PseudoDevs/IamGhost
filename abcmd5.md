@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 05:40:31
-Random Quote: I would very much like to return your witty banter, but I am too exhausted to be clever. - Galina 'Red' Reznikov
+Last updated: 2024-04-07 05:41:05
+Random Quote: Serve, Obey, Protect.  Simple vows for a simple man.  -  Areo Hotah
