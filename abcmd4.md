@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 18:45:40
-Random Quote: This is my own private domicile and I will not be harassed…bitch! - Jesse Pinkman
+Last updated: 2024-04-07 18:46:48
+Random Quote: You want to hurt these guys, we gotta take down the ones calling the shots. - Jaime Kuykendall
