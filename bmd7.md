@@ -1,2 +1,3 @@
-Last updated: 2024-04-07 04:11:35
-Random Quote: I feel like I've framed my entire womanhood around men. - Jules Vaughn
+Last updated: 2024-04-07 04:12:10
+Random Quote: Jerry: "Why Florida?"
+Cat: "Because they don't ask questions. They play Volleyball, they party and they have fun." - Rick and Morty
