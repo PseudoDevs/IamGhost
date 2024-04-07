@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 05:31:21
-Random Quote: Love can’t be timed. It has to be lived. - Berlin
+Last updated: 2024-04-07 05:33:06
+Random Quote: The frightened child who sheltered in my manse died on the Dothraki Sea, and was reborn in blood and fire.  This dragon queen who wears her name is a true Targaryen.  -  Illyrio Mopatis
