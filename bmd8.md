@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 05:28:52
-Random Quote: Young or old, a true knight is sworn to protect those who are weaker than himself, or die in the attempt.  -  Brienne of Tarth
+Last updated: 2024-04-07 05:29:25
+Random Quote: Kingthlayer... you are my captifth.  -  Vargo Hoat
