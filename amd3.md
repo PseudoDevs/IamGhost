@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 16:28:49
-Random Quote: You and I are opposites but also just the same. Like an image in a mirror. We hate people and they in turn hate us. And fear us. - Chester Campbell
+Last updated: 2024-04-07 16:29:22
+Random Quote: Oh, this dress is totally going to get me laid on my wedding night. - Lily Aldrin
