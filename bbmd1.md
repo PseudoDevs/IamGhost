@@ -1,2 +1,3 @@
-Last updated: 2024-04-07 16:33:11
-Random Quote: Old stories are like old friends, Old Nan used to say.  You have to visit them from time to time.  -  Bran Stark
+Last updated: 2024-04-07 16:33:45
+Random Quote: Marylin Thornhill: "I trust Enid has given you the old Nevermore welcome."
+Wednesday: "She's been smothering me with hospitality. I hope to return the favor... in her sleep." - Wednesday Addams
