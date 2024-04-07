@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 05:48:21
-Random Quote: The name is Thor, with a "T" and an "R" and an "O" and a "H". But not in that order. - Thor
+Last updated: 2024-04-07 05:48:58
+Random Quote: The gods be damned.  It was a hollow victory they gave me.  A crown... it was the girl I prayed them for.  Your sister, safe... and mine again, as she was meant to be.  I ask you, Need, what good is it to wear a crown?  The gods mock the prayers of kings and cowherds alike.  -  Robert Baratheon
