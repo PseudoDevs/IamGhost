@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 06:17:35
-Random Quote: Ted: "Barney! I'm allowed to miss them, okay? They're my two best friends."Barney: "I'm your two best friends!" - Barney Stinson
+Last updated: 2024-04-07 06:19:58
+Random Quote: My father never bellowed like the Greatjon, but he was no less dangerous in his wroth.  -  Alys Karstark
