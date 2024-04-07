@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 20:29:48
-Random Quote: Apart, we're okay. But together we're poison. - Kim Wexler
+Last updated: 2024-04-07 20:30:21
+Random Quote: If you had to fall into a woman's arms, my son, why couldn't they have been Margaery Tyrell's?  -  Catelyn Stark
