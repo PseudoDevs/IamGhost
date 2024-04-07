@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 16:19:01
-Random Quote: You ought to have no trouble catching our uncles.  One is drunk on seawater, after all, and the other is a great grey bullock so dim he'll probably get lost.  -  Asha Greyjoy
+Last updated: 2024-04-07 16:20:07
+Random Quote: I'm not in the meth business. I'm in the empire business. - Walter White
