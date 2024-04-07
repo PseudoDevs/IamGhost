@@ -1,2 +1,3 @@
-Last updated: 2024-04-07 20:31:00
-Random Quote: No, that you think you'll graduate High-School. - Meemaw
+Last updated: 2024-04-07 20:31:33
+Random Quote: Jay: "I got you a little gift to celebrate. I know it’s not much...-"
+Gloria: "It’s practically nothing!" - Gloria Pritchett
