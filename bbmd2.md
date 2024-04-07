@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 07:18:54
-Random Quote: Send him to Belize? I'll send YOU to Belize. - Walter White
+Last updated: 2024-04-07 07:19:27
+Random Quote: Drugs are kind of cool. I mean, they're cool before they wreck your skin. And your life. And your family. That's when they get uncool. It's actually a very narrow window of cool. - Rue Bennett
