@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 05:31:50
-Random Quote: I don't want to be good. I am going to be great. - Pablo Escobar
+Last updated: 2024-04-07 05:32:22
+Random Quote: The Old Gods have no power in the south.  The weirwoods there were all cut down, thousands of years ago.  -  Osha
