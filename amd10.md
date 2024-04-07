@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 17:01:06
-Random Quote: She had made the mistake of speaking when Set Gregor wanted quiet, so the Mountain had smashed her teeth to splinters with a mailed fist and broken her pretty little nose as well.  He would have done worse, no doubt, if Cersei had not called him down to King's Landing to face the Red Viper's spear.  Jaime would not mourn him.  -  Jaime Lannister
+Last updated: 2024-04-07 17:03:37
+Random Quote: One minute we're just laying into each other, and then the next minute... well, same thing. - Ted Mosby
