@@ -1,3 +1,3 @@
-Last updated: 2024-04-07 19:02:19
-Random Quote: HR: "I know this is classic HR to say, but: You're not alone."
-Steven: "Yeah. That's like, part of the problem, innit?" - Arthur Harrow
+Last updated: 2024-04-07 19:02:52
+Random Quote: "How do you take your tea?"
+Ted: "Well, normally right back to the counter because there's been a terrible mistake." - Jim Hopper
