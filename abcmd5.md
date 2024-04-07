@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 16:36:01
-Random Quote: During incarceration, defendant Goodman to receive one pint Blue Bell mint chocolate chip ice cream every Friday for the duration. - Saul Goodman
+Last updated: 2024-04-07 16:37:09
+Random Quote: Ted: "You know what else is getting cleaned, along with that cup-cake tray? My conscience!"Victoria: "You got anything else to atone for? My oven needs cleaning." - Victoria
