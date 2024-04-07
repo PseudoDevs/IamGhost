@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 17:09:14
-Random Quote: Barney: "Tell me more. Tell me more. Like did he have a car?"Marshall: "So is he the guy who... how shall I say this like a gentleman? Robin, did he take your maple leaf?"Barney: "Sounds to me like he gave you your first 'O Canada' face!" - Barney Stinson
+Last updated: 2024-04-07 17:09:51
+Random Quote: Roose Bolton's cold and cunning, aye, but a man can deal with Roose.  We've all known worse.  But this bastard son of his... they say he's mad and cruel, a monster.  -  Locke
