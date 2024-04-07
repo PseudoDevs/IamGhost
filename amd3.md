@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 17:06:42
-Random Quote: When you spend years thinking about something obsessively, that something is your whole world, your perfect world. - Tokyo
+Last updated: 2024-04-07 17:07:15
+Random Quote: Sometimes you gotta do bad things to catch bad people. - Javier Pe�a
