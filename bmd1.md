@@ -1,2 +1,4 @@
-Last updated: 2024-04-07 16:18:54
-Random Quote: I swear on my name. And the names of the Ancestors, that I shall walk the way of the Mand'alor and the words of the Creed shall be forever forged in my heart. - Din Djarin
+Last updated: 2024-04-07 16:19:27
+Random Quote: It's going to be legen...
+wait for it - and I hope you're not lactose-intolerant cause the second half of that word is
+...dary! - Barney Stinson
