@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 05:28:28
-Random Quote: I don't care if you're so scared you foul your breeches, and I don't care if a thousand wildlings are coming over the walls howling for your blood, you get those birds off, or I swear I'll hunt you through all seven hells and make you damn sorry that you didn't.  -  Jeor Mormont
+Last updated: 2024-04-07 05:29:00
+Random Quote: I'm just saying, love is a million things. - Maddy Perez
