@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 04:41:49
-Random Quote: Because someday, something will go wrong. It could cost you your life or something worse. And on that day what you can’t be thinking is that you are to be blamed for something you couldn’t control. That’s life. Enjoy it, until the party is over. - Berlin
+Last updated: 2024-04-07 04:42:27
+Random Quote: You were supposed to be my wife, to bear me children with silver hair and purple eyes, to keep the blood of the dragon pure.  I took care of you.  I taught you who you were.  I fed you.  I sold our mother's crown to keep you fed.  -  Viserys Targaryen
