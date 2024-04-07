@@ -1,2 +1,3 @@
-Last updated: 2024-04-07 06:53:46
-Random Quote: Remember. Once they find out who you are, you die. - Jang Deok-su
+Last updated: 2024-04-07 06:55:34
+Random Quote: Freddie: "You think I can't handle Tommy Shelby?"
+Polly: "You can't. I am having trouble these days and I'm twice the man you are." - Polly Gray
