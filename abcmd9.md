@@ -1,3 +1,2 @@
-Last updated: 2024-04-07 20:26:06
-Random Quote: Robin: "I'm drinking 'til I forget the 1999 NFC Championship?"
-Marshall: "The Vikings were two minutes away from going to the Super Bowl, when our kicker, who hadn't missed all year, shanked a field goal, and we lost in overtime. Damn!" - Marshall Eriksen
+Last updated: 2024-04-07 20:27:14
+Random Quote: The average American consumes 55 pounds of beef per year. And then there's Texas, where we can knock that off in a couple of months. Maybe faster if we're talking about smoked brisket. - Sheldon Cooper
