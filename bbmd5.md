@@ -1,4 +1,2 @@
-Last updated: 2024-04-07 04:14:32
-Random Quote: Joel: "Long way or short way?"
-Tess: "I mean, it's the long way or the 'we're fuckin' dead' way."
-Ellie: "Well, I vote long way just based on that limited information." - Ellie Williams
+Last updated: 2024-04-07 04:15:08
+Random Quote: The sun is about to set, and we'll be leaving soon. When we return, we're coming in hot. - Din Djarin
