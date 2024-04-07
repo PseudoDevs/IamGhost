@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 16:40:11
-Random Quote: The Burned Men fear nothing.  Timett, son of Timett will ride with the lions.  -  Timett, son of Timett
+Last updated: 2024-04-07 16:40:44
+Random Quote: I've only known one other being like this. A wise Jedi Master named Yoda. - Ahsoka Tano
