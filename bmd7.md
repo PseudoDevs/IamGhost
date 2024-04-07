@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 17:53:57
-Random Quote: There's proving and there's knowing. -  Bill Oakley
+Last updated: 2024-04-07 17:54:30
+Random Quote: There are no true knights, no more than there are gods.  If you can't protect yourself, die and get out of the way of those who can.  Sharp steel and strong arms rule this world, don't ever believe any different.  -  Sandor Clegane
