@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 16:47:14
-Random Quote: Fear is the worst enemy of progress. - 
+Last updated: 2024-04-07 16:47:47
+Random Quote: Red Rahloo means nothing here  You will only make the old gods angry.  They are watching from their island.  -  Hugo Wull
