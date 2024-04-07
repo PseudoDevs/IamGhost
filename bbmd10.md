@@ -1,2 +1,4 @@
-Last updated: 2024-04-07 20:13:33
-Random Quote: Ted: "I hate how you're always right."Lily: "It's my best, and most annoying, trait." - Lily Aldrin
+Last updated: 2024-04-07 20:14:07
+Random Quote: Joel: "Where'd you get the money for this?"
+Sarah: "Drugs. I sell hardcore drugs."
+Joel: "It's better than what I do." - Joel Miller
