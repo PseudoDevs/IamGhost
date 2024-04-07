@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 16:30:56
-Random Quote: They're all running away from something. Why else would someone want to go somewhere different? - Virginia Wilson
+Last updated: 2024-04-07 16:31:29
+Random Quote: If you had to fall into a woman's arms, my son, why couldn't they have been Margaery Tyrell's?  -  Catelyn Stark

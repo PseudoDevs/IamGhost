@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 16:30:56
-Random Quote: See, lad, that's why he's the king and I'm not.  I can outdrink, outfight, and outsing him, and my member's thrice the size o' his, but Mance has cunning.  -  Tormund Giantsbane
+Last updated: 2024-04-07 16:31:29
+Random Quote: They're minerals, Marie! Jesus! - Hank Schrader
