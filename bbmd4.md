@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 19:00:34
-Random Quote: I've been dreaming of that since I was five. Well, that and my own operational Death Star. - Barney Stinson
+Last updated: 2024-04-07 19:01:08
+Random Quote: The Crow's Eye brought back monsters from the east... aye, and wizards too.  -  Tristifer Botley
