@@ -1,4 +1,2 @@
-Last updated: 2024-04-07 19:28:34
-Random Quote: Greef: "Nevarro is a very fine planet. And now that the scum and villainy have been washed away, it's very respectable again."
-Mando: "As a bounty hunter hive?"
-Greef: "Some of my favorite people are bounty hunters." - Greef Karga
+Last updated: 2024-04-07 19:29:40
+Random Quote: All I know is, life is not a Nicholas Sparks novel. - Rue Bennett

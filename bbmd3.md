@@ -1,2 +1,4 @@
-Last updated: 2024-04-07 19:29:12
-Random Quote: Stay out of my territory. - Walter White
+Last updated: 2024-04-07 19:29:45
+Random Quote: Lorna Morello: "I need to start tightening up. You're making me feel like a cave."
+Nicky Nichols: "Baby, it's a c-nt, it stretches!"
+Lorna Morello: "Yeah, sometimes I feel like you're trying to climb inside my womb." - Lorna Morello
