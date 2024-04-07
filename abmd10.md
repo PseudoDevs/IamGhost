@@ -1,7 +1,2 @@
-Last updated: 2024-04-07 16:48:43
-Random Quote: Bo-Katan: "You are a disgrace to your armor."
-Boba Fett: "This armor belonged to my father."
-Bo-Katan: "Don't you mean your donor?"
-Boba Fett: "Careful, princess."
-Bo-Katan: "You are a clone. I've heard your voice thousands of times."
-Boba Fett: "Mine might be the last one you hear." - Boba Fett
+Last updated: 2024-04-07 16:50:28
+Random Quote: Our brain isn't always entirely reliable. Everything that we see and feel and hear are the result of electrical impulses. And sometimes we misinterpret those impulses. It's what makes people go mad. - Maura Franklin

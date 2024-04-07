@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 16:49:53
-Random Quote: Haley: "Dad, can you just please tell mom, that I can take a two hour break and go to a party?"Phil: "No Ma'am, I'm not stepping into that one. We're not playing 'good cop - mom'.'" - Phil Dunphy
+Last updated: 2024-04-07 16:50:28
+Random Quote: People taking power who don't deserve it. It never ends well. - Jérôme
