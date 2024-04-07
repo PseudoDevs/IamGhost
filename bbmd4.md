@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 17:03:58
-Random Quote: A man lives three lives. The first one ends with the loss of naivety, the second, with the loss of innocence and the third… with the loss of life itself. It’s inevitable that we go through all three stages. - Adam
+Last updated: 2024-04-07 17:05:04
+Random Quote: I don't know what kind of fed up sht you got going inside of your head. I don't know how to help, but I could tell you one thing: This drug sht - it's not the answer. - Fezco
