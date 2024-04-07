@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 16:19:57
-Random Quote: My only aim is to take many lives. The more the better I feel. - 
+Last updated: 2024-04-07 16:20:32
+Random Quote: If you had to fall into a woman's arms, my son, why couldn't they have been Margaery Tyrell's?  -  Catelyn Stark
