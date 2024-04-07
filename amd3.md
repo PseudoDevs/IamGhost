@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 18:29:36
-Random Quote: I will go to my grave thinking of my brother's peach.  -  Stannis Baratheon
+Last updated: 2024-04-07 18:30:09
+Random Quote: Old gods or new, it makes no matter, no man is so accursed as the kinslayer.  -  Rickard Karstark
