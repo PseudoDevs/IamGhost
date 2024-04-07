@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 07:10:52
-Random Quote: One life, one choice, one moment can destroy the entire universe. - The Watcher
+Last updated: 2024-04-07 07:11:29
+Random Quote: Many good men have been bad kings, and some bad men have been good kings.  -  Maester Aemon
