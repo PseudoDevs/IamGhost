@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 06:23:39
-Random Quote: Larry Bloom: "Are we at least gonna talk about other options?"Piper Chapman: "You mean..."Larry Bloom: "It's not Voldemort, you can say it. Abortion." - Larry Bloom
+Last updated: 2024-04-07 06:24:16
+Random Quote: This is my own private domicile and I will not be harassed…bitch! - Jesse Pinkman
