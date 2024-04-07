@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 18:13:58
-Random Quote: I could keep you safe.  They're all afraid of me.  No one would hurt you again, or I'd kill them.  -  Sandor Clegane
+Last updated: 2024-04-07 18:14:33
+Random Quote: Whoever the hell that is. But the Crystal Ship definitely travels. - Jesse Pinkman
