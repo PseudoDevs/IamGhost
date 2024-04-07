@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 16:43:26
-Random Quote: Don't believe everything you hear. Our enemies want to separate us. But Mandalorians are stronger together. - Bo-Katan
+Last updated: 2024-04-07 16:44:00
+Random Quote: The more you move up in the world, the more enemies you make. - Rue Bennett

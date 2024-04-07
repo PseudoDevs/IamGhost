@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 16:43:25
-Random Quote: Ted, every little boy wants to grow up to nail the doctor, or the lawyer. Somebody's gotta nail the receptionist. - Barney Stinson
+Last updated: 2024-04-07 16:44:00
+Random Quote: There is a 83% correlation between times when men are wearing a boutonniere and when they are getting laid... proms, weddings, funerals... thanks for the redhead, grandma! By the way, did you know that "boutonniere" is french for "booty is near"? - Barney Stinson
