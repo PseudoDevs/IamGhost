@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 17:12:57
-Random Quote: You're mine.  Mine, as I'm yours.  And if we die, we die.  All men must die, Jon Snow.  But first, we'll live.  -  Ygritte
+Last updated: 2024-04-07 17:13:30
+Random Quote: Weakness is not in us, it is what we have outside. - Professor
