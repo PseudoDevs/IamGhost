@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 05:28:44
-Random Quote: This guy he's done everything right. He's been loving and devoted since he was 18 years old. There are only a few truly great people on this planet and he is one of them. - Barney Stinson
+Last updated: 2024-04-07 05:29:18
+Random Quote: I think it passing odd that I am loved by one for a kindness I never did, and reviled by so many for my finest act.  -  Jaime Lannister
