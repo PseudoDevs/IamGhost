@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 06:10:01
-Random Quote: You're gonna get endless requests to play some game, that has something to do with gangsters and farming! - Marshall Eriksen
+Last updated: 2024-04-07 06:10:34
+Random Quote: A king's son, with the power of kingsblood in his veins.  Do you think you've saved this boy, Onion Knight?  When the long night falls, Edric Storm shall die with the rest, wherever he is hidden.  Your own sons as well.  Darkness and cold will cover the earth.  You meddle in matters you do not understand.  -  Melisandre
