@@ -1,2 +1,3 @@
-Last updated: 2024-04-07 05:37:57
-Random Quote: I watched Jane die. I was there. And I watched her die. - Walter White
+Last updated: 2024-04-07 05:40:25
+Random Quote: Grace Burgess: "You think I am a wh-re?"
+Tommy Shelby: "Everyone's a wh-re, Grace. We just sell different parts of ourselves." - Thomas Shelby
