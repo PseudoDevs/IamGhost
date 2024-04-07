@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 04:25:41
-Random Quote: I needed to get on the shuttle so I could escape this ridiculous planetSpoiler alert, I'm still here. - Sheldon
+Last updated: 2024-04-07 04:28:18
+Random Quote: Kill the boy, Jon Snow.  Winter is almost upon us.  Kill the boy and let the man be born.  -  Aemon Targaryen

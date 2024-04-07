@@ -1,3 +1,2 @@
-Last updated: 2024-04-07 04:26:21
-Random Quote: Robin: "I'm drinking 'til I forget the 1999 NFC Championship?"
-Marshall: "The Vikings were two minutes away from going to the Super Bowl, when our kicker, who hadn't missed all year, shanked a field goal, and we lost in overtime. Damn!" - Marshall Eriksen
+Last updated: 2024-04-07 04:28:18
+Random Quote: Ted: "My mother is not one-night-stand material!"Barney: "Yeah, you're right. It wasn't night and we weren't standing." - Barney Stinson
