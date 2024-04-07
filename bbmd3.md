@@ -1,4 +1,2 @@
-Last updated: 2024-04-07 04:27:39
-Random Quote: Joel: "You keep going for family."
-Ellie: "I'm not family?"
-Joel: "No. You're cargo." - Joel Miller
+Last updated: 2024-04-07 04:30:53
+Random Quote: You'd have been the last lawyer I'd have gone to. - Walter White
