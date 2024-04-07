@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 04:20:37
-Random Quote: Everyone was yelling stuff.  Hot Pie yelled hot pie.  He must have yelled it a hundred times.  -  Arya Stark
+Last updated: 2024-04-07 04:21:15
+Random Quote: Need found it hard to imagine what could frighten Stannis Baratheon, who had once held Storm's End through a year of siege, surviving on rats and boot leather while the Lords Tyrell and Redwyne sat outside with their hosts, banqueting in sight of his walls.  -  Eddard Stark
