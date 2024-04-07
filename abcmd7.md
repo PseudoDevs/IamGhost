@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 06:48:29
-Random Quote: Dude, ditch Tiffany and join the Barnacle in the Pharma-Girl-Free-For-All. Side effects may include: loss of clothing, rug burns, shortness of breath and soar abdominals the next morning. What in the world is up! - Barney Stinson
+Last updated: 2024-04-07 06:49:05
+Random Quote: Honey, don't you think the little rocks would hurt your nose, if you're trying to snort crack? I think you mean coke. - Piper Chapman
