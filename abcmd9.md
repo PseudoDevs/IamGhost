@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 19:43:56
-Random Quote: How do you keep a girl from becoming your girlfriend?1. Never get them wet. In other words, don't let her take a shower at your place.2. Keep them away from sunlight - i. e. don't ever see them during the day.3. Never feed them after midnight. Meaning she doesn't sleep over and you don't have breakfast. - Barney Stinson
+Last updated: 2024-04-07 19:45:02
+Random Quote: Do you remember that cave?  We should have stayed in that cave.  I told you so.  -  Ygritte

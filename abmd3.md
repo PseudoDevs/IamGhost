@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 19:44:28
-Random Quote: They're minerals, Marie! Jesus! - Hank Schrader
+Last updated: 2024-04-07 19:45:02
+Random Quote: My daughter has taken an axe for a lover.  I will not have my son bedeck himself like a whore.  It is as I feared.  The green lands have made you soft, and the Starks have made you theirs.  -  Balon Greyjoy
