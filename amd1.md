@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 17:13:42
-Random Quote: I guess, if we're splitting hairs, then technically... there was a plurality to the times I've lied to women for sex-having-purposes. - Barney Stinson
+Last updated: 2024-04-07 17:14:19
+Random Quote: What I came to realise is that fear, that’s the worst of it. That’s the real enemy. So, get up, get out in the real world and you kick that bastard as hard you can right in the teeth. - Walter White
