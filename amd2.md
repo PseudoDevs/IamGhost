@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 18:05:02
-Random Quote: I have always wanted to have one mahogany desk, but crime and office don’t get along. - Berlin
+Last updated: 2024-04-07 18:05:39
+Random Quote: Tell the Crow's Eye he's afraid of kinslaying and he'll murder one of his own sons just to prove you wrong.  -  Asha Greyjoy
