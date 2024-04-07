@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 05:00:18
-Random Quote: In his chainmail shirt with a sword in his hand, Gendry looked almost a man grown, and dangerous.  Hot Pie looked like Hot Pie.  -  Arya Stark
+Last updated: 2024-04-07 05:00:51
+Random Quote: You know, it's funny. Almost every woman I've ever met was wrong to give me a chance. You're the first woman who's wrong not to. - Barney Stinson
