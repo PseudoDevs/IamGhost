@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 04:53:57
-Random Quote: Knights?  Dondarrion's a knight, but the rest of you are the sorriest lot of outlaws and broken men I've ever seen.  -  Sandor Clegane
+Last updated: 2024-04-07 04:54:36
+Random Quote: Remember. Once they find out who you are, you die. - Jang Deok-su
