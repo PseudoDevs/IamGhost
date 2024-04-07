@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 17:19:54
-Random Quote: They shall come day and night to see the wonder that has been born again into the world, and when they see they shall lust.  For dragons are fire made flesh, and fire is power.  -  Quaithe
+Last updated: 2024-04-07 17:20:29
+Random Quote: I did it for me. I liked it. I was good at it. And I was really... I was alive. - Walter White
