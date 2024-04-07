@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 19:32:17
-Random Quote: We have to control this fing world, or it will control you. And if you don't protect yourself, it makes a mess and breaks you. - Miguel Angel Felix Gallardo
+Last updated: 2024-04-07 19:33:58
+Random Quote: When treating with liars, even an honest man must lie.  -  Wyman Manderly
