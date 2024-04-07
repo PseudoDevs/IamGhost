@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 06:23:03
-Random Quote: You can have all the intelligence in the world, but if nobody's there to act on it, what's it worth? Nothing. - Steve Murphy
+Last updated: 2024-04-07 06:23:41
+Random Quote: When you tear out a man's tongue, you are not proving him a liar, you're only telling the world that you fear what he might say.  -  Tyrion Lannister
