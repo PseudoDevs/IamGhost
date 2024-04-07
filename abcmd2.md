@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 19:30:04
-Random Quote: Sometimes you gotta do bad things to catch bad people. - Javier Pe�a
+Last updated: 2024-04-07 19:30:37
+Random Quote: Now don't be a p-ssy, laser my f-cking t-ts! - Stormfront
