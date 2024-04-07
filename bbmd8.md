@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 18:55:07
-Random Quote: I am the Greyjoy, Lord Reaper of Pyke, King of Salt and Rock, Son of the Sea Wind, and no man gives me a crown.  I pay the iron price.  I will take my crown, as Urron Redhand did five thousand years ago.  -  Balon Greyjoy
+Last updated: 2024-04-07 18:55:40
+Random Quote: Ted: "You always kept your toothbrush in the bedroom. Also weird, by the way."Lily: "No. We kept it in the bathroom."Ted: "No, there was only one toothbrush in the bathroom, and it was mine..." - Ted Mosby
