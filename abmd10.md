@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 19:13:33
-Random Quote: I am the storm, my lord, the first storm, and the last.  -  Euron Greyjoy
+Last updated: 2024-04-07 19:14:07
+Random Quote: The Horned Lord once said that sorcery is a sword without a hilt.  There is no safe way to grasp it.  -  Dalla
