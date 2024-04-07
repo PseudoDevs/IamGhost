@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 19:07:36
-Random Quote: So Robin? Guess who nailed the chick from "Metro News One" last night! - Barney Stinson
+Last updated: 2024-04-07 19:09:25
+Random Quote: Think of me as Yoda - only, instead of being little and green, I wear suits and I'm awesome. I'm your bro. I'm Broda. - Barney Stinson
