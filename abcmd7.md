@@ -1,2 +1,4 @@
-Last updated: 2024-04-07 18:53:29
-Random Quote: Marshall: "Are you sure this poo-poo didn't happen on your watch and you just ran out the clock until it was my problem?"Lily: "Oh, yeah. Yeah, yeah, right. What kind of mother lets her son sit in his own filth for an extra nine minutes and 42 seconds?" - Lily Aldrin
+Last updated: 2024-04-07 18:54:02
+Random Quote: It could be for a brother or maybe her sick dad.
+[reads] "And then I want you to do me on the couch."
+Okay, maybe not a sick dad. Or a very sick dad, am I right? - Robin Scherbatsky
