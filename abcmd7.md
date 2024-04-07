@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 05:47:00
-Random Quote: Growing up, I'd always lose my umbrella so my mom would get angry. So then, she gave me broken ones to bring to school. - Seong Gi-hun
+Last updated: 2024-04-07 05:47:33
+Random Quote: Phil: "Little heads up - there's no way I'm not crying at this wedding."Claire: "Phil, you cried on the way here."Phil: "I was on the brink already. I watched 'Dirty Dancing' before we left." - Phil Dunphy
