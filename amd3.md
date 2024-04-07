@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 17:42:18
-Random Quote: Nymeria was least dangerous when nearly naked.  Elsewise she was sure to have a dozen blades concealed about her person.  -  Areo Hotah
+Last updated: 2024-04-07 17:42:55
+Random Quote: She don't speak.  You bloody bastards cut her throat too deep for that.  But she remembers.  -  Lem Lemoncloack
