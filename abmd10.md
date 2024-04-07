@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 20:19:11
-Random Quote: It is for my prince to command, for Hotah to obey.  -  Areo Hotah
+Last updated: 2024-04-07 20:19:45
+Random Quote: Ted: "First it was too much eye-contact, then not enough - where do you look during sex?"Barney: "Into the hidden camera at future me, watching it." - Barney Stinson
