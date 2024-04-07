@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 16:23:23
-Random Quote: I cost a girl her life because I was afraid to love her - Clay Jensen
+Last updated: 2024-04-07 16:23:57
+Random Quote: We all face the same end. Those above have long forgotten us. They do not judge us. In death, I am all alone, and my only judge… is me. - Martha
