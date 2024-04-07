@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 19:24:16
-Random Quote: Robin: "Barney, I am not ready for them to find out about us."Barney: "Then you're gonna have to stay in there for the entire trilogy. Don't worry, it's only 382 minutes."Robin: "Nerd!" - Robin Scherbatsky
+Last updated: 2024-04-07 19:25:24
+Random Quote: More beast than boy, that one, puffed up with pride and bloodlust... Robb Stark betrayed us all.  He abandoned the north to the cruel mercies of the ironmen to carve out a fairer kingdom for himself along the Trident.  Then he abandoned the riverlords who had risked much and more for him, breaking his marriage pact with my grandfather to wed the first western wench who caught his eye.  The Young Wolf?  He was a vile dog and died like one.  -  Rhaegar Frey
