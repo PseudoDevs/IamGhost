@@ -1,3 +1,2 @@
-Last updated: 2024-04-07 06:24:17
-Random Quote: Dragon: "My name is Balthromaw. Breaker of skies, slayer of mountain."
-Rick: "Rule 1: You're now scooper of your own poops, or I will take you down like the black-light poster you are." - Rick Sanchez
+Last updated: 2024-04-07 06:24:53
+Random Quote: People deserve a second chance, just like businesses. - Marty Byrde
