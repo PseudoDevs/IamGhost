@@ -1,3 +1,2 @@
-Last updated: 2024-04-07 19:36:54
-Random Quote: Stark: "Can I give you a piece of advice?"
-Carter: "I'd rather you didn't." - Peggy Carter
+Last updated: 2024-04-07 19:37:27
+Random Quote: Barney: "The Disappearing Salami... Mr. Flanagan's wife shot him before he could ever tell me what the trick was."Quinn: "Yeah, that guy was banging your mom!" - Quinn Garvey
