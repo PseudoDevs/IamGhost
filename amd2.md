@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 06:06:51
-Random Quote: No.  You were the betrayer.  You turned against me, against your own blood.  They cheated me.  Your horsey husband and his stinking savages.  They were cheats and liars.  They promised me a golden crown and gave me this.  -  Viserys Targaryen
+Last updated: 2024-04-07 06:07:24
+Random Quote: I don't need a calculator, dad. I am one. - Sheldon Cooper
