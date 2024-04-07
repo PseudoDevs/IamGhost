@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 17:33:24
-Random Quote: I guess, if we're splitting hairs, then technically... there was a plurality to the times I've lied to women for sex-having-purposes. - Barney Stinson
+Last updated: 2024-04-07 17:33:57
+Random Quote: The most beautiful woman in the world has urgent need of my axe.  -  Victarion Greyjoy.
