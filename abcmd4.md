@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 20:21:27
-Random Quote: I think my soul just threw up a little bit. - Lily Aldrin
+Last updated: 2024-04-07 20:22:01
+Random Quote: Every Halloween I bring a spare costume. In case I strike out with the hottest girl at the party. That way I have a second chance to make a first impression. - Barney Stinson
