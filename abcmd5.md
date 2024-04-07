@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 07:06:01
-Random Quote: Nick: "So, I went to this fortune teller today and she said there was a curse on me."Robin: "Did she sell you something to ward off the curse?"Nick: "It's like you're a fortune teller, too." - Nick
+Last updated: 2024-04-07 07:06:34
+Random Quote: Perhaps we can fly.  All of us.  How will we ever know unless we leap from some tall tower?  No man ever truly knows what he can do unless he dares to leap.  -  Euron Greyjoy
