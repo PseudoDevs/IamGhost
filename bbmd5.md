@@ -1,2 +1,5 @@
-Last updated: 2024-04-07 18:06:51
-Random Quote: I did it for me. I liked it. I was good at it. And... I was really... I was alive. - Walter White
+Last updated: 2024-04-07 18:07:28
+Random Quote: Morty: "Mom, I have a friend coming over. Is that cool?"
+Beth: "I told your sister no parties."
+Morty: "It's one friend."
+Beth: "That's a party to you." - Beth Smith
