@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 18:35:35
-Random Quote: Robert was the true steel.  Stannis is pure iron, black and hard and strong, yes, but brittle, the way iron gets.  He'll break before he bends.  And Renly, that one, he's copper, bright and shiny, pretty to look at but not worth all that much at the end of the day.  -  Donal Noye
+Last updated: 2024-04-07 18:36:08
+Random Quote: Some dogs crawled atop me during the night.  My cloak was almost dry when one of them pissed in it.  Have you noticed that the rain stopped the instant I had a roof above me?  It will start again now that I'm back out.  Gods and dogs alike delight to piss on me.  -  Dolorous Edd Tollett
