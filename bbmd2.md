@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 06:57:23
-Random Quote: If you keep all your treasures in one purse, you only make it easier for those who would rob you.  -  Robb Stark
+Last updated: 2024-04-07 06:58:00
+Random Quote: I'm a Mandalorian. Weapons are part of my religion. - Din Djarin
