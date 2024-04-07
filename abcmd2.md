@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 19:16:35
-Random Quote: It's easier when you're a kid anyway. You don't have anybody else relying on you. That's the hardest part. - Joel Miller
+Last updated: 2024-04-07 19:17:44
+Random Quote: In the end, we will all get just what we deserve. - 
