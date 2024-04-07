@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 05:50:19
-Random Quote: The Scarlet Witch is not born, she is forged. She has no coven, no need for incantation. - Agatha Harkness
+Last updated: 2024-04-07 05:50:52
+Random Quote: There are worse ways to die than warm and drunk.  I knew a brother drowned himself in wine once.  It was a poor vintage, though, and his corpse did not improve it.  -  Dolorous Edd Tollett

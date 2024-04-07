@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 05:50:19
-Random Quote: Even if I meet the girl of my dreams right the second, I'm still one night and nine months away, from having a family on my own. And that's assuming the mother of my childern is just a huge slut. - Ted Mosby
+Last updated: 2024-04-07 05:50:52
+Random Quote: Every man's a piece to start with, and every maid as well.  Even some who think they are players.  Cersei, for one.  She thinks herself sly, but in truth she is utterly predictable.  Her strength rests on her beauty, birth, and riches.  Only the first of those is truly her own, and it will soon desert her.  I pity her then.  She wants power, but has no notion what to do with it when she gets it.  -  Petyr Baelish
