@@ -1,3 +1,2 @@
-Last updated: 2024-04-07 07:21:21
-Random Quote: Ted: "So this is what you guys do? You invite other couples over for dinner, to judge them and feel superior?"
-Lily: "Oh, grow up, Ted, that's why any couple invites anyone over ever!" - Lily Aldrin
+Last updated: 2024-04-07 07:21:56
+Random Quote: You don't get to tell anyone what's sad. You're like a one-man Mount Sadmore. So I guess like a Lincoln Sadmorial. - Rick Sanchez
