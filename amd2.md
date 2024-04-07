@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 04:30:13
-Random Quote: So you do have a plan? Yeah, Mr. White! Yeah, science! - Jesse Pinkman
+Last updated: 2024-04-07 04:30:48
+Random Quote: Get the keys and remove those chains from him, before you make me rue the day I raped your mother.  -  Roose Bolton
