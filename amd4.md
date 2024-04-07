@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 17:56:28
-Random Quote: I did it for me. I liked it. I was good at it. And I was really... I was alive. - Walter White
+Last updated: 2024-04-07 17:57:04
+Random Quote: I was weaned on venom, Dalt.  Any viper takes a bite of me will rue it.  -  Gerold Dayne
