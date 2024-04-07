@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 07:17:54
-Random Quote: Ted: "Oh hey, where are you guys?"Barney: "We're in a fundraiser, helping young women raise money for community college."Ted: "Stripclub... nice!" - Barney Stinson
+Last updated: 2024-04-07 07:19:38
+Random Quote: It's only once you've stopped, that you realize how hard it is to start again. So you force yourself not to want it. - Ted Mosby

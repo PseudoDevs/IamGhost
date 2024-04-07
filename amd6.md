@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 07:17:55
-Random Quote: He would see this country burn if he could be king of the ashes.  -  Varys
+Last updated: 2024-04-07 07:19:38
+Random Quote: Joe Caputo: "You ever notice how some dog breeds, they sound kind of dirty? Like, shih tzu, cocker, Jack-something."Susan Fischer: "Poodle."Joe Caputo: "That is good, I didn't think of that one." - Joe Caputo
