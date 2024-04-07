@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 16:33:11
-Random Quote: Godless?  Why, Aeron, I am the godliest man ever to raise sail!  You serve one god, Damphair, but I have served ten thousand.  From Ib to Asshai, when men see my sails, they pray.  -  Euron Greyjoy
+Last updated: 2024-04-07 16:33:44
+Random Quote: I buried an axe so deep into Willem's skull, they had to bury him with it.  -  Yoren of the Knight's Watch
