@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 07:15:32
-Random Quote: Oh, this dress is totally going to get me laid on my wedding night. - Lily Aldrin
+Last updated: 2024-04-07 07:16:05
+Random Quote: Drugs are kind of cool. I mean, they're cool before they wreck your skin. And your life. And your family. That's when they get uncool. It's actually a very narrow window of cool. - Rue Bennett
