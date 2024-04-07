@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 16:48:07
-Random Quote: Barney: "I love how she was this wise, old, chilled out, lesbian farmer."Robin: "No, no, no. She's not a lesbian, nor does she farm them. No, that woman she lives with, that's just her special friend Maureen. They've lived together for... Oh!" - Robin Scherbatsky
+Last updated: 2024-04-07 16:48:42
+Random Quote: Well, Amanda is going to make Lily a cake, she's a chef! We met when I was at a restaurant last week and I sent some soup back. Luckily she's got such pretty hair I didn't mind eating a little bit of it. - Ted Mosby
