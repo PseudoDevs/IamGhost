@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 16:20:04
-Random Quote: Best-available idea doesn't make something a good idea. - Kinsey Locke
+Last updated: 2024-04-07 16:20:37
+Random Quote: A war is coming. I'm afraid your friends at Hawkins are very much in the eye of the storm. I don't know how to say this other than just to say it: without you, we can't win this war. - Sam Owens
