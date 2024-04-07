@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 19:18:17
-Random Quote: When will you guys realize, that the only difference between my real life and a p0rn0 is, my real life has better lighting? - Barney Stinson
+Last updated: 2024-04-07 19:18:50
+Random Quote: Nobody exists on purpose. Nobody belongs anywhere. We're all going to die. Come watch TV? - Morty Smith
