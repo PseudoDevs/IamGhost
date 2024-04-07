@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 16:51:05
-Random Quote: Ted: "Uh, the time Lily went into labor!"Lily: "That's now!"Ted: "Sorry, I'm running out of stories." - Ted Mosby
+Last updated: 2024-04-07 16:52:17
+Random Quote: Do you think I can't tell Lord Stannis from Lord Tywin?  They're both bungholes who think they're too noble to shit, but never mind about that, I know the difference.  -  Walder Frey
