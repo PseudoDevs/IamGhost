@@ -1,4 +1,2 @@
-Last updated: 2024-04-06 08:46:30
-Random Quote: Marshall: "Except the flames of Lucifer keep singein our back bumper as we drive through this hellish, cheese-infected wasteland."
-Lily: "Wisconsin?"
-Marshall: "Wisconsin!" - Marshall Eriksen
+Last updated: 2024-04-07 04:10:32
+Random Quote: Oh my god, you have a monocle! Is this real? Is this really happening? Good luck killing James Bond! - Ted Mosby
