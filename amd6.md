@@ -1,4 +1,2 @@
-Last updated: 2024-04-07 05:10:01
-Random Quote: Ellie: "Can I have a gun?"
-Joel: "Absolutely not."
-Ellie: "Okay, Jesus. Fine. I'll have to throw a f-ckin' sandwich at them." - Ellie Williams
+Last updated: 2024-04-07 05:10:34
+Random Quote: If you don't think there's hope for the world, why bother going on? - Ellie Williams
