@@ -1,4 +1,2 @@
-Last updated: 2024-04-07 05:24:47
-Random Quote: Joel: "I need you to tell us where we are."
-Man: "If you got a map, why you lost?"
-Ellie: "Must've missed all the street signs in the enormous f-cking forest." - Ellie Williams
+Last updated: 2024-04-07 05:25:23
+Random Quote: Clearly, his taste in women is the same as his taste in lawyers. - Saul Goodman
