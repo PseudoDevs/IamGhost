@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 18:10:29
-Random Quote: Some had been heroes, some weaklings, knaves, or cravens.  Most were only men, quicker and stronger than most, more skilled with sword and shield, but still prey to pride, ambition, lust, love, anger, jealousy, greed for gold, hunger for power, and all the other failings that afflicted lesser mortals.  The best of them overcame their flaws, did their duty, and died with their swords in their hands.  The worst... the worst were those who played the game of thrones.  -  Barristan Selmy
+Last updated: 2024-04-07 18:12:14
+Random Quote: So a guy with cancer can't be an asshole?? Believe me, I speak from experience. - Saul Goodman

@@ -1,2 +1,3 @@
-Last updated: 2024-04-07 18:11:03
-Random Quote: I'm KFC baby - you don't mess with the Colonel's recipe! - Barney Stinson
+Last updated: 2024-04-07 18:12:14
+Random Quote: Miguel: "Would you have really fed me to those hippos?"
+Pablo: "No. Hippos don't like Mexicans either." - Pablo Escobar
