@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 06:32:44
-Random Quote: Let's have a toast. For the hits life throws our way. With time, they're what make you stronger, young man. - Don Neto
+Last updated: 2024-04-07 06:33:21
+Random Quote: Do you know what it is like to be sold, squire?  I do.  My brother sold me to Khal Drogo for the promise of a golden crown.  Well, Drogo crowned him in gold, though not as he had wished, and I... my sun - and
