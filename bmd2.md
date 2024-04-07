@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 07:28:20
-Random Quote: You can tell a lot about a person from his biography. - Phil Dunphy
+Last updated: 2024-04-07 07:28:54
+Random Quote: Marshall: "It's kind of a big, professional meeting. You might want to trade out that lollipop for a shirt."Ted: "Yeah. I'll just give it to one of these kids."Marshall: "Oh, buddy. You're half naked, you're not a parent to any of these children. Don't offer 'em candy!" - Marshall Eriksen
