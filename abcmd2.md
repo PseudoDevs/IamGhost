@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 18:28:19
-Random Quote: Ted: "You always kept your toothbrush in the bedroom. Also weird, by the way."Lily: "No. We kept it in the bathroom."Ted: "No, there was only one toothbrush in the bathroom, and it was mine..." - Ted Mosby
+Last updated: 2024-04-07 18:29:30
+Random Quote: Nymeria was least dangerous when nearly naked.  Elsewise she was sure to have a dozen blades concealed about her person.  -  Areo Hotah
