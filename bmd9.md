@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 19:29:04
-Random Quote: A good lord comforts and protects the weak and helpless.  -  Maester Luwin
+Last updated: 2024-04-07 19:29:37
+Random Quote: That everything’s repeating That this has all happened before Like a massive déjĂ  Vu - 
