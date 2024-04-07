@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 04:46:55
-Random Quote: Dragons old and young, true and false, bright and dark.  And you.  A small man with a big shadow, snarling in the midst of it all.  -  Moqorro
+Last updated: 2024-04-07 04:48:11
+Random Quote: Missy Cooper: I don't want to die, I've only kissed one boy so far. - Missy Cooper
