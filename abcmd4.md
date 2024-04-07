@@ -1,2 +1,6 @@
-Last updated: 2024-04-07 19:02:44
-Random Quote: The gods be damned.  It was a hollow victory they gave me.  A crown... it was the girl I prayed them for.  Your sister, safe... and mine again, as she was meant to be.  I ask you, Need, what good is it to wear a crown?  The gods mock the prayers of kings and cowherds alike.  -  Robert Baratheon
+Last updated: 2024-04-07 19:04:34
+Random Quote: Sam: "They might be a part of the big three."
+Bucky: "What big three?"
+Sam: "Androids, aliens and wizards."
+Bucky: "That's not a thing."
+Sam: "That's definitely a thing." - Sam Wilson
