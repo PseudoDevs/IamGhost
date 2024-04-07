@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 05:54:25
-Random Quote: Sometimes a truce is the most important part of a war. - Professor
+Last updated: 2024-04-07 05:55:35
+Random Quote: Roose Bolton's cold and cunning, aye, but a man can deal with Roose.  We've all known worse.  But this bastard son of his... they say he's mad and cruel, a monster.  -  Locke
