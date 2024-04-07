@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 16:47:37
-Random Quote: You wanna know what line doesn't work on a harp player? "Hey baby, wanna pluck?" - Barney Stinson
+Last updated: 2024-04-07 16:48:44
+Random Quote: Men call me Darkstar, and I am of the night.  -  Gerold Dayne
