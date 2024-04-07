@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 17:25:41
-Random Quote: My real father died in King's Landing.  I made a choice, and I chose wrong.  -  Theon Greyjoy
+Last updated: 2024-04-07 17:26:14
+Random Quote: He would see this country burn if he could be king of the ashes.  -  Varys
