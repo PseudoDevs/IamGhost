@@ -1,4 +1,2 @@
-Last updated: 2024-04-07 16:28:49
-Random Quote: Rick: "Guests are fans, Morty, which we are not. We'd like professional badges."
-"Do you have a crew?"
-Rick: "Yes. He's a getaway driver with Asperger's and my butt is a demolitions expert." - Rick Sanchez
+Last updated: 2024-04-07 16:29:22
+Random Quote: Where some choose to look at this bra half-empty, I choose to look at this bra half-full. - Barney Stinson
