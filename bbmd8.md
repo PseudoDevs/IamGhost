@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 19:49:31
-Random Quote: I will not be remembered as Set Arys the Unworthy.  I will not soil my cloak.  -  Arys Oakheart
+Last updated: 2024-04-07 19:50:05
+Random Quote: I dream of a tree sometimes.  A weirwood, like the one in the godswood.  It calls to me.  The wolf dreams are better.  I smell things, and sometimes I can taste the blood.  -  Bran Stark
