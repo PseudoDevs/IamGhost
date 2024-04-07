@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 18:17:13
-Random Quote: You give me one hour of phone-free bro time, during which we, and by we I mean you, get magnificently, mythologically drunk. I'm talking needing-subtitles-when-you-speak drunk. - Barney Stinson
+Last updated: 2024-04-07 18:17:46
+Random Quote: F*ck you! And your eyebrows! - Walter White
