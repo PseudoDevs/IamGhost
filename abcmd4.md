@@ -1,2 +1,3 @@
-Last updated: 2024-04-07 17:27:33
-Random Quote: A ruler who hides behind paid executioners soon forgets what death is.  -  Eddard Stark
+Last updated: 2024-04-07 17:28:43
+Random Quote: Jay: "I got you a little gift to celebrate. I know it’s not much...-"
+Gloria: "It’s practically nothing!" - Gloria Pritchett
