@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 16:57:32
-Random Quote: I dreamed of the man who came today, the one they call Reek.  You and your brother lay dead at his feet, and he was skinning off your faces with a long red blade.  -  Jojen Reed
+Last updated: 2024-04-07 16:58:05
+Random Quote: Knowledge is power, power is status and status means popular. - Eric Effiong
