@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 20:32:45
-Random Quote: The greatest fools are ofttimes more clever than the men who laugh at them.  -  Tywin Lannister
+Last updated: 2024-04-07 20:33:18
+Random Quote: The Wall can stop an army, but not a man alone.  -  Mance Rayder
