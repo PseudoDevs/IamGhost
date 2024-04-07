@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 16:36:33
-Random Quote: If you wish to give up on playing, the 25.5 billion won will be sent to the bereaved families of the late players. - Jang Deok-su
+Last updated: 2024-04-07 16:37:07
+Random Quote: God has a plan for every human being. - 
