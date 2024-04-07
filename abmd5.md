@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 17:39:51
-Random Quote: I feel like you ruined me forever. - Maddy Perez
+Last updated: 2024-04-07 17:41:04
+Random Quote: Everyone sounds like Meryl Streep with a gun to their head. - Mike Ehrmantraut
