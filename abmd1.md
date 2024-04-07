@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 06:19:23
-Random Quote: Lord Varys, sometimes I feel as though you are the best friend I have in King's Landing and sometimes I feel you are my worst enemy.  -  Tyrion Lannister
+Last updated: 2024-04-07 06:21:48
+Random Quote: Well, I think that... when you have a connection with someone, it never really goes away, you know? - Alex Vause
