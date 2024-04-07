@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 20:07:24
-Random Quote: You don't parley when you're on the back foot. We'll strike a blow back first. - Thomas Shelby
+Last updated: 2024-04-07 20:07:57
+Random Quote: And Stannis has always felt he was cheated of Storm's End.  The ancestral seat of House Baratheon, his by rights... if you knew how many times he came to Robert singing that same dull song in that gloomy aggrieved tone he has.  When Robert gave the place to Renly, Stannis clenched his jaw so tight I thought his teeth would shatter.  -  Cersei Lannister
