@@ -1,2 +1,5 @@
-Last updated: 2024-04-07 19:07:37
-Random Quote: Love doesn't make sense. I mean, you can't logic your way into or out of it. Love ist totally nonsensical, but we have to keep doing it or else we're lost and love is dead and humanity should just pack it in. Because love is the best thing we do. - Ted Mosby
+Last updated: 2024-04-07 19:08:14
+Random Quote: Marshall: "What the hell happened?"
+Barney: "I said no questions asked."
+Marshall: "Star, clover, horseshoe... Barney, did you swallow real versions of all the Lucky Charms items?"
+Barney: "No questions asked! Now come on. Let's hit the bar. I'm buying. I just won 50 bucks from a little Irish guy on a dare." - Barney Stinson
