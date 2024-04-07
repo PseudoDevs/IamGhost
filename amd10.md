@@ -1,2 +1,3 @@
-Last updated: 2024-04-07 17:58:35
-Random Quote: There are moments in life we should just be able to have a damn remote control, so you could pause it. Even if just for five minutes. But sometimes things happen with irreverent obscenity and there’s nothing you can do to help it. - Tokyo
+Last updated: 2024-04-07 17:59:08
+Random Quote: Aimee: "Did you know you need, like, sugar and flour and an oven to bake? And you don't shove it all in, you have to follow alle these rules."
+Maeve: "Yeah, it's called a recipe." - Maeve Wiley
