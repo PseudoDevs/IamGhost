@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 16:54:05
-Random Quote: I believe the world's a bad place. And I don't think I'm much better. But we have to try. - Walt Breslin
+Last updated: 2024-04-07 16:54:41
+Random Quote: Wylla.  Did you see how brave she was.  Even when I threatened to have her tongue out, she reminded me of the debt White Harbor owes to the Starks of Winterfell, a debt that can never be repaid.  Wylla spoke from the heart... not every woman can be as brave as my Wylla.  -  Wyman Manderly
