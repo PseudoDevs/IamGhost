@@ -1,3 +1,2 @@
-Last updated: 2024-04-07 06:23:03
-Random Quote: What do I think love is? It's like when someone makes your stomach feel all tight, but floaty at the same time, you know? And your cheeks hurt from smiling. And you smile so much, that people think something's wrong with you.
-...And also fucking. Twenty-four seven, deep-dick, can't-walk-right fucking. - Aleida Diaz
+Last updated: 2024-04-07 06:23:40
+Random Quote: All I know is, he's not in the same grade as me anymoreAnd I'm thrilled. - Missy
