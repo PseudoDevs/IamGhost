@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 20:26:41
-Random Quote: Drugs are kind of cool. I mean, they're cool before they wreck your skin. And your life. And your family. That's when they get uncool. It's actually a very narrow window of cool. - Rue Bennett
+Last updated: 2024-04-07 20:27:49
+Random Quote: I cried my little black heart out. But tears don't fix anything. So I vowed to never do it again. - Wednesday Addams
