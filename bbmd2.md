@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 16:55:47
-Random Quote: Love's not always wise, I've learned.  It can lead us to great folly, but we follow our hearts... wherever they take us.  -  Robb Stark
+Last updated: 2024-04-07 16:56:20
+Random Quote: "Cap'n Cook?" That's not you? Like I said, no one is looking for you. - Walter White
