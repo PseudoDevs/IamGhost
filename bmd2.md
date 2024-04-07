@@ -1,3 +1,2 @@
-Last updated: 2024-04-07 19:56:37
-Random Quote: Enid Sinclair: "Want to take a stab at being social?"
-Wednesday: "I do like stabbing. The social part, not so much." - Wednesday Addams
+Last updated: 2024-04-07 19:57:45
+Random Quote: In all the world, violent men are the easiest to deal with. - Irene O'Donnell
