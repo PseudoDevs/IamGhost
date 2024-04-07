@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 07:09:05
-Random Quote: I don't want to die, I've only kissed one boy so far. - Missy
+Last updated: 2024-04-07 07:10:16
+Random Quote: You don't bring a date to a wedding, that's like taking a deer carcass on a hunting trip. - Barney Stinson
