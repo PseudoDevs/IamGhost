@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 20:19:46
-Random Quote: Robert... he is in my dreams as well.  Laughing.  Drinking.  Boasting.  Those were the things he was best at.  Those, and fighting.  I never bested him at anything.  -  Stannis Baratheon
+Last updated: 2024-04-07 20:20:53
+Random Quote: You have courage.  Not battle courage perhaps but... I don't know... a kind of woman's courage.  -  Brienne of Tarth
