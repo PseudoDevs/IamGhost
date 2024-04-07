@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 04:22:28
-Random Quote: When dead men come hunting us in the night, do you think it matters who sits the Iron Throne?  -  Jeor Mormont
+Last updated: 2024-04-07 04:23:01
+Random Quote: I know that new situations can be intimidating. You look around, and it's all scary and different. But meeting them head-on, charging right into them like a bull, that's how we grow as people. - Rick Sanchez
