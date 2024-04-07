@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 06:31:40
-Random Quote: A bag of dragons buys a man's silence for a while, but a well - placed quarrel buys it forever. 
+Last updated: 2024-04-07 06:32:13
+Random Quote: Master Mott said Thoros could outdrink even King Robert.  They were pease in a pod, he told me, both gluttons and sots.  -  Gendry
