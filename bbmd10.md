@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 04:16:55
-Random Quote: Kids, Robin and Barney had recently shared an awkward moment. After that, they did what any two mature adults would do: They pretended it never happened. - Ted Mosby
+Last updated: 2024-04-07 04:17:30
+Random Quote: They get in your head. People tell lies about you, and other people believe them. And it gets to the point where the lies might as well be the truth. - Tyler Down
