@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 17:16:34
-Random Quote: A queen must listen to all.  The highborn and the low, the strong and the weak, the noble and the venal.  One voice may speak you false, but in many there is always truth to be found.  -  Daenerys Targaryen
+Last updated: 2024-04-07 17:17:07
+Random Quote: The most beautiful woman in the world has urgent need of my axe.  -  Victarion Greyjoy.
