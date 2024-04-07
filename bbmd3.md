@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 18:08:11
-Random Quote: You think you're the only one he whispers secrets to?  He gives each of us just enough to convince us that we'd be helpless without him.  -  Cersei Lannister
+Last updated: 2024-04-07 18:08:45
+Random Quote: Science is neat, but I’m afraid it’s not very forgiving. - Scott Clarke
