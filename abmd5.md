@@ -1,4 +1,2 @@
-Last updated: 2024-04-07 16:22:12
-Random Quote: Barney: "Ted, I'm gonna teach you how to live. Barney... we met at the urinal. Lesson 1: Loose the goatee it doesn't go with your suit!"
-Ted: "I'm not wearing a suit."
-Barney: "Lesson 2: Get a suit, suits are cool. Exhibit A. Lesson 3: "Don't even think about getting married until your 30." - Barney Stinson
+Last updated: 2024-04-07 16:22:45
+Random Quote: Have no fear, sers, your king is safe... no thanks to you.  Even know, I could cut through the five of you as easy as a dagger cuts cheese.  If you would serve under the Kingslayer, not a one of you is fit to wear the white.  Here, boy.  Melt it down and add it to the others, if you like.  It will do you more good than the swords in the hands of these five.  Perhaps Lord Stannis will chance to sit on it when he takes your throne.  -  Barristan Selmy
