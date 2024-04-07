@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 17:00:15
-Random Quote: You ever hear about Wall Street, Morty? You know what those guys do in their fancy boardrooms? They take their balls and they dip them in cocaine and wipe them all over each other. - Rick Sanchez
+Last updated: 2024-04-07 17:01:01
+Random Quote: Rickard Karstark killed more than a Frey and a Lannister.  He killed my honor.  -  Robb Stark
