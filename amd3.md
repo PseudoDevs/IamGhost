@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 17:19:54
-Random Quote: Need found it hard to imagine what could frighten Stannis Baratheon, who had once held Storm's End through a year of siege, surviving on rats and boot leather while the Lords Tyrell and Redwyne sat outside with their hosts, banqueting in sight of his walls.  -  Eddard Stark
+Last updated: 2024-04-07 17:21:40
+Random Quote: In this world, everything is governed by balance. There’s what you stand to gain and what you stand to lose. And when you think you’ve got nothing to lose, you become overconfident - Professor
