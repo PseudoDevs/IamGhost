@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 19:01:31
-Random Quote: You ever touch me again, I will burn your eyes out! - Starlight
+Last updated: 2024-04-07 19:02:06
+Random Quote: Penrose chose to die rather than give him up.  It still angers me.  How could he think I would hurt the boy?  I chose Robert, did I not?  When that hard day came, I chose blood over honor.  -  Stannis Baratheon
