@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 05:36:38
-Random Quote: You want to know the horrible truth?  I can't even remember what she looked like.  I only know she was the one thing I ever wanted, and seven kingdoms couldn't fill the hole she left behind.  -  Robert Baratheon
+Last updated: 2024-04-07 05:37:11
+Random Quote: So roll me further bitch! - Jesse Pinkman
