@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 19:13:07
-Random Quote: It doesn't matter how tough you are, you're not going to win in this place. Not on your own. - Jang Deok-su
+Last updated: 2024-04-07 19:13:40
+Random Quote: Never bring a knife to a sword fight. Unless it's concealed. - Wednesday Addams
