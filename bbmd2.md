@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 19:30:18
-Random Quote: If I could be a different person, I promise you, I would. Not 'cause I want it, but 'cause they do. - Rue Bennett
+Last updated: 2024-04-07 19:30:51
+Random Quote: See, lad, that's why he's the king and I'm not.  I can outdrink, outfight, and outsing him, and my member's thrice the size o' his, but Mance has cunning.  -  Tormund Giantsbane
