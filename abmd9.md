@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 06:56:35
-Random Quote: When you spend years thinking about something obsessively, that something is your whole world, your perfect world. - Tokyo
+Last updated: 2024-04-07 06:57:08
+Random Quote: And there's this other band, led by this woman Stoneheart... Lord Beric's lover, according to one tale.  Supposedly she was hanged by the Freys, but Dondarrion kissed her and brought her back to life, and now she cannot die, no more than he.  -  Set Hyle Hunt
