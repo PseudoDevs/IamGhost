@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 06:23:21
-Random Quote: Science fact: Sisters are the worst. - Sheldon
+Last updated: 2024-04-07 06:23:54
+Random Quote: When you play the game of thrones, you win or you die.  There is no middle ground.  -  Cersei Lannister
