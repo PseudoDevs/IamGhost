@@ -1,2 +1,3 @@
-Last updated: 2024-04-07 04:11:32
-Random Quote: Dear Billy, I don't know if you can even hear this. Ever since you left, everything's been a total disaster. For a while, we tried to be happy... normal. I know that's impossible. - Max Mayfield
+Last updated: 2024-04-07 04:12:06
+Random Quote: May: "May Carleton. I breed racehorses and train them. What is it you do?"
+Thommy: "I rarely answer questions is what I do." - Thomas Shelby
