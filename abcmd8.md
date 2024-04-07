@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 04:40:05
-Random Quote: I know the poison that my father used, and there is none slower or more agonizing.  Soon we may hear the Mountain screaming, even here in Sunspear.  -  Tyene Sand
+Last updated: 2024-04-07 04:40:38
+Random Quote: The most beautiful woman in the world has urgent need of my axe.  -  Victarion Greyjoy.
