@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 19:49:31
-Random Quote: Remember. Once they find out who you are, you die. - Jang Deok-su
+Last updated: 2024-04-07 19:50:05
+Random Quote: Get the f out of here and don't stop walking until you hear them speak English! - Guillermo Gonzalez Calderoni
