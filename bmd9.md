@@ -1,4 +1,2 @@
-Last updated: 2024-04-07 05:50:13
-Random Quote: Marshall: "Except the flames of Lucifer keep singein our back bumper as we drive through this hellish, cheese-infected wasteland."
-Lily: "Wisconsin?"
-Marshall: "Wisconsin!" - Marshall Eriksen
+Last updated: 2024-04-07 05:52:38
+Random Quote: In King's Landing, there are two sorts of people.  The players and the pieces.  -  Petyr Baelish
