@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 17:55:16
-Random Quote: When I'm king in my own right, I'm going to outlaw beets.  -  Tommen Baratheon
+Last updated: 2024-04-07 17:55:53
+Random Quote: Cum is kind of like a penis having a sneeze. Ugh, that means when you swallow someone's cum, it's like eating their snot. - Aimee Gibbs

@@ -1,3 +1,2 @@
-Last updated: 2024-04-07 17:54:05
-Random Quote: Bro, bro, bro your broat, gently to the bar
-Hit on sluts, then do ten shots and... - Barney Stinson
+Last updated: 2024-04-07 17:55:53
+Random Quote: My only aim is to take many lives. The more the better I feel. - 
