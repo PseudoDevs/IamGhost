@@ -1,2 +1,3 @@
-Last updated: 2024-04-07 05:20:31
-Random Quote: Marshall: "Excuse me, miss. When you get a chance, could you bring over a hundred shots of tequila please?"Barney: "I'll have the same." - Marshall Eriksen
+Last updated: 2024-04-07 05:21:07
+Random Quote: Bro, bro, bro your broat, gently to the bar
+Hit on sluts, then do ten shots and... - Barney Stinson
