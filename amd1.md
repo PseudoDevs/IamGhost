@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 05:50:13
-Random Quote: Fine I'll fill her in and I am so angry I am not even goin' to make a joke about "filling her in"... which I did three times last night. Self-five! - Barney Stinson
+Last updated: 2024-04-07 05:50:49
+Random Quote: If you think this has a happy ending, you haven't been paying attention.  -  Ramsay Bolton
