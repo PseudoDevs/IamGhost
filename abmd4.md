@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 04:30:16
-Random Quote: I feel like love is super dark and no one ever talks about it. - Cassie Howard
+Last updated: 2024-04-07 04:31:33
+Random Quote: You don't get to blame your problems on anyone but yourself. - Allison Hargreeves
