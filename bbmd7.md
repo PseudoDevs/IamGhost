@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 04:19:18
-Random Quote: When I was 13, my father caught me kissing a boy, so he sent me to our family's ranch for foaling season. Once you see a baby horse erupt through that birth canal, you stop even touching yourself! - Robin Scherbatsky
+Last updated: 2024-04-07 04:21:07
+Random Quote: I've lost a hand, a father, a son, a sister, and a lover, and soon enough I will lose a brother.  And yet they keep telling me House Lannister has won this war.  -  Jaime Lannister
