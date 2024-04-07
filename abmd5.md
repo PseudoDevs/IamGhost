@@ -1,2 +1,3 @@
-Last updated: 2024-04-07 19:57:24
-Random Quote: This sacred text was eventually brought to the New World in 1776 by none other than Christopher Brolumbus. And that's why he got to bang Pocahontas. - Barney Stinson
+Last updated: 2024-04-07 19:57:57
+Random Quote: Doctor: "Hypothetically speaking, every new father-to-be get nervous."
+Vision: "Well, I have nerves of steel, so there goes your theory, Mr. Doctor." - Vision

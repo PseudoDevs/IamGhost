@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 19:57:23
-Random Quote: Let's hit a motel, jam in a quickie and get you back to your wedding. - Ted Mosby
+Last updated: 2024-04-07 19:57:57
+Random Quote: Love's not always wise, I've learned.  It can lead us to great folly, but we follow our hearts... wherever they take us.  -  Robb Stark
