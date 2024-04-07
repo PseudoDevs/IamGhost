@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 18:38:03
-Random Quote: Pennsatucky: "It weren't my fault. I was just doing as the Spirit commanded."Pussey: "Fuck are you? Joan of Arc?"Pennsatucky: "No, I'm from Waynesboro, my name is Tiffany..." - Tiffany 'Pennsatucky' Doggett
+Last updated: 2024-04-07 18:38:36
+Random Quote: You have just become victims of the cheerleader-effect. Glad you asked: The cheerleader-effect is when a group of women seems hot, but only as a group. Just like with cheerleaders. They seem hot, but take each one of them individually? Sled dogs! - Barney Stinson
