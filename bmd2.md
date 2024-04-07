@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 04:10:24
-Random Quote: Which meant for the first time in years, the world was wide open. Because kids, when a door closes... well, you know the rest. - Ted Mosby
+Last updated: 2024-04-07 04:11:32
+Random Quote: You're Reek.  You'll always be Reek, no matter how sweet you smell.  Your nose may lie to you.  Remember your name.  Remember who you are.  -  Ramsay Bolton
