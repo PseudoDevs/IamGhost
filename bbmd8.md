@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 19:29:27
-Random Quote: We just miss our old friend, but right now, you're not her. You just seem lost. - Devi Vishwakumar
+Last updated: 2024-04-07 19:30:35
+Random Quote: The Night's Watch is a sworn brotherhood.  We have no families.  None of us will ever father sons.  Our wife is duty.  Our mistress is honor.  -  Benjen Stark
