@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 16:41:43
-Random Quote: Your innocence may be as plain as the scar on your face, but it will not save you.  No more than your father will.  But I might.  Not as your judge.  As your champion.  -  Oberyn Martell
+Last updated: 2024-04-07 16:43:25
+Random Quote: When things go well, people start thinking it's because they're so fing smart. - Walt Breslin
