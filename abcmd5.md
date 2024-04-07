@@ -1,2 +1,3 @@
-Last updated: 2024-04-07 06:56:16
-Random Quote: The Red God has his due, sweet girl, and only death may pay for life.  This girl took three that were his.  This girl must give three in their places.  Speak the names, and a man will do the rest.  -  Jaqen H'ghar
+Last updated: 2024-04-07 06:56:50
+Random Quote: Robin: "I can't believe my great grandparents still do that."
+Barney: "And I never imagined a walker being used for anything other than walking." - Barney Stinson
