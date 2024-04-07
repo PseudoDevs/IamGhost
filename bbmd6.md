@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 07:03:35
-Random Quote: Sometimes you gotta do bad things to catch bad people. - Javier Pe�a
+Last updated: 2024-04-07 07:04:52
+Random Quote: Anyone who goes after him is gonna have to come through me. - Mike Ehrmantraut
