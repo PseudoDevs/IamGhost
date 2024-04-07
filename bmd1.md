@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 16:56:20
-Random Quote: You two suck at peddling meth. - Saul Goodman
+Last updated: 2024-04-07 16:56:52
+Random Quote: Dude, ditch Tiffany and join the Barnacle in the Pharma-Girl-Free-For-All. Side effects may include: loss of clothing, rug burns, shortness of breath and soar abdominals the next morning. What in the world is up! - Barney Stinson
