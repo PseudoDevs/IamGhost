@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 19:37:48
-Random Quote: When I have kids, and I tell them how I met their mother, I'm gonna tell them everything. The whole damn story. - Ted Mosby
+Last updated: 2024-04-07 19:38:21
+Random Quote: Robert could piss in a cup and men would call it wine, but I offer them cold clear water and they squint in suspicion and mutter to each other about how queer it tastes.  -  Stannis Baratheon
