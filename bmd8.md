@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 04:40:08
-Random Quote: Our thinking is shaped by dualism. Entrance, exit. Black, white. Good, evil. Everything appears as opposite pairs. But that’s wrong. - H.G. Tannhaus
+Last updated: 2024-04-07 04:40:42
+Random Quote: I let each man cut me once, before I kill him.  Count the cuts and you will know how many Strong Belwas has slain.  -  Strong Belwas
