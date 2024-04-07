@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 19:49:27
-Random Quote: Joe Caputo: "You ever notice how some dog breeds, they sound kind of dirty? Like, shih tzu, cocker, Jack-something."Susan Fischer: "Poodle."Joe Caputo: "That is good, I didn't think of that one." - Joe Caputo
+Last updated: 2024-04-07 19:50:00
+Random Quote: You can tell a lot about a person from his biography. - Phil Dunphy
