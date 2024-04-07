@@ -1,2 +1,3 @@
-Last updated: 2024-04-07 20:09:55
-Random Quote: Well, I think that... when you have a connection with someone, it never really goes away, you know? - Alex Vause
+Last updated: 2024-04-07 20:10:27
+Random Quote: Steven Grant: "I'm not trying to slag off marketing, but there's been a major blunder. Because they've got seven gods here, and the Ennead has nine."
+Donna: "I fired two of them for bein' late. Listen, if you don't stop natterin' at me, I swear I'll shove you in a sarcophagus. You can tell the pharaoh in there what's wrong with them and all." - Arthur Harrow
