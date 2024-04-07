@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 17:30:33
-Random Quote: Marshall: "Lily, you snooped through her stuff?"Lily: "No, it's like the first thing you see when you jimmy open her desk-drawer with the letter opener her grandfather left her, according to her diary." - Lily Aldrin
+Last updated: 2024-04-07 17:31:50
+Random Quote: She hated her life, not because it was bad, but because when you hate your brain and your body, it's hard to enjoy the rest. - Rue Bennett
