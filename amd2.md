@@ -1,2 +1,3 @@
-Last updated: 2024-04-07 18:19:51
-Random Quote: If you don't trust your men with your money, you have bigger problems than if you trust Saul Goodman. - Kim Wexler
+Last updated: 2024-04-07 18:20:26
+Random Quote: Grace Burgess: "You think I am a wh-re?"
+Tommy Shelby: "Everyone's a wh-re, Grace. We just sell different parts of ourselves." - Thomas Shelby
