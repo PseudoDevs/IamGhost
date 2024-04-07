@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 16:22:09
-Random Quote: So that's it? A couple of white Urkels offer you sausages and you're gone? - Robin Scherbatsky
+Last updated: 2024-04-07 16:22:42
+Random Quote: Quinn: "In the event of divorce, Miss Garvey shall get full custody of Mr. Stinson's suits."Barney: "Why? What would you do with them?"Quinn: "Nothing. I'd just sit around and watch them go out of style." - Quinn Garvey
