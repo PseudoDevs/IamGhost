@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 06:47:51
-Random Quote: Your innocence may be as plain as the scar on your face, but it will not save you.  No more than your father will.  But I might.  Not as your judge.  As your champion.  -  Oberyn Martell
+Last updated: 2024-04-07 06:48:29
+Random Quote: You know, I hear you say things like that, and I wonder if maybe I did have a few too many whiskey sours when you were in my belly. - Meemaw
