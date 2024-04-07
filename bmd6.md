@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 06:06:48
-Random Quote: First times are special. Unique. But the last times are beyond comparison. They are priceless. But people don’t know it’s their last time. - Berlin
+Last updated: 2024-04-07 06:07:22
+Random Quote: The septons preach about the seven hells.  What do they know?  Only a man who's been burned knows what hell is truly like.  -  Sandor Clegane
