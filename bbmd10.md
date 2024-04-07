@@ -1,2 +1,3 @@
-Last updated: 2024-04-07 06:17:09
-Random Quote: Robin: "Ted, are you acting out the last scene of 'Sleepless in Seattle' with little dolls?"Ted: "How long have you been out here?"Robin: "Ten seconds."Ted: "Yeah - just the last scene." - Robin Scherbatsky
+Last updated: 2024-04-07 06:18:16
+Random Quote: Men and their d-cks never cease to amaze me. John, Lizzie Stark never did a day's work vertical.
+Brave is going where no man has gone before. And with Lizzie Stark, John, that's not what you'll be doing. - Polly Gray
