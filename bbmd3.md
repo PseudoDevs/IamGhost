@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 07:09:39
-Random Quote: Those called "fools" are the only ones brave enough to see the truth. - Rick Sanchez
+Last updated: 2024-04-07 07:10:13
+Random Quote: Mando: "I was not born on Mandalore."Greef Karga: "But you're Mandalorian?"Cara Dune: "Mandalorian isn't a race."Mando: "It's a Creed." - Din Djarin
