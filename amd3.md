@@ -1,4 +1,2 @@
-Last updated: 2024-04-07 17:01:06
-Random Quote: Stark: "Red, green, blue... who paints a button blue?"
-Carter: "Don't tell me the American playboy needs help pushing buttons."
-Stark: "Hedy Lamarr and I spent a weekend together, but she wasn't teaching me German." - Howard Stark
+Last updated: 2024-04-07 17:02:23
+Random Quote: You don’t want a criminal lawyer. You want a criminal lawyer. - Jesse Pinkman
