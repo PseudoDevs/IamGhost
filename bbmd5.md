@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 19:46:16
-Random Quote: Ted: "Do you have a cold?"Barney: "I'm fine. My nose is just overflowing with awesome and I had to get some of it out." - Barney Stinson
+Last updated: 2024-04-07 19:46:49
+Random Quote: If there was any shame in a dude getting a pedicure I don't think there would've been a feature about it in Details magazine. - Barney Stinson
