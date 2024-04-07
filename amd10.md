@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 17:42:36
-Random Quote: There is a time to fight and there is a time to be clever. - Pablo Escobar
+Last updated: 2024-04-07 17:43:09
+Random Quote: My uncle Kevan would make a passably good regent if someone pressed the duty on him, but he will never reach for it.  The gods shaped him to be a follower, not a leader.  -  Tyrion Lannister
