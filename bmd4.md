@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 16:28:24
-Random Quote: Get the keys and remove those chains from him, before you make me rue the day I raped your mother.  -  Roose Bolton
+Last updated: 2024-04-07 16:29:31
+Random Quote: It's "The Little Engine with Wood", "The Whore-ient Express", "The Long Island Tail Road"! - Barney Stinson
