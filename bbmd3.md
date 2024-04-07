@@ -1,3 +1,2 @@
-Last updated: 2024-04-07 17:52:50
-Random Quote: Morty: "You're really this pissed about my mum making sure I'm okay with our adventures?"
-Rick: "What's next, Morty? What if I want you to jump off the Empire State Building? I have to ask?" - Rick Sanchez
+Last updated: 2024-04-07 17:53:27
+Random Quote: Sometimes, the cure is a little taste of the disease. The difference between medicine and poison sometimes is only dosage. - Arthur Harrow
