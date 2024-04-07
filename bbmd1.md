@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 17:33:40
-Random Quote: She don't speak.  You bloody bastards cut her throat too deep for that.  But she remembers.  -  Lem Lemoncloack
+Last updated: 2024-04-07 17:34:17
+Random Quote: Whenever I feel good I think it will last forever. But it's not like that. - Rue Bennett
