@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 19:48:25
-Random Quote: I'm a Mandalorian. Weapons are part of my religion. - Din Djarin
+Last updated: 2024-04-07 19:48:58
+Random Quote: Larry: "Where would you like me to put it then, Piper?"Piper: "Up your ass."Larry: "There's no room. Apparently, my head's already up there." - Larry Bloom
