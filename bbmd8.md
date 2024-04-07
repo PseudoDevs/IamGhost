@@ -1,7 +1,2 @@
-Last updated: 2024-04-07 16:52:18
-Random Quote: "Nevermore was founded over 200 years ago to educate outcasts."
-"Students from all walks of life."
-"And death."
-"Our mission is to help each student master their unique abilities. So we offer a full range of extracurricular activities. From painting... to archery."
-"For centuries, notable alumni have roamed these majestic halls, from the master of macabre, Edgar Allan Poe, to personal heroes like Ignatius Itt, and of course, Morticia and Gomez Addams."
-"Our highly trained faculty educate our young outcasts on a wide range of subjects. Everything from werewolf reproduction to Gorgon anatomy." - Larissa Weems
+Last updated: 2024-04-07 16:52:54
+Random Quote: 'You leaving already, Chief?"Jim Hopper: "Oh, come on, you think I actually wanted to come to this thing? I was just hungry."'Oh, yeah, that's the spirit."Jim Hopper: "Well, your wife doesn't have time to cook for me, you know what I'm saying." - Jim Hopper
