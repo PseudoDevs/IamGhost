@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 16:33:58
-Random Quote: When dead men come hunting us in the night, do you think it matters who sits the Iron Throne?  -  Jeor Mormont
+Last updated: 2024-04-07 16:34:31
+Random Quote: What you're doing right now. I'm getting a de-rection! - Barney Stinson
