@@ -1,2 +1,4 @@
-Last updated: 2024-04-07 17:41:29
-Random Quote: The Scarlet Witch is not born, she is forged. She has no coven, no need for incantation. - Agatha Harkness
+Last updated: 2024-04-07 17:42:03
+Random Quote: Greef: "Nevarro is a very fine planet. And now that the scum and villainy have been washed away, it's very respectable again."
+Mando: "As a bounty hunter hive?"
+Greef: "Some of my favorite people are bounty hunters." - Greef Karga
