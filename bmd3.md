@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 07:02:19
-Random Quote: Sex now, we'll do the foreplay after. - Lily Aldrin
+Last updated: 2024-04-07 07:03:33
+Random Quote: I am Bo-Katan of Clan Kryze. I was born on Mandalore and fought in the Purge. I am the last of my line. - Bo-Katan
