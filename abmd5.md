@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 17:35:11
-Random Quote: You know, I hear you say things like that, and I wonder if maybe I did have a few too many whiskey sours when you were in my belly. - Meemaw
+Last updated: 2024-04-07 17:35:44
+Random Quote: Dismissing Selmy, where was the sense in that?  Yes, the man was old, but the name of Barristan the Bold still has meaning in the realm.  He lent honor to any man he served.  -  Tywin Lannister
