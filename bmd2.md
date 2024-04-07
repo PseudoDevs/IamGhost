@@ -1,3 +1,2 @@
-Last updated: 2024-04-07 04:42:27
-Random Quote: Bo-Katan: "You are not a Mandalorian."
-Boba: "Never said I was." - Boba Fett
+Last updated: 2024-04-07 04:43:42
+Random Quote: The only person who gets to torture my brother is me. - Wednesday Addams
