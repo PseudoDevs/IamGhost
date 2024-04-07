@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 20:22:05
-Random Quote: Eventually, Nick's groin will heal and you'll be back in Sexville, where all the crossword puzzles only have one box to fill. - Lily Aldrin
+Last updated: 2024-04-07 20:22:39
+Random Quote: A lie is just a great story that someone ruined with the truth. - Barney Stinson
