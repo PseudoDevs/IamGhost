@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 17:11:45
-Random Quote: The absolute worst part of depression is that even though you know you're depressed, You're unable to stop yourself from getting worse. - Rue Bennett
+Last updated: 2024-04-07 17:12:18
+Random Quote: Lord Wyman is not the only one who lost kin at your Red Wedding, Frey.  Do you imagine Whoresbane loves you any better?  If you did not hold the Greatjon, he would pull out your entrails and make you eat them, as Lady Hornwood ate her fingers.  Flints, Cerwyns, Tallharts, Slates... they all had men with the Young Wolf.  The North remembers, Frey.  -  Barbrey Dustin
