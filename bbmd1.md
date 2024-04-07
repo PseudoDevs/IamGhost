@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 05:52:56
-Random Quote: If I hadn't buried my feelings so deep I would totally be tearing up right now. - Maritza Ramos
+Last updated: 2024-04-07 05:53:29
+Random Quote: Obara would make Oldtown our father's funeral pyre, but I am not so greedy.  Four lives will suffice for me.  Lord Tywin's golden twins, as payment for Elia's children.  The old lion, for Elia herself.  And last of all the little king, for my father... only royal blood can wash out my father's murder.  -  Nymeria Sand
