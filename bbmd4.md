@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 19:17:44
-Random Quote: Hey, it's me again. Look, who are we kidding? You and I are both attracted to each other. We're young, we're drunk, half of us anyway. And we only get one life, so why don't you come over to my apartment and we'll think of something stupid to do together? - Ted Mosby
+Last updated: 2024-04-07 19:18:56
+Random Quote: They are knights now, all three, and your sister has promised them further advancement.  And the eldest, Set Osmund of the Kingsguard, dreams of certain other... favors... as well.  You can match the queen coin for coin, I have no doubt, but she has a second purse that is quite inexhaustible.  -  Varys
