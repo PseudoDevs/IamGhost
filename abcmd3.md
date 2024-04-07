@@ -1,2 +1,3 @@
-Last updated: 2024-04-07 07:20:46
-Random Quote: What if God doesn’t know what he’s doing? If the plan is wrong? If God is wrong? - 
+Last updated: 2024-04-07 07:21:21
+Random Quote: Ted: "So this is what you guys do? You invite other couples over for dinner, to judge them and feel superior?"
+Lily: "Oh, grow up, Ted, that's why any couple invites anyone over ever!" - Lily Aldrin
