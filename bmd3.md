@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 20:13:14
-Random Quote: Ted: "Do not pretend you're not the kind of guy, who keeps a list of all the girls he slept with."Marshall: "I have one. It's called my marriage-license." - Marshall Eriksen
+Last updated: 2024-04-07 20:13:47
+Random Quote: They'll bend the knee or I'll destroy them.  -  Stannis Baratheon
