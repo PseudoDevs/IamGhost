@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 05:05:50
-Random Quote: I've had shits that I've liked better than Walder Frey.  -  Brynden Tully
+Last updated: 2024-04-07 05:07:04
+Random Quote: If you don't push, I will shove that baby up your throat and pull it out of your mouth! - Dr. Sonya
