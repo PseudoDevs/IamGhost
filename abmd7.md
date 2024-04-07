@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 16:39:01
-Random Quote: Stella: "Ted, you're staring at my breasts."Ted: "In fairness... they were staring at me." - Ted Mosby
+Last updated: 2024-04-07 16:39:36
+Random Quote: My daughter has taken an axe for a lover.  I will not have my son bedeck himself like a whore.  It is as I feared.  The green lands have made you soft, and the Starks have made you theirs.  -  Balon Greyjoy
