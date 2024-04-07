@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 17:00:00
-Random Quote: If there's one thing I've learned in the narco world, it's that life is more complicated than you think. Good and bad, they're relative concepts. - Steve Murphy
+Last updated: 2024-04-07 17:00:34
+Random Quote: The greatest fools are ofttimes more clever than the men who laugh at them.  -  Tywin Lannister
