@@ -1,6 +1,2 @@
-Last updated: 2024-04-07 19:38:54
-Random Quote: You lie to your husband all the time...
-"That shirt looks great on you."
-"I love your mom."
-"I never fantasize about Barney when we're doing it."
-Sound familiar, Pinocchio? - Barney Stinson
+Last updated: 2024-04-07 19:39:28
+Random Quote: Quinn: "What is an executive strategy coordinator?"Barney: "It's three corporate-sounding words which, when added together, equal a fake job for which you get a real paycheck." - Barney Stinson
