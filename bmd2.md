@@ -1,2 +1,3 @@
-Last updated: 2024-04-07 19:42:15
-Random Quote: Run the montage of people who died this year until I get back and add Sandy, because when I find him, I'm gonna kill him. - Robin Scherbatsky
+Last updated: 2024-04-07 19:42:48
+Random Quote: "I thought Mandalorians were honorable."
+Koska Reeves: "We are, kid. All it takes is a few credits." - Din Djarin
