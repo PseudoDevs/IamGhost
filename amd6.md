@@ -1,2 +1,2 @@
-Last updated: 2024-04-06 12:16:00
-Random Quote: Barney: "I had a drinking game based on Robin. But it was actually ON Robin: I'd pour peach schnapps in her belly button..."Ted: "Dude, we agreed we wouldn't do this."Barney: "Sorry. You're right. She didn't like it anyway. Said it woke her up." - Barney Stinson
+Last updated: 2024-04-07 04:10:48
+Random Quote: Kids, that was the one time I ever lost faith in the idea that my life would be better in three years. And what's funny is, three years from that moment, my life was amazing. - Ted Mosby
