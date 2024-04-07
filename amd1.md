@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 20:30:40
-Random Quote: No tales were ever told of me.  Do you think I would be sitting here if it were otherwise?  Your amusements are your own, I will not chide you on that count, but you must be more discreet.  A peaceful land, a quiet people.  That has always been my rule.  Make it yours.  -  Roose Bolton
+Last updated: 2024-04-07 20:31:13
+Random Quote: The Red God has his due, sweet girl, and only death may pay for life.  This girl took three that were his.  This girl must give three in their places.  Speak the names, and a man will do the rest.  -  Jaqen H'ghar
