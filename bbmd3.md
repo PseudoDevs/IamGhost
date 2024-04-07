@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 18:45:52
-Random Quote: In the game of thrones, even the humblest pieces have wills of their own.  Sometimes they refuse to make the moves you've planned for them.  Mark that well, Alayne.  It's a lesson that Cersei Lannister still has yet to learn.  -  Petyr Baelish
+Last updated: 2024-04-07 18:49:15
+Random Quote: I wish you could live to see the world we make. - Arthur Harrow
