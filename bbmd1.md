@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 07:14:54
-Random Quote: Robert... he is in my dreams as well.  Laughing.  Drinking.  Boasting.  Those were the things he was best at.  Those, and fighting.  I never bested him at anything.  -  Stannis Baratheon
+Last updated: 2024-04-07 07:15:28
+Random Quote: Kingthlayer... you are my captifth.  -  Vargo Hoat
