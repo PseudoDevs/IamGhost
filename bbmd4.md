@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 05:47:20
-Random Quote: Ted, I believe you and I met for a reason. It's like the universe was saying: "Hey Barney, there's this dude, he's pretty cool, but it's your job to make him awesome." - Barney Stinson
+Last updated: 2024-04-07 05:47:53
+Random Quote: Any time, a girl wants to get back at her ex-bodyfriends, we'll be there.Any time, a girl wants to solve her father-issues through promiscuity and binge drinking we will be there.Any time a bachelorette party drives through the city in a limo, sticking their heads out the sunroof, shouting 'what's up New York?', we will be what is 'up' New York! - Barney Stinson
