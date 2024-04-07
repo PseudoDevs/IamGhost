@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 06:43:02
-Random Quote: Dear Billy, I don't know if you can even hear this. Ever since you left, everything's been a total disaster. For a while, we tried to be happy... normal. I know that's impossible. - Max Mayfield
+Last updated: 2024-04-07 06:44:14
+Random Quote: Don Eladio, look into Fring's eyes. There you will see the truth. The Chicken Man hates you. He is our enemy. He plots against us. I demand blood for blood. - Hector Salamanca
