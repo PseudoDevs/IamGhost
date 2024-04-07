@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 16:24:08
-Random Quote: Can I dwell on what I scarce remember?  I held a castle on the Marches once, and there was a woman I was pledged to marry, but I could not find that castle today, nor tell you the color of that woman's hair.  Who knighted me, old friend?  What were my favorite foods?  It all fades.  Sometimes I think I was born on the bloody grass in that grove of ash, with the taste of fire in my mouth and a hole in my chest.  Are you my mother, Thoros?  -  Beric Dondarrion
+Last updated: 2024-04-07 16:24:42
+Random Quote: Some dogs crawled atop me during the night.  My cloak was almost dry when one of them pissed in it.  Have you noticed that the rain stopped the instant I had a roof above me?  It will start again now that I'm back out.  Gods and dogs alike delight to piss on me.  -  Dolorous Edd Tollett
