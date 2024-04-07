@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 06:08:20
-Random Quote: We all face the same end. Those above have long forgotten us. They do not judge us. In death, I am all alone, and my only judge… is me. - Martha
+Last updated: 2024-04-07 06:08:53
+Random Quote: Past a certain point, all the dates grow hazy and confused, and the clarity of history becomes the fog of legend.  -  Hoster Blackwood
