@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 20:14:54
-Random Quote: Oh man, I am so excited that you're here! It has been forever since I have been around anyone even remotely fun![to Lily, Robin, Ted and Marshall] Huh... yes, offense! - Barney Stinson
+Last updated: 2024-04-07 20:16:00
+Random Quote: The Citadel took my chain, but they could not take my knowledge.  -  Qyburn
