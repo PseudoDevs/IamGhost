@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 19:50:37
-Random Quote: I just want to say to whoever is voting for me that I would certainly make an awful Lord Commander.  But so would all these others.  -  Dolorous Edd Tollett
+Last updated: 2024-04-07 19:51:11
+Random Quote: Larry: "Where would you like me to put it then, Piper?"Piper: "Up your ass."Larry: "There's no room. Apparently, my head's already up there." - Larry Bloom
