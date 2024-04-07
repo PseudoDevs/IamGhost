@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 06:46:03
-Random Quote: You can tell a lot about a person from his biography. - Phil Dunphy
+Last updated: 2024-04-07 06:47:15
+Random Quote: The wolf will prove the boy is who we say he is, should the Dreadfort attempt to deny him.  That is my price, Lord Davos.  Smuggle me back my liege lord, and I will take Stannis Baratheon as my king.  -  Wyman Manderly
