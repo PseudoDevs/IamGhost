@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 04:45:53
-Random Quote: Ted: "I thought you said you got rid of everything your ex-boyfriends gave you?"Robin: "Well yeah, but not my dogs."Ted: "You said everything."Robin: "But not living things."Ted: "Tell that to the rare bolivian cactus i threw away!" - Ted Mosby
+Last updated: 2024-04-07 04:46:26
+Random Quote: What do you think a knight is for, girl?  You think it's all taking favors from ladies and looking fine in gold plate?  Knights are for killing.  I killed my first man at twelve.  I've lost count of how many I've killed since then.  High lords with old names, fat rich men dressed in velvet, knights puffed up like bladders with their honors, yes, and women and children too... they're all meat, and I'm the butcher.  -  Sandor Clegane
