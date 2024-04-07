@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 16:39:59
-Random Quote: Robin: "I don't know if we should keep seeing each other."Nick: "You want to start turning off the lights during sex?"Robin: "No. God, no. No! I am just worried that, as a couple, we're not working out."Nick: "You want to start going to the gym together?" - Nick
+Last updated: 2024-04-07 16:40:33
+Random Quote: Kids, that was the one time I ever lost faith in the idea that my life would be better in three years. And what's funny is, three years from that moment, my life was amazing. - Ted Mosby
