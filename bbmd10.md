@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 17:06:08
-Random Quote: If one of the Vancouver Canucks walked in here, my panties would drop so hard, there would be a hole in the floor halfway to China. - Robin Scherbatsky
+Last updated: 2024-04-07 17:06:46
+Random Quote: I'm a simple man making his way through the galaxy. Like my father before me. - Boba Fett
