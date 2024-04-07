@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 17:15:06
-Random Quote: Yes! Tonight is gonna be Legen... wait, are we sure it's a good idea to go to a strip club? Shut up, Lily! I'm in charge now... Dary! - Barney Stinson
+Last updated: 2024-04-07 17:15:39
+Random Quote: And at some point you make a choice about who you are and what you want. - Rue Bennett
