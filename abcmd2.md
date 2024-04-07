@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 07:21:33
-Random Quote: Eleven: "Promise?"Mike: "It means something that you can't break. Ever." - Mike Wheeler
+Last updated: 2024-04-07 07:22:06
+Random Quote: Make it easier for those whose vote you can count on. Make it harder for those you can't. That's how you rig an election without leaving a lick of evidence. - Walt Breslin
