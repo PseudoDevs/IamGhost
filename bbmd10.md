@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 06:06:58
-Random Quote: Ted: "No, seriously Robin, you should get the slap. I mean, you're a great slapper. In fact, I want to study slapping under your tutelage. I want to be your slap-prentice."Robin: "Don't sell yourself short there, Teddy. You're a slapping rock star. Your name should be Eric Slapton." - Robin Scherbatsky
+Last updated: 2024-04-07 06:07:32
+Random Quote: We can only die.  Why else do we don these black cloaks, but to die in defense of the realm?  -  Qhorin Halfhand
