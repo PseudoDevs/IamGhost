@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 04:45:08
-Random Quote: It's not just football. It's life. - Cal Jacobs
+Last updated: 2024-04-07 04:46:16
+Random Quote: Robb Stark won the war on the battlefield and lost it in a bedchamber.  -  Jaime Lannister
