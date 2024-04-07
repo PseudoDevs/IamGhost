@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 16:52:01
-Random Quote: I think maybe you're the only person who really knows who I am and still likes me anyway. - Allison Hargreeves
+Last updated: 2024-04-07 16:52:34
+Random Quote: It all goes back and back.  To our mothers and fathers and theirs before them.  We are puppets dancing on the strings of those who came before us, and one day our own children will take up our strings and dance in our steads.  -  Tyrion Lannister
