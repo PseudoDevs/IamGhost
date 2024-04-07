@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 18:33:20
-Random Quote: Robin: "I'm such a mess. Why do you even like me?"Barney: "I guess cause you're almost as messed up as I am." - Barney Stinson
+Last updated: 2024-04-07 18:33:53
+Random Quote: I have won every battle, yet somehow I'm losing the war.  -  Robb Stark
