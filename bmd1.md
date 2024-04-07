@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 16:46:41
-Random Quote: No matter how tough things get, children always turn out okay. - Berlin
+Last updated: 2024-04-07 16:47:14
+Random Quote: She had seen Bronn fight on the high road; it was no accident that he had survived the journey while other men had died.  He moved like a panther, and that ugly sword of his seemed a part of his arm.  -  Catelyn Stark
