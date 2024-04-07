@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 18:12:38
-Random Quote: Never bring a knife to a sword fight. Unless it's concealed. - Wednesday Addams
+Last updated: 2024-04-07 18:13:11
+Random Quote: She studied Theon Greyjoy's sly smile, wondering what it meant.  That young man had a way of looking as though he knew some secret jest that only he was privy to; Catelyn had never liked it.  -  Catelyn Stark
