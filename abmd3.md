@@ -1,2 +1,3 @@
-Last updated: 2024-04-07 04:28:58
-Random Quote: You know nothing, Jon Snow.  -  Ygritte
+Last updated: 2024-04-07 04:30:15
+Random Quote: Morticia: "That boy's family was going to file attempted murder charges. How would that have looked on your record?"
+Wednesday: "Terrible. Everyone would know I failed to get the job done." - Wednesday Addams
