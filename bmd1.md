@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 04:22:48
-Random Quote: Love's not always wise, I've learned.  It can lead us to great folly, but we follow our hearts... wherever they take us.  -  Robb Stark
+Last updated: 2024-04-07 04:23:21
+Random Quote: I did it for me. I liked it. I was good at it. And I was really... I was alive. - Walter White
