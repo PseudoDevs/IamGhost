@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 18:59:41
-Random Quote: I have a tender spot in my heart for cripples, bastards, and broken things.  -  Tyrion Lannister
+Last updated: 2024-04-07 19:00:16
+Random Quote: Penrose chose to die rather than give him up.  It still angers me.  How could he think I would hurt the boy?  I chose Robert, did I not?  When that hard day came, I chose blood over honor.  -  Stannis Baratheon
