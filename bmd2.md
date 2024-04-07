@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 19:45:01
-Random Quote: Catelyn would sooner Lord Umber had seen fit to stay sober, but telling the Greatjon not to drink was like telling him not to breathe for a few hours.  -  Catelyn Stark
+Last updated: 2024-04-07 19:45:34
+Random Quote: Sounds like you guys need to 'Clear Everything,' 'Subtract' the negativity and 'Add' some perspective. - How I Met Your Mother
