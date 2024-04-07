@@ -1,3 +1,2 @@
-Last updated: 2024-04-07 18:39:31
-Random Quote: Ravonna: "You really believe in this Loki variant?"
-Mobius: "Luckily, he believes in himself enough for the both of us." - Mobius M. Mobius
+Last updated: 2024-04-07 18:40:04
+Random Quote: Jon, did you ever wonder why the men of the Night's Watch take no wives and father no children?  So they will not love, for love is the bane of honor, the death of duty.  -  Maester Aemon
