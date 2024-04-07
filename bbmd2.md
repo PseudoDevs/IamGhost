@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 07:10:29
-Random Quote: Rickard Karstark killed more than a Frey and a Lannister.  He killed my honor.  -  Robb Stark
+Last updated: 2024-04-07 07:11:02
+Random Quote: What is the cost of lies? It's not that we mistake them for the truth. The real danger is that if we hear enough lies, then we no longer recognize the truth at all. - Valery Legasov
