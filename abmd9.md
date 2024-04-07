@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 18:36:48
-Random Quote: They may separate us, but they'll never be able to destroy us. - Pablo Escobar
+Last updated: 2024-04-07 18:37:24
+Random Quote: I have worked at the downfall of Tywin Lannister since the day they told me of Elia and her children.  -  Doran Martell
