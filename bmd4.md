@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 04:11:00
-Random Quote: Perhaps we can fly.  All of us.  How will we ever know unless we leap from some tall tower?  No man ever truly knows what he can do unless he dares to leap.  -  Euron Greyjoy
+Last updated: 2024-04-07 04:11:33
+Random Quote: Robert... he is in my dreams as well.  Laughing.  Drinking.  Boasting.  Those were the things he was best at.  Those, and fighting.  I never bested him at anything.  -  Stannis Baratheon
