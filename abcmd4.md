@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 19:46:02
-Random Quote: Marshall: "If economic sanctions and trade-restrictions aren't enforced, the destruction of the rainforest will continue and over a million species will be wiped out!"Ted: "So you don't want coffee?" - Ted Mosby
+Last updated: 2024-04-07 19:46:35
+Random Quote: If you don’t know who I am, then maybe your best course would be to tread lightly. - Walter White
