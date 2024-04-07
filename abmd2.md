@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 16:36:06
-Random Quote: I knew quite a few Jedi, you know. I don't know what they taught you about us, but there was a time we actually got along quite well. Fought side by side. - Bo-Katan
+Last updated: 2024-04-07 16:36:41
+Random Quote: You will never walk again... but you will fly.  -  Bloodraven
