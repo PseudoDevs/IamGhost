@@ -1,4 +1,2 @@
-Last updated: 2024-04-07 04:12:40
-Random Quote: Oh Il-nam: "As a kid, I'm willing to bet you got spanked a lot."
-Seong Gi-hun: "How did you know?"
-Oh Il-nam: "My son did too. He was just like you, friend." - Oh Il-nam
+Last updated: 2024-04-07 04:13:13
+Random Quote: I never wanted any of it to change, but that's not how life works. - Ted Mosby
