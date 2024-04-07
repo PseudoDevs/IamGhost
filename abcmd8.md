@@ -1,5 +1,2 @@
-Last updated: 2024-04-07 19:00:20
-Random Quote: Marshall: "What the hell happened?"
-Barney: "I said no questions asked."
-Marshall: "Star, clover, horseshoe... Barney, did you swallow real versions of all the Lucky Charms items?"
-Barney: "No questions asked! Now come on. Let's hit the bar. I'm buying. I just won 50 bucks from a little Irish guy on a dare." - Barney Stinson
+Last updated: 2024-04-07 19:00:56
+Random Quote: Nerds who aren't good at math?Life is going to be rough boys! - Robin Scherbatsky
