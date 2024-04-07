@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 16:41:07
-Random Quote: We were king's men, knights, and heroes... but some knights are dark and full of terror, my lady.  War makes monsters of us all.  -  Thoros of Myr
+Last updated: 2024-04-07 16:41:41
+Random Quote: I do have an angle, Craig. It's an angle called justice. - Saul Goodman
