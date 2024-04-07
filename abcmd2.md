@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 05:02:01
-Random Quote: I'm going out of this world the same way I came into it: Buck-naked. Yeah. It's gonna be awesome. Open bar for the guys, open casket for the ladies. What up? - Barney Stinson
+Last updated: 2024-04-07 05:02:37
+Random Quote: Larry Bloom: "Are we at least gonna talk about other options?"Piper Chapman: "You mean..."Larry Bloom: "It's not Voldemort, you can say it. Abortion." - Larry Bloom
