@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 17:38:38
-Random Quote: You want to hurt these guys, we gotta take down the ones calling the shots. - Jaime Kuykendall
+Last updated: 2024-04-07 17:39:14
+Random Quote: We will take them before last night's beer turns to piss. - Chester Campbell
