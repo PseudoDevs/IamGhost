@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 18:23:59
-Random Quote: Women aren't soldiers, and they sure as hell don't fight on the front lines. They might break a nail. - John Flynn
+Last updated: 2024-04-07 18:25:07
+Random Quote: Is it your fault that Bronn's an insolent black - hearted rogue?  He's always been an insolent black
