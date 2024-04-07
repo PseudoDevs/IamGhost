@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 05:56:45
-Random Quote: Robin: "I'm such a mess. Why do you even like me?"Barney: "I guess cause you're almost as messed up as I am." - Barney Stinson
+Last updated: 2024-04-07 05:57:58
+Random Quote: There is entirely too much tut - tutting in this realm, if you ask me.  All these kings would do a deal better if they put down their swords and listended to their mothers. 
