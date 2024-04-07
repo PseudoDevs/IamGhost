@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 04:26:53
-Random Quote: Never forget what you are, for surely the world will not.  Make it your strength.  Then it can never be your weakness.  Armor yourself in it, and it will never be used to hurt you.  -  Tyrion Lannister
+Last updated: 2024-04-07 04:27:26
+Random Quote: All men are fools, if truth be told, but the ones in motley are more amusing than the ones with crowns.  -  Olenna Tyrell
