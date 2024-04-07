@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 20:11:13
-Random Quote: Here's what's gonna happen. One day you're gonna wake up, eat your breakfast, brush your teeth, go about your business. And sooner or later, you're gonna realize you haven't thought about it. None of it. And that's the moment you realize you can forget. When you know that's possible, it all gets easier. - Mike Ehrmantraut
+Last updated: 2024-04-07 20:11:46
+Random Quote: A bag of dragons buys a man's silence for a while, but a well - placed quarrel buys it forever. 
