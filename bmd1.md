@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 05:05:43
-Random Quote: The most amazing things that can happen to a human being will happen to you, if you just lower your expectations. - Phil Dunphy
+Last updated: 2024-04-07 05:06:16
+Random Quote: His blood ran black.  Made him my brother as much as yours.  -  Yoren of the Night's Watch
