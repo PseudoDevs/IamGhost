@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 18:29:05
-Random Quote: My only aim is to take many lives. The more the better I feel. - 
+Last updated: 2024-04-07 18:29:38
+Random Quote: Bear Island knows no king save the King in the North, whose name is Stark.  -  Lyanna Mormont
