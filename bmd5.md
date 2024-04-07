@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 04:16:18
-Random Quote: Jerry: "I wish that shotgun was my penis."Beth: "If it were, you could call me Ernest Hemingway." - Beth Smith
+Last updated: 2024-04-07 04:16:53
+Random Quote: At least I know they didn't spot you. No one could stay that aroused with your mug peeking through the window. - Saul Goodman
