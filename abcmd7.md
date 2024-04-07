@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 18:49:36
-Random Quote: Ted: "As a kid, I was known as a bit of a detective. In fact, when my friend's retainer went missing, the Mosby Boys were put on the case, and it was..."Victoria: "The retainer was in the garbage. The Mosby Boys were you, your sister, and a neighborhood squirrel you thought you had tamed."Ted: "I can't believe Squirrel-lock Holmes turned on us like that, eight weeks of training down the drain." - Ted Mosby
+Last updated: 2024-04-07 18:50:42
+Random Quote: I'll have to take a page from Robert's book, not that he ever read one.  -  Stannis Baratheon
