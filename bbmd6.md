@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 16:55:50
-Random Quote: I'm growing a child in my belly, a child that just developed ears, and it's a very thin sweater. So, please, if you must tell your story, just make it cheerful. - Lily Aldrin
+Last updated: 2024-04-07 16:56:23
+Random Quote: Death.  There will be death, aye.  Your lordship lost a son at the Red Wedding, I lost four upon the Blackwater.  And why?  Because the Lannisters stole the throne.  Go to King's Landing and look upon Tommen with your own eyes, if you doubt me.  A blind man could see it.  What does Stannis offer you?  Vengeance.  Vengeance for my sons and yours, for your husbands and your fathers and your brothers.  Vengeance for your murdered lord, your murdered king, your butchered princes.  Vengeance!  -  Davos Seaworth
