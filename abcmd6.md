@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 20:11:17
-Random Quote: We all wear masks. We all pretend. Presenting a perfect illusion on the outside, while we desperately try to hide who we are on the inside. - Ángel
+Last updated: 2024-04-07 20:11:50
+Random Quote: I’ve spent my life being a bit of a son of a bitch, but today I think I want to die with dignity. - Berlin

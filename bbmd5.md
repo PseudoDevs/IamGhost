@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 20:11:17
-Random Quote: I'm a Mandalorian. Weapons are part of my religion. - Din Djarin
+Last updated: 2024-04-07 20:11:50
+Random Quote: To live is to risk it all. Otherwise you're just an inert chunk of randomly assembled molecules drifting wherever the universe blows you. - Rick Sanchez

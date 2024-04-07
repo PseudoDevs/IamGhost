@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 20:10:43
-Random Quote: Do you remember that cave?  We should have stayed in that cave.  I told you so.  -  Ygritte
+Last updated: 2024-04-07 20:11:50
+Random Quote: Men call me Darkstar, and I am of the night.  -  Gerold Dayne
