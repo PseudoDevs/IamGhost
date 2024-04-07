@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 19:31:44
-Random Quote: Jaime, sweetling, I have known you since you were a babe at Joanna's breast.  You smile like Gerion and fight like Tyg and there's some of Keven in you, else you would not wear that cloak... but Tyrion is Tywin's son, not you.  I said that once to your father's face, and he would not speak to me for half a year.  -  Genna Lannister
+Last updated: 2024-04-07 19:32:51
+Random Quote: She had a nice face, her booty was in place, but Barney don't chase. - Barney Stinson
