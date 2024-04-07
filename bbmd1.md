@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 17:31:20
-Random Quote: She had seen Bronn fight on the high road; it was no accident that he had survived the journey while other men had died.  He moved like a panther, and that ugly sword of his seemed a part of his arm.  -  Catelyn Stark
+Last updated: 2024-04-07 17:31:52
+Random Quote: Why is it always the innocents who suffer most, when you high lords play your game of thrones?  -  Varys
