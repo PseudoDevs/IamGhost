@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 17:17:26
-Random Quote: Stay out of my territory. - Walter White
+Last updated: 2024-04-07 17:18:02
+Random Quote: The title was but a courtesy due him as a council member; Varys was lord of nothing but the spiderweb, the master of none but his whispers.  -  Catelyn Stark
