@@ -1,4 +1,2 @@
-Last updated: 2024-04-07 07:16:43
-Random Quote: Greef: "Be careful, my friend. They've got you outnumbered ten to one."
-Din: "I like these odds."
-Greef: "I bet you do." - Greef Karga
+Last updated: 2024-04-07 07:17:17
+Random Quote: Robin: "She was gonna get the last kugel."Ted: "She was 90 years old. It was probably gonna be her last kugel." - Ted Mosby
