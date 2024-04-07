@@ -1,2 +1,3 @@
-Last updated: 2024-04-07 04:24:22
-Random Quote: Quentyn had never felt so much a boy as when he'd stood before Daenerys Targaryen, pleading for her hand.  The thought of bedding her terrified him almost as much as her dragons had.  -  Quentyn Martell
+Last updated: 2024-04-07 04:24:59
+Random Quote: Alien: "I was just reading you."
+Rick: "Congratulations on making it into print media. Real bright future there." - Rick Sanchez
