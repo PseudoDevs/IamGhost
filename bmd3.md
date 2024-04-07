@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 17:16:01
-Random Quote: Is she worth the pain? A man does not suffer like this for his own glory. There is a fine line between devotion and delusion. Love can break more than your heart. It can shatter your mind. - O-Bengh
+Last updated: 2024-04-07 17:16:34
+Random Quote: Well, I think that... when you have a connection with someone, it never really goes away, you know? - Alex Vause
