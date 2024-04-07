@@ -1,3 +1,2 @@
-Last updated: 2024-04-07 18:04:31
-Random Quote: Planetina: "Your acid rain is an acid pain... in the butt, Diesel Wiesel!"
-Rick: "Yikes! Who's the chick in need of a dialogue pass?" - Rick Sanchez
+Last updated: 2024-04-07 18:05:05
+Random Quote: I'm honest.  It's the world that's awful.  -  Sandor Clegane
