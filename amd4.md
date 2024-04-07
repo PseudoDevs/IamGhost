@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 18:34:44
-Random Quote: A man who sees nothing has no use for his eyes, cut them out and give them to your next outrider.  Tell him you hope that four eyes might see better than two... and if not, the man after him will have six.  -  Gregor Clegane
+Last updated: 2024-04-07 18:35:18
+Random Quote: Stop crying. Remember? Crying makes you ugly and weak. - Dayanara Diaz
