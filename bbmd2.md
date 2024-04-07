@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 19:46:50
-Random Quote: I can't believe I'm taking sexual advice from Ted Mosby.That's like taking fashion advice from... well, Ted Mosby. - Barney Stinson
+Last updated: 2024-04-07 19:47:23
+Random Quote: Because you're so broken you don't even trust yourself. And that's scary. - Nate Jacobs
