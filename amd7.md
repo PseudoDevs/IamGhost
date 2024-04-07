@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 18:44:10
-Random Quote: We all have things we keep hidden. Sometimes, keeping secrets is how you survive. Because in High School, one rumor, one picture, one incident, can define you forever. - Hannah Baker
+Last updated: 2024-04-07 18:44:44
+Random Quote: Geniuses are always branded as crazy. - Pablo Escobar
