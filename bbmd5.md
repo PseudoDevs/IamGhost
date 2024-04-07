@@ -1,2 +1,6 @@
-Last updated: 2024-04-07 16:38:17
-Random Quote: You are not the guy. You're not capable of being the guy. I had a guy but now I don't. You are not the guy. - Mike Ehrmantraut
+Last updated: 2024-04-07 16:38:51
+Random Quote: Polly: "Six."
+John: "Six what?"
+Polly: "Six questions since you walked through that door. Soon you'll have to start being the man with the answers."
+John: "Why?"
+Polly: "Seven." - Polly Gray
