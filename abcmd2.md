@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 19:41:47
-Random Quote: 'You leaving already, Chief?"Jim Hopper: "Oh, come on, you think I actually wanted to come to this thing? I was just hungry."'Oh, yeah, that's the spirit."Jim Hopper: "Well, your wife doesn't have time to cook for me, you know what I'm saying." - Jim Hopper
+Last updated: 2024-04-07 19:43:26
+Random Quote: There are no men like me.  There's only me.  -  Jaime Lannister
