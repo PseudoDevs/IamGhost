@@ -1,3 +1,3 @@
-Last updated: 2024-04-07 18:25:14
-Random Quote: Layla: "Summon the suit!"
-Steven: "Summon the soup? What are you saying?" - Arthur Harrow
+Last updated: 2024-04-07 18:25:52
+Random Quote: Grace: "I had the phone put in. It's in the back."
+Tommy: "If we knew someone else who had a phone, we could call them." - Thomas Shelby
