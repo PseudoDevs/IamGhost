@@ -1,3 +1,2 @@
-Last updated: 2024-04-07 07:16:39
-Random Quote: Dragon: "My name is Balthromaw. Breaker of skies, slayer of mountain."
-Rick: "Rule 1: You're now scooper of your own poops, or I will take you down like the black-light poster you are." - Rick Sanchez
+Last updated: 2024-04-07 07:17:12
+Random Quote: Enjoy your mai-tai, because soon you will be wearing my tie! - Marshall Eriksen
