@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 05:02:40
-Random Quote: Oh man, I am so excited that you're here! It has been forever since I have been around anyone even remotely fun![to Lily, Robin, Ted and Marshall] Huh... yes, offense! - Barney Stinson
+Last updated: 2024-04-07 05:04:35
+Random Quote: Death.  There will be death, aye.  Your lordship lost a son at the Red Wedding, I lost four upon the Blackwater.  And why?  Because the Lannisters stole the throne.  Go to King's Landing and look upon Tommen with your own eyes, if you doubt me.  A blind man could see it.  What does Stannis offer you?  Vengeance.  Vengeance for my sons and yours, for your husbands and your fathers and your brothers.  Vengeance for your murdered lord, your murdered king, your butchered princes.  Vengeance!  -  Davos Seaworth

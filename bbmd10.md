@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 05:04:02
-Random Quote: Oh man, I am so excited that you're here! It has been forever since I have been around anyone even remotely fun![to Lily, Robin, Ted and Marshall] Huh... yes, offense! - Barney Stinson
+Last updated: 2024-04-07 05:04:37
+Random Quote: What you have to do is show these suckers what you’re capable of. Show them you’re not scared. - Nairobi
