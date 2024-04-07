@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 06:19:21
-Random Quote: Screw the FCC! I'll go to the mat with those pencil-pushers! This is textbook freedom of speech. What could be more American than that? - Saul Goodman
+Last updated: 2024-04-07 06:19:58
+Random Quote: Mitchell: "We didn't just go to Vietnam for pleasure. We kinda have some big news."Jay: "Oh God, if Cam comes out there with boobs, I'm leaving." - Jay Pritchett
