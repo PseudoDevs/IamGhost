@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 16:34:19
-Random Quote: Our thinking is shaped by dualism. Entrance, exit. Black, white. Good, evil. Everything appears as opposite pairs. But that’s wrong. - H.G. Tannhaus
+Last updated: 2024-04-07 16:34:53
+Random Quote: I'm not sure whose twisted idea it was to put hundreds of adolescents in underfunded schools run by people whose dreams were crushed years ago... but I admire the sadism. - Wednesday Addams
