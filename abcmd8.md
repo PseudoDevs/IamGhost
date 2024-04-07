@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 06:03:23
-Random Quote: Not all final girls make it to the end by fighting the monster. Some of them hide. They stay quiet when their family needs them. They're not waiting for their moment. They don't even know if another moment's coming. They just close their eyes and wait for it to be over. Truth is, some final girls are cowards. - Kinsey Locke
+Last updated: 2024-04-07 06:03:56
+Random Quote: I'll help you study. We're gonna stay up all night long. I'm gonna drill you and then we're gonna study. No, seriously. We're gonna do some cramming and then we're gonna study. No, seriously. We're gonna bone up on... - Barney Stinson
