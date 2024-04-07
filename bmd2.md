@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 07:25:35
-Random Quote: Quinn: "I have to pay $2,000 every time I gain a pound?"Barney: "Not every time. Just if it shows up at the weekly weigh-in." - Barney Stinson
+Last updated: 2024-04-07 07:26:08
+Random Quote: We were king's men, knights, and heroes... but some knights are dark and full of terror, my lady.  War makes monsters of us all.  -  Thoros of Myr
