@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 18:56:13
-Random Quote: There is a savage beast in every man, and it stirs when you put a sword in his hand.  -  Jorah Mormont
+Last updated: 2024-04-07 18:56:47
+Random Quote: Larry Bloom: "Are we at least gonna talk about other options?"Piper Chapman: "You mean..."Larry Bloom: "It's not Voldemort, you can say it. Abortion." - Larry Bloom
