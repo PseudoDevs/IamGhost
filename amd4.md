@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 18:29:30
-Random Quote: When dead men come hunting us in the night, do you think it matters who sits the Iron Throne?  -  Jeor Mormont
+Last updated: 2024-04-07 18:30:07
+Random Quote: A guy opens his door and gets shot and you think that of me? No. I am the one who knocks! - Walter White

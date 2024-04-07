@@ -1,2 +1,4 @@
-Last updated: 2024-04-07 18:29:30
-Random Quote: The reason why she doesn't remember is because she's a grown up. That's how this stuff always works. Only kids can get into Narnia. - Bode Locke
+Last updated: 2024-04-07 18:30:07
+Random Quote: Rick: "Guests are fans, Morty, which we are not. We'd like professional badges."
+"Do you have a crew?"
+Rick: "Yes. He's a getaway driver with Asperger's and my butt is a demolitions expert." - Rick Sanchez
