@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 07:12:03
-Random Quote: The truth is, our weakness is the same as anyone’s. It’s people. The people we care about. So I say, cut them loose. For your good and for theirs. That way you’re really bulletproof. - Maeve
+Last updated: 2024-04-07 07:12:38
+Random Quote: It is for my prince to command, for Hotah to obey.  -  Areo Hotah
