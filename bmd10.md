@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 06:15:43
-Random Quote: A true man does what he will, not what he must.  -  Cersei Lannister
+Last updated: 2024-04-07 06:16:16
+Random Quote: I was wed three times and my wives gave me daughters.  Now only Beth remains to me.  My brother Martyn fathered four strong sons, yet only Jory lived to be a man.  When he was slain, Martyn's line died with him.  When we speak of the morrow nothing is ever certain.  -  Rodrik Cassel
