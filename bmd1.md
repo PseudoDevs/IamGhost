@@ -1,2 +1,4 @@
-Last updated: 2024-04-07 06:21:33
-Random Quote: It's not Aerys I rue, it's Robert... Why is it no one names Robert oathbreaker?  He tore the realm apart, yet I am the one with shit for honor.  -  Jaime Lannister
+Last updated: 2024-04-07 06:22:07
+Random Quote: Rick: "F you, Summer! And f the government. And f me for letting my car down, which I will never do again."
+Morty: "Jeez, Rick. You can't say FU to your grand-daughter!"
+Rick: "I just did, Morty. Here's dessert: F you!" - Rick Sanchez
