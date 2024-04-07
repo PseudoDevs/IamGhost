@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 20:07:53
-Random Quote: You better go to your room before I give you a smack. Smacking is still an acceptable punishment in many minority cultures. - Nalini Vishwakumar
+Last updated: 2024-04-07 20:08:27
+Random Quote: There must always be a Stark in Winterfell.  -  Catelyn Stark
