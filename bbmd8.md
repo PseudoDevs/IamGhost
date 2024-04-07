@@ -1,2 +1,4 @@
-Last updated: 2024-04-07 17:13:07
-Random Quote: I am not in danger, Skyler. I AM the danger! - Walter White
+Last updated: 2024-04-07 17:14:57
+Random Quote: Joel: "Where'd you get the money for this?"
+Sarah: "Drugs. I sell hardcore drugs."
+Joel: "It's better than what I do." - Joel Miller
