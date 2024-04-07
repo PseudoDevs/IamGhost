@@ -1,2 +1,3 @@
-Last updated: 2024-04-07 18:40:12
-Random Quote: Here's the thing, kids: When you believe in people, people come through. - Ted Mosby
+Last updated: 2024-04-07 18:40:45
+Random Quote: Lily: "Swear on the lifes of your unborn boy and girl!"
+Ted: "I swear... on Luke and Leia!" - Ted Mosby
