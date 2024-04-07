@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 20:19:33
-Random Quote: I prefer my history dead.  Dead history is writ in ink, the living sort in blood.  -  Rodrik Harlaw
+Last updated: 2024-04-07 20:20:40
+Random Quote: Marshall: "Neither of you guys has any game, right? Or else you'd be married. Like me. If dating is the game, then marriage is winning the game."Ted: "Yeah, if you're playing in the women's league!" - Ted Mosby
