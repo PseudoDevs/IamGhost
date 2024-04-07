@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 16:20:40
-Random Quote: One life, one choice, one moment can destroy the entire universe. - The Watcher
+Last updated: 2024-04-07 16:21:13
+Random Quote: You are not the guy. You're not capable of being the guy. I had a guy but now I don't. You are not the guy. - Mike Ehrmantraut
