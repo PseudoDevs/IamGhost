@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 17:27:03
-Random Quote: Serve, Obey, Protect.  Simple vows for a simple man.  -  Areo Hotah
+Last updated: 2024-04-07 17:27:37
+Random Quote: Some battles are won with swords and spears, others with quills and ravens.  -  Tywin Lannister
