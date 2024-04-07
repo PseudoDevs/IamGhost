@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 17:37:24
-Random Quote: Lord Varys, sometimes I feel as though you are the best friend I have in King's Landing and sometimes I feel you are my worst enemy.  -  Tyrion Lannister
+Last updated: 2024-04-07 17:38:37
+Random Quote: There is no creature on earth half so terrifying as a truly just man.  -  Varys
