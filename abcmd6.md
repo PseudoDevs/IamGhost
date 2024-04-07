@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 18:05:46
-Random Quote: Kids, I'm going to tell you an incredible story, the story of how I met your mother. - Ted Mosby
+Last updated: 2024-04-07 18:06:20
+Random Quote: You're both young, you're both unsure about your place in the universe, and you both want to be Grandpa's favorite. I can fix this. Morty, sit here. Summer, you sit here. Now, listen - I know the two of you are very different from each other in a lot of ways, but you have to understand that as far as Grandpa's concerned, you're both pieces of sh-! Yeah, I can prove it mathematically. Actually, l-l-let me grab my whiteboard. This has been a long time coming, anyways. - Rick Sanchez
