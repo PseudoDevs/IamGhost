@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 17:06:42
-Random Quote: Clearly, his taste in women is the same as his taste in lawyers. - Saul Goodman
+Last updated: 2024-04-07 17:07:15
+Random Quote: My father never bellowed like the Greatjon, but he was no less dangerous in his wroth.  -  Alys Karstark
