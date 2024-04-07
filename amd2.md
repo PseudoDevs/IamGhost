@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 17:55:36
-Random Quote: Fine I'll fill her in and I am so angry I am not even goin' to make a joke about "filling her in"... which I did three times last night. Self-five! - Barney Stinson
+Last updated: 2024-04-07 17:56:09
+Random Quote: Fear is the worst enemy of progress. - 
