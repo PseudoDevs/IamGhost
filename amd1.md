@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 04:28:59
-Random Quote: Here's the secret, kids: none of us can vow to be perfect. In the end, all we can do is promise to love each other with everything we've got. Because love's the best thing we do. - Ted Mosby
+Last updated: 2024-04-07 04:30:14
+Random Quote: There are moments in life we should just be able to have a damn remote control, so you could pause it. Even if just for five minutes. But sometimes things happen with irreverent obscenity and there’s nothing you can do to help it. - Tokyo
