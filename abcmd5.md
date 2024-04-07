@@ -1,4 +1,2 @@
-Last updated: 2024-04-07 06:59:14
-Random Quote: Joel: "I need you to tell us where we are."
-Man: "If you got a map, why you lost?"
-Ellie: "Must've missed all the street signs in the enormous f-cking forest." - Ellie Williams
+Last updated: 2024-04-07 06:59:50
+Random Quote: I watched Jane die. I was there. And I watched her die. - Walter White
