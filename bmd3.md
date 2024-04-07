@@ -1,3 +1,2 @@
-Last updated: 2024-04-07 20:24:57
-Random Quote: Mi-nyeo: "Deok-su. You betray me... I'll kill you. Okay?"
-Deok-su: "You're the reason that I think I might die tonight." - Jang Deok-su
+Last updated: 2024-04-07 20:25:32
+Random Quote: What if everything that came from the past was influenced by the future. - H.G. Tannhaus
