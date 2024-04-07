@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 06:41:48
-Random Quote: When dead men come hunting us in the night, do you think it matters who sits the Iron Throne?  -  Jeor Mormont
+Last updated: 2024-04-07 06:42:26
+Random Quote: All religion is a foolish answer to a foolish question. - Thomas Shelby
