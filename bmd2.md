@@ -1,2 +1,4 @@
-Last updated: 2024-04-07 07:16:10
-Random Quote: Rule Number One: Don't ever fall in love with a straight girl. - Alex Vause
+Last updated: 2024-04-07 07:16:43
+Random Quote: Greef: "Be careful, my friend. They've got you outnumbered ten to one."
+Din: "I like these odds."
+Greef: "I bet you do." - Greef Karga
