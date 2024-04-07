@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 07:01:29
-Random Quote: There's something that I need to ask you and I want you to be honest with me. Why do white people like Carrot Top? - Barney Stinson
+Last updated: 2024-04-07 07:02:03
+Random Quote: I learned form Set Arthur Dayne, the Sword of the Morning, who could have slain all five of you with his left hand while he was taking a piss with the right.  -  Jaime Lannister
