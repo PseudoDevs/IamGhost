@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 16:46:23
-Random Quote: Quinn: "In the event of divorce, Miss Garvey shall get full custody of Mr. Stinson's suits."Barney: "Why? What would you do with them?"Quinn: "Nothing. I'd just sit around and watch them go out of style." - Quinn Garvey
+Last updated: 2024-04-07 16:46:58
+Random Quote: I get my best ideas when everybody else is asleep. - Lalo Salamanca
