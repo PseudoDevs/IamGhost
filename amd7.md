@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 18:27:45
-Random Quote: Client: "Please lower your blaster."Mando: "Tell them to lower theirs first."Stormtrooper: "We have you four to one."Mando: "I like those odds." - Din Djarin
+Last updated: 2024-04-07 18:28:20
+Random Quote: A ruler who hides behind paid executioners soon forgets what death is.  -  Eddard Stark
