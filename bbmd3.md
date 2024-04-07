@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 06:02:59
-Random Quote: Rick: "Hey Morty, quick favor."Morty: "What, cover me in gasoline and spiders? Fine, yeah, I'm in."Rick: "Wasn't my first pitch but hey, not gonna waste this opportunity." - Rick Sanchez
+Last updated: 2024-04-07 06:03:33
+Random Quote: Nobody takes an intro class to get on any other path, but the path to not being hungover anymore. I learned that in my intro to something-ology class. - Marshall Eriksen
