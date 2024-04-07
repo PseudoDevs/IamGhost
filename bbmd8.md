@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 17:27:33
-Random Quote: I've been dreaming of that since I was five. Well, that and my own operational Death Star. - Barney Stinson
+Last updated: 2024-04-07 17:29:20
+Random Quote: Barney: "Fine, we'll just have a nice, tasteful rehearsal dinner. Maybe at a French restaurant, I know just the place."Robin: "What's the name of the restaurant?"Barney: "La Sertag." - Barney Stinson

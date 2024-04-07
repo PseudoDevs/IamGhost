@@ -1,2 +1,3 @@
-Last updated: 2024-04-07 17:28:44
-Random Quote: I believe that in this universe, as in every other, hope never dies. As long as someone keeps their good eye on the bigger picture. - Nick Fury
+Last updated: 2024-04-07 17:29:21
+Random Quote: Lily: "Swear on the lifes of your unborn boy and girl!"
+Ted: "I swear... on Luke and Leia!" - Ted Mosby

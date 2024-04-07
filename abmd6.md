@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 17:28:44
-Random Quote: If a man does not use his member it grows smaller and smaller, until one day he wants to piss and cannot find it.  -  Tormund Giantsbane
+Last updated: 2024-04-07 17:29:21
+Random Quote: It seems to me that a queen who trusts no one is as foolish as a queen who trusts everyone.  -  Daenerys Targaryen
