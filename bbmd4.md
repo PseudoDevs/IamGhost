@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 19:23:39
-Random Quote: When I was 13, my father caught me kissing a boy, so he sent me to our family's ranch for foaling season. Once you see a baby horse erupt through that birth canal, you stop even touching yourself! - Robin Scherbatsky
+Last updated: 2024-04-07 19:24:15
+Random Quote: You're like Hitler! But even Hitler cared about Germany or something. - Morty Smith
