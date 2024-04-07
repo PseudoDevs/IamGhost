@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 19:44:38
-Random Quote: I'm still out here. Still getting away with it. Feds couldn't find their own ass with both hands and a proctologist. - Saul Goodman
+Last updated: 2024-04-07 19:45:10
+Random Quote: My daughter has taken an axe for a lover.  I will not have my son bedeck himself like a whore.  It is as I feared.  The green lands have made you soft, and the Starks have made you theirs.  -  Balon Greyjoy
