@@ -1,4 +1,2 @@
-Last updated: 2024-04-07 04:54:21
-Random Quote: Joel: "Long way or short way?"
-Tess: "I mean, it's the long way or the 'we're fuckin' dead' way."
-Ellie: "Well, I vote long way just based on that limited information." - Ellie Williams
+Last updated: 2024-04-07 04:54:54
+Random Quote: February 13th. A magical night, where a ten has the self esteem of a four and the depraved enthusiasm of a two. - Barney Stinson
