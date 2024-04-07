@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 18:10:56
-Random Quote: There have always been men who found it easier to speak vows than to keep them.  -  Arys Oakheart
+Last updated: 2024-04-07 18:11:29
+Random Quote: I'm a Mandalorian. Weapons are part of my religion. - Din Djarin
