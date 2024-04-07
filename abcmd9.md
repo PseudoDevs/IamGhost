@@ -1,2 +1,3 @@
-Last updated: 2024-04-07 20:25:32
-Random Quote: You are slow to learn, Lord Eddard.  Distrusting me was the wisest thing you've don since you climbed down off your horse.  -  Petyr Baelish
+Last updated: 2024-04-07 20:26:06
+Random Quote: Robin: "I'm drinking 'til I forget the 1999 NFC Championship?"
+Marshall: "The Vikings were two minutes away from going to the Super Bowl, when our kicker, who hadn't missed all year, shanked a field goal, and we lost in overtime. Damn!" - Marshall Eriksen
