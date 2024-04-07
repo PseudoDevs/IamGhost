@@ -1,2 +1,5 @@
-Last updated: 2024-04-07 18:09:54
-Random Quote: Dear, in the end, love is what makes us see life in another color, and lately, you have only seen everything black. - Mariví Fuentes
+Last updated: 2024-04-07 18:11:04
+Random Quote: Bo-Katan: "I haven't seen battle droids since the Clone Wars."
+Din: "I have."
+Bo-Katan: "Any of 'em look suspicious?"
+Din: "They all look suspicious." - Din Djarin

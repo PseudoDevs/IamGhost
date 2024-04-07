@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 18:09:18
-Random Quote: We've discussed this, mornings are for coffee and contemplation. - Jim Hopper
+Last updated: 2024-04-07 18:11:04
+Random Quote: We all have things we keep hidden. Sometimes, keeping secrets is how you survive. Because in High School, one rumor, one picture, one incident, can define you forever. - Hannah Baker
