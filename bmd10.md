@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 20:18:03
-Random Quote: F*ck you! And your eyebrows! - Walter White
+Last updated: 2024-04-07 20:18:37
+Random Quote: What is the cost of lies? It's not that we mistake them for the truth. The real danger is that if we hear enough lies, then we no longer recognize the truth at all. - Valery Legasov
