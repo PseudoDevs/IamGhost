@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 19:02:45
-Random Quote: Barney: "Our wedding is gonna be legendary."Robin: "No wait for it?"Barney: "I've got you, I don't have to wait for it anymore." - Barney Stinson
+Last updated: 2024-04-07 19:03:22
+Random Quote: Not all Mandalorians are bounty hunters. Some of us serve a higher purpose. - Bo-Katan
