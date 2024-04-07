@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 19:19:38
-Random Quote: Barney: "I met a girl last night. So perky and full of life and not at all fake."Ted: "You're talking about her boobs, right?"Barney: "Si. And that wasn't Spanish, that was cup size. What up?!" - Barney Stinson
+Last updated: 2024-04-07 19:20:11
+Random Quote: You've been a hell of a wingman. And even though I think it's kind of gross when you pleasure yourself orally, don't ever think that means I'm not impressed. - Barney Stinson
