@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 17:30:35
-Random Quote: Barney: "Fine, we'll just have a nice, tasteful rehearsal dinner. Maybe at a French restaurant, I know just the place."Robin: "What's the name of the restaurant?"Barney: "La Sertag." - Barney Stinson
+Last updated: 2024-04-07 17:31:48
+Random Quote: Words are wind, and the only good wind is that which fills our sails.  -  Victarion Greyjoy
