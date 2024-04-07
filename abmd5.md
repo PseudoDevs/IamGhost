@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 19:18:35
-Random Quote: Young I was, and vain, but the sea washed my follies and my vanities away.  That man drowned, nephew.  His lungs filled with seawater, and the fish ate the scales off his eyes.  When I rose again, I saw clearly.  -  Aeron Greyjoy
+Last updated: 2024-04-07 19:19:41
+Random Quote: Bronn was no knight, that was true.  Bronn was a battle - hardened killer. 
