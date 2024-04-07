@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 06:34:33
-Random Quote: When you're younger, everything feels so permanent. But as you get older, you begin to realize nothing is and everyone you love can drift away. - Rue Bennett
+Last updated: 2024-04-07 06:35:07
+Random Quote: A lie is just a great story that someone ruined with the truth. - Barney Stinson
