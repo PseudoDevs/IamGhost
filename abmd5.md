@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 18:08:30
-Random Quote: Tell the Crow's Eye he's afraid of kinslaying and he'll murder one of his own sons just to prove you wrong.  -  Asha Greyjoy
+Last updated: 2024-04-07 18:09:36
+Random Quote: I hate kids. They don't drink, they haven't travelled... - Nicky Nichols
