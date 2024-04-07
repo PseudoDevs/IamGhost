@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 17:52:50
-Random Quote: I keep making mistakes and not learning from them. - Cassie Howard
+Last updated: 2024-04-07 17:54:04
+Random Quote: For the night is dark and full of terrors.  -  Words of R'hllor
