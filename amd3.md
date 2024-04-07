@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 16:24:22
-Random Quote: I thought you where vomit-free since nintythree... so that was a lie? - Marshall Eriksen
+Last updated: 2024-04-07 16:24:55
+Random Quote: You give me one hour of phone-free bro time, during which we, and by we I mean you, get magnificently, mythologically drunk. I'm talking needing-subtitles-when-you-speak drunk. - Barney Stinson
