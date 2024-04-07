@@ -1,5 +1,2 @@
-Last updated: 2024-04-07 05:13:50
-Random Quote: Marshall: "What the hell happened?"
-Barney: "I said no questions asked."
-Marshall: "Star, clover, horseshoe... Barney, did you swallow real versions of all the Lucky Charms items?"
-Barney: "No questions asked! Now come on. Let's hit the bar. I'm buying. I just won 50 bucks from a little Irish guy on a dare." - Barney Stinson
+Last updated: 2024-04-07 05:14:25
+Random Quote: The world is full of such paradoxes we simply choose to ignore them most of the time. - 
