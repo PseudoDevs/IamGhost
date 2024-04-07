@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 05:38:18
-Random Quote: Enjoy your mai-tai, because soon you will be wearing my tie! - Marshall Eriksen
+Last updated: 2024-04-07 05:38:51
+Random Quote: Dismissing Selmy, where was the sense in that?  Yes, the man was old, but the name of Barristan the Bold still has meaning in the realm.  He lent honor to any man he served.  -  Tywin Lannister
