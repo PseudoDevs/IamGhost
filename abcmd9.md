@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 19:54:58
-Random Quote: You're the smartest guy I ever met, and you're too stupid to see he made up his mind 10 minutes ago. - Hank Schrader
+Last updated: 2024-04-07 19:55:32
+Random Quote: Words are like arrows, Arianne.  Once loosed, you cannot call them back.  -  Areo Hotah
