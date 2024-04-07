@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 18:09:19
-Random Quote: Love is poison.  A sweet poison, yes, but it will kill you all the same.  -  Cersei Lannister
+Last updated: 2024-04-07 18:09:54
+Random Quote: All I know is, he's not in the same grade as me anymoreAnd I'm thrilled. - Missy
