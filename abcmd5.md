@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 05:26:49
-Random Quote: When you tear out a man's tongue, you are not proving him a liar, you're only telling the world that you fear what he might say.  -  Tyrion Lannister
+Last updated: 2024-04-07 05:27:22
+Random Quote: His blood ran black.  Made him my brother as much as yours.  -  Yoren of the Night's Watch
