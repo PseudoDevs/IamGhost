@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 20:28:27
-Random Quote: What Colonel Sanders is to chicken, Saul Goodman is to the law. - Saul Goodman
+Last updated: 2024-04-07 20:30:07
+Random Quote: I dreamed of the man who came today, the one they call Reek.  You and your brother lay dead at his feet, and he was skinning off your faces with a long red blade.  -  Jojen Reed
