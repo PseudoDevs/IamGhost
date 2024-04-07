@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 06:16:02
-Random Quote: The only way to keep your people loyal is to make certain they fear you more than they do the enemy.  -  Cersei Lannister
+Last updated: 2024-04-07 06:16:36
+Random Quote: Lies are necessary, when the truth is too difficult to believe. - Pablo Escobar

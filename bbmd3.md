@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 06:16:03
-Random Quote: A man who sees nothing has no use for his eyes, cut them out and give them to your next outrider.  Tell him you hope that four eyes might see better than two... and if not, the man after him will have six.  -  Gregor Clegane
+Last updated: 2024-04-07 06:16:36
+Random Quote: Perhaps magic was once a mighty force in the world, but no longer.  What little remains is no more than the wisp of smoke that lingers in the air after a great fire has burned out, and even that is fading.  Valyria was the last ember, and Valyria is gone.  -  Maester Luwin
