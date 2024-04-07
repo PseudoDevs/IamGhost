@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 17:17:27
-Random Quote: Sometimes, even when you know something's a mistake, you gotta make it anyway. - Ted Mosby
+Last updated: 2024-04-07 17:18:39
+Random Quote: You Westerosi are all the same.  You sew some beast upon a scrap of silk, and suddenly you are all lions or dragons or eagles.  -  Illyrio Mopatis
