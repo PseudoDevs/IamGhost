@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 17:52:02
-Random Quote: Some battles are won with swords and spears, others with quills and ravens.  -  Tywin Lannister
+Last updated: 2024-04-07 17:52:35
+Random Quote: Very nice, Lily. You know, she is a guest in this country. So while you may choose to turn your back on her, I choose... to turn my front on her. What up! - Barney Stinson
