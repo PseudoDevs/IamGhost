@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 16:23:15
-Random Quote: I'm not sure whose twisted idea it was to put hundreds of adolescents in underfunded schools run by people whose dreams were crushed years ago... but I admire the sadism. - Wednesday Addams
+Last updated: 2024-04-07 16:23:49
+Random Quote: We're going to Buffalo... and I've seen women from there; the city's aptly named. - Barney Stinson
