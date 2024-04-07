@@ -1,6 +1,2 @@
-Last updated: 2024-04-07 19:36:08
-Random Quote: Sam: "They might be a part of the big three."
-Bucky: "What big three?"
-Sam: "Androids, aliens and wizards."
-Bucky: "That's not a thing."
-Sam: "That's definitely a thing." - Sam Wilson
+Last updated: 2024-04-07 19:36:41
+Random Quote: Do it. If you ever want to see these boobs again, crawl, you son of a me. - Lily Aldrin
