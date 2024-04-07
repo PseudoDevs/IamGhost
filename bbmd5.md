@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 04:22:14
-Random Quote: His blood is bad.  He needs to be leeched.  The leeches suck away the bad blood, all the rage and pain.  No man can think so full of anger.  Ramsay, though... his tainted blood would poison even leeches, I fear.  -  Roose Bolton
+Last updated: 2024-04-07 04:22:47
+Random Quote: I'm not in the meth business. I'm in the empire business. - Walter White
