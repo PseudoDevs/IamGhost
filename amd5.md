@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 06:17:00
-Random Quote: Barney: "How's the single life?"Ted: "I wouldn't know. After this whole Robin thing, I'm laying low."Barney: "Laying low as in sleeping with a really short chick? You guys doing thirty-nine?" - Barney Stinson
+Last updated: 2024-04-07 06:17:35
+Random Quote: "Cap'n Cook?" That's not you? Like I said, no one is looking for you. - Walter White
