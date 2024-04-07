@@ -1,4 +1,2 @@
-Last updated: 2024-04-07 17:16:12
-Random Quote: Oh Il-nam: "As a kid, I'm willing to bet you got spanked a lot."
-Seong Gi-hun: "How did you know?"
-Oh Il-nam: "My son did too. He was just like you, friend." - Oh Il-nam
+Last updated: 2024-04-07 17:16:50
+Random Quote: I never asked for this, no more than I asked to be king.  Yet dare I disregard her?  We do not choose our destinies.  Yet we must... we must do our duty, no?  Great or small, we must do our duty.  -  Stannis Baratheon

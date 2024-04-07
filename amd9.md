@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 17:16:13
-Random Quote: He would see this country burn if he could be king of the ashes.  -  Varys
+Last updated: 2024-04-07 17:16:50
+Random Quote: When you date someone, it's like you're taking one long course in who that person is and then, when you break up, all that stuff becomes useless. It's the emotional equivalent of an English degree... - Ted Mosby
