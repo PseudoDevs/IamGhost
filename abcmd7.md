@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 17:08:03
-Random Quote: Tell the Crow's Eye he's afraid of kinslaying and he'll murder one of his own sons just to prove you wrong.  -  Asha Greyjoy
+Last updated: 2024-04-07 17:13:44
+Random Quote: A drum roll?! That's it? So what, you just said good night, came home and... performed a drum solo? - Marshall Eriksen

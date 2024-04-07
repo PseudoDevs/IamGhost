@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 17:13:07
-Random Quote: Give me back my spear, Uncle.  Cersei sent us a head.  We should send her back a bag of them.  -  Obara Sand
+Last updated: 2024-04-07 17:13:44
+Random Quote: Sometimes one has to adjust to a situation as it unfolds. With every calamity comes opportunity. - Virginia Wilson
