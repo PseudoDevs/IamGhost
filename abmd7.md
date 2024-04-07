@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 20:20:53
-Random Quote: Ted: "Those Robin's boobies?"Barney: "When new nubile hotties lean in to inspect your bundle of joy, you can inspect their bundles of joy. The Broller. God, I come up with a lot of good stuff!" - Barney Stinson
+Last updated: 2024-04-07 20:21:27
+Random Quote: Enjoy your mai-tai, because soon you will be wearing my tie! - Marshall Eriksen
