@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 05:56:11
-Random Quote: You gonna ruin my life? I f'ing promise you I can do that a lot better than you can! - Rue Bennett
+Last updated: 2024-04-07 05:57:22
+Random Quote: You think you're the only one he whispers secrets to?  He gives each of us just enough to convince us that we'd be helpless without him.  -  Cersei Lannister
