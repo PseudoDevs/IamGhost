@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 19:04:34
-Random Quote: Tell the Crow's Eye he's afraid of kinslaying and he'll murder one of his own sons just to prove you wrong.  -  Asha Greyjoy
+Last updated: 2024-04-07 19:06:22
+Random Quote: Ted: "Our point guard's a 52-year-old virgin, happy as a clam."Barney: "I'm sure he's quite a ball handler." - Barney Stinson
