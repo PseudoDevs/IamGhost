@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 04:24:07
-Random Quote: We will take them before last night's beer turns to piss. - Chester Campbell
+Last updated: 2024-04-07 04:25:48
+Random Quote: It seems to me that a queen who trusts no one is as foolish as a queen who trusts everyone.  -  Daenerys Targaryen
