@@ -1,5 +1,2 @@
-Last updated: 2024-04-07 07:24:00
-Random Quote: Dina: "You're infuriating."
-Ellie: "Have you met you?"
-Dina: "You make me want to go back outside into that blizzard."
-Ellie: "No one is stopping you." - Joel Miller
+Last updated: 2024-04-07 07:24:33
+Random Quote: Sometimes two people in the universe who aren't meant for each other find each other. - Cal Jacobs
