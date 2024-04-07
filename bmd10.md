@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 05:25:17
-Random Quote: Ted it's fine, I'm a child of divorce. You guys keep fighting all you want - as long as the expensive gifts keep coming. - Lily Aldrin
+Last updated: 2024-04-07 05:25:50
+Random Quote: Ted: "She was 15?!"Barney: "No. A 15. Like in blackjack."Ted: "As in.. not sure whether you'd hit it?"Barney: "Exactly!" - Barney Stinson
