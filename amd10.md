@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 18:15:42
-Random Quote: Robin: "This locket was my grandma's, she kept it hidden in her butt all through world war II."Lily: "What? Where was she?"Robin: "Winnipeg. Come on, Lily, that is a joke." - Robin Scherbatsky
+Last updated: 2024-04-07 18:16:17
+Random Quote: There are no men like me.  There's only me.  -  Jaime Lannister
