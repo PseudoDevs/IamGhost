@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 04:54:35
-Random Quote: I like firsts. Good or bad, they're always memorable. - Ahsoka Tano
+Last updated: 2024-04-07 04:55:14
+Random Quote: She studied Theon Greyjoy's sly smile, wondering what it meant.  That young man had a way of looking as though he knew some secret jest that only he was privy to; Catelyn had never liked it.  -  Catelyn Stark
