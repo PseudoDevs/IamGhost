@@ -1,2 +1,3 @@
-Last updated: 2024-04-07 19:50:16
-Random Quote: Once a horse is broken to the saddle, any man can mount him.  Once a beast's been joined to a man, any skinchanger can slip inside and ride him.  Orell was withering inside his feathers, so I took the eagle for my own.  But the joining works both ways, warg.  Orell lives inside me now, whispering how much he hates you.  And I can soar above the Wall, and see with eagle eyes.  -  Varamyr Sixskins
+Last updated: 2024-04-07 19:50:49
+Random Quote: Hey look, it's the New York City skyline.
+We built Chip City... we built Chip City on all your dough! - Ted Mosby

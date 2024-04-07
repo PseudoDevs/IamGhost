@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 19:50:16
-Random Quote: I mean she just walked out. At least when I walk out on a girl I have the common courtesy to sleep with her first. It's called manners! - Barney Stinson
+Last updated: 2024-04-07 19:50:49
+Random Quote: Marshall: "The broken windows?"Lily: "We had to make it look realistic."Marshall: "But why did you break two of them?"Robin: "It looked like fun when she did it, so I wanted to try."Marshall: "I can't believe this whole time it was you guys; I've been blaming Really Tan Dancing Leotard guy." - Marshall Eriksen

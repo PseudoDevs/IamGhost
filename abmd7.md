@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 19:50:23
-Random Quote: I didn't realize you were small potatoes. And to be clear, I am referring to your testicles. - Robin Scherbatsky
+Last updated: 2024-04-07 19:50:56
+Random Quote: Oh, Cersei is lovely to look at, truly, but cold... the way she guards her cunt, you'd think she had all the gold of Casterly Rock between her legs.  -  Robert Baratheon
