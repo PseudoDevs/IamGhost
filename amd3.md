@@ -1,2 +1,3 @@
-Last updated: 2024-04-07 20:14:33
-Random Quote: The sun is about to set, and we'll be leaving soon. When we return, we're coming in hot. - Din Djarin
+Last updated: 2024-04-07 20:15:06
+Random Quote: Grace: "I had the phone put in. It's in the back."
+Tommy: "If we knew someone else who had a phone, we could call them." - Thomas Shelby
