@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 19:08:48
-Random Quote: This is Hawkins, okay? You wanna know the worst thing that's ever happened here in the four years I've been working here? It was when an owl attacked Eleanor Gillespie's head because it though that her hair was a nest. - Jim Hopper
+Last updated: 2024-04-07 19:09:24
+Random Quote: I feel like love is super dark and no one ever talks about it. - Cassie Howard
