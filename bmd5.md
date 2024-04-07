@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 05:57:58
-Random Quote: There is entirely too much tut - tutting in this realm, if you ask me.  All these kings would do a deal better if they put down their swords and listended to their mothers. 
+Last updated: 2024-04-07 05:58:35
+Random Quote: Always look people in the eye. Even if they're blind. Just say, 'I am looking you in the eye.' - Phil Dunphy
