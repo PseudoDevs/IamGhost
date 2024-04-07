@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 17:44:47
-Random Quote: Yes, it's you who ought to run, you and Lord Tywin and the Mountain and Set Addam and Set Amory and stupid Set Lyonel whoever he is, all of you better run or my brother will kill you, he's a Stark, he's more wolf than man, and so am I.  -  Arya Stark
+Last updated: 2024-04-07 17:46:36
+Random Quote: This is Hawkins, okay? You wanna know the worst thing that's ever happened here in the four years I've been working here? It was when an owl attacked Eleanor Gillespie's head because it though that her hair was a nest. - Jim Hopper

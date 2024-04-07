@@ -1,3 +1,2 @@
-Last updated: 2024-04-07 17:45:23
-Random Quote: Joel: "A deep breath in, slow breath out. You squeeze the trigger like you love it. Gentle, steady, nice and slow."
-Ellie: "You gonna shoot this thing or get it pregnant?" - Ellie Williams
+Last updated: 2024-04-07 17:46:36
+Random Quote: Marshall, you being 18 isn't a bad thing. It just means you get to spend even more of your life with her. - Ted Mosby
