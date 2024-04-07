@@ -1,2 +1,3 @@
-Last updated: 2024-04-07 06:19:21
-Random Quote: You know, it's funny. Almost every woman I've ever met was wrong to give me a chance. You're the first woman who's wrong not to. - Barney Stinson
+Last updated: 2024-04-07 06:19:58
+Random Quote: "I thought Mandalorians were honorable."
+Koska Reeves: "We are, kid. All it takes is a few credits." - Din Djarin

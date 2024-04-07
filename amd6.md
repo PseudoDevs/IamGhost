@@ -1,2 +1,3 @@
-Last updated: 2024-04-07 06:19:22
-Random Quote: If you don't push, I will shove that baby up your throat and pull it out of your mouth! - Dr. Sonya
+Last updated: 2024-04-07 06:19:58
+Random Quote: Robin: "I'm drinking 'til I forget the 1999 NFC Championship?"
+Marshall: "The Vikings were two minutes away from going to the Super Bowl, when our kicker, who hadn't missed all year, shanked a field goal, and we lost in overtime. Damn!" - Marshall Eriksen
