@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 05:14:22
-Random Quote: Ted: "It's the Drunk Train! You crossed out all the stops and wrote Vagina-Ville."Barney: "That's not true. That one says Boner Gardens." - Barney Stinson
+Last updated: 2024-04-07 05:14:59
+Random Quote: Sometimes you gotta do bad things to catch bad people. - Javier Pe�a
