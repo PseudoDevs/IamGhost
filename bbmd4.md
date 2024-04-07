@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 19:56:46
-Random Quote: Lies are necessary, when the truth is too difficult to believe. - Pablo Escobar
+Last updated: 2024-04-07 19:57:53
+Random Quote: It's okay to lose yourself in this, just as long as you can find yourself again. - Nina Locke
