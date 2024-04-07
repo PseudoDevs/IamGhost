@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 20:06:41
-Random Quote: A queen must listen to all.  The highborn and the low, the strong and the weak, the noble and the venal.  One voice may speak you false, but in many there is always truth to be found.  -  Daenerys Targaryen
+Last updated: 2024-04-07 20:07:14
+Random Quote: It doesn't matter how much you push the envelope, it'll still be stationery. - Will Livingston
