@@ -1,4 +1,2 @@
-Last updated: 2024-04-07 16:47:30
-Random Quote: Joel: "You keep going for family."
-Ellie: "I'm not family?"
-Joel: "No. You're cargo." - Joel Miller
+Last updated: 2024-04-07 16:48:05
+Random Quote: You know who's into dragons, Morty? Nerds who refuse to admit they're Christian. - Rick Sanchez
