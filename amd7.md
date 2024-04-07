@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 17:37:06
-Random Quote: You and I are opposites but also just the same. Like an image in a mirror. We hate people and they in turn hate us. And fear us. - Chester Campbell
+Last updated: 2024-04-07 17:37:39
+Random Quote: You're a beautiful, sweet girl. Fuck this guy! - Nicky Nichols
