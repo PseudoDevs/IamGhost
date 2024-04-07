@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 06:15:14
-Random Quote: I've been dreaming of that since I was five. Well, that and my own operational Death Star. - Barney Stinson
+Last updated: 2024-04-07 06:18:46
+Random Quote: Barney: "On your tombstone, it will be, 'Lily Aldrin. Caring wife. Loving friend. Slapbet-Commissioner.'"Marshall: "And your tombstone will read, 'Got slapped by Marhsall so hard he died.'" - Marshall Eriksen
