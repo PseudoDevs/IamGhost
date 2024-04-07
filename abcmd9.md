@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 16:46:43
-Random Quote: I have been called many things, my lord, byt kind is seldom one of them.  -  Maester Aemon
+Last updated: 2024-04-07 16:47:16
+Random Quote: Quinn: "In the event of divorce, Miss Garvey shall get full custody of Mr. Stinson's suits."Barney: "Why? What would you do with them?"Quinn: "Nothing. I'd just sit around and watch them go out of style." - Quinn Garvey
