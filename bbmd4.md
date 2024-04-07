@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 18:18:35
-Random Quote: You know, I always thought that tea was going to taste like hot brown water, and you know what? I was right. It's horrible. - Rebecca Welton
+Last updated: 2024-04-07 18:19:08
+Random Quote: Until the Mountain crushed my brother's skull, no Dornishmen had died in this War of the Five Kings.  Tell me, Captain, is that my shame or my glory?  -  Doran Martell
