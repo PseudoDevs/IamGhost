@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 05:41:03
-Random Quote: The men of Westeros are ever rushing.  What good is this, I ask you?  He who hurries through life hurries to his grave.  -  Salladhor Saan
+Last updated: 2024-04-07 05:41:41
+Random Quote: Think about it, this is perfect.a) It'll make Robin insanly jealousb) You get to have sex with herc) Maybe by getting to know Mary, you'll come to see that cortisens are people tooand d) B! All night long! - Barney Stinson
