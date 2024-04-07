@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 17:07:24
-Random Quote: Robin: "Who wants hot-wings?"Lily: "I'm in... or maybe we should just pour hot-sauce on Barney, since he's a total chicken." - Lily Aldrin
+Last updated: 2024-04-07 17:08:37
+Random Quote: Old stories are like old friends, Old Nan used to say.  You have to visit them from time to time.  -  Bran Stark
