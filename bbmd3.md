@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 16:55:08
-Random Quote: What we know is a drop. What we don’t know is an ocean - 
+Last updated: 2024-04-07 16:56:14
+Random Quote: Grief never gets any smaller, so you have to make yourself bigger around it. The best way to do that is to open up. Let people in. - Rendell Locke
