@@ -1,3 +1,2 @@
-Last updated: 2024-04-07 20:00:07
-Random Quote: Jay: "I got you a little gift to celebrate. I know it’s not much...-"
-Gloria: "It’s practically nothing!" - Gloria Pritchett
+Last updated: 2024-04-07 20:00:41
+Random Quote: Never fear the darkness, Bran.  The strongest trees are rooted in the dark places of the earth.  Darkness will be your cloak, your shield, your mother's milk.  Darkness will make you strong.  -  Bloodraven
