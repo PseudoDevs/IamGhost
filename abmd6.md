@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 16:35:33
-Random Quote: You gonna ruin my life? I f'ing promise you I can do that a lot better than you can! - Rue Bennett
+Last updated: 2024-04-07 16:36:06
+Random Quote: New York! Home of the Mets, the Chrysler Building, those ladies from Sex and the City and now, the zombie apocalypse. If you can make it here, you can make it anywhere - but first, you have to not get eaten. - Spider-Man
