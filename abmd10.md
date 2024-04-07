@@ -1,2 +1,3 @@
-Last updated: 2024-04-07 06:38:50
-Random Quote: When things go well, people start thinking it's because they're so fing smart. - Walt Breslin
+Last updated: 2024-04-07 06:39:26
+Random Quote: Billy: "Halloween's a magical holiday. All about family, friends, and the thrill of getting to be someone else for a day."
+Tommy: "Wrong! Halloween's about candy. And scaring people, but mostly candy." - Tommy Maximoff
