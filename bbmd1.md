@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 04:30:54
-Random Quote: Lily: "Sorry this is taking so long. He kicked for everybody else."Marshall: "It's hard for the little guy to perform under pressure."Barney: "Top ten things Marshall said on his wedding night."Kevin: "Wow! It was small, but I think I felt something."Robin: "Top ten things Lily said on her wedding night." - Robin Scherbatsky
+Last updated: 2024-04-07 04:33:31
+Random Quote: Kevin: "Well, it's a close one. Lily made 14 awkward references to marriage and Marshall made an even 60."Robin: "I'm so sorry, Kevin."Kevin: "It's okay. I'm gonna go to bed, but you guys think tomorrow we can stop with all the marriage talk?"Lily: "I do."Marshall: "I do."Kevin: "That's a half a point each." - Kevin
