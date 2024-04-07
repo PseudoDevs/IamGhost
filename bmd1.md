@@ -1,2 +1,4 @@
-Last updated: 2024-04-07 05:25:50
-Random Quote: I've got a new bro, a bro that puts all other bros to shame. The bitches love him. He buries bones all day. No one chases tail like him. Why aren't you guys laughing? Oh, wait, I probably should have led with this: he's a dog! I've named him Brover. - Barney Stinson
+Last updated: 2024-04-07 05:26:23
+Random Quote: Joel: "Long way or short way?"
+Tess: "I mean, it's the long way or the 'we're fuckin' dead' way."
+Ellie: "Well, I vote long way just based on that limited information." - Ellie Williams
