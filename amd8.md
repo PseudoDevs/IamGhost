@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 04:12:32
-Random Quote: Robert... he is in my dreams as well.  Laughing.  Drinking.  Boasting.  Those were the things he was best at.  Those, and fighting.  I never bested him at anything.  -  Stannis Baratheon
+Last updated: 2024-04-07 04:13:06
+Random Quote: I wish my mental problems made me look like you. - Kat Hernandez
