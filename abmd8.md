@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 17:58:57
-Random Quote: Reality is more than neurons firing around in your brain. Reality is not what's on the inside. It's what's happening on the outside. - Daniel Solace
+Last updated: 2024-04-07 17:59:34
+Random Quote: There's no shame in fear, my father told me, what matters is how we face it.  -  Jon Snow
