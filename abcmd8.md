@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 04:57:44
-Random Quote: I dream of a tree sometimes.  A weirwood, like the one in the godswood.  It calls to me.  The wolf dreams are better.  I smell things, and sometimes I can taste the blood.  -  Bran Stark
+Last updated: 2024-04-07 04:58:22
+Random Quote: There are no true knights, no more than there are gods.  If you can't protect yourself, die and get out of the way of those who can.  Sharp steel and strong arms rule this world, don't ever believe any different.  -  Sandor Clegane
