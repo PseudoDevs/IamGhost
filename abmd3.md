@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 17:46:35
-Random Quote: Ted: "The road to this day has had a few twists and turns, hasn't it?"Marshall: "Yeah... just a few. In a weird way, it all makes sense though, doesn't it?" - Marshall Eriksen
+Last updated: 2024-04-07 17:48:26
+Random Quote: Your innocence may be as plain as the scar on your face, but it will not save you.  No more than your father will.  But I might.  Not as your judge.  As your champion.  -  Oberyn Martell
