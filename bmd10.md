@@ -1,5 +1,2 @@
-Last updated: 2024-04-07 19:38:49
-Random Quote: Morty: "I'm dying, Rick!"
-Rick: "People who are really dying don't keep bringing it up."
-Morty: "Is that true?"
-Rick: "I don't know. I'm just usually around people that die faster." - Rick Sanchez
+Last updated: 2024-04-07 19:39:22
+Random Quote: My father knew the worth of Howland Reed.  -  Robb Stark
