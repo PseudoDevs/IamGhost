@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 20:11:17
-Random Quote: I will go to my grave thinking of my brother's peach.  -  Stannis Baratheon
+Last updated: 2024-04-07 20:12:25
+Random Quote: When you tear out a man's tongue, you are not proving him a liar, you're only telling the world that you fear what he might say.  -  Tyrion Lannister
