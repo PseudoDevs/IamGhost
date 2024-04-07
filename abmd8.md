@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 19:18:56
-Random Quote: Sometimes two people in the universe who aren't meant for each other find each other. - Cal Jacobs
+Last updated: 2024-04-07 19:20:43
+Random Quote: Never forget what you are, for surely the world will not.  Make it your strength.  Then it can never be your weakness.  Armor yourself in it, and it will never be used to hurt you.  -  Tyrion Lannister
