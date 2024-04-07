@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 16:40:04
-Random Quote: Ted: "Grinch, Grinch, Grinch, Grinch!"[The lights turn out]Lily: "Happy? Now you pissed up the big guy upstairs!"Ted: "Yeah, I'm sure god cares if I..."Man: "You use that language again and I turn off your water!"Lily: "It's my super - he lives above me." - Lily Aldrin
+Last updated: 2024-04-07 16:40:36
+Random Quote: Career has been trouncing romance for years. It's like the Globetrotters versus the Generals: Career's sinking hook shots from half court, romance is just a bunch of slow white guys, who couldn't make it in the Italian league. - Ted Mosby
