@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 17:29:23
-Random Quote: I am not a rich person. I am a poor person with money. - Pablo Escobar
+Last updated: 2024-04-07 17:29:58
+Random Quote: Do you think I can't tell Lord Stannis from Lord Tywin?  They're both bungholes who think they're too noble to shit, but never mind about that, I know the difference.  -  Walder Frey
