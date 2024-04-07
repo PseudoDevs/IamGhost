@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 18:53:27
-Random Quote: Marshall, you being 18 isn't a bad thing. It just means you get to spend even more of your life with her. - Ted Mosby
+Last updated: 2024-04-07 18:54:34
+Random Quote: Do you know what it is like to be sold, squire?  I do.  My brother sold me to Khal Drogo for the promise of a golden crown.  Well, Drogo crowned him in gold, though not as he had wished, and I... my sun - and
