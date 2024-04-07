@@ -1,6 +1,3 @@
-Last updated: 2024-04-07 06:21:48
-Random Quote: Sam: "They might be a part of the big three."
-Bucky: "What big three?"
-Sam: "Androids, aliens and wizards."
-Bucky: "That's not a thing."
-Sam: "That's definitely a thing." - Sam Wilson
+Last updated: 2024-04-07 06:22:26
+Random Quote: Jerry: "Rick! Beth! You love me after all!"
+Rick: "Eh, I love her, she loves you. Those credits don't transfer." - Rick Sanchez
