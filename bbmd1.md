@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 18:42:11
-Random Quote: Ted: "Oh hey, where are you guys?"Barney: "We're in a fundraiser, helping young women raise money for community college."Ted: "Stripclub... nice!" - Barney Stinson
+Last updated: 2024-04-07 18:42:44
+Random Quote: Quentyn had never felt so much a boy as when he'd stood before Daenerys Targaryen, pleading for her hand.  The thought of bedding her terrified him almost as much as her dragons had.  -  Quentyn Martell
