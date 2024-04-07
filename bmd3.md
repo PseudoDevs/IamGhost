@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 06:37:00
-Random Quote: You know, I always thought that tea was going to taste like hot brown water, and you know what? I was right. It's horrible. - Rebecca Welton
+Last updated: 2024-04-07 06:37:37
+Random Quote: A queen must listen to all.  The highborn and the low, the strong and the weak, the noble and the venal.  One voice may speak you false, but in many there is always truth to be found.  -  Daenerys Targaryen
