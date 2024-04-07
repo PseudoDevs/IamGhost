@@ -1,2 +1,3 @@
-Last updated: 2024-04-07 07:30:00
-Random Quote: I am IRONBORN!  I laugh at death.  -  Victarion Greyjoy
+Last updated: 2024-04-07 07:30:33
+Random Quote: Larissa: "So you automatically assume a Nevermore student is the murderer, even though there's no evidence a crime was even committed."
+Donovan: "I'm sorry. I forgot, you only teach the good outcasts here, right?" - Donovan Galpin
