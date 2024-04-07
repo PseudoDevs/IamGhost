@@ -1,6 +1,2 @@
-Last updated: 2024-04-07 19:10:55
-Random Quote: Polly: "Six."
-John: "Six what?"
-Polly: "Six questions since you walked through that door. Soon you'll have to start being the man with the answers."
-John: "Why?"
-Polly: "Seven." - Polly Gray
+Last updated: 2024-04-07 19:11:28
+Random Quote: It's just, I know I can be a jerk like him sometimes, and I do not want to be like him. Ever. - Max Mayfield
