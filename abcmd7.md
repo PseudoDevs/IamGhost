@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 19:50:38
-Random Quote: I've known good criminals and bad cops. Bad priests, honorable thieves. You can be on one side of the law or the other. But if you make a deal with somebody, you keep your word. You can go home today with your money and never do this again. But you took something that wasn't yours. And you sold it for a profit. You're now a criminal. Good one, bad one? That's up to you. - Mike Ehrmantraut
+Last updated: 2024-04-07 19:51:12
+Random Quote: No tales were ever told of me.  Do you think I would be sitting here if it were otherwise?  Your amusements are your own, I will not chide you on that count, but you must be more discreet.  A peaceful land, a quiet people.  That has always been my rule.  Make it yours.  -  Roose Bolton

@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 19:50:38
-Random Quote: The Crow's Eye brought back monsters from the east... aye, and wizards too.  -  Tristifer Botley
+Last updated: 2024-04-07 19:51:11
+Random Quote: Because there's no way watching it can be more fun than playing it yourself. - Oh Il-nam
