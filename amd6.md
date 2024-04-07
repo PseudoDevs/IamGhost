@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 18:18:47
-Random Quote: I dreamed of the man who came today, the one they call Reek.  You and your brother lay dead at his feet, and he was skinning off your faces with a long red blade.  -  Jojen Reed
+Last updated: 2024-04-07 18:19:20
+Random Quote: People are making apocalypse jokes like there's no tomorrow. - Will Livingston
