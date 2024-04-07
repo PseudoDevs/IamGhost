@@ -1,3 +1,2 @@
-Last updated: 2024-04-07 18:20:25
-Random Quote: Steven Grant: "I'm not trying to slag off marketing, but there's been a major blunder. Because they've got seven gods here, and the Ennead has nine."
-Donna: "I fired two of them for bein' late. Listen, if you don't stop natterin' at me, I swear I'll shove you in a sarcophagus. You can tell the pharaoh in there what's wrong with them and all." - Arthur Harrow
+Last updated: 2024-04-07 18:21:01
+Random Quote: Imagine you were born in a poor family, in a poor city, in a poor country, and by the time you were 28 years old, you have so much money you can't even count it. What do you do? You make your dreams come true. - Steve Murphy
