@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 18:31:20
-Random Quote: Rattleshirt, we called him.  Treacherous and bloodthirsty.  If there's honor in him, he hides it down beneath his suit of bones.  -  Jon Snow
+Last updated: 2024-04-07 18:31:56
+Random Quote: Some things are more important than doing math problems. - Bode Locke
