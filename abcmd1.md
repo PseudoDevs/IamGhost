@@ -1,2 +1,4 @@
-Last updated: 2024-04-07 20:27:42
-Random Quote: Apart, we're okay. But together we're poison. - Kim Wexler
+Last updated: 2024-04-07 20:28:15
+Random Quote: Oh Il-nam: "As a kid, I'm willing to bet you got spanked a lot."
+Seong Gi-hun: "How did you know?"
+Oh Il-nam: "My son did too. He was just like you, friend." - Oh Il-nam
