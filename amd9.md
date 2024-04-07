@@ -1,4 +1,2 @@
-Last updated: 2024-04-07 20:07:53
-Random Quote: Bro McDonald had a farm, E-I-E-I-bro
-And on that farm he had some chicks, E-I-E-I-bro
-With a hot chick here and a dumb chick there... - Barney Stinson
+Last updated: 2024-04-07 20:08:26
+Random Quote: You know nothing, Jon Snow.  -  Ygritte
