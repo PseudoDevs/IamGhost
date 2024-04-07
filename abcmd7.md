@@ -1,4 +1,2 @@
-Last updated: 2024-04-07 07:03:32
-Random Quote: Greef: "Nevarro is a very fine planet. And now that the scum and villainy have been washed away, it's very respectable again."
-Mando: "As a bounty hunter hive?"
-Greef: "Some of my favorite people are bounty hunters." - Greef Karga
+Last updated: 2024-04-07 07:04:50
+Random Quote: If you mean when will Chernobyl be completly save - the half-life of Plutonium 239 is 24,000 years. Perhaps we should just say, 'not in our lifetimes'. - Valery Legasov
