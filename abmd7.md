@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 18:36:49
-Random Quote: I'm not sure whose twisted idea it was to put hundreds of adolescents in underfunded schools run by people whose dreams were crushed years ago... but I admire the sadism. - Wednesday Addams
+Last updated: 2024-04-07 18:38:01
+Random Quote: I've only known one other being like this. A wise Jedi Master named Yoda. - Ahsoka Tano
