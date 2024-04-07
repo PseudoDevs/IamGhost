@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 07:12:39
-Random Quote: Gustavo. When I looked into your eyes... hate. A little bit's okay. As long as you never forget who's boss. - Don Eladio
+Last updated: 2024-04-07 07:13:15
+Random Quote: My only aim is to take many lives. The more the better I feel. - 
