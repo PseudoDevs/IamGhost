@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 18:23:25
-Random Quote: I think it would put us at a disadvantage if we just choose one. There's this saying in investing, "Try not to keep your eggs in the same basket." - Cho Sang-woo
+Last updated: 2024-04-07 18:25:14
+Random Quote: You're Reek.  You'll always be Reek, no matter how sweet you smell.  Your nose may lie to you.  Remember your name.  Remember who you are.  -  Ramsay Bolton
