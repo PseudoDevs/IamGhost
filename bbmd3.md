@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 05:59:16
-Random Quote: Qhorin was my enemy.  But also my brother, once.  So... shall I thank you for killing him, Jon Snow?  Or curse you?  -  Mance Rayder
+Last updated: 2024-04-07 05:59:50
+Random Quote: Words are like arrows, Arianne.  Once loosed, you cannot call them back.  -  Areo Hotah
