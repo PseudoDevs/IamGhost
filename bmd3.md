@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 19:53:53
-Random Quote: We've always been a trio! We're right up there with Batman and Robin and Alfred. Romeo and Juliet and the apothecary. Salt and pepper and cumin. - Ted Mosby
+Last updated: 2024-04-07 19:54:26
+Random Quote: People are oblivious to reality. They only see what they want to see, when all they have to do is shift their perspective to see the full scope of things. - Yuk Je
