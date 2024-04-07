@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 19:34:42
-Random Quote: Rattleshirt, we called him.  Treacherous and bloodthirsty.  If there's honor in him, he hides it down beneath his suit of bones.  -  Jon Snow
+Last updated: 2024-04-07 19:35:15
+Random Quote: That's what they do, don't they? They show you the world, and then they tell you you can't have it. - Virginia Wilson
