@@ -1,2 +1,3 @@
-Last updated: 2024-04-07 17:57:07
-Random Quote: Sometimes it just feels better not to talk. At All. About Anything. To Anyone. - Walter White
+Last updated: 2024-04-07 17:58:58
+Random Quote: Morty: "I don't like how meta this is getting, Rick."
+Rick: "Shut up, Morty, you're 14. You watch videos of people on YouTube reacting to fing YouTube. I'll be the judge of when we get too meta." - Rick Sanchez
