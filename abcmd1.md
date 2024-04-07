@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 20:22:01
-Random Quote: You and I are opposites but also just the same. Like an image in a mirror. We hate people and they in turn hate us. And fear us. - Chester Campbell
+Last updated: 2024-04-07 20:23:08
+Random Quote: I think it passing odd that I am loved by one for a kindness I never did, and reviled by so many for my finest act.  -  Jaime Lannister
