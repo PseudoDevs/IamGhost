@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 04:26:22
-Random Quote: The Old Gods have no power in the south.  The weirwoods there were all cut down, thousands of years ago.  -  Osha
+Last updated: 2024-04-07 16:18:47
+Random Quote: I'm pretty much the master of handling things completely wrong. - Alex Vause
