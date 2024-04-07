@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 05:31:45
-Random Quote: Night gathers, and now my watch begins.  It shall not end until my death.  I shall take no wife, hold no lands, father no children.  I shall wear no crowns and win no glory.  I shall live and die at my post.  I am the sword in the darkness.  I am the watcher on the walls.  I am the fire that burns against the cold, the light that brings the dawn, the horn that wakes the sleepers, the shield that guards the realms of men.  I pledge my life and honor to the Night's Watch, for this night and all the nights to come.  -  Vow of the Night's Watch
+Last updated: 2024-04-07 05:32:18
+Random Quote: We have to control this fing world, or it will control you. And if you don't protect yourself, it makes a mess and breaks you. - Miguel Angel Felix Gallardo
