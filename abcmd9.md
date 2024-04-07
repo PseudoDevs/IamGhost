@@ -1,2 +1,3 @@
-Last updated: 2024-04-07 17:05:46
-Random Quote: The truth is, our weakness is the same as anyone’s. It’s people. The people we care about. So I say, cut them loose. For your good and for theirs. That way you’re really bulletproof. - Maeve
+Last updated: 2024-04-07 17:06:19
+Random Quote: Planetina: "Your acid rain is an acid pain... in the butt, Diesel Wiesel!"
+Rick: "Yikes! Who's the chick in need of a dialogue pass?" - Rick Sanchez
