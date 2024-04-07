@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 20:28:22
-Random Quote: Robin, girls are like cartons of milk. Each one has a hotness expiration date and you've hit yours. I'm not saying the occasional guy won't still open the fridge, pick you up, give a sniff, shrug and take a sip anyway, but it's all downhill from here. - Barney Stinson
+Last updated: 2024-04-07 20:28:56
+Random Quote: Minds are like swords, I do fear.  The old ones go to rust.  -  Grand Maester Pycelle
