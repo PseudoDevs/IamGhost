@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 17:50:58
-Random Quote: We are smart. And idiots are banging all the time. We can learn how to do it, too. - Fabiola Torres
+Last updated: 2024-04-07 17:52:13
+Random Quote: A family is like a small business. And with a small business, at times, there comes a bit of transition. - Marty Byrde
