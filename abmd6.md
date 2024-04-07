@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 20:14:56
-Random Quote: Ted: "Barney! I'm allowed to miss them, okay? They're my two best friends."Barney: "I'm your two best friends!" - Barney Stinson
+Last updated: 2024-04-07 20:15:29
+Random Quote: When dead men come hunting us in the night, do you think it matters who sits the Iron Throne?  -  Jeor Mormont
