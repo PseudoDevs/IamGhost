@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 20:01:52
-Random Quote: Sometimes a truce is the most important part of a war. - Professor
+Last updated: 2024-04-07 20:02:25
+Random Quote: The pain is his vessel, desire his compass. It is all that man is capable of. - 
