@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 18:11:41
-Random Quote: You think you're the only one he whispers secrets to?  He gives each of us just enough to convince us that we'd be helpless without him.  -  Cersei Lannister
+Last updated: 2024-04-07 18:12:15
+Random Quote: Oh man, I am so excited that you're here! It has been forever since I have been around anyone even remotely fun![to Lily, Robin, Ted and Marshall] Huh... yes, offense! - Barney Stinson
