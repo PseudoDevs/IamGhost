@@ -1,2 +1,3 @@
-Last updated: 2024-04-07 18:03:36
-Random Quote: You think you're the only one he whispers secrets to?  He gives each of us just enough to convince us that we'd be helpless without him.  -  Cersei Lannister
+Last updated: 2024-04-07 18:04:08
+Random Quote: Morty: "What are they mad at you for, anyway?"
+Rick: "Well, we're talking about me. It could be anything." - Rick Sanchez
