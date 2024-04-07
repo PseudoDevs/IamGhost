@@ -1,4 +1,2 @@
-Last updated: 2024-04-07 20:16:46
-Random Quote: Bo-Katan: "I've scugged off a lot of Imperial warlords."
-Din: "They tend to get mad when you hijack their ships."
-Bo-Katan: "Now you tell me." - Bo-Katan
+Last updated: 2024-04-07 20:17:19
+Random Quote: I feel like I've framed my entire womanhood around men. - Jules Vaughn
