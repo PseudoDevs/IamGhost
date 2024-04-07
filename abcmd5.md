@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 05:26:16
-Random Quote: They're minerals, Marie! Jesus! - Hank Schrader
+Last updated: 2024-04-07 05:26:49
+Random Quote: When you tear out a man's tongue, you are not proving him a liar, you're only telling the world that you fear what he might say.  -  Tyrion Lannister
