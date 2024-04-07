@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 05:46:47
-Random Quote: Man cannot tame what God wishes to be wild. - Jacob Snell
+Last updated: 2024-04-07 05:47:20
+Random Quote: You think you're the only one he whispers secrets to?  He gives each of us just enough to convince us that we'd be helpless without him.  -  Cersei Lannister
