@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 05:47:33
-Random Quote: Phil: "Little heads up - there's no way I'm not crying at this wedding."Claire: "Phil, you cried on the way here."Phil: "I was on the brink already. I watched 'Dirty Dancing' before we left." - Phil Dunphy
+Last updated: 2024-04-07 05:48:06
+Random Quote: When treating with liars, even an honest man must lie.  -  Wyman Manderly
