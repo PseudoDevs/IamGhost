@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 18:34:44
-Random Quote: Fire in the hole, bitch! - Jesse Pinkman
+Last updated: 2024-04-07 18:35:51
+Random Quote: When the snows fall and the white winds blow, the lone wolf dies, but the pack survives.  -  Eddard Stark
