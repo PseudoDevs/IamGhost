@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 07:21:07
-Random Quote: His blood is bad.  He needs to be leeched.  The leeches suck away the bad blood, all the rage and pain.  No man can think so full of anger.  Ramsay, though... his tainted blood would poison even leeches, I fear.  -  Roose Bolton
+Last updated: 2024-04-07 07:21:40
+Random Quote: I am one far more accustomed to demanding answers, fool, than to giving them. - Thor
