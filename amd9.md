@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 04:22:26
-Random Quote: Crazy? I'll tell you what's crazy. 50-year-old high school chemistry teacher comes into my office. The guy is so broke, he can't pay his own mortgage. One year later, he's got a pile of cash as big as a Volkswagen. - Saul Goodman
+Last updated: 2024-04-07 04:23:00
+Random Quote: No sword is strong until it's been tempered.  The Stark boy is a child.  No doubt he likes the sound of warhorns well enough, and the sight of his banners fluttering in the wind, but in the end it comes down to butcher's work.  I doubt he has the stomach for it.  -  Tywin Lannister
