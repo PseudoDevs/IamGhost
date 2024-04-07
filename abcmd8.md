@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 07:16:34
-Random Quote: Sometimes, even when you know something's a mistake, you gotta make it anyway. - Ted Mosby
+Last updated: 2024-04-07 07:17:07
+Random Quote: The Red God has his due, sweet girl, and only death may pay for life.  This girl took three that were his.  This girl must give three in their places.  Speak the names, and a man will do the rest.  -  Jaqen H'ghar
