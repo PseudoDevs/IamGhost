@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 18:45:17
-Random Quote: Get ready, Cleveland. The last man to screw you that hard and then disappear, was LeBron James! - Barney Stinson
+Last updated: 2024-04-07 18:45:51
+Random Quote: When I'm king in my own right, I'm going to outlaw beets.  -  Tommen Baratheon
