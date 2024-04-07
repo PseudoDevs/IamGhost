@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 20:21:13
-Random Quote: I can not believe that a woman who was brave enough to travel halfway around the world to pursue her dreams would allow anyone to dictate who she can be with. - Fabiola Torres
+Last updated: 2024-04-07 20:21:46
+Random Quote: Marshall: "Neither of you guys has any game, right? Or else you'd be married. Like me. If dating is the game, then marriage is winning the game."Ted: "Yeah, if you're playing in the women's league!" - Ted Mosby
