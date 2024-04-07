@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 19:07:57
-Random Quote: I actually enjoyed being alone, solitude allowed me to think about important things. - Sheldon Cooper
+Last updated: 2024-04-07 19:08:30
+Random Quote: When you play the game of thrones, you win or you die.  There is no middle ground.  -  Cersei Lannister
