@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 06:12:43
-Random Quote: This guy he's done everything right. He's been loving and devoted since he was 18 years old. There are only a few truly great people on this planet and he is one of them. - Barney Stinson
+Last updated: 2024-04-07 06:13:16
+Random Quote: Do you remember that cave?  We should have stayed in that cave.  I told you so.  -  Ygritte
