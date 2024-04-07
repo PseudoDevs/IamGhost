@@ -1,2 +1,4 @@
-Last updated: 2024-04-07 06:45:29
-Random Quote: I think it would put us at a disadvantage if we just choose one. There's this saying in investing, "Try not to keep your eggs in the same basket." - Cho Sang-woo
+Last updated: 2024-04-07 06:47:50
+Random Quote: Rick: "F you, Summer! And f the government. And f me for letting my car down, which I will never do again."
+Morty: "Jeez, Rick. You can't say FU to your grand-daughter!"
+Rick: "I just did, Morty. Here's dessert: F you!" - Rick Sanchez
