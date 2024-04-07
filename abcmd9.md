@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 19:05:48
-Random Quote: He is strong with the Force, but talent without training is nothing. I will give my life to protect the child, but he will not be safe until he masters his abilities. - Luke Skywalker
+Last updated: 2024-04-07 19:08:14
+Random Quote: Know the men who follow you and let them know you.  Don't ask your men to die for a stranger.  -  Eddard Stark
