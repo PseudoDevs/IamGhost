@@ -1,3 +1,2 @@
-Last updated: 2024-04-07 18:48:29
-Random Quote: Peter Parker: "Splitting up? Do you guys just not have horror movies in Wakanda?"
-Okoye: "We don't need them. We have American reality shows." - Okoye
+Last updated: 2024-04-07 18:49:02
+Random Quote: You could turn King's Landing upside down and not find a single man with a mockingbird sewn over his heart but that does not mean I am friendless.  -  Petyr Baelish

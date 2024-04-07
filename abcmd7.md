@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 18:48:29
-Random Quote: Guard: "Inmate, step away from the machine."Larry: "He just called you 'inmate'."Guard: "You too, sir."Larry: "Sorry." - Larry Bloom
+Last updated: 2024-04-07 18:49:02
+Random Quote: I only have one rule. For every three 10's you bang, throw a bone to a 5. They're grateful and hard working and let's face it, sometimes you just want to lay there. - Barney Stinson
