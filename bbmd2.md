@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 05:37:21
-Random Quote: Dad, you can be in all of the fights that you want, but don't get hurt too bad. - Seong Gi-hun
+Last updated: 2024-04-07 05:37:57
+Random Quote: Any time, a girl wants to get back at her ex-bodyfriends, we'll be there.Any time, a girl wants to solve her father-issues through promiscuity and binge drinking we will be there.Any time a bachelorette party drives through the city in a limo, sticking their heads out the sunroof, shouting 'what's up New York?', we will be what is 'up' New York! - Barney Stinson
