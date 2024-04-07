@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 18:20:26
-Random Quote: Phil: "What a beautiful dress."Gloria: "Thank you, Phil."Phil: "Oh, okay."Claire: "Phil! She said Phil, not feel!" - Claire Dunphy
+Last updated: 2024-04-07 18:21:01
+Random Quote: That's the thing with guys like Nate. They don't actually want a person. They want something they can own and possess. - Rue Bennett
