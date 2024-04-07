@@ -1,2 +1,3 @@
-Last updated: 2024-04-07 18:08:40
-Random Quote: He was a good man... no.  He was a great man.  A maester of the Citadel, chained and sworn, and Sworn Brother of the Night's Watch, ever faithful.  When he was born they named him for a hero who had died too young, but though he lived a long time, his own life was no less heroic.  No man was wiser, or gentler, or kinder.  At the Wall, a dozen lords commander came and went during his years of service, but he was always there to counsel them.  He counseled kings as well.  He could have been a king himself, but when they offered him the crown he told them they should give it to his younger brother.  How many men would do that?  He was the blood of the dragon, but now his fire has gone out.  He was Aemon Targaryen.  And now his watch is ended.  -  Samwell Tarly
+Last updated: 2024-04-07 18:09:16
+Random Quote: Sal: "Does Lily have any other plates? I don't let Sammy eat off this plastic."
+Pepper: "How does she breastfeed him if she doesn't let him near plastic?" - Pepper Saltzman
