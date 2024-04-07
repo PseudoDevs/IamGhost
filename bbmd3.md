@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 20:20:53
-Random Quote: Bring on your storm, my lord... and recall, if you do, the name of this castle.  -  Cortnay Penrose
+Last updated: 2024-04-07 20:21:27
+Random Quote: There is entirely too much tut - tutting in this realm, if you ask me.  All these kings would do a deal better if they put down their swords and listended to their mothers. 

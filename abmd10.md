@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 20:20:53
-Random Quote: Sam Healy: "It's popular fiction. It's like global warming or female ejaculation."Piper: "No! No. No, it's not. This is real."Sam Healy: "How is it real? Wait, which?"Piper: "The chicken. And the... the chicken." - Piper Chapman
+Last updated: 2024-04-07 20:21:27
+Random Quote: Or I look single, 34 and single, which must mean there's something wrong with me. Like, you keep large reptiles in tanks, or I have a very special relationship with my mother. - Larry Bloom
