@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 06:59:33
-Random Quote: I have a tender spot in my heart for cripples, bastards, and broken things.  -  Tyrion Lannister
+Last updated: 2024-04-07 07:00:07
+Random Quote: Serve, Obey, Protect.  Simple vows for a simple man.  -  Areo Hotah
