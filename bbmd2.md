@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 17:15:42
-Random Quote: Being a Mandalorian is not just learning about how to fight. You also have to know how to navigate the Galaxy. That way you'll never be lost. - Din Djarin
+Last updated: 2024-04-07 17:16:15
+Random Quote: I can bring you in warm, or I can bring you in cold. - Din Djarin
