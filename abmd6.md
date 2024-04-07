@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 19:29:26
-Random Quote: In Texas, the holy trinity is God, Football and barbecue. Not necessarily in that order. - Sheldon Cooper
+Last updated: 2024-04-07 19:30:00
+Random Quote: I dream of a tree sometimes.  A weirwood, like the one in the godswood.  It calls to me.  The wolf dreams are better.  I smell things, and sometimes I can taste the blood.  -  Bran Stark
