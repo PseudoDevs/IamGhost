@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 05:16:53
-Random Quote: Guard: "Inmate, step away from the machine."Larry: "He just called you 'inmate'."Guard: "You too, sir."Larry: "Sorry." - Larry Bloom
+Last updated: 2024-04-07 05:17:29
+Random Quote: You give me one hour of phone-free bro time, during which we, and by we I mean you, get magnificently, mythologically drunk. I'm talking needing-subtitles-when-you-speak drunk. - Barney Stinson
