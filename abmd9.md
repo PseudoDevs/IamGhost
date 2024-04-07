@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 20:13:14
-Random Quote: Asha Greyjoy did not intend to be taken alive.  She would die as she had lived, with an axe in her hand and a laugh upon her lips.  -  Asha Greyjoy
+Last updated: 2024-04-07 20:13:47
+Random Quote: Science is neat, but I’m afraid it’s not very forgiving. - Scott Clarke
