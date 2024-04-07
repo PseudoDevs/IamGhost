@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 19:35:32
-Random Quote: I'm pretty much the master of handling things completely wrong. - Alex Vause
+Last updated: 2024-04-07 19:36:04
+Random Quote: The stone is strong... the roots of the trees grow deep, and under the ground the Kings of Winter sit their thrones.  So long as those remained, Winterfell remained.  It was not dead, just broken.  Like me... I'm not dead either.  -  Bran Stark
