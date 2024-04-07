@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 04:57:06
-Random Quote: Be careful who you put your faith in. The only people who can betray us, are the ones we trust. - Maria Miller
+Last updated: 2024-04-07 04:57:43
+Random Quote: Asha Greyjoy did not intend to be taken alive.  She would die as she had lived, with an axe in her hand and a laugh upon her lips.  -  Asha Greyjoy
