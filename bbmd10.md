@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 18:14:29
-Random Quote: Lily: "Okay, stop! Every time he lands, that chair farts out ten-year-old Dorito dust."Marshall: "Yeah, it's the chair..." - Marshall Eriksen
+Last updated: 2024-04-07 18:15:02
+Random Quote: You have to be as bad as them above in order to survive. - Polly Gray
