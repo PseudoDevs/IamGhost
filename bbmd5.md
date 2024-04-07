@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 17:25:13
-Random Quote: Nancy Wheeler: "You're supposed to hit the cans, right?"Jonathan Byers: "No, actually - you see the spaces in between the cans? I'm aiming for those." - Jonathan Byers
+Last updated: 2024-04-07 17:25:47
+Random Quote: Among all the games that kids played back then, it was the most physical and violent. - Seong Gi-hun
