@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 16:25:36
-Random Quote: Don Eladio, look into Fring's eyes. There you will see the truth. The Chicken Man hates you. He is our enemy. He plots against us. I demand blood for blood. - Hector Salamanca
+Last updated: 2024-04-07 16:26:09
+Random Quote: You better go to your room before I give you a smack. Smacking is still an acceptable punishment in many minority cultures. - Nalini Vishwakumar
