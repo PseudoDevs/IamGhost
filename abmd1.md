@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 07:02:20
-Random Quote: Harry and Meghan, move over! This is what fairy tales are made of. They'd been together for two whole weeks, which for teenagers is basically a lifetime of monogamy. Although between us, it had been a surprisingly PG-13 two weeks. - John McEnroe
+Last updated: 2024-04-07 07:02:56
+Random Quote: A lie is just a great story that someone ruined with the truth. - Barney Stinson
