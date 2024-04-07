@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 20:12:59
-Random Quote: So you're the therapist. You know it's one thing to pretend to be a shrink and bang your patients, that's normal. But to do it for real? Little creepy bro. - Barney Stinson
+Last updated: 2024-04-07 20:13:32
+Random Quote: He would see this country burn if he could be king of the ashes.  -  Varys

@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 20:12:59
-Random Quote: Tormund Giantsbane seemed to me the sort of man who would make a good friend and a bad enemy, your Grace.  -  Jon Snow
+Last updated: 2024-04-07 20:13:32
+Random Quote: I'm not sure whose twisted idea it was to put hundreds of adolescents in underfunded schools run by people whose dreams were crushed years ago... but I admire the sadism. - Wednesday Addams
