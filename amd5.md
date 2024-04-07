@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 16:56:14
-Random Quote: I'm going to tell you something curious about prisons. You're never alone. But you always have the feeling that you are. - Don Neto
+Last updated: 2024-04-07 16:56:46
+Random Quote: You think you're the only one he whispers secrets to?  He gives each of us just enough to convince us that we'd be helpless without him.  -  Cersei Lannister
