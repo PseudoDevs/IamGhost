@@ -1,5 +1,2 @@
-Last updated: 2024-04-07 04:20:34
-Random Quote: Morty: "I'm dying, Rick!"
-Rick: "People who are really dying don't keep bringing it up."
-Morty: "Is that true?"
-Rick: "I don't know. I'm just usually around people that die faster." - Rick Sanchez
+Last updated: 2024-04-07 04:21:09
+Random Quote: Larry: "Where would you like me to put it then, Piper?"Piper: "Up your ass."Larry: "There's no room. Apparently, my head's already up there." - Larry Bloom
