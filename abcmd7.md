@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 20:12:52
-Random Quote: Pictures can be twisted and used against you and haunt you forever. - Hannah Baker
+Last updated: 2024-04-07 20:13:25
+Random Quote: A mind needs books as a sword needs a whetstone, if it is to keep its edge.  -  Tyrion Lannister
