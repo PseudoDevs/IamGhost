@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 16:41:55
-Random Quote: Pardon me, but you really hurt my feelings. - Hannah Baker
+Last updated: 2024-04-07 16:43:02
+Random Quote: I am IRONBORN!  I laugh at death.  -  Victarion Greyjoy
