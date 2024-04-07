@@ -1,2 +1,4 @@
-Last updated: 2024-04-07 07:17:20
-Random Quote: Get the keys and remove those chains from him, before you make me rue the day I raped your mother.  -  Roose Bolton
+Last updated: 2024-04-07 07:17:54
+Random Quote: Rebecca: "So, I spoke to the owner of The Sun."
+Ted: "You spoke to God?!"
+Rebecca: "No, the newspaper." - Rebecca Welton
