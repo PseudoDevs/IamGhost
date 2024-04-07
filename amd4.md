@@ -1,3 +1,2 @@
-Last updated: 2024-04-07 04:17:36
-Random Quote: Morty: "I don't like how meta this is getting, Rick."
-Rick: "Shut up, Morty, you're 14. You watch videos of people on YouTube reacting to fing YouTube. I'll be the judge of when we get too meta." - Rick Sanchez
+Last updated: 2024-04-07 04:18:09
+Random Quote: I've killed a lot more than him, I promise you.  You think that makes me some monster.  Well, maybe it does, but I saved your sister's life too.  The day the mob pulled her off her horse, I cut through them and brought her back to the castle, else she would have gotten what Lollys Stokeworth got.  And she sang for me.  You didn't know that, did you?  Your sister sang me a sweet little song.  -  Sandor Clegane
