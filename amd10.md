@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 17:49:42
-Random Quote: You think you've lost everything? You have no idea! - Kim Wexler
+Last updated: 2024-04-07 17:50:21
+Random Quote: I dream of a tree sometimes.  A weirwood, like the one in the godswood.  It calls to me.  The wolf dreams are better.  I smell things, and sometimes I can taste the blood.  -  Bran Stark
