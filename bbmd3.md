@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 18:07:05
-Random Quote: Don't go chasing waterfalls. Stick to the rivers and the lakes that you're used to. - Klaus Hargreeves
+Last updated: 2024-04-07 18:08:11
+Random Quote: You think you're the only one he whispers secrets to?  He gives each of us just enough to convince us that we'd be helpless without him.  -  Cersei Lannister
