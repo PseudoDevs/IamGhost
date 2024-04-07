@@ -1,3 +1,2 @@
-Last updated: 2024-04-07 05:37:15
-Random Quote: Larissa: "So you automatically assume a Nevermore student is the murderer, even though there's no evidence a crime was even committed."
-Donovan: "I'm sorry. I forgot, you only teach the good outcasts here, right?" - Donovan Galpin
+Last updated: 2024-04-07 05:37:48
+Random Quote: We are all full of sin. No pure human being exists. But no matter what we do, we never fall any lower than into God’s hands. - Noah
