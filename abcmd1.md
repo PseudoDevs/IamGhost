@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 17:31:51
-Random Quote: I never asked for this, no more than I asked to be king.  Yet dare I disregard her?  We do not choose our destinies.  Yet we must... we must do our duty, no?  Great or small, we must do our duty.  -  Stannis Baratheon
+Last updated: 2024-04-07 17:33:42
+Random Quote: I can teach you history, healing, herblore.  I can teach you the speech of ravens, and how to build a castle, and the way a sailor steers his ship by the stars I can teach you to measure the days and marks the seasons, and at the Citadel in Oldtown they can teach you a thousand things more.  But, Bran, no man can teach you magic.  -  Maester Luwin
