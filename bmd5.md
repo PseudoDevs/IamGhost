@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 05:18:16
-Random Quote: Larry Bloom: "Piper, you put a pee stick in my rinsing cup."Piper Chapman: "Well, you put your pee stick in my vagina. And that's why we're in this situation." - Piper Chapman
+Last updated: 2024-04-07 05:18:49
+Random Quote: Out there, I don't stand a chance. I do in here. - Jang Deok-su
