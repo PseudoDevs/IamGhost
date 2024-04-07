@@ -1,4 +1,2 @@
-Last updated: 2024-04-07 18:12:12
-Random Quote: Tony Stark: "Lieutenant Killmonger? What is that? German?"
-Killmonger: "A nickname."
-Tony Stark: "That's clearly a good fit." - Killmonger
+Last updated: 2024-04-07 18:12:47
+Random Quote: You're the smartest guy I ever met, and you're too stupid to see he made up his mind 10 minutes ago. - Hank Schrader
