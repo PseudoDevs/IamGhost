@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 16:24:22
-Random Quote: Whatever you do in this life, it's not legendary, unless your friends are there to see it. - Barney Stinson
+Last updated: 2024-04-07 16:24:56
+Random Quote: The Peaky Blinders. The vicious, merciless gangs who blind those who see and cut out the tongues of those who talk. - Chester Campbell
