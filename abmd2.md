@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 17:04:18
-Random Quote: Every journey has a beginning. But change one step along the way, and you could end up at a very different destination. - The Watcher
+Last updated: 2024-04-07 17:04:52
+Random Quote: The World is going to come to an end tonight. Yes think about it. End of the World, Nostradamus, Notre Dame, Fighting Irish, Irish, St. Patrick's Day. This is it Bro. Bro-calypse Now... Bro-Mageddon. - Barney Stinson
