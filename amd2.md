@@ -1,2 +1,3 @@
-Last updated: 2024-04-07 16:26:36
-Random Quote: God has a plan for every human being. - 
+Last updated: 2024-04-07 16:27:43
+Random Quote: Lily: "We're going to Atlantic City to elope - right now!"
+Barney: "Oh, congratulations Lily! Marshall, you're getting married? What the hell?" - Barney Stinson
