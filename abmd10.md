@@ -1,6 +1,2 @@
-Last updated: 2024-04-07 20:14:39
-Random Quote: Rick: "Just do a Die Hard!"
-Summer: "What does that mean?"
-Rick: "Sneak around! Use air vents! You've never seen Die Hard?"
-Summer: "I'm 17. No, I've never seen Die Hard."
-Rick: "Well, neither did the guy in Die Hard." - Rick Sanchez
+Last updated: 2024-04-07 20:15:13
+Random Quote: I guess we all have things we try to hide. But they can't stay hidden forever. - Hannah Baker
