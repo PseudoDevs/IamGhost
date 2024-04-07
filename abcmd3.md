@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 16:25:02
-Random Quote: I've lost a hand, a father, a son, a sister, and a lover, and soon enough I will lose a brother.  And yet they keep telling me House Lannister has won this war.  -  Jaime Lannister
+Last updated: 2024-04-07 16:25:36
+Random Quote: Don Eladio, look into Fring's eyes. There you will see the truth. The Chicken Man hates you. He is our enemy. He plots against us. I demand blood for blood. - Hector Salamanca
