@@ -1,3 +1,2 @@
-Last updated: 2024-04-07 20:12:52
-Random Quote: Lily: "I can't believe I unloaded like that on a high-school senior."
-Robin: "I can't believe a high-school senior unloaded like that on me." - Robin Scherbatsky
+Last updated: 2024-04-07 20:13:26
+Random Quote: My only aim is to take many lives. The more the better I feel. - 
