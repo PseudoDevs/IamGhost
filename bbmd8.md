@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 18:39:06
-Random Quote: If I hadn't buried my feelings so deep I would totally be tearing up right now. - Maritza Ramos
+Last updated: 2024-04-07 18:39:39
+Random Quote: Strip off their skins.  Lord Bolton, he used to say a naked man has few secrets, but a flayed man's got none.  -  Ramsay Bolton

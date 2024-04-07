@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 18:36:14
-Random Quote: I have people waiting for me. They don't know what I do, they never will. They're protected. But I do what I do so they can have a better life. And if I live or if I die, it really doesn't make a difference to me as long as they have what they need. So when it's my time to go, I will go knowing I did everything I could for them. Now, you ask me how I keep going? That's how. - Mike Ehrmantraut
+Last updated: 2024-04-07 18:39:39
+Random Quote: Every time I go after a busty dullard who can't tell time or thinks I'm the ghost of Leonardo DiCaprio, I'm shallow. But somehow it's okay for Robin to date a guy who can't be trusted around outlets. - Barney Stinson

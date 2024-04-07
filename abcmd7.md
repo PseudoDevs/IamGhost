@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 18:39:06
-Random Quote: Mando: "I was not born on Mandalore."Greef Karga: "But you're Mandalorian?"Cara Dune: "Mandalorian isn't a race."Mando: "It's a Creed." - Din Djarin
+Last updated: 2024-04-07 18:39:39
+Random Quote: Get the f out of here and don't stop walking until you hear them speak English! - Guillermo Gonzalez Calderoni
