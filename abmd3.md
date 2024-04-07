@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 07:05:45
-Random Quote: So you do have a plan? Yeah, Mr. White! Yeah, science! - Jesse Pinkman
+Last updated: 2024-04-07 07:06:18
+Random Quote: Elia Martell, Princess of Dorne.  You raped her!  You murdered her!  You killed her children!  -  Oberyn Martell
