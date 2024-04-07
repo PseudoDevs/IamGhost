@@ -1,4 +1,2 @@
-Last updated: 2024-04-07 18:24:54
-Random Quote: Morty: "Mom told me she wanted me to stay here to make sure you didn't die."
-Jerry: "Well, you tell your mother that I'm gonna be fine."
-Rick: "Don't train your child to lie, Jerry." - Rick Sanchez
+Last updated: 2024-04-07 18:25:27
+Random Quote: There are so many great things to do with the human mouth, why waste it on talking? - Barney Stinson
