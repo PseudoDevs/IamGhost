@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 06:45:29
-Random Quote: A Dothraki wedding without at least three deaths is considered a dull affair.  -  Illyrio Mopatis
+Last updated: 2024-04-07 06:46:03
+Random Quote: I swear on my name. And the names of the Ancestors, that I shall walk the way of the Mand'alor and the words of the Creed shall be forever forged in my heart. - Din Djarin
