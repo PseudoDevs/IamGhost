@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 16:42:17
-Random Quote: Men of honor will do things for their children that they would never consider doing for themselves.  -  Petyr Baelish
+Last updated: 2024-04-07 16:44:02
+Random Quote: These old knights are more cunning than you think, or they would never have lived to see their first grey hair.  -  Dagmer Cleftjaw
