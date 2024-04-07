@@ -1,2 +1,4 @@
-Last updated: 2024-04-07 20:32:46
-Random Quote: A sorcerer is a wizard without a hat. - Sam Wilson
+Last updated: 2024-04-07 20:33:19
+Random Quote: Joel: "Where'd you get the money for this?"
+Sarah: "Drugs. I sell hardcore drugs."
+Joel: "It's better than what I do." - Joel Miller
