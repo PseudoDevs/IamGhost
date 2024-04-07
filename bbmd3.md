@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 18:52:40
-Random Quote: Marshall: "The last time I lived this far from him, was my semester abroad."Lily: "You never did a semester abroad?"Marshall: "That's what I called it, when we lived on opposite sides of the campus." - Marshall Eriksen
+Last updated: 2024-04-07 18:53:15
+Random Quote: Then odds are he'll be near a settlement, probably close to another city out there. Ain't too many of 'em in Wyoming. - Joel Miller
