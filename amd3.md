@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 17:37:24
-Random Quote: Have you ever thought that if you could go back in time, you might still make the same decisions? We all make our own snowballs out of our bad decisions. Balls that become massive, like the Indiana Jones boulder, chasing you down-hill only to crush you in the end. - Tokyo
+Last updated: 2024-04-07 17:38:38
+Random Quote: You want to hurt these guys, we gotta take down the ones calling the shots. - Jaime Kuykendall
