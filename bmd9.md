@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 07:17:21
-Random Quote: Think of me as Yoda - only, instead of being little and green, I wear suits and I'm awesome. I'm your bro. I'm Broda. - Barney Stinson
+Last updated: 2024-04-07 07:19:03
+Random Quote: Hey, want to come to my house and play telephone? I got the string, you got the cans. - Barney Stinson
