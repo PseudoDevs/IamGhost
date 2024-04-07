@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 07:11:30
-Random Quote: These old knights are more cunning than you think, or they would never have lived to see their first grey hair.  -  Dagmer Cleftjaw
+Last updated: 2024-04-07 07:13:52
+Random Quote: You see, ladies? When you're out with a Blinder, you don't have to queue. - Arthur Shelby
