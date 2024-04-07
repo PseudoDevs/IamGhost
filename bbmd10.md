@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 06:13:16
-Random Quote: Hello heart... thought I'd lost ya. - Rue Bennett
+Last updated: 2024-04-07 06:13:49
+Random Quote: Then perhaps Lord Eddard should have kept you chained to a dungeon wall.  Instead he raised you among his own sons, the sweet boys you have butchered, and to my undying shame I trained you in the arts of war.  Would that I had thrust a sword through your belly instead of placing one in your hand.  -  Rodrik Cassel
