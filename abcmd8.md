@@ -1,2 +1,5 @@
-Last updated: 2024-04-07 18:59:43
-Random Quote: We all face the same end. Those above have long forgotten us. They do not judge us. In death, I am all alone, and my only judge… is me. - Martha
+Last updated: 2024-04-07 19:00:20
+Random Quote: Marshall: "What the hell happened?"
+Barney: "I said no questions asked."
+Marshall: "Star, clover, horseshoe... Barney, did you swallow real versions of all the Lucky Charms items?"
+Barney: "No questions asked! Now come on. Let's hit the bar. I'm buying. I just won 50 bucks from a little Irish guy on a dare." - Barney Stinson
