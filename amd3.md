@@ -1,2 +1,3 @@
-Last updated: 2024-04-07 20:01:15
-Random Quote: What good is having all the money in the world if you can't go home? - Tata Escobar
+Last updated: 2024-04-07 20:01:48
+Random Quote: Lily: "Swear on the lifes of your unborn boy and girl!"
+Ted: "I swear... on Luke and Leia!" - Ted Mosby
