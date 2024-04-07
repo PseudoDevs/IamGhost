@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 17:03:19
-Random Quote: They say the king loved to hunt.  The things we love destroy us every time, lad.  Remember that.  -  Jeor Mormont
+Last updated: 2024-04-07 17:03:52
+Random Quote: Only their shadows, One most of all.  A tall and twisted thing with one black eye and ten long arms, sailing on a sea of blood.  -  Moqorro
