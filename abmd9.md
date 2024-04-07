@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 17:30:34
-Random Quote: They are knights now, all three, and your sister has promised them further advancement.  And the eldest, Set Osmund of the Kingsguard, dreams of certain other... favors... as well.  You can match the queen coin for coin, I have no doubt, but she has a second purse that is quite inexhaustible.  -  Varys
+Last updated: 2024-04-07 17:34:18
+Random Quote: There are worse ways to die than warm and drunk.  I knew a brother drowned himself in wine once.  It was a poor vintage, though, and his corpse did not improve it.  -  Dolorous Edd Tollett
