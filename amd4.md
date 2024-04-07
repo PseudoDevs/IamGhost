@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 04:58:58
-Random Quote: Tell the Crow's Eye he's afraid of kinslaying and he'll murder one of his own sons just to prove you wrong.  -  Asha Greyjoy
+Last updated: 2024-04-07 04:59:34
+Random Quote: If you don't like where you're heading, there's no shame in going back and changing your path. - Chuck McGill
