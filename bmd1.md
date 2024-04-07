@@ -1,4 +1,2 @@
-Last updated: 2024-04-07 05:26:23
-Random Quote: Joel: "Long way or short way?"
-Tess: "I mean, it's the long way or the 'we're fuckin' dead' way."
-Ellie: "Well, I vote long way just based on that limited information." - Ellie Williams
+Last updated: 2024-04-07 05:26:56
+Random Quote: She studied Theon Greyjoy's sly smile, wondering what it meant.  That young man had a way of looking as though he knew some secret jest that only he was privy to; Catelyn had never liked it.  -  Catelyn Stark
