@@ -1,2 +1,3 @@
-Last updated: 2024-04-07 18:05:25
-Random Quote: Elia of Dorne.  I killed her screaming whelp.  Then I raped her.  Then I smashed her fucking head in like this.  -  Gregor Clegane
+Last updated: 2024-04-07 18:05:59
+Random Quote: Morty: "I don't deserve this. I was just having fun."
+Rick: "So was Jeffrey Dahmer." - Rick Sanchez
