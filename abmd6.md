@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 20:27:48
-Random Quote: Lily: "Ted, you did this all yourself?"Ted: "Just like Ryan Gosling in 'The Notebook'. It was pretty manly 'til I mentioned Ryan Gosling in 'The Notebook', huh?" - Ted Mosby
+Last updated: 2024-04-07 20:28:22
+Random Quote: Robin, girls are like cartons of milk. Each one has a hotness expiration date and you've hit yours. I'm not saying the occasional guy won't still open the fridge, pick you up, give a sniff, shrug and take a sip anyway, but it's all downhill from here. - Barney Stinson
