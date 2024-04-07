@@ -1,2 +1,3 @@
-Last updated: 2024-04-07 05:02:03
-Random Quote: The common people pray for rain, healthy children, and a summer that never ends.  It is no matter to them if the high lords play their game of thrones, so long as they are left in peace.  They never are.  -  Jorah Mormont
+Last updated: 2024-04-07 05:03:18
+Random Quote: Jerry: "Space sperm? Sperm from... space?"
+Rick: "Very impressive verbal forensic work, Jerry." - Rick Sanchez
