@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 17:21:46
-Random Quote: No, that you think you'll graduate High-School. - Meemaw
+Last updated: 2024-04-07 17:22:19
+Random Quote: When the snows fall and the white winds blow, the lone wolf dies, but the pack survives.  -  Eddard Stark
