@@ -1,3 +1,2 @@
-Last updated: 2024-04-07 04:17:46
-Random Quote: "How do you take your tea?"
-Ted: "Well, normally right back to the counter because there's been a terrible mistake." - Jim Hopper
+Last updated: 2024-04-07 04:18:19
+Random Quote: Many good men have been bad kings, and some bad men have been good kings.  -  Maester Aemon
