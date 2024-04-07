@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 19:44:08
-Random Quote: The only way Ralph would remember our anniversary is if there was a beer named "June 2nd". - Agatha Harkness
+Last updated: 2024-04-07 19:44:41
+Random Quote: I have served six kings, but here before us lies the greatest man I ever knew.  Lord Tywin wore no crown, yet he was all a king should be.  -  Grand Maester Pycelle
