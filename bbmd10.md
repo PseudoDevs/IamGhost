@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 16:57:26
-Random Quote: Stella's sister: "I'm a vegan. I wish I could tune out that moral voice inside me, that says eating animals is murder. But I guess I'm just not as strong as you are."Ted: "That's 'cause you need protein. I'll have the lamb." - Ted Mosby
+Last updated: 2024-04-07 16:57:58
+Random Quote: No sword is strong until it's been tempered.  The Stark boy is a child.  No doubt he likes the sound of warhorns well enough, and the sight of his banners fluttering in the wind, but in the end it comes down to butcher's work.  I doubt he has the stomach for it.  -  Tywin Lannister
