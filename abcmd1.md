@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 20:08:35
-Random Quote: I never wanted any of it to change, but that's not how life works. - Ted Mosby
+Last updated: 2024-04-07 20:09:08
+Random Quote: You need to figure out what the fuck you want. - Nicky Nichols
