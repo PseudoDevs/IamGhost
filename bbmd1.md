@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 07:15:28
-Random Quote: Kingthlayer... you are my captifth.  -  Vargo Hoat
+Last updated: 2024-04-07 07:16:01
+Random Quote: Winter will never come for the likes of us.  Should we die in battle, they will surely sing of us, and it's always summer in the songs.  In the songs all knights are gallant, all maids are beautiful, and the sun is always shining.  -  Brienne of Tarth
