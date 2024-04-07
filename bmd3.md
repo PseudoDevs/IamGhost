@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 04:24:41
-Random Quote: Now my bastards presume to teach me courtesy.  I'll speak any way I like, damn you.  I've had three kings to guest in my life, and queens as well, do you think I require lessons from the likes of you, Ryger?  Your mother was milking goats the first time I gave her my seed.  -  Walder Frey
+Last updated: 2024-04-07 04:25:14
+Random Quote: Every year, there are a million new, hot 22-year-olds walking into bars and call me "glass-half-full"... but I think they're getting dumber. - Barney Stinson
