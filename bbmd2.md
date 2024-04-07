@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 04:32:00
-Random Quote: So many vows... they make you swear and swear.  Defend the king.  Obey the king.  Keep his secrets.  Do his bidding.  Your life for his.  But obey your father.  Love your sister.  Protect the innocent.  Defend the week.  Respect the gods.  Obey the laws.  It's too much.  No matter what you do, you're forsaking one vow for the other.  -  Jaime Lannister
+Last updated: 2024-04-07 04:32:33
+Random Quote: I hate it when you talk sometimes. No... all the time. - Nicky Nichols
