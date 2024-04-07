@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 20:05:51
-Random Quote: Obara would make Oldtown our father's funeral pyre, but I am not so greedy.  Four lives will suffice for me.  Lord Tywin's golden twins, as payment for Elia's children.  The old lion, for Elia herself.  And last of all the little king, for my father... only royal blood can wash out my father's murder.  -  Nymeria Sand
+Last updated: 2024-04-07 20:06:23
+Random Quote: If we say some prayers, do we all get to go to heaven? I should really pray too if that's how easy it is. Our God who art in Heaven, we worked as a team to send people to your side. And we sent a bunch of them today. And please help us with a whole lot more to be with you. - Oh Il-nam
