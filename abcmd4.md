@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 06:46:37
-Random Quote: You ought to have no trouble catching our uncles.  One is drunk on seawater, after all, and the other is a great grey bullock so dim he'll probably get lost.  -  Asha Greyjoy
+Last updated: 2024-04-07 06:47:13
+Random Quote: All men are fools, if truth be told, but the ones in motley are more amusing than the ones with crowns.  -  Olenna Tyrell
