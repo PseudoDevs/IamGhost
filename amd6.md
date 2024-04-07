@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 04:48:49
-Random Quote: Weakness is not in us, it is what we have outside. - Professor
+Last updated: 2024-04-07 04:49:28
+Random Quote: Dismissing Selmy, where was the sense in that?  Yes, the man was old, but the name of Barristan the Bold still has meaning in the realm.  He lent honor to any man he served.  -  Tywin Lannister
