@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 19:52:22
-Random Quote: Bronn was no knight, that was true.  Bronn was a battle - hardened killer. 
+Last updated: 2024-04-07 19:53:30
+Random Quote: I never asked for this, no more than I asked to be king.  Yet dare I disregard her?  We do not choose our destinies.  Yet we must... we must do our duty, no?  Great or small, we must do our duty.  -  Stannis Baratheon
