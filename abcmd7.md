@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 16:51:35
-Random Quote: We're going to Buffalo... and I've seen women from there; the city's aptly named. - Barney Stinson
+Last updated: 2024-04-07 16:52:08
+Random Quote: Yes, it's you who ought to run, you and Lord Tywin and the Mountain and Set Addam and Set Amory and stupid Set Lyonel whoever he is, all of you better run or my brother will kill you, he's a Stark, he's more wolf than man, and so am I.  -  Arya Stark
