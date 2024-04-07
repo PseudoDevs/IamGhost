@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 05:50:49
-Random Quote: Balon was mad, Aeron is madder, and Euron is maddest of them all.  -  Baelor Blacktyde
+Last updated: 2024-04-07 05:52:01
+Random Quote: Freeways have exits, so do relationships. The first exit, my personal favourite, is six hours in: You meet, you talk, you have sex, you exit when she's in the shower. - Barney Stinson
