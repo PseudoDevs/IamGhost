@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 16:50:28
-Random Quote: There's proving and there's knowing. -  Bill Oakley
+Last updated: 2024-04-07 16:51:04
+Random Quote: No man has ever died from bending his knee.  He who kneels may rise again, blade in hand.  He who will not kneel stays dead, stiff legs and all.  -  Balon Greyjoy

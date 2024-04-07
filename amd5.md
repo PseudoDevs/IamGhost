@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 16:50:27
-Random Quote: Barney: "Whoa, Ted, that thing you're packing is way too big to fit in that box."Ted: "Yeah, that's what your mom said."Barney: "How dare you?"Ted: "No, she actually said that." - Ted Mosby
+Last updated: 2024-04-07 16:51:04
+Random Quote: Only their shadows, One most of all.  A tall and twisted thing with one black eye and ten long arms, sailing on a sea of blood.  -  Moqorro
