@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 16:59:41
-Random Quote: It's just, I know I can be a jerk like him sometimes, and I do not want to be like him. Ever. - Max Mayfield
+Last updated: 2024-04-07 17:03:38
+Random Quote: Barney: "Your challenge is accepted Lil, there is no girl too prettyFor I am Barney Stinson, Player King of New York City."Ted: "You can't anoint yourself the king, just like that jerk, LeBron."Barney: "He left the Cavs three years ago. Bro, give it up, move on." - Barney Stinson
