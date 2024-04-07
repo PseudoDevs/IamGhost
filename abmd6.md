@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 04:37:24
-Random Quote: Give me back my spear, Uncle.  Cersei sent us a head.  We should send her back a bag of them.  -  Obara Sand
+Last updated: 2024-04-07 04:38:39
+Random Quote: Did you just bring a bomb into a hospital? - Jesse Pinkman

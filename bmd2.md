@@ -1,2 +1,4 @@
-Last updated: 2024-04-07 04:38:02
-Random Quote: Everyone sounds like Meryl Streep with a gun to their head. - Mike Ehrmantraut
+Last updated: 2024-04-07 04:38:39
+Random Quote: Morticia: "Please excuse Wednesday. She's allergic to color."
+Enid: "Wow, what happens to you?"
+Wednesday: "I break out into hives, and then the flesh peels off my bones." - Wednesday Addams
