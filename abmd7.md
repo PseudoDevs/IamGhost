@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 20:20:19
-Random Quote: Airport bar! Flight attendants, they'll get your tray table in it's full upright position. Say what? - Barney Stinson
+Last updated: 2024-04-07 20:20:53
+Random Quote: Ted: "Those Robin's boobies?"Barney: "When new nubile hotties lean in to inspect your bundle of joy, you can inspect their bundles of joy. The Broller. God, I come up with a lot of good stuff!" - Barney Stinson
