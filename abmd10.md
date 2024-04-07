@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 05:06:27
-Random Quote: I’d get 30 years. And to be honest, growing old in a prison cell is not my thing. I’d rather run, in body and soul. And if I can’t take my body with me, at least my soul should run. - Tokyo
+Last updated: 2024-04-07 05:07:04
+Random Quote: Why is it always the innocents who suffer most, when you high lords play your game of thrones?  -  Varys
