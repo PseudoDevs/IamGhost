@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 17:03:36
-Random Quote: The biggest case of my life and I'd already lost the jury. I mean, I've heard of "Twelve Angry Men",  but this was more like "Twelve Horny Women". - Marshall Eriksen
+Last updated: 2024-04-07 17:04:13
+Random Quote: You want to rule?  This is what ruling is; lying on a bed of weeds, ripping them out by the root, one by one, before they strangle you in your sleep.  -  Cersei Lannister
