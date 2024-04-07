@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 17:30:46
-Random Quote: Because family is forever. - Wanda Maximoff
+Last updated: 2024-04-07 17:31:20
+Random Quote: She had seen Bronn fight on the high road; it was no accident that he had survived the journey while other men had died.  He moved like a panther, and that ugly sword of his seemed a part of his arm.  -  Catelyn Stark
