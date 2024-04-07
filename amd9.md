@@ -1,2 +1,4 @@
-Last updated: 2024-04-07 17:36:47
-Random Quote: Space. Time. Reality. It's more than a linear path. It's a prism of endless possibility. - The Watcher
+Last updated: 2024-04-07 17:37:23
+Random Quote: Rick: "Guests are fans, Morty, which we are not. We'd like professional badges."
+"Do you have a crew?"
+Rick: "Yes. He's a getaway driver with Asperger's and my butt is a demolitions expert." - Rick Sanchez
