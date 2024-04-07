@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 16:26:09
-Random Quote: Here are a few fun facts about Long Island... Number 1: It's Brooklyn's fart-trail. - Robin Scherbatsky
+Last updated: 2024-04-07 16:26:43
+Random Quote: Think of me as Yoda - only, instead of being little and green, I wear suits and I'm awesome. I'm your bro. I'm Broda. - Barney Stinson
