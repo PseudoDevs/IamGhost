@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 20:18:46
-Random Quote: Name one thing in this world that is non negotiable. - Walter White
+Last updated: 2024-04-07 20:19:20
+Random Quote: That's it. Three rules. I call 'em the 'Don't be stupid'-rules. 'Cause we're not stupid, alright? - Jim Hopper
