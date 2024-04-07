@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 06:09:52
-Random Quote: You don’t love anyone? Of course you don’t, darling. You don’t have the balls for it. To love, you need courage. - Nairobi
+Last updated: 2024-04-07 06:10:27
+Random Quote: Because you're so broken you don't even trust yourself. And that's scary. - Nate Jacobs
