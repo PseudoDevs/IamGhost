@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 06:47:16
-Random Quote: Barney: "I was having such a good time greasing 12-year-olds."Ted: "LaserTag."Marshall: "Helpful. Continue." - Marshall Eriksen
+Last updated: 2024-04-07 06:47:51
+Random Quote: Your innocence may be as plain as the scar on your face, but it will not save you.  No more than your father will.  But I might.  Not as your judge.  As your champion.  -  Oberyn Martell
