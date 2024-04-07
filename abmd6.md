@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 17:37:06
-Random Quote: In all the world, violent men are the easiest to deal with. - Irene O'Donnell
+Last updated: 2024-04-07 17:38:12
+Random Quote: You want to hurt these guys, we gotta take down the ones calling the shots. - Jaime Kuykendall
