@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 18:00:12
-Random Quote: What if Einstein's parents had held him back? We wouldn't even have the... - I was gonna say atomic bomb, but there's probably a better example. - Meemaw
+Last updated: 2024-04-07 18:00:48
+Random Quote: You and I are opposites but also just the same. Like an image in a mirror. We hate people and they in turn hate us. And fear us. - Chester Campbell
