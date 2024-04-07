@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 04:21:51
-Random Quote: I’d get 30 years. And to be honest, growing old in a prison cell is not my thing. I’d rather run, in body and soul. And if I can’t take my body with me, at least my soul should run. - Tokyo
+Last updated: 2024-04-07 04:23:00
+Random Quote: It was the white cloak that soiled me, not the other way around.  -  Jaime Lannister
