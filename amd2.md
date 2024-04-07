@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 17:13:55
-Random Quote: Kill the boy, Jon Snow.  Winter is almost upon us.  Kill the boy and let the man be born.  -  Aemon Targaryen
+Last updated: 2024-04-07 17:14:28
+Random Quote: Birds are lost, messages stolen or sold... there are things I might tell you of that eunuch that would chill your blood...  -  Grand Maester Pycelle
