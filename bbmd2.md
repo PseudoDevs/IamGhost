@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 16:20:05
-Random Quote: Mike: "Where are you going? You just said, 'stick to the plan'."Dustin: "I am. I'm just gonna go get some chocolate pudding." - Dustin Henderson
+Last updated: 2024-04-07 16:20:38
+Random Quote: You give me one hour of phone-free bro time, during which we, and by we I mean you, get magnificently, mythologically drunk. I'm talking needing-subtitles-when-you-speak drunk. - Barney Stinson
