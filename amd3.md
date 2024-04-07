@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 16:19:55
-Random Quote: To live is to risk it all. Otherwise you're just an inert chunk of randomly assembled molecules drifting wherever the universe blows you. - Rick Sanchez
+Last updated: 2024-04-07 16:20:28
+Random Quote: Edric Storm, they call him.  He is said to be the very image of my brother.  If men were to see him, and then look again at Joffrey and Tommen, they could not help but wonder, I would think.  -  Stannis Baratheon

@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 16:19:55
-Random Quote: The biggest case of my life and I'd already lost the jury. I mean, I've heard of "Twelve Angry Men",  but this was more like "Twelve Horny Women". - Marshall Eriksen
+Last updated: 2024-04-07 16:20:29
+Random Quote: I knew Brienne when she was no more than a girl playing at her father's feet in Evenfall Hall, and I knew her still better when the Evenstar sent her here to Storm's End.  She loved Renly Baratheon from the first moment she laid eyes on him, a blind man could see it.  -  Cortnay Penrose
