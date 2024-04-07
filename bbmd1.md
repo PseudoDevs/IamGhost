@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 06:43:01
-Random Quote: He'd led me in war, hunted with a king, won honor in tourney melees, ridden with Brynden Blackfish and Greatjon Umber, fought in the Whispering Wood, bedded more girls than he could name, and yet his uncle was treating him as though he were still a child of ten.  -  Theon Greyjoy
+Last updated: 2024-04-07 06:43:37
+Random Quote: You have just become victims of the cheerleader-effect. Glad you asked: The cheerleader-effect is when a group of women seems hot, but only as a group. Just like with cheerleaders. They seem hot, but take each one of them individually? Sled dogs! - Barney Stinson
