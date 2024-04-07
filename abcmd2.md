@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 18:56:09
-Random Quote: You look like an Indian Kardashian. - Fabiola Torres
+Last updated: 2024-04-07 18:57:18
+Random Quote: When the truth offends me, we lie and we lie until we can no longer remember it is even there. Every lie we tell incurs a debt to the truth. Sooner or later, that debt is paid. - Valery Legasov
