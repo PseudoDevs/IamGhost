@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 04:32:54
-Random Quote: Let justice be done though the heavens fall. - Saul Goodman
+Last updated: 2024-04-07 04:34:10
+Random Quote: My father never bellowed like the Greatjon, but he was no less dangerous in his wroth.  -  Alys Karstark
