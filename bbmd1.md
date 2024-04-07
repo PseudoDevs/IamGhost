@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 20:32:21
-Random Quote: They may separate us, but they'll never be able to destroy us. - Pablo Escobar
+Last updated: 2024-04-07 20:32:54
+Random Quote: Rattleshirt, we called him.  Treacherous and bloodthirsty.  If there's honor in him, he hides it down beneath his suit of bones.  -  Jon Snow
