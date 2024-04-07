@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 07:28:12
-Random Quote: The last play you'll ever run. - Barney Stinson
+Last updated: 2024-04-07 07:28:46
+Random Quote: When you tear out a man's tongue, you are not proving him a liar, you're only telling the world that you fear what he might say.  -  Tyrion Lannister
