@@ -1,3 +1,2 @@
-Last updated: 2024-04-07 18:49:02
-Random Quote: Miguel: "Would you have really fed me to those hippos?"
-Pablo: "No. Hippos don't like Mexicans either." - Pablo Escobar
+Last updated: 2024-04-07 18:50:09
+Random Quote: Barney: "I met a girl last night. So perky and full of life and not at all fake."Ted: "You're talking about her boobs, right?"Barney: "Si. And that wasn't Spanish, that was cup size. What up?!" - Barney Stinson
