@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 19:57:52
-Random Quote: I did it for me. I liked it. I was good at it. And... I was really... I was alive. - Walter White
+Last updated: 2024-04-07 19:58:26
+Random Quote: Shagg, son of Dolf will chop off their manhoods and feed them to the crows.  -  Shagga, son of Dolf
