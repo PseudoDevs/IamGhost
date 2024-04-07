@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 18:16:57
-Random Quote: When I look at something, I don't see it for what it is, I see it for what it could be. When I look at something, I see how it ends. - Miguel Angel Felix Gallardo
+Last updated: 2024-04-07 18:17:31
+Random Quote: A bag of dragons buys a man's silence for a while, but a well - placed quarrel buys it forever. 
