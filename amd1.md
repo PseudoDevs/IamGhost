@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 16:46:53
-Random Quote: Well, if there is something wrong with him, it ain't constipation. - Meemaw
+Last updated: 2024-04-07 16:47:26
+Random Quote: He would see this country burn if he could be king of the ashes.  -  Varys
