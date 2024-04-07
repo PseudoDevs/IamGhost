@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 06:50:18
-Random Quote: I feel like I've framed my entire womanhood around men. - Jules Vaughn
+Last updated: 2024-04-07 06:51:27
+Random Quote: Everyone sounds like Meryl Streep with a gun to their head. - Mike Ehrmantraut
