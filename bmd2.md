@@ -1,3 +1,2 @@
-Last updated: 2024-04-07 16:54:46
-Random Quote: Neither one of us are gonna say, "Hey, how's it going?" or "Good to see you!"
-Because it really will be good to see you. - Barney Stinson
+Last updated: 2024-04-07 16:55:21
+Random Quote: If you don’t know who I am, then maybe your best course would be to tread lightly. - Walter White
