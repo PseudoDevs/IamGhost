@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 19:37:38
-Random Quote: Let's hit a motel, jam in a quickie and get you back to your wedding. - Ted Mosby
+Last updated: 2024-04-07 19:38:11
+Random Quote: Mother of dragons.  Mother of monsters.  What have I unleashed upon the world?  A queen I am, but my throne is made of burned bones, and it rests on quicksand.  Without dragons, how could she hope to hold Mereen, much less win back Westeros?  I am the blood of the dragon.  If they are monsters, so am I.  -  Daenerys Targaryen
