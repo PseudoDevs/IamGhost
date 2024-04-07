@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 19:40:44
-Random Quote: Now you may be asking yourself why is sports icon John McEnroe narrating this tale? It'll make sense later I promise. - John McEnroe
+Last updated: 2024-04-07 19:41:50
+Random Quote: Oberyn wanted vengeance for Elia.  Now the three of you want vengeance for him.  I have four daughters, I remind you.  Your sisters.  My Elia is fourteen, almost a woman.  Obella is twelve, on the brink of maiden - hood.  They worship you, as Dorea and Loreza worship them.  If you should die, must El and Obella seek vengeance for you, then Dorea and Loree for them?  Is that how it goes, round and round forever?  I ask again, where does it end? 
