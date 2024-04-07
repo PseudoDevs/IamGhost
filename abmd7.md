@@ -1,3 +1,2 @@
-Last updated: 2024-04-07 19:25:24
-Random Quote: Marylin Thornhill: "I trust Enid has given you the old Nevermore welcome."
-Wednesday: "She's been smothering me with hospitality. I hope to return the favor... in her sleep." - Wednesday Addams
+Last updated: 2024-04-07 19:25:59
+Random Quote: Never buy a girl flowers, 'cause giving her a living thing reminds her of babies. - Barney Stinson
