@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 19:44:53
-Random Quote: Fine I'll fill her in and I am so angry I am not even goin' to make a joke about "filling her in"... which I did three times last night. Self-five! - Barney Stinson
+Last updated: 2024-04-07 19:45:59
+Random Quote: Aunties are older Indian women who have no blood-relation to you. But are allowed to have opinions about your life and all your shortcomings. And you have to be nice to them because you're Indian. - John McEnroe
