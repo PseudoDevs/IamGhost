@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 16:18:16
-Random Quote: There is a savage beast in every man, and it stirs when you put a sword in his hand.  -  Jorah Mormont
+Last updated: 2024-04-07 16:19:24
+Random Quote: Marshall, you being 18 isn't a bad thing. It just means you get to spend even more of your life with her. - Ted Mosby
