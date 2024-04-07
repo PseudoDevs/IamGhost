@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 04:45:28
-Random Quote: Your lord father did not come to the wedding.  An insult, as I see it.  Even if he is dying.  He never came to my last wedding either.  He calls me the Late Lord Frey, you know.  Does he think I'm dead?  I'm not dead, and I promise you, I'lll outlive him as I outlived his father.  Your family has always pissed on me, don't deny it, don't lie, you know it's true.  -  Walder Frey
+Last updated: 2024-04-07 04:46:01
+Random Quote: Kids, sometimes you realize, the journey you've been taking has reached its final stop. So, the question becomes: Where do you go next? - Ted Mosby
