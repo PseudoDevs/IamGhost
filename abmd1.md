@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 16:30:31
-Random Quote: It's just, I know I can be a jerk like him sometimes, and I do not want to be like him. Ever. - Max Mayfield
+Last updated: 2024-04-07 16:31:04
+Random Quote: I think maybe you're the only person who really knows who I am and still likes me anyway. - Allison Hargreeves

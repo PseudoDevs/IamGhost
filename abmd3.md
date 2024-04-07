@@ -1,3 +1,2 @@
-Last updated: 2024-04-07 16:30:31
-Random Quote: Mi-nyeo: "Deok-su. You betray me... I'll kill you. Okay?"
-Deok-su: "You're the reason that I think I might die tonight." - Jang Deok-su
+Last updated: 2024-04-07 16:31:04
+Random Quote: After all, what’s more human than the fight for survival? - Tokyo
