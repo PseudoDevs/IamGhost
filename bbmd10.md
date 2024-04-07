@@ -1,4 +1,2 @@
-Last updated: 2024-04-07 18:27:35
-Random Quote: Ellie: "Can I have a gun?"
-Joel: "Absolutely not."
-Ellie: "Okay, Jesus. Fine. I'll have to throw a f-ckin' sandwich at them." - Ellie Williams
+Last updated: 2024-04-07 18:28:08
+Random Quote: The Citadel took my chain, but they could not take my knowledge.  -  Qyburn
