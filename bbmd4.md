@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 05:25:58
-Random Quote: Help was not promised, lovely girl.  Only death.  -  Jaqen H'ghar
+Last updated: 2024-04-07 05:26:30
+Random Quote: Until the Mountain crushed my brother's skull, no Dornishmen had died in this War of the Five Kings.  Tell me, Captain, is that my shame or my glory?  -  Doran Martell
