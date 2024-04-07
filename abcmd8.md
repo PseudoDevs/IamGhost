@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 18:54:25
-Random Quote: I don't care if you're so scared you foul your breeches, and I don't care if a thousand wildlings are coming over the walls howling for your blood, you get those birds off, or I swear I'll hunt you through all seven hells and make you damn sorry that you didn't.  -  Jeor Mormont
+Last updated: 2024-04-07 18:55:34
+Random Quote: Barney: "He's the awesomest, most best-lookingest, greatest guy ever!"Lily: "He's exactly like Barney."Barney: "That's what I just said." - Barney Stinson
