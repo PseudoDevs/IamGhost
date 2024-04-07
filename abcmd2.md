@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 07:12:38
-Random Quote: It is for my prince to command, for Hotah to obey.  -  Areo Hotah
+Last updated: 2024-04-07 07:13:14
+Random Quote: When the truth offends me, we lie and we lie until we can no longer remember it is even there. Every lie we tell incurs a debt to the truth. Sooner or later, that debt is paid. - Valery Legasov
