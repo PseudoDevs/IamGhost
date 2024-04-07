@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 19:21:31
-Random Quote: The Boltons have always been as cruel as they are cunning, but this one seems a beast in human skin.  -  Robett Glover
+Last updated: 2024-04-07 19:22:04
+Random Quote: The only person who gets to torture my brother is me. - Wednesday Addams
