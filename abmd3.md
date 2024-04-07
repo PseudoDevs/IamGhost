@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 06:41:53
-Random Quote: I poured my blood, sweat and tears into that building. Though, to be fair, a lot of that happened the day I accidentally fell down the elevator shaft. - Ted Mosby
+Last updated: 2024-04-07 06:42:27
+Random Quote: Power resides where men believe it resides... It's a trick, a shadow on the wall.  -  Varys
