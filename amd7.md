@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 18:56:50
-Random Quote: My father never bellowed like the Greatjon, but he was no less dangerous in his wroth.  -  Alys Karstark
+Last updated: 2024-04-07 18:59:44
+Random Quote: Look, if Michael Jordan's healthy, you don't let Scottie Pippen run the offense. Oh, you're from Canada, right. If Wayne Gretzky's healthy, you don't let François... what I'm saying is: hockey is stupid and I'm point guy! - Barney Stinson
