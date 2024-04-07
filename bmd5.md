@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 06:42:49
-Random Quote: Sometimes you gotta do bad things to catch bad people. - Javier Pe�a
+Last updated: 2024-04-07 06:43:22
+Random Quote: Birds are lost, messages stolen or sold... there are things I might tell you of that eunuch that would chill your blood...  -  Grand Maester Pycelle
