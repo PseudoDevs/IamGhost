@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 17:44:39
-Random Quote: A grievous wound, aye, but Thoros healed it.  There's never been no better healer.  -  Lem Lemoncloak
+Last updated: 2024-04-07 17:45:12
+Random Quote: Did you think your dad was the only Mandalorian? - Bo-Katan
