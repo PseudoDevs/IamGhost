@@ -1,3 +1,2 @@
-Last updated: 2024-04-07 07:16:18
-Random Quote: Jessica: "I miss you."
-Morty: "You miss the old me. You miss someone that loved you so much, you never had to love him back." - Morty Smith
+Last updated: 2024-04-07 07:16:51
+Random Quote: You're the smartest guy I ever met, and you're too stupid to see he made up his mind 10 minutes ago. - Hank Schrader
