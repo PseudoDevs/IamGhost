@@ -1,2 +1,3 @@
-Last updated: 2024-04-07 19:43:22
-Random Quote: If I got serious with Nora, it would be like if Mother Teresa focused all her attention on one really hot orphan. With great penis comes great responsibility. - Barney Stinson
+Last updated: 2024-04-07 19:43:56
+Random Quote: "I thought Mandalorians were honorable."
+Koska Reeves: "We are, kid. All it takes is a few credits." - Din Djarin
