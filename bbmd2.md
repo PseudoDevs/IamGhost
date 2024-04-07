@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 16:53:28
-Random Quote: Here's the secret, kids: none of us can vow to be perfect. In the end, all we can do is promise to love each other with everything we've got. Because love's the best thing we do. - Ted Mosby
+Last updated: 2024-04-07 16:54:04
+Random Quote: Free folk don't follow names, or little cloth animals sewn on a tunic.  They won't dance for coins, they don't care how you style yourself or what that chain of office means or who your grandsire was.  They follow strength.  They follow the man.  -  Mance Rayder
