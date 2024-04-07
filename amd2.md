@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 18:56:08
-Random Quote: I am the Greyjoy, Lord Reaper of Pyke, King of Salt and Rock, Son of the Sea Wind, and no man gives me a crown.  I pay the iron price.  I will take my crown, as Urron Redhand did five thousand years ago.  -  Balon Greyjoy
+Last updated: 2024-04-07 18:56:41
+Random Quote: I cried my little black heart out. But tears don't fix anything. So I vowed to never do it again. - Wednesday Addams
