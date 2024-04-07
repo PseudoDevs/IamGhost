@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 16:40:00
-Random Quote: Fool's blood, king's blood, blood on the maiden's thigh, but chains for the guests and chains for the bridegroom, aye aye aye.  -  Patchface
+Last updated: 2024-04-07 16:41:08
+Random Quote: I'm a Mandalorian. Weapons are part of my religion. - Din Djarin
