@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 05:05:37
-Random Quote: Looks like somebody suffered from premature slapulation. - Marshall Eriksen
+Last updated: 2024-04-07 05:06:10
+Random Quote: Robert wanted smiles and cheers, always, so he went where he found them, to his friends and his whores.  Robert wanted to be loved.  My brother Tyrion has the same disease.  -  Cersei Lannister
