@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 20:11:13
-Random Quote: A craven's knife can slay a queen as easily as a hero's.  -  Xaro Xhoan Daxos
+Last updated: 2024-04-07 20:11:46
+Random Quote: Theon found himself wondering if he should say a prayer.  Will the Old Gods hear me if I do?  They were not his gods, had never been his gods.  He was ironborn, a son of Pyke, his god was the Drowned God of the islands... but Winterfell was long leagues from the sea.  It had been a lifetime since any god had heard him.  He did not know who he was, or what he was, why he was still alive, why he had ever been born.  -  Theon Greyjoy
