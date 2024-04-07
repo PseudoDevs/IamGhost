@@ -1,2 +1,3 @@
-Last updated: 2024-04-07 16:35:02
-Random Quote: Winter will never come for the likes of us.  Should we die in battle, they will surely sing of us, and it's always summer in the songs.  In the songs all knights are gallant, all maids are beautiful, and the sun is always shining.  -  Brienne of Tarth
+Last updated: 2024-04-07 16:35:36
+Random Quote: Jang Deok-su: "Tell me what you're good at?"
+Han Mi-nyeo: "Everything, except the things I can't do." - Oh Il-nam
