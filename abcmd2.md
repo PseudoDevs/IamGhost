@@ -1,5 +1,2 @@
-Last updated: 2024-04-07 04:24:51
-Random Quote: Therapist: "You need to stop doing these weird things. Go out sometime."
-Klaus: "I went to the park today."
-Therapist: "There you go! I hope you got something from that."
-Klaus: "[Opens up coat] This duck." - Klaus Hargreeves
+Last updated: 2024-04-07 04:25:24
+Random Quote: Your story is so sweet. You didn't even kiss 'til the third date. By our third date, I hit more bases than Bob Hope on a USO tour. - Barney Stinson
