@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 16:49:39
-Random Quote: The wolf will prove the boy is who we say he is, should the Dreadfort attempt to deny him.  That is my price, Lord Davos.  Smuggle me back my liege lord, and I will take Stannis Baratheon as my king.  -  Wyman Manderly
+Last updated: 2024-04-07 16:50:12
+Random Quote: Nothing is wrong with him, now turn back around before I break your neck. - Mary
