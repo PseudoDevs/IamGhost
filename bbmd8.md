@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 04:43:04
-Random Quote: Oh, Cersei is lovely to look at, truly, but cold... the way she guards her cunt, you'd think she had all the gold of Casterly Rock between her legs.  -  Robert Baratheon
+Last updated: 2024-04-07 04:43:41
+Random Quote: Miss Garvey's parents may stay at our place as long as they like. Provided they each arrive in an urn. - Barney Stinson
