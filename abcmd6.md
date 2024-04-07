@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 18:47:33
-Random Quote: Where has it gotten me? Nowhere. I can't talk to the person I love. People still don't take me seriously. I wanna be numb again. - Klaus Hargreeves
+Last updated: 2024-04-07 18:48:07
+Random Quote: Money is not peace of mind. Money is not happiness. Money is, at its essence, that measure of a man's choices. - Marty Byrde
