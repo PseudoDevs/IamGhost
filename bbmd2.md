@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 05:04:08
-Random Quote: Every Halloween I bring a spare costume. In case I strike out with the hottest girl at the party. That way I have a second chance to make a first impression. - Barney Stinson
+Last updated: 2024-04-07 05:04:41
+Random Quote: That's where The Boys come in: Spank the bastards when they get out of line. - Billy Butcher
