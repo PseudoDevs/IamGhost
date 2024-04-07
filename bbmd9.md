@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 16:30:56
-Random Quote: Oh, this dress is totally going to get me laid on my wedding night. - Lily Aldrin
+Last updated: 2024-04-07 16:31:30
+Random Quote: Kingthlayer... you are my captifth.  -  Vargo Hoat
