@@ -1,2 +1,3 @@
-Last updated: 2024-04-07 07:30:49
-Random Quote: I let each man cut me once, before I kill him.  Count the cuts and you will know how many Strong Belwas has slain.  -  Strong Belwas
+Last updated: 2024-04-07 07:31:22
+Random Quote: Jerry: "Space sperm? Sperm from... space?"
+Rick: "Very impressive verbal forensic work, Jerry." - Rick Sanchez
