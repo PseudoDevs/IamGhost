@@ -1,4 +1,2 @@
-Last updated: 2024-04-07 19:43:22
-Random Quote: Five: "Help me with this crossword puzzle. I need a five letter word for 'disappointment'."
-Diego: "Klaus."
-Five: "It fits." - Number Five
+Last updated: 2024-04-07 19:43:54
+Random Quote: Did the boy charm you?  He has that gift.  He got it from his father, with the blood.  He knows he is a king's son, but chooses to forget that he is bastard - born. 
