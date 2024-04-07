@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 20:09:37
-Random Quote: You grew up with actors.  You learned their craft and you learned it well.  I grew up with soldiers.  I learned how to die a long time ago.  -  Eddard Stark
+Last updated: 2024-04-07 20:10:10
+Random Quote: Clint: "Ted, your mother is a very, very erotic woman."Ted: "Please don't." - Ted Mosby
