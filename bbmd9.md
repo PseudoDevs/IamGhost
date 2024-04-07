@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 16:21:13
-Random Quote: You know who's into dragons, Morty? Nerds who refuse to admit they're Christian. - Rick Sanchez
+Last updated: 2024-04-07 16:21:47
+Random Quote: No tales were ever told of me.  Do you think I would be sitting here if it were otherwise?  Your amusements are your own, I will not chide you on that count, but you must be more discreet.  A peaceful land, a quiet people.  That has always been my rule.  Make it yours.  -  Roose Bolton

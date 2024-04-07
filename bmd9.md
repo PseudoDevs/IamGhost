@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 16:21:11
-Random Quote: Years ago, I bought a Betamax, good product, top of the line. Experts said it was better than a VHS. Turned out to be a complete waste of time and money. - Mike Ehrmantraut
+Last updated: 2024-04-07 16:21:46
+Random Quote: Birds are lost, messages stolen or sold... there are things I might tell you of that eunuch that would chill your blood...  -  Grand Maester Pycelle
