@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 06:33:22
-Random Quote: I'm not him, I'm not the turncloak, he died at Winterfell.  My name is Reek.  It rhymes with freak.  -  Reek
+Last updated: 2024-04-07 06:34:00
+Random Quote: The Lion does not concern itself with the opinions of sheep.  -  Tywin Lannister
