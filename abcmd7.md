@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 20:30:07
-Random Quote: A man will tell you poison is dishonorable, but a woman's honor is different.  The Mother shaped us to protect our children, and our only dishonor is failure.  -  Lysa Arryn
+Last updated: 2024-04-07 20:30:41
+Random Quote: A dog who bites every owner he's had can only be disciplined with a firm hand. Or put down. - Gustavo Fring
