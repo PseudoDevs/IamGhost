@@ -1,2 +1,4 @@
-Last updated: 2024-04-07 19:43:40
-Random Quote: Red: "Black girls hear about a chicken, of course this will happen."Piper: "Why, because all black people love chicken?"Red: "Don't be racist. Because they're all on heroin, and somebody's been telling them there's heroin in the chicken." - Galina 'Red' Reznikov
+Last updated: 2024-04-07 19:44:13
+Random Quote: It could be for a brother or maybe her sick dad.
+[reads] "And then I want you to do me on the couch."
+Okay, maybe not a sick dad. Or a very sick dad, am I right? - Robin Scherbatsky
