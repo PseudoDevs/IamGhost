@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 18:22:05
-Random Quote: Robb Stark has won more battles in a year than the Lord of Highgarden had in twenty.  -  Tyrion Lannister
+Last updated: 2024-04-07 18:22:38
+Random Quote: Here's the secret, kids: none of us can vow to be perfect. In the end, all we can do is promise to love each other with everything we've got. Because love's the best thing we do. - Ted Mosby
