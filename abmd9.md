@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 05:01:36
-Random Quote: Sometimes two people in the universe who aren't meant for each other find each other. - Cal Jacobs
+Last updated: 2024-04-07 05:02:43
+Random Quote: Marshall: "Yes, i want a ball-room and I want a band and I want shoes. I've been dreaming about this day since I was... like...Lily: "...a little girl?" - Lily Aldrin
