@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 05:07:42
-Random Quote: Words are like arrows, Arianne.  Once loosed, you cannot call them back.  -  Areo Hotah
+Last updated: 2024-04-07 05:08:19
+Random Quote: When you date someone, it's like you're taking one long course in who that person is and then, when you break up, all that stuff becomes useless. It's the emotional equivalent of an English degree... - Ted Mosby
