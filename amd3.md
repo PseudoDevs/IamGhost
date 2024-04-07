@@ -1,4 +1,2 @@
-Last updated: 2024-04-07 19:55:06
-Random Quote: Tony Stark: "Lieutenant Killmonger? What is that? German?"
-Killmonger: "A nickname."
-Tony Stark: "That's clearly a good fit." - Killmonger
+Last updated: 2024-04-07 19:56:13
+Random Quote: Nerds who aren't good at math?Life is going to be rough boys! - Robin Scherbatsky
