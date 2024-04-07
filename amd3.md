@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 20:05:41
-Random Quote: I understand that if any more words come pouring out of your cunt mouth I'm going to have to eat every fucking chicken in this room.  -  Sandor Clegane
+Last updated: 2024-04-07 20:07:20
+Random Quote: And, you know, you just can't be mad at me for wanting you to be okay. - Rue Bennett
