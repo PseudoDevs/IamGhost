@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 19:02:06
-Random Quote: Penrose chose to die rather than give him up.  It still angers me.  How could he think I would hurt the boy?  I chose Robert, did I not?  When that hard day came, I chose blood over honor.  -  Stannis Baratheon
+Last updated: 2024-04-07 19:03:12
+Random Quote: I've only known one other being like this. A wise Jedi Master named Yoda. - Ahsoka Tano
