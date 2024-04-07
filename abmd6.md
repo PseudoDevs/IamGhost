@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 05:03:17
-Random Quote: She had made the mistake of speaking when Set Gregor wanted quiet, so the Mountain had smashed her teeth to splinters with a mailed fist and broken her pretty little nose as well.  He would have done worse, no doubt, if Cersei had not called him down to King's Landing to face the Red Viper's spear.  Jaime would not mourn him.  -  Jaime Lannister
+Last updated: 2024-04-07 05:04:35
+Random Quote: Dead people are notoriously bad at returning calls. - Wednesday Addams

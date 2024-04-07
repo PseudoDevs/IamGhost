@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 05:03:56
-Random Quote: Name one thing in this world that is non negotiable. - Walter White
+Last updated: 2024-04-07 05:04:34
+Random Quote: The gods be damned.  It was a hollow victory they gave me.  A crown... it was the girl I prayed them for.  Your sister, safe... and mine again, as she was meant to be.  I ask you, Need, what good is it to wear a crown?  The gods mock the prayers of kings and cowherds alike.  -  Robert Baratheon
