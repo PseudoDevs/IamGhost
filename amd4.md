@@ -1,3 +1,2 @@
-Last updated: 2024-04-07 16:37:13
-Random Quote: I hired a decorator and I asked him: "What would the inside of Tinkerbell's vagina look like?"
-And the kid just ran with it! - Quinn Garvey
+Last updated: 2024-04-07 16:37:46
+Random Quote: There is a tool for every task, and a task for every tool.  -  Tywin Lannister
