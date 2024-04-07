@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 16:25:44
-Random Quote: Kids, morals usually come at the end of stories, but this one is so important, I'm gonna tell you now. Don't ever, ever invite an ex to your wedding. - Ted Mosby
+Last updated: 2024-04-07 16:26:17
+Random Quote: Kids, you may think your only choices are to swallow your anger or throw it in someone's face, but there's a third option: You can just let it go, and only when you do that is it really gone and you can move forward. - Ted Mosby
