@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 20:01:04
-Random Quote: Robin: "This locket was my grandma's, she kept it hidden in her butt all through world war II."Lily: "What? Where was she?"Robin: "Winnipeg. Come on, Lily, that is a joke." - Robin Scherbatsky
+Last updated: 2024-04-07 20:01:37
+Random Quote: He would see this country burn if he could be king of the ashes.  -  Varys
