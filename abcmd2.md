@@ -1,2 +1,3 @@
-Last updated: 2024-04-07 20:05:08
-Random Quote: But what is grief, if not love persevering? - Vision
+Last updated: 2024-04-07 20:05:41
+Random Quote: HR: "I know this is classic HR to say, but: You're not alone."
+Steven: "Yeah. That's like, part of the problem, innit?" - Arthur Harrow
