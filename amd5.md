@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 05:30:08
-Random Quote: Give me back my spear, Uncle.  Cersei sent us a head.  We should send her back a bag of them.  -  Obara Sand
+Last updated: 2024-04-07 05:31:19
+Random Quote: I feel like you ruined me forever. - Maddy Perez
