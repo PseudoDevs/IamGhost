@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 17:19:16
-Random Quote: Richard, you have desecrated the sacred treaty betwixt land and sea. Now face the wrath of your once and eternal foe - Mr. Nimbus! - Mr. Nimbus
+Last updated: 2024-04-07 17:21:04
+Random Quote: Not all Mandalorians are bounty hunters. Some of us serve a higher purpose. - Bo-Katan
