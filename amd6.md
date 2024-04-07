@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 19:39:28
-Random Quote: Quinn: "What is an executive strategy coordinator?"Barney: "It's three corporate-sounding words which, when added together, equal a fake job for which you get a real paycheck." - Barney Stinson
+Last updated: 2024-04-07 19:40:01
+Random Quote: Why is it always the innocents who suffer most, when you high lords play your game of thrones?  -  Varys
