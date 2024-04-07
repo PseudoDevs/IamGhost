@@ -1,2 +1,3 @@
-Last updated: 2024-04-07 20:08:48
-Random Quote: They are children, Sansa thought.  They are silly little girls, even Elinor.  They've never seen a battle, they've never seen a man die, they know nothing.  Their dreams were full of songs and stories, the way hers had been before Joffrey cut her father's head off.  Sansa pitied them.  Sansa envied them.  -  Sansa Stark
+Last updated: 2024-04-07 20:09:22
+Random Quote: The good news is, Luke has his bike.
+More good news, I taught some random kid a valuable lesson by stealing his bike. - Phil Dunphy
