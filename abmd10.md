@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 16:18:50
-Random Quote: The only person on earth, who loves Ted Mosby more than Marshall Eriksen, is drunk Marshall Eriksen! - Marshall Eriksen
+Last updated: 2024-04-07 16:19:58
+Random Quote: It is R'hllor who brings you back, my lord.  The Lord of Light.  I am only his instrument.  -  Thoros of Myr
