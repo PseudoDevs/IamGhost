@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 04:10:32
-Random Quote: Oh my god, you have a monocle! Is this real? Is this really happening? Good luck killing James Bond! - Ted Mosby
+Last updated: 2024-04-07 04:11:05
+Random Quote: Get the keys and remove those chains from him, before you make me rue the day I raped your mother.  -  Roose Bolton
