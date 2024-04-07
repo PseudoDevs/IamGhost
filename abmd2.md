@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 04:22:31
-Random Quote: Robert was never the same after he put on that crown.  Some men are like swords, made for fighting.  Hang them up and they go to rust.  -  Donal Noye
+Last updated: 2024-04-07 04:23:08
+Random Quote: Any man who steps between a father and his vengeance asks for death.  -  Rickard Karstark
