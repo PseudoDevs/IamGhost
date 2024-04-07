@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 20:30:03
-Random Quote: In Colombia, when money's involved, blood inevitably flows. - Steve Murphy
+Last updated: 2024-04-07 20:30:37
+Random Quote: Strip off their skins.  Lord Bolton, he used to say a naked man has few secrets, but a flayed man's got none.  -  Ramsay Bolton
