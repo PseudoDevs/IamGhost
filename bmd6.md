@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 06:38:49
-Random Quote: Stop crying. Remember? Crying makes you ugly and weak. - Dayanara Diaz
+Last updated: 2024-04-07 06:39:26
+Random Quote: Strip off their skins.  Lord Bolton, he used to say a naked man has few secrets, but a flayed man's got none.  -  Ramsay Bolton
