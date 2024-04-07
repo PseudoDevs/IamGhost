@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 07:22:40
-Random Quote: People come into our lives exactly when they should. - Nina Locke
+Last updated: 2024-04-07 07:23:46
+Random Quote: Spare me your empty little compliments, girl... and your ser's.  I am no knight.  I spit on them and their vows.  My brother is a knight.  -  Sandor Clegane
