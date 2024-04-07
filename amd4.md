@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 20:28:53
-Random Quote: She don't speak.  You bloody bastards cut her throat too deep for that.  But she remembers.  -  Lem Lemoncloack
+Last updated: 2024-04-07 20:29:26
+Random Quote: I like dogs better than knights... A hound will die for you, but never lie to you.  And he'll look you straight in the face.  -  Sandor Clegane
