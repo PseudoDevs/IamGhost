@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 19:31:17
-Random Quote: Marshall: "During that time, I have been, how do I put this delicately, saving all my love for you."Lily: "I have read eleven books on conception, I have cut out alcohol, caffeine and sugar. I take my temperature every hour. But good for you for not playing with yourself!" - Lily Aldrin
+Last updated: 2024-04-07 19:31:50
+Random Quote: Ted, you know who's a million times hotter than the hottest girl I've ever slept with? Her okay-looking friend I haven't seen naked. Why? Because new is always better. - Barney Stinson
