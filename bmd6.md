@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 05:52:42
-Random Quote: Oh, we're busting apple bags? I can bust apple bags. - Robin Scherbatsky
+Last updated: 2024-04-07 05:53:16
+Random Quote: Your innocence may be as plain as the scar on your face, but it will not save you.  No more than your father will.  But I might.  Not as your judge.  As your champion.  -  Oberyn Martell
