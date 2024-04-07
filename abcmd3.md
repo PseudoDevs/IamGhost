@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 06:44:49
-Random Quote: Sorry buddy, wish I could help you, but my hands are tied. Oh no wait, that was last night! - Barney Stinson
+Last updated: 2024-04-07 06:45:25
+Random Quote: You think you're the only one he whispers secrets to?  He gives each of us just enough to convince us that we'd be helpless without him.  -  Cersei Lannister
