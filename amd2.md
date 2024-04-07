@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 05:57:39
-Random Quote: I was weaned on venom, Dalt.  Any viper takes a bite of me will rue it.  -  Gerold Dayne
+Last updated: 2024-04-07 05:58:12
+Random Quote: Female acrobats from Montreal, super flexible... we're gonna get Cirque du so-laid! - Barney Stinson
