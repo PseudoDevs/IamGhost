@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 06:44:31
-Random Quote: Some battles are won with swords and spears, others with quills and ravens.  -  Tywin Lannister
+Last updated: 2024-04-07 06:45:04
+Random Quote: I'm sorry, can you repeat that? I don't speak "I-never-get-laid". - Barney Stinson
