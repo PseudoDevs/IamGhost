@@ -1,2 +1,3 @@
-Last updated: 2024-04-07 05:55:35
-Random Quote: Khaleesi, better a man should swallow scorpions than trust in the spawn of shadows, who dare not show their face beneath the sun.  It is known.  -  Rakharo
+Last updated: 2024-04-07 05:56:10
+Random Quote: What do you call a fish with no eyes?
+Fsh. - Marshall Eriksen
