@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 05:18:49
-Random Quote: Out there, I don't stand a chance. I do in here. - Jang Deok-su
+Last updated: 2024-04-07 05:19:22
+Random Quote: His blood is bad.  He needs to be leeched.  The leeches suck away the bad blood, all the rage and pain.  No man can think so full of anger.  Ramsay, though... his tainted blood would poison even leeches, I fear.  -  Roose Bolton
