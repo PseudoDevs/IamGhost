@@ -1,2 +1,4 @@
-Last updated: 2024-04-07 07:26:28
-Random Quote: The Peaky Blinders. The vicious, merciless gangs who blind those who see and cut out the tongues of those who talk. - Chester Campbell
+Last updated: 2024-04-07 07:27:36
+Random Quote: Bo-Katan: "I've scugged off a lot of Imperial warlords."
+Din: "They tend to get mad when you hijack their ships."
+Bo-Katan: "Now you tell me." - Bo-Katan

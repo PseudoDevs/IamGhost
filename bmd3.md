@@ -1,3 +1,2 @@
-Last updated: 2024-04-07 07:27:02
-Random Quote: Miguel: "Would you have really fed me to those hippos?"
-Pablo: "No. Hippos don't like Mexicans either." - Pablo Escobar
+Last updated: 2024-04-07 07:27:36
+Random Quote: If you don't trust your men with your money, you have bigger problems than if you trust Saul Goodman. - Kim Wexler
