@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 07:25:54
-Random Quote: I am Mr. Charity. I frequently sleep with sixes, chubsters, over thirty's. I am the Bill and Melinda Gates of the sympathy bang. - Barney Stinson
+Last updated: 2024-04-07 07:26:28
+Random Quote: Lily: "It's nine weeks 'til the wedding, at this point, I'd say yes to just about anything."Barney: "Well..."Lily: "No, Barney." - Lily Aldrin
