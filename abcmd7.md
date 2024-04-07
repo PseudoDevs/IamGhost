@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 17:34:56
-Random Quote: The Mandalorian. His armor alone is worth more than my bounty. - Fennec Shand
+Last updated: 2024-04-07 17:36:10
+Random Quote: Men say Tywin never smiled, but he smiled when he wed your mother, and when Aerys made him Hand.  When Tarbeck Hall came crashing down on Lady Ellyn, that scheming bitch, Tyg claimed he smiled then, and he smiled at your birth, Jaime, I saw with my own eyes.  -  Genna Lannister
