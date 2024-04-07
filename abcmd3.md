@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 04:18:56
-Random Quote: Oh, this dress is totally going to get me laid on my wedding night. - Lily Aldrin
+Last updated: 2024-04-07 04:19:29
+Random Quote: You have a passing clever father, Devan.  He makes me wish I had more smugglers in my service.  And fewer lords.  -  Stannis Baratheon
