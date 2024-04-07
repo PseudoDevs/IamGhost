@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 16:28:07
-Random Quote: There is a time to fight and there is a time to be clever. - Pablo Escobar
+Last updated: 2024-04-07 16:29:15
+Random Quote: You have to be as bad as them above in order to survive. - Polly Gray
