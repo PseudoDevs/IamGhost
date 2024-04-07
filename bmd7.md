@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 16:24:05
-Random Quote: Know the men who follow you and let them know you.  Don't ask your men to die for a stranger.  -  Eddard Stark
+Last updated: 2024-04-07 16:24:38
+Random Quote: He let me have her. I have to say, it was pretty noble of him. He fell on his sword so that she could fall on mine. - Barney Stinson
