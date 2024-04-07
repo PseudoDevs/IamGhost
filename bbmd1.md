@@ -1,2 +1,3 @@
-Last updated: 2024-04-07 16:25:17
-Random Quote: Seriously? "Hello Kitty"? - Jesse Pinkman
+Last updated: 2024-04-07 16:27:33
+Random Quote: May: "May Carleton. I breed racehorses and train them. What is it you do?"
+Thommy: "I rarely answer questions is what I do." - Thomas Shelby
