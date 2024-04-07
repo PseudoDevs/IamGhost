@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 06:04:43
-Random Quote: Minds are like swords, I do fear.  The old ones go to rust.  -  Grand Maester Pycelle
+Last updated: 2024-04-07 06:05:17
+Random Quote: We’re wanderers in the darkness. - 
