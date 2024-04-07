@@ -1,2 +1,3 @@
-Last updated: 2024-04-07 19:39:45
-Random Quote: I'm honest.  It's the world that's awful.  -  Sandor Clegane
+Last updated: 2024-04-07 19:40:18
+Random Quote: Gor Koresh: "This is no place for a child."
+Mando: "Wherever I go, he goes. I've been quested to bring him to his kind." - Din Djarin
