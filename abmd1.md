@@ -1,3 +1,2 @@
-Last updated: 2024-04-07 16:38:52
-Random Quote: May: "May Carleton. I breed racehorses and train them. What is it you do?"
-Thommy: "I rarely answer questions is what I do." - Thomas Shelby
+Last updated: 2024-04-07 16:39:26
+Random Quote: The absolute worst part of depression is that even though you know you're depressed, You're unable to stop yourself from getting worse. - Rue Bennett
