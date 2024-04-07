@@ -1,3 +1,2 @@
-Last updated: 2024-04-07 20:31:47
-Random Quote: Ellie: "There's not gonna be anything bad in here?"
-Joel: "Just you." - Joel Miller
+Last updated: 2024-04-07 20:32:20
+Random Quote: The Mandalorian. His armor alone is worth more than my bounty. - Fennec Shand
