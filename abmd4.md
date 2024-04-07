@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 18:06:15
-Random Quote: Bear Island knows no king save the King in the North, whose name is Stark.  -  Lyanna Mormont
+Last updated: 2024-04-07 18:06:53
+Random Quote: When it comes to locker rooms, I like 'em just like my mother's bathing suits: I only wanna see 'em in one piece. - Jim Hopper
