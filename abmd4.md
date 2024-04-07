@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 17:08:41
-Random Quote: Marshall Eriksen, put a baby in my belly. - Lily Aldrin
+Last updated: 2024-04-07 17:09:17
+Random Quote: You have a passing clever father, Devan.  He makes me wish I had more smugglers in my service.  And fewer lords.  -  Stannis Baratheon
