@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 18:28:08
-Random Quote: The Citadel took my chain, but they could not take my knowledge.  -  Qyburn
+Last updated: 2024-04-07 18:28:41
+Random Quote: Never forget what you are, for surely the world will not.  Make it your strength.  Then it can never be your weakness.  Armor yourself in it, and it will never be used to hurt you.  -  Tyrion Lannister
