@@ -1,4 +1,2 @@
-Last updated: 2024-04-07 04:20:24
-Random Quote: Joel: "Where'd you get the money for this?"
-Sarah: "Drugs. I sell hardcore drugs."
-Joel: "It's better than what I do." - Joel Miller
+Last updated: 2024-04-07 04:20:57
+Random Quote: When I get sad, I stop being sad and be awesome instead. True Story. - Barney Stinson
