@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 20:07:20
-Random Quote: No man has ever died from bending his knee.  He who kneels may rise again, blade in hand.  He who will not kneel stays dead, stiff legs and all.  -  Balon Greyjoy
+Last updated: 2024-04-07 20:07:53
+Random Quote: You better go to your room before I give you a smack. Smacking is still an acceptable punishment in many minority cultures. - Nalini Vishwakumar
