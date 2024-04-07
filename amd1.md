@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 19:40:06
-Random Quote: He made me kill a rabbit. I guess he thought it would make me into more of a man or something. I cried for a week. - Jonathan Byers
+Last updated: 2024-04-07 19:40:39
+Random Quote: Barney: "Wow, Ted. You're gonna have to find a new member for yourself, cause I'm revoking your dude-membership."Ted: "Yeah, how was that manicure yesterday?"Barney: "Invigorating... thanks." - Barney Stinson
