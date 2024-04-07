@@ -1,4 +1,2 @@
-Last updated: 2024-04-07 06:47:49
-Random Quote: Tony Stark: "Lieutenant Killmonger? What is that? German?"
-Killmonger: "A nickname."
-Tony Stark: "That's clearly a good fit." - Killmonger
+Last updated: 2024-04-07 06:48:25
+Random Quote: Hey kid, you know how your mom won't let you have icecream 'til after dinner, but then the waiting kind of makes it taste better? Well, I've been waiting two months for that bowl of ice cream - and tonight I'm gonna have sex with it. - Barney Stinson
