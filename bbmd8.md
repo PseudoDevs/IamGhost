@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 07:12:04
-Random Quote: Shagg, son of Dolf will chop off their manhoods and feed them to the crows.  -  Shagga, son of Dolf
+Last updated: 2024-04-07 07:12:40
+Random Quote: Robin, I'm his best friend, that's a commitment. Girlfriend, that's like a bad flu. Out of your system after a couple of weeks in bed. - Barney Stinson
