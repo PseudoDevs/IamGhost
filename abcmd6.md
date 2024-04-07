@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 17:37:21
-Random Quote: I have been a voice with no body. A body, but not human. And now, a memory made real. Who knows what I might be next? - Vision
+Last updated: 2024-04-07 17:37:55
+Random Quote: The common people pray for rain, healthy children, and a summer that never ends.  It is no matter to them if the high lords play their game of thrones, so long as they are left in peace.  They never are.  -  Jorah Mormont
