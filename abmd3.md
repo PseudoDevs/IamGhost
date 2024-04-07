@@ -1,3 +1,2 @@
-Last updated: 2024-04-07 16:59:02
-Random Quote: Morty: "Rick, can we not leave without my sister?"
-Rick: "Ugh. You have infinite sisters, Morty. Not that I want to spend the rest of my day looking for another one. Sum-Sum, let's go! Grandpa's concern for your safety is fleeting." - Rick Sanchez
+Last updated: 2024-04-07 16:59:40
+Random Quote: No, only a boy who dreams.  The greenseers were more than that.  They were wargs as well, as you are, and the greatest of them could wear the skins of any beast that flies or swims or crawls, and could look through the eyes of the weirwoods as well, and see the truth that lies beneath the world.  -  Jojen Reed
