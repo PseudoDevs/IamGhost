@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 18:39:01
-Random Quote: He is strong with the Force, but talent without training is nothing. I will give my life to protect the child, but he will not be safe until he masters his abilities. - Luke Skywalker
+Last updated: 2024-04-07 18:39:34
+Random Quote: There is no creature on earth half so terrifying as a truly just man.  -  Varys
