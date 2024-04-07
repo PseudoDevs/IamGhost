@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 07:02:19
-Random Quote: The Old Gods stir and will not let me sleep.  I dreamt I saw a shadow with a burning heart butchering a golden stag, aye.  I dreamt of a man without a face, waiting on a bridge that swayed and swung.  On his shoulder perched a drowned crow with seaweed hanging from his wings.  I dreamt of a roaring river and a woman that was a fish.  Dead she drifted, with red tears on her cheeks, but when her eyes did open, oh, I woke from terror.  All this I dreamt, and more.  -  The Ghost of High Heart
+Last updated: 2024-04-07 07:02:55
+Random Quote: Harry and Meghan, move over! This is what fairy tales are made of. They'd been together for two whole weeks, which for teenagers is basically a lifetime of monogamy. Although between us, it had been a surprisingly PG-13 two weeks. - John McEnroe
