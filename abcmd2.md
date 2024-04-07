@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 18:44:23
-Random Quote: Qhorin was my enemy.  But also my brother, once.  So... shall I thank you for killing him, Jon Snow?  Or curse you?  -  Mance Rayder
+Last updated: 2024-04-07 18:44:56
+Random Quote: Jerry: "I wish that shotgun was my penis."Beth: "If it were, you could call me Ernest Hemingway." - Beth Smith
