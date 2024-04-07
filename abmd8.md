@@ -1,2 +1,3 @@
-Last updated: 2024-04-07 05:22:56
-Random Quote: Beware, Thor, for thy brother shall free himself from our father's wrath And then shall you know the vengeance of Loki! - Thor
+Last updated: 2024-04-07 05:23:31
+Random Quote: Gor Koresh: "This is no place for a child."
+Mando: "Wherever I go, he goes. I've been quested to bring him to his kind." - Din Djarin
