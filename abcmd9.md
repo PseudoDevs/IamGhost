@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 16:43:58
-Random Quote: All men are fools, if truth be told, but the ones in motley are more amusing than the ones with crowns.  -  Olenna Tyrell
+Last updated: 2024-04-07 16:44:32
+Random Quote: Kids, you may think your only choices are to swallow your anger or throw it in someone's face, but there's a third option: You can just let it go, and only when you do that is it really gone and you can move forward. - Ted Mosby
