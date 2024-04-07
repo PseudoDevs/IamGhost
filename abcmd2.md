@@ -1,2 +1,3 @@
-Last updated: 2024-04-07 16:47:32
-Random Quote: Doesn't matter what you did or what you were, you are an Avenger! - Agatha Harkness
+Last updated: 2024-04-07 16:48:06
+Random Quote: Jang Deok-su: "Tell me what you're good at?"
+Han Mi-nyeo: "Everything, except the things I can't do." - Oh Il-nam
