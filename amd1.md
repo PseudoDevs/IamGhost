@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 05:14:08
-Random Quote: The septons preach about the seven hells.  What do they know?  Only a man who's been burned knows what hell is truly like.  -  Sandor Clegane
+Last updated: 2024-04-07 05:14:41
+Random Quote: Miss Garvey's parents may stay at our place as long as they like. Provided they each arrive in an urn. - Barney Stinson
