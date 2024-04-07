@@ -1,4 +1,2 @@
-Last updated: 2024-04-07 05:59:11
-Random Quote: Barney: "Ted, I'm gonna teach you how to live. Barney... we met at the urinal. Lesson 1: Loose the goatee it doesn't go with your suit!"
-Ted: "I'm not wearing a suit."
-Barney: "Lesson 2: Get a suit, suits are cool. Exhibit A. Lesson 3: "Don't even think about getting married until your 30." - Barney Stinson
+Last updated: 2024-04-07 06:01:15
+Random Quote: They know.  The gods know.  They saw what I did.  And for one strange moment it seemed as if it were Bran's face carved into the pale trunk of the weirwood, staring down at him with eyes red and wise and sad.  Bran's ghost, he thought, but that was madness.  Why should Bran want to haunt him?  He had been fond of the boy, had never done him any harm.  It was not Bran we killed.  It was not Rickon.  They were only miller's sons, from the mill by the Acorn Water.  -  Theon Greyjoy
