@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 19:46:35
-Random Quote: If you don’t know who I am, then maybe your best course would be to tread lightly. - Walter White
+Last updated: 2024-04-07 19:47:08
+Random Quote: My real father died in King's Landing.  I made a choice, and I chose wrong.  -  Theon Greyjoy
