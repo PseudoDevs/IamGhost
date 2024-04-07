@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 17:58:20
-Random Quote: I wish my mental problems made me look like you. - Kat Hernandez
+Last updated: 2024-04-07 17:58:57
+Random Quote: Reality is more than neurons firing around in your brain. Reality is not what's on the inside. It's what's happening on the outside. - Daniel Solace
