@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 19:09:49
-Random Quote: The reason why she doesn't remember is because she's a grown up. That's how this stuff always works. Only kids can get into Narnia. - Bode Locke
+Last updated: 2024-04-07 19:10:22
+Random Quote: Back boobs! The visual stimulation of missionary meets the emotional detachment of doggy style... patent pending. - Barney Stinson
