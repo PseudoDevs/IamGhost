@@ -1,3 +1,2 @@
-Last updated: 2024-04-07 05:20:52
-Random Quote: Ellie: "Everybody I've cared for, either died or left me."
-Joel: "You have no idea what loss is." - Joel Miller
+Last updated: 2024-04-07 05:21:25
+Random Quote: Do you think I can't tell Lord Stannis from Lord Tywin?  They're both bungholes who think they're too noble to shit, but never mind about that, I know the difference.  -  Walder Frey
