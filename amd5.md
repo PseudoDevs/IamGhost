@@ -1,2 +1,3 @@
-Last updated: 2024-04-07 05:51:23
-Random Quote: You know who's into dragons, Morty? Nerds who refuse to admit they're Christian. - Rick Sanchez
+Last updated: 2024-04-07 05:52:30
+Random Quote: Mi-nyeo: "Deok-su. You betray me... I'll kill you. Okay?"
+Deok-su: "You're the reason that I think I might die tonight." - Jang Deok-su
