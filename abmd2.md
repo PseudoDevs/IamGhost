@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 16:35:31
-Random Quote: If you're looking for the word that means caring for someone beyond all rationality and wanting them to have everything they want, no matter how much it destroys you, it's love! - Ted Mosby
+Last updated: 2024-04-07 16:36:06
+Random Quote: I knew quite a few Jedi, you know. I don't know what they taught you about us, but there was a time we actually got along quite well. Fought side by side. - Bo-Katan
