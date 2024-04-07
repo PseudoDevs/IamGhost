@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 19:07:35
-Random Quote: What we know is a drop. What we don’t know is an ocean - 
+Last updated: 2024-04-07 19:08:10
+Random Quote: We all have things we keep hidden. Sometimes, keeping secrets is how you survive. Because in High School, one rumor, one picture, one incident, can define you forever. - Hannah Baker
