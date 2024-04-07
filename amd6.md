@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 16:39:36
-Random Quote: We just miss our old friend, but right now, you're not her. You just seem lost. - Devi Vishwakumar
+Last updated: 2024-04-07 16:40:10
+Random Quote: Jaime, sweetling, I have known you since you were a babe at Joanna's breast.  You smile like Gerion and fight like Tyg and there's some of Keven in you, else you would not wear that cloak... but Tyrion is Tywin's son, not you.  I said that once to your father's face, and he would not speak to me for half a year.  -  Genna Lannister
