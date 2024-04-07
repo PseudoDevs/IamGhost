@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 19:54:59
-Random Quote: In this world, a man must learn to seize whatever gifts the gods chose to send him.  That was a lesson I learned at some cost.  -  The Tattered Prince
+Last updated: 2024-04-07 19:55:32
+Random Quote: To have power does not mean that one can abuse the poor. - Pablo Escobar
