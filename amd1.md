@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 19:21:53
-Random Quote: She really had a fat but: her fat butt! - Barney Stinson
+Last updated: 2024-04-07 19:23:39
+Random Quote: We all must choose.  Man or woman, young or old, lord or peasant, our choices are the same.  We choose light or we choose darkness.  -  Melisandre
