@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 16:59:41
-Random Quote: I am one far more accustomed to demanding answers, fool, than to giving them. - Thor
+Last updated: 2024-04-07 17:00:21
+Random Quote: Winter will never come for the likes of us.  Should we die in battle, they will surely sing of us, and it's always summer in the songs.  In the songs all knights are gallant, all maids are beautiful, and the sun is always shining.  -  Brienne of Tarth
