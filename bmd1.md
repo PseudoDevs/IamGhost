@@ -1,3 +1,2 @@
-Last updated: 2024-04-07 16:42:49
-Random Quote: Freddie: "If you want me out of Birmingham, it'll have to be in a wooden box."
-Polly: "You lay a hand on our Ada, I'll put you in a wooden box myself!" - Polly Gray
+Last updated: 2024-04-07 16:43:22
+Random Quote: You are her perfect prince, agreed, bright and bold and comely as any maid could wish.  Daenerys Targaryen is no maid, however.  She is the widow of a Dothraki Khal, a mother of dragons and sacker of cities, Aegon the Conquereror with teats.  She may not prove as willing as you wish.  -  Tyrion Lannister
