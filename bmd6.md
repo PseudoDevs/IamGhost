@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 16:31:29
-Random Quote: If you had to fall into a woman's arms, my son, why couldn't they have been Margaery Tyrell's?  -  Catelyn Stark
+Last updated: 2024-04-07 16:32:37
+Random Quote: Missy Cooper: I don't want to die, I've only kissed one boy so far. - Missy Cooper
