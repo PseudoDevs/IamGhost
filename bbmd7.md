@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 16:58:55
-Random Quote: You want to know the horrible truth?  I can't even remember what she looked like.  I only know she was the one thing I ever wanted, and seven kingdoms couldn't fill the hole she left behind.  -  Robert Baratheon
+Last updated: 2024-04-07 16:59:28
+Random Quote: Robin: "Sometimes in life you have to be assertive and stand up for yourself."Ted: "You called her a whore!"Robin: "Who wears that much make up?"Ted: "Old ladies!"Robin: "Who take money for sex, exactly!" - Robin Scherbatsky
