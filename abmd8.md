@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 16:27:16
-Random Quote: Sandy Rivers: "I don't know what went wrong."Robin: "Well, proposing a three way was bad. Starting without us was worse. Finishing in the hallway was the nail in the coffin." - Robin Scherbatsky
+Last updated: 2024-04-07 16:27:50
+Random Quote: I could keep you safe.  They're all afraid of me.  No one would hurt you again, or I'd kill them.  -  Sandor Clegane
