@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 20:21:27
-Random Quote: Discouraging premarital sex is against my religion. - Barney Stinson
+Last updated: 2024-04-07 20:22:01
+Random Quote: See, lad, that's why he's the king and I'm not.  I can outdrink, outfight, and outsing him, and my member's thrice the size o' his, but Mance has cunning.  -  Tormund Giantsbane
