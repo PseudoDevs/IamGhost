@@ -1,3 +1,2 @@
-Last updated: 2024-04-07 04:34:50
-Random Quote: Billy: "Halloween's a magical holiday. All about family, friends, and the thrill of getting to be someone else for a day."
-Tommy: "Wrong! Halloween's about candy. And scaring people, but mostly candy." - Tommy Maximoff
+Last updated: 2024-04-07 16:18:26
+Random Quote: The only person who gets to torture my brother is me. - Wednesday Addams
