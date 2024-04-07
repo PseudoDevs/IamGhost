@@ -1,2 +1,3 @@
-Last updated: 2024-04-07 18:31:29
-Random Quote: If we miss Hawaii because of this, guess who's not doing "The Disappearing Salami" anytime soon? - Quinn Garvey
+Last updated: 2024-04-07 18:32:02
+Random Quote: The Deep: "What do we do? We can't just kill everyone."
+Billy Butcher: "That's exactly what we're gonna do!" - Billy Butcher
