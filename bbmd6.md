@@ -1,2 +1,3 @@
-Last updated: 2024-04-07 07:21:00
-Random Quote: Your story is so sweet. You didn't even kiss 'til the third date. By our third date, I hit more bases than Bob Hope on a USO tour. - Barney Stinson
+Last updated: 2024-04-07 07:21:33
+Random Quote: Dragon: "My name is Balthromaw. Breaker of skies, slayer of mountain."
+Rick: "Rule 1: You're now scooper of your own poops, or I will take you down like the black-light poster you are." - Rick Sanchez
