@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 17:45:45
-Random Quote: My old septon used to say that books are dead men talking.  Dead men should keep quiet, is what I say.  No one wants to hear a dead man's yabber.  -  Dolorous Edd Tollett
+Last updated: 2024-04-07 17:46:18
+Random Quote: That's not a law, just a sword.  Happens I got one too.  -  Yoren of the Night's Watch
