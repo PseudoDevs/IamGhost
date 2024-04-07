@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 17:38:13
-Random Quote: Richard, you have desecrated the sacred treaty betwixt land and sea. Now face the wrath of your once and eternal foe - Mr. Nimbus! - Mr. Nimbus
+Last updated: 2024-04-07 17:38:46
+Random Quote: You're wrong.  Need Stark was my gaoler, but my blood is still salt and iron.  -  Theon Greyjoy
