@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 16:21:47
-Random Quote: Because were baseball, strippers and guns can't help, the only thing that can really heal a broken heart, is time. - Ted Mosby
+Last updated: 2024-04-07 16:22:59
+Random Quote: Marshall: "Baby, you're like 20 slutty chicks all rolled into one."Lily: "Sweet-talk is not gonna change my mind!" - Lily Aldrin
