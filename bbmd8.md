@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 04:44:21
-Random Quote: I asked him why he kept her close, if he thought her so grotesque.  He said that all his other knights wanted things of him, castles or honors or riches, but all that Brienne wanted was to die for him.  -  Loras Tyrell
+Last updated: 2024-04-07 04:45:37
+Random Quote: The soldier's minute. In a battle that's all you get. One minute of everything at once. And anything before it nothing. Everything after, nothing. Nothing in comparison to that one minute. - Thomas Shelby

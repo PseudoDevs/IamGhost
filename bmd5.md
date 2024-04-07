@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 04:44:58
-Random Quote: What the hell is the matter with you? You tryin' out for the retard Olympics? - George 'Pornstache' Mendez
+Last updated: 2024-04-07 04:45:37
+Random Quote: I don't know what kind of fed up sht you got going inside of your head. I don't know how to help, but I could tell you one thing: This drug sht - it's not the answer. - Fezco
