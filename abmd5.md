@@ -1,6 +1,2 @@
-Last updated: 2024-04-07 16:37:50
-Random Quote: When Mom was a groupie in the '70s, her scrambled eggs made her the darling of the MSG loading dock. Lot of songs written about those scrambled eggs:
-ZZ Top's "She's Got Legs"? Originally "She's Got Eggs".
-Led Zeppelin? "Scramble On".
-Steve Miller? "The Yolker".
-If you listen to Pink Floyd's "Dark Side of the Moon" while eating her eggs, it lines up perfectly. - Barney Stinson
+Last updated: 2024-04-07 16:38:24
+Random Quote: No sword is strong until it's been tempered.  The Stark boy is a child.  No doubt he likes the sound of warhorns well enough, and the sight of his banners fluttering in the wind, but in the end it comes down to butcher's work.  I doubt he has the stomach for it.  -  Tywin Lannister
