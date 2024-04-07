@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 19:26:31
-Random Quote: I think the word you're looking for is 'audacious'. - Kim Wexler
+Last updated: 2024-04-07 19:27:05
+Random Quote: Penrose chose to die rather than give him up.  It still angers me.  How could he think I would hurt the boy?  I chose Robert, did I not?  When that hard day came, I chose blood over honor.  -  Stannis Baratheon
