@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 20:25:24
-Random Quote: I never asked for this, no more than I asked to be king.  Yet dare I disregard her?  We do not choose our destinies.  Yet we must... we must do our duty, no?  Great or small, we must do our duty.  -  Stannis Baratheon
+Last updated: 2024-04-07 20:25:57
+Random Quote: I have been called many things, my lord, byt kind is seldom one of them.  -  Maester Aemon
