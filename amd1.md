@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 20:25:39
-Random Quote: I just want to stand on top of the Wall and piss off the edge of the world.  -  Tyrion Lannister
+Last updated: 2024-04-07 20:26:13
+Random Quote: Godless?  Why, Aeron, I am the godliest man ever to raise sail!  You serve one god, Damphair, but I have served ten thousand.  From Ib to Asshai, when men see my sails, they pray.  -  Euron Greyjoy

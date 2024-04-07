@@ -1,2 +1,3 @@
-Last updated: 2024-04-07 20:25:39
-Random Quote: I'm a cool dad. That's my thang. I surf the web... I text LOL - Laugh Out Loud, OMG - Oh My God, WTF - Why The Face. - Phil Dunphy
+Last updated: 2024-04-07 20:26:13
+Random Quote: Morty: "Rick, can we not leave without my sister?"
+Rick: "Ugh. You have infinite sisters, Morty. Not that I want to spend the rest of my day looking for another one. Sum-Sum, let's go! Grandpa's concern for your safety is fleeting." - Rick Sanchez
