@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 16:47:27
-Random Quote: Do you know what it is like to be sold, squire?  I do.  My brother sold me to Khal Drogo for the promise of a golden crown.  Well, Drogo crowned him in gold, though not as he had wished, and I... my sun - and
+Last updated: 2024-04-07 16:48:01
+Random Quote: Robin: "Our boy's back in the game."Lily: "Thank God, it's been a hundred years since Mosby scored a dame."Marshall: "The last time he saw boobies was the screen-test scene in 'Fame'."Robin: "The last girl he dated, I think 'Righty' was her name." - Robin Scherbatsky
