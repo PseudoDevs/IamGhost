@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 06:42:10
-Random Quote: New York! Home of the Mets, the Chrysler Building, those ladies from Sex and the City and now, the zombie apocalypse. If you can make it here, you can make it anywhere - but first, you have to not get eaten. - Spider-Man
+Last updated: 2024-04-07 06:42:43
+Random Quote: Ted: "She was 15?!"Barney: "No. A 15. Like in blackjack."Ted: "As in.. not sure whether you'd hit it?"Barney: "Exactly!" - Barney Stinson
