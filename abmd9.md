@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 05:05:11
-Random Quote: I know that new situations can be intimidating. You look around, and it's all scary and different. But meeting them head-on, charging right into them like a bull, that's how we grow as people. - Rick Sanchez
+Last updated: 2024-04-07 05:05:47
+Random Quote: The truth isn't always to most exciting version of things, or the best, or the worst. It's somewhere inbetween. But it deserves to be heard and remembered. 'The truth will out', like someone said once. It remains. - Hannah Baker

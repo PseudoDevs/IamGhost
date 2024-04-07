@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 05:05:12
-Random Quote: Wylla.  Did you see how brave she was.  Even when I threatened to have her tongue out, she reminded me of the debt White Harbor owes to the Starks of Winterfell, a debt that can never be repaid.  Wylla spoke from the heart... not every woman can be as brave as my Wylla.  -  Wyman Manderly
+Last updated: 2024-04-07 05:05:49
+Random Quote: Jaime and I are more than brother and sister.  We are one person in two bodies.  We shared a womb together.  He came into this world holding my foot, our old maester said.  When he is in me, I feel... whole.  -  Cersei Lannister
