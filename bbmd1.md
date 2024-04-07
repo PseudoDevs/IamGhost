@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 05:33:17
-Random Quote: The most important moments are the ones that make you realize there’s no turning back. You’ve crossed a line, and you’re stuck on the other side now. - Tokyo
+Last updated: 2024-04-07 05:33:50
+Random Quote: I swear on my name. And the names of the Ancestors, that I shall walk the way of the Mand'alor and the words of the Creed shall be forever forged in my heart. - Din Djarin
