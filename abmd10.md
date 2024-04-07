@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 04:20:40
-Random Quote: I'm just here to lend a helping hand, you know, make sure the business is running in order. I got a good head for numbers. But listen, don't even worry. It's gonna be like I'm not even here. - Lalo Salamanca
+Last updated: 2024-04-07 04:21:55
+Random Quote: Robert wanted smiles and cheers, always, so he went where he found them, to his friends and his whores.  Robert wanted to be loved.  My brother Tyrion has the same disease.  -  Cersei Lannister
