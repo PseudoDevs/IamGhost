@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 17:26:31
-Random Quote: People deserve a second chance, just like businesses. - Marty Byrde
+Last updated: 2024-04-07 17:27:03
+Random Quote: Serve, Obey, Protect.  Simple vows for a simple man.  -  Areo Hotah
