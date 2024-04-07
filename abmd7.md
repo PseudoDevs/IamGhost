@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 19:44:53
-Random Quote: Euron's gifts are poisoned.  -  Victarion Greyjoy
+Last updated: 2024-04-07 19:45:26
+Random Quote: Young I was, and vain, but the sea washed my follies and my vanities away.  That man drowned, nephew.  His lungs filled with seawater, and the fish ate the scales off his eyes.  When I rose again, I saw clearly.  -  Aeron Greyjoy
