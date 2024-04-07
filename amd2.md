@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 19:48:21
-Random Quote: Those called "fools" are the only ones brave enough to see the truth. - Rick Sanchez
+Last updated: 2024-04-07 19:48:54
+Random Quote: It is R'hllor who brings you back, my lord.  The Lord of Light.  I am only his instrument.  -  Thoros of Myr
