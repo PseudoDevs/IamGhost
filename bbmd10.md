@@ -1,3 +1,2 @@
-Last updated: 2024-04-07 19:17:18
-Random Quote: Tommy: "I'll have some men watch her house 'til the danger passes."
-Polly: "'Til the danger passes. That'll be the bloody day." - Polly Gray
+Last updated: 2024-04-07 19:17:51
+Random Quote: One of the 24 similarities between women and fish are they're both attracted to shiny objects. - Barney Stinson
