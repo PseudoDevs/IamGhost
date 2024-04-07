@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 18:49:14
-Random Quote: Knights?  Dondarrion's a knight, but the rest of you are the sorriest lot of outlaws and broken men I've ever seen.  -  Sandor Clegane
+Last updated: 2024-04-07 18:49:48
+Random Quote: I don't remember much between the ages of eight and twelve. Just that the world moved fast and my brain moved slow. And every now and then, if I focused too closely on the way I breathed, I'd die. Until every second of every day, you find yourself trying to outrun your anxiety. - Rue Bennett
