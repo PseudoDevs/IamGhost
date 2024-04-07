@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 20:04:30
-Random Quote: Ted: "Grinch, Grinch, Grinch, Grinch!"[The lights turn out]Lily: "Happy? Now you pissed up the big guy upstairs!"Ted: "Yeah, I'm sure god cares if I..."Man: "You use that language again and I turn off your water!"Lily: "It's my super - he lives above me." - Lily Aldrin
+Last updated: 2024-04-07 20:05:35
+Random Quote: Ties and no playoffs? Why do you even do this? - Jim Hopper
