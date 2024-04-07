@@ -1,2 +1,4 @@
-Last updated: 2024-04-07 19:50:26
-Random Quote: People taking power who don't deserve it. It never ends well. - Jérôme
+Last updated: 2024-04-07 19:50:59
+Random Quote: Tony Stark: "Lieutenant Killmonger? What is that? German?"
+Killmonger: "A nickname."
+Tony Stark: "That's clearly a good fit." - Killmonger
