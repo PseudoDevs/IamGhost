@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 16:55:12
-Random Quote: When you date someone, it's like you're taking one long course in who that person is and then, when you break up, all that stuff becomes useless. It's the emotional equivalent of an English degree... - Ted Mosby
+Last updated: 2024-04-07 16:55:45
+Random Quote: I've got a new bro, a bro that puts all other bros to shame. The bitches love him. He buries bones all day. No one chases tail like him. Why aren't you guys laughing? Oh, wait, I probably should have led with this: he's a dog! I've named him Brover. - Barney Stinson
