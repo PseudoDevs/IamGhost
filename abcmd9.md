@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 19:23:07
-Random Quote: Do not tell me you're gonna start searching for "the one" again. The only time I wanna hear you saying "the one", is if it's followed by the word "hundred". - Barney Stinson
+Last updated: 2024-04-07 19:23:40
+Random Quote: My Lords!  Here is what I say to these two kings!  Renly Baratheon is nothing to me, nor Stannis neither.  Why should they rule over me and mine, from some flowery seat in Highgarden or Dorne?  What do they know of the Wall or the wolfswood or the barrows of the First Men?  Even their gods are wrong.  The Others take the Lannisters too, I've had a bellyful of them.  Why shouldn't we rule ourselves again?  It was the dragons we married, and the dragons are all dead!  There sits the only king I mean to bow my knee to, m'lords.  The King in the North!  -  Greatjon Umber
