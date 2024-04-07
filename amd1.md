@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 20:32:20
-Random Quote: I'm supposed to be this hero, idol symbol, but I don't know what the hell I'm doing. - Starlight
+Last updated: 2024-04-07 20:32:53
+Random Quote: If you had to fall into a woman's arms, my son, why couldn't they have been Margaery Tyrell's?  -  Catelyn Stark
