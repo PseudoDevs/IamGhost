@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 17:34:18
-Random Quote: There are worse ways to die than warm and drunk.  I knew a brother drowned himself in wine once.  It was a poor vintage, though, and his corpse did not improve it.  -  Dolorous Edd Tollett
+Last updated: 2024-04-07 17:34:55
+Random Quote: I'm just saying, love is a million things. - Maddy Perez
