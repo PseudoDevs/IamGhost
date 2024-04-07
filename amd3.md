@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 20:11:13
-Random Quote: The more you give a king, the more he wants.  We are walking on a bridge of ice with an abyss on either side.  Pleasing one king is difficult enough.  Pleasing two is hardly possible.  -  Jon Snow
+Last updated: 2024-04-07 20:12:53
+Random Quote: We should have never gotten on this ship. It was a mistake. All of it, a huge mistake. - Yuk Je
