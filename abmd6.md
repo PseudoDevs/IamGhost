@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 19:03:57
-Random Quote: Robin: "Ted, are you acting out the last scene of 'Sleepless in Seattle' with little dolls?"Ted: "How long have you been out here?"Robin: "Ten seconds."Ted: "Yeah - just the last scene." - Robin Scherbatsky
+Last updated: 2024-04-07 19:04:35
+Random Quote: Robin, I'm his best friend, that's a commitment. Girlfriend, that's like a bad flu. Out of your system after a couple of weeks in bed. - Barney Stinson
