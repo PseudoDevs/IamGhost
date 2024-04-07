@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 06:26:04
-Random Quote: Seriously? "Hello Kitty"? - Jesse Pinkman
+Last updated: 2024-04-07 06:26:38
+Random Quote: Get the keys and remove those chains from him, before you make me rue the day I raped your mother.  -  Roose Bolton
