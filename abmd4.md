@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 04:33:27
-Random Quote: Grey Wind ate two of his fingers, and he laughed about it.  -  Robb Stark on Greatjon Umber
+Last updated: 2024-04-07 04:34:04
+Random Quote: People say Hawkins is cursed. They're not way off. - Dustin Henderson
