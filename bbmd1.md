@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 18:34:22
-Random Quote: Give me back my spear, Uncle.  Cersei sent us a head.  We should send her back a bag of them.  -  Obara Sand
+Last updated: 2024-04-07 18:34:59
+Random Quote: Barney: "Tell me more. Tell me more. Like did he have a car?"Marshall: "So is he the guy who... how shall I say this like a gentleman? Robin, did he take your maple leaf?"Barney: "Sounds to me like he gave you your first 'O Canada' face!" - Barney Stinson
