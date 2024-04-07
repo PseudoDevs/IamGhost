@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 06:41:37
-Random Quote: Barney: "I am so sorry, Cornelius. You deserve a better end than this."Lily: "You got ketchup on a red tie, you can't even see it!" - Lily Aldrin
+Last updated: 2024-04-07 06:42:10
+Random Quote: New York! Home of the Mets, the Chrysler Building, those ladies from Sex and the City and now, the zombie apocalypse. If you can make it here, you can make it anywhere - but first, you have to not get eaten. - Spider-Man
