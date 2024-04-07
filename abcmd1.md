@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 18:23:25
-Random Quote: She studied Theon Greyjoy's sly smile, wondering what it meant.  That young man had a way of looking as though he knew some secret jest that only he was privy to; Catelyn had never liked it.  -  Catelyn Stark
+Last updated: 2024-04-07 18:25:13
+Random Quote: I wish my mental problems made me look like you. - Kat Hernandez
