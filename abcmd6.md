@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 17:42:21
-Random Quote: The Mandalorian. His armor alone is worth more than my bounty. - Fennec Shand
+Last updated: 2024-04-07 17:43:33
+Random Quote: I will not be remembered as Set Arys the Unworthy.  I will not soil my cloak.  -  Arys Oakheart
