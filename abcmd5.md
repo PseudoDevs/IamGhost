@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 04:41:10
-Random Quote: The longer Cersei waits, the angrier she'll become, and anger makes her stupid.  I much prefer angry and stupid to composed and cunning.  -  Tyrion Lannister
+Last updated: 2024-04-07 04:42:26
+Random Quote: A bag of dragons buys a man's silence for a while, but a well - placed quarrel buys it forever. 
