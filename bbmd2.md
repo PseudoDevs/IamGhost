@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 05:55:27
-Random Quote: The farther you go, the sharper their blade. Just don't ever give them an opening. - Cal Jacobs
+Last updated: 2024-04-07 05:56:00
+Random Quote: What you have to do is show these suckers what you’re capable of. Show them you’re not scared. - Nairobi
