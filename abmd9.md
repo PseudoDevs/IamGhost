@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 19:23:18
-Random Quote: I know our relationship isn't exactly what you want it to be. And I know I may not love you the way you love me, but I DO love you. Isn't that worth hanging on to? - Robin Scherbatsky
+Last updated: 2024-04-07 19:23:51
+Random Quote: You are not the guy. You're not capable of being the guy. I had a guy but now I don't. You are not the guy. - Mike Ehrmantraut
