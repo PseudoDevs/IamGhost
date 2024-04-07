@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 04:14:54
-Random Quote: I didn't give up on my dream house, because that's the thing about stupid decisions - we all make them, but time is funny and sometimes a little magical. It can take a stupid decision, and turn it into something else entirely. - Ted Mosby
+Last updated: 2024-04-07 04:15:30
+Random Quote: He would see this country burn if he could be king of the ashes.  -  Varys
