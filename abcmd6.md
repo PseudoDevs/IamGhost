@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 16:22:50
-Random Quote: We were king's men, knights, and heroes... but some knights are dark and full of terror, my lady.  War makes monsters of us all.  -  Thoros of Myr
+Last updated: 2024-04-07 16:23:24
+Random Quote: Sometimes we have to let things go because we can't keep them forever. - Maura Franklin
