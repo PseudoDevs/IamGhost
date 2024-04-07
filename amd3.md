@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 17:44:06
-Random Quote: Maybe people are nostalgic about high school 'cause it's, like, the last time in their life that they get to dream. - Cassie Howard
+Last updated: 2024-04-07 17:44:39
+Random Quote: A grievous wound, aye, but Thoros healed it.  There's never been no better healer.  -  Lem Lemoncloak
