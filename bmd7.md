@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 19:20:07
-Random Quote: Ted: "Those Robin's boobies?"Barney: "When new nubile hotties lean in to inspect your bundle of joy, you can inspect their bundles of joy. The Broller. God, I come up with a lot of good stuff!" - Barney Stinson
+Last updated: 2024-04-07 19:20:42
+Random Quote: I guess we all have things we try to hide. But they can't stay hidden forever. - Hannah Baker
