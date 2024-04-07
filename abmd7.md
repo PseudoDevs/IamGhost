@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 04:20:03
-Random Quote: Well, I'm just gonna go jerk off then. For the 500th time today. - Larry Bloom
+Last updated: 2024-04-07 04:21:54
+Random Quote: Ted: "You're not gonna do it at your wedding?"Lily: "Hell, yeah! I'm gonna take that flower-grenade and chuck it to the crowd and scream, 'Crawl for it, bitches!'" - Lily Aldrin
