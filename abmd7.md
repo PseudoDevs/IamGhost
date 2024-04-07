@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 17:37:22
-Random Quote: Ted: "Those Robin's boobies?"Barney: "When new nubile hotties lean in to inspect your bundle of joy, you can inspect their bundles of joy. The Broller. God, I come up with a lot of good stuff!" - Barney Stinson
+Last updated: 2024-04-07 17:37:59
+Random Quote: Just as long as you're lakeside cheering us to victory on race day... or you can just glare uncomfortably. Whatever works for you. - Enid Sinclair
