@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 17:26:59
-Random Quote: All I wanted was to eat the chicken that is smarter than other chickens and to absorb it's power. - Galina 'Red' Reznikov
+Last updated: 2024-04-07 17:29:20
+Random Quote: Robert wanted smiles and cheers, always, so he went where he found them, to his friends and his whores.  Robert wanted to be loved.  My brother Tyrion has the same disease.  -  Cersei Lannister
