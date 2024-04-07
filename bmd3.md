@@ -1,3 +1,2 @@
-Last updated: 2024-04-07 17:54:41
-Random Quote: Miguel: "Would you have really fed me to those hippos?"
-Pablo: "No. Hippos don't like Mexicans either." - Pablo Escobar
+Last updated: 2024-04-07 17:55:17
+Random Quote: Everyone sounds like Meryl Streep with a gun to their head. - Mike Ehrmantraut
