@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 19:56:05
-Random Quote: Your innocence may be as plain as the scar on your face, but it will not save you.  No more than your father will.  But I might.  Not as your judge.  As your champion.  -  Oberyn Martell
+Last updated: 2024-04-07 19:56:38
+Random Quote: A king's son, with the power of kingsblood in his veins.  Do you think you've saved this boy, Onion Knight?  When the long night falls, Edric Storm shall die with the rest, wherever he is hidden.  Your own sons as well.  Darkness and cold will cover the earth.  You meddle in matters you do not understand.  -  Melisandre
