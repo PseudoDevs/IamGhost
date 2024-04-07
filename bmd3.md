@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 19:12:23
-Random Quote: Smoking marijuana, eating cheetos, and masturbating do not constitute plans in my book. - Walter White
+Last updated: 2024-04-07 19:12:59
+Random Quote: I only have one rule. For every three 10's you bang, throw a bone to a 5. They're grateful and hard working and let's face it, sometimes you just want to lay there. - Barney Stinson

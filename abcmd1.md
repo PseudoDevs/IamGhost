@@ -1,3 +1,2 @@
-Last updated: 2024-04-07 19:12:28
-Random Quote: Larissa: "So you automatically assume a Nevermore student is the murderer, even though there's no evidence a crime was even committed."
-Donovan: "I'm sorry. I forgot, you only teach the good outcasts here, right?" - Donovan Galpin
+Last updated: 2024-04-07 19:13:02
+Random Quote: God wasn't protecting you. The kid had shitty aim. - Grace Young
