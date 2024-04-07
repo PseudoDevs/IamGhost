@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 17:56:42
-Random Quote: The brain drives our thoughts, our behavior. It holds all of the secrets of the universe. There's a whole hidden world inside each of us which only needs to be deciphered. - Maura Franklin
+Last updated: 2024-04-07 17:57:16
+Random Quote: You know what they say about relationships. Every waking moment's a battle. - Barney Stinson
