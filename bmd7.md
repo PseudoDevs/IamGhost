@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 19:50:33
-Random Quote: It was the white cloak that soiled me, not the other way around.  -  Jaime Lannister
+Last updated: 2024-04-07 19:51:06
+Random Quote: When I was 13, my father caught me kissing a boy, so he sent me to our family's ranch for foaling season. Once you see a baby horse erupt through that birth canal, you stop even touching yourself! - Robin Scherbatsky
