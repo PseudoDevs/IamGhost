@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 16:22:22
-Random Quote: If you wish to give up on playing, the 25.5 billion won will be sent to the bereaved families of the late players. - Jang Deok-su
+Last updated: 2024-04-07 16:24:07
+Random Quote: Every Halloween I bring a spare costume. In case I strike out with the hottest girl at the party. That way I have a second chance to make a first impression. - Barney Stinson
