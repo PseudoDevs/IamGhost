@@ -1,2 +1,11 @@
-Last updated: 2024-04-07 18:38:01
-Random Quote: Years ago, I bought a Betamax, good product, top of the line. Experts said it was better than a VHS. Turned out to be a complete waste of time and money. - Mike Ehrmantraut
+Last updated: 2024-04-07 18:39:09
+Random Quote: From here on in, every single night of our lives will be a night, we'll never forget. Starting tonight!
+ - The night we started a Mariachi Band!
+ - The night we ate everything on the menu!
+ - The night we brought a horse into the bar!
+ - The night we bungee-jumped off the Statue of Liberty!
+ - The night we stole a mummy from the Natural History Museum!
+ - The night we partied with the mole people
+ - The night we tracked down Phil Collins, became best friends with him, and talked him into reuniting with Peter Gabriel, and then we got to sing back-up on the new Genesis album and it was awesome!
+ - The night we stole a camel!
+ - The night you got locked out in your pajamas and Robin landed a freakin' helicopter and there's still time to reunite Genesis! - Barney Stinson
