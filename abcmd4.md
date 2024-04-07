@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 19:52:06
-Random Quote: If you're looking for the word that means caring for someone beyond all rationality and wanting them to have everything they want, no matter how much it destroys you, it's love! - Ted Mosby
+Last updated: 2024-04-07 19:52:38
+Random Quote: Alvarez has been paying me for years. But you know what? I would have done it for free, because I hate every last one of you psycho sacks of sh-t! I opened Lalo's gate and I would do it again. And I'm glad what they did to him. He's a soulless pig. I wish I'd killed him with my own hands. And you know what else, Hector? I put you in that chair. Your heart meds? I switched them for sugar pills. You were dead and buried, and I had to watch this as-hole bring you back. So when you are sitting in your sh-tty nursing home, and you're sucking down on your Jell-O night after night for the rest of your life, you think of me, you twisted f-ck! - Ignacio 'Nacho' Varga
