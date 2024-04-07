@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 17:52:13
-Random Quote: Ted: "Oh hey, where are you guys?"Barney: "We're in a fundraiser, helping young women raise money for community college."Ted: "Stripclub... nice!" - Barney Stinson
+Last updated: 2024-04-07 17:56:31
+Random Quote: You all know exactly who I am. Say my name. - Walter White
