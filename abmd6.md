@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 16:43:02
-Random Quote: Barney: "I am so sorry, Cornelius. You deserve a better end than this."Lily: "You got ketchup on a red tie, you can't even see it!" - Lily Aldrin
+Last updated: 2024-04-07 16:43:35
+Random Quote: Help was not promised, lovely girl.  Only death.  -  Jaqen H'ghar
