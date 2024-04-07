@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 17:06:48
-Random Quote: The truth can free you, if you let it. - Hannah Baker
+Last updated: 2024-04-07 17:08:02
+Random Quote: I buried an axe so deep into Willem's skull, they had to bury him with it.  -  Yoren of the Knight's Watch
