@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 05:42:41
-Random Quote: I dreamed of the man who came today, the one they call Reek.  You and your brother lay dead at his feet, and he was skinning off your faces with a long red blade.  -  Jojen Reed
+Last updated: 2024-04-07 05:43:15
+Random Quote: When I get sad, I stop being sad and be awesome instead. True Story. - Barney Stinson
