@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 04:35:58
-Random Quote: Female acrobats from Montreal, super flexible... we're gonna get Cirque du so-laid! - Barney Stinson
+Last updated: 2024-04-07 04:36:31
+Random Quote: Until the Mountain crushed my brother's skull, no Dornishmen had died in this War of the Five Kings.  Tell me, Captain, is that my shame or my glory?  -  Doran Martell
