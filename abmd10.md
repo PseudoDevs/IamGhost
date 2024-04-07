@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 19:02:16
-Random Quote: The "no more surprises"-thing is the best part of being married. - Lily Aldrin
+Last updated: 2024-04-07 19:02:50
+Random Quote: Winter will never come for the likes of us.  Should we die in battle, they will surely sing of us, and it's always summer in the songs.  In the songs all knights are gallant, all maids are beautiful, and the sun is always shining.  -  Brienne of Tarth
