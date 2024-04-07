@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 17:03:02
-Random Quote: Ted, every little boy wants to grow up to nail the doctor, or the lawyer. Somebody's gotta nail the receptionist. - Barney Stinson
+Last updated: 2024-04-07 17:03:38
+Random Quote: Rattleshirt, we called him.  Treacherous and bloodthirsty.  If there's honor in him, he hides it down beneath his suit of bones.  -  Jon Snow
