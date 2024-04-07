@@ -1,3 +1,2 @@
-Last updated: 2024-04-07 18:03:09
-Random Quote: Marylin Thornhill: "I trust Enid has given you the old Nevermore welcome."
-Wednesday: "She's been smothering me with hospitality. I hope to return the favor... in her sleep." - Wednesday Addams
+Last updated: 2024-04-07 18:03:43
+Random Quote: You're Reek.  You'll always be Reek, no matter how sweet you smell.  Your nose may lie to you.  Remember your name.  Remember who you are.  -  Ramsay Bolton
