@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 19:24:14
-Random Quote: He let me have her. I have to say, it was pretty noble of him. He fell on his sword so that she could fall on mine. - Barney Stinson
+Last updated: 2024-04-07 19:24:49
+Random Quote: Nick: "So, I went to this fortune teller today and she said there was a curse on me."Robin: "Did she sell you something to ward off the curse?"Nick: "It's like you're a fortune teller, too." - Nick

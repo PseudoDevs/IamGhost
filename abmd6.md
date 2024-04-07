@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 19:24:14
-Random Quote: When someone is in love, they look through rose-tinted glasses. Everything’s wonderful. They transform into a soft teddy bear that’s smiling all the time. - Professor
+Last updated: 2024-04-07 19:24:49
+Random Quote: If ever a man deserved to die screaming, it was Gregor Clegane.  -  Doran Martell
