@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 05:26:01
-Random Quote: I have served six kings, but here before us lies the greatest man I ever knew.  Lord Tywin wore no crown, yet he was all a king should be.  -  Grand Maester Pycelle
+Last updated: 2024-04-07 05:27:47
+Random Quote: A ruler who hides behind paid executioners soon forgets what death is.  -  Eddard Stark

@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 05:27:12
-Random Quote: Ted: "When you leave someone at the altar, you always leave a note. It's common courtesy."Victoria: "I think common courtesy went out the window when I did." - Victoria
+Last updated: 2024-04-07 05:27:47
+Random Quote: This is the one that you saved? You are as its father. A clan of two. But you have removed your helmet. Then you are a Mandalorian no more. - The Armorer

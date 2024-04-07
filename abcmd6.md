@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 05:27:11
-Random Quote: Many hands make light work. And many mouths make good gossip. - Agatha Harkness
+Last updated: 2024-04-07 05:27:47
+Random Quote: See, lad, that's why he's the king and I'm not.  I can outdrink, outfight, and outsing him, and my member's thrice the size o' his, but Mance has cunning.  -  Tormund Giantsbane
