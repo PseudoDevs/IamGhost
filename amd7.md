@@ -1,2 +1,3 @@
-Last updated: 2024-04-07 18:52:26
-Random Quote: Fire in the hole, bitch! - Jesse Pinkman
+Last updated: 2024-04-07 18:52:59
+Random Quote: Robin: "I'm drinking 'til I forget the 1999 NFC Championship?"
+Marshall: "The Vikings were two minutes away from going to the Super Bowl, when our kicker, who hadn't missed all year, shanked a field goal, and we lost in overtime. Damn!" - Marshall Eriksen
