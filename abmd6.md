@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 17:15:09
-Random Quote: When I rode home the next morning, the city looked the same. The people looked the same. It all looked the same. But it wasn't. In just one night, everything had changed. - Ted Mosby
+Last updated: 2024-04-07 17:15:42
+Random Quote: He would have killed me but for Howland Reed.  -  Eddard Stark
