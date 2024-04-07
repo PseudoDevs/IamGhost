@@ -1,3 +1,2 @@
-Last updated: 2024-04-07 07:05:45
-Random Quote: Give it a week, you'll get her back. And her front.
-Oh! Did you feel that? I think we just had a "what up?"-quake! - Barney Stinson
+Last updated: 2024-04-07 07:06:18
+Random Quote: If you had to fall into a woman's arms, my son, why couldn't they have been Margaery Tyrell's?  -  Catelyn Stark
