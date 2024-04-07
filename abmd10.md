@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 18:46:32
-Random Quote: Lily: "Okay, stop! Every time he lands, that chair farts out ten-year-old Dorito dust."Marshall: "Yeah, it's the chair..." - Marshall Eriksen
+Last updated: 2024-04-07 18:47:06
+Random Quote: I got more second-story guys in my book than pimples at a junior prom. - Saul Goodman
