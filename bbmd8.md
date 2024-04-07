@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 17:44:11
-Random Quote: A man lives three lives. The first one ends with the loss of naivety, the second, with the loss of innocence and the third… with the loss of life itself. It’s inevitable that we go through all three stages. - Adam
+Last updated: 2024-04-07 17:45:23
+Random Quote: Hush, Alerie, don't take that tone with me.  And don't call me mother.  If I'd given birth to you, I'm sure I'd remember.  I'm only to blame for your husband, the lord oaf of Highgarden.  -  Olenna Tyrell
