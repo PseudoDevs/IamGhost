@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 06:15:48
-Random Quote: She had seen Bronn fight on the high road; it was no accident that he had survived the journey while other men had died.  He moved like a panther, and that ugly sword of his seemed a part of his arm.  -  Catelyn Stark
+Last updated: 2024-04-07 06:16:24
+Random Quote: There is one difference between you and me: I'm not saying any of this to get in your pants. - How I Met Your Mother
