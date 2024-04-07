@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 17:44:10
-Random Quote: When the truth offends me, we lie and we lie until we can no longer remember it is even there. Every lie we tell incurs a debt to the truth. Sooner or later, that debt is paid. - Valery Legasov
+Last updated: 2024-04-07 17:44:47
+Random Quote: Now you may be asking yourself why is sports icon John McEnroe narrating this tale? It'll make sense later I promise. - John McEnroe
