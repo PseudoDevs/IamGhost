@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 20:06:36
-Random Quote: Sounds like you guys need to 'Clear Everything,' 'Subtract' the negativity and 'Add' some perspective. - How I Met Your Mother
+Last updated: 2024-04-07 20:07:09
+Random Quote: They get in your head. People tell lies about you, and other people believe them. And it gets to the point where the lies might as well be the truth. - Tyler Down
