@@ -1,2 +1,4 @@
-Last updated: 2024-04-07 16:50:54
-Random Quote: When you're younger, everything feels so permanent. But as you get older, you begin to realize nothing is and everyone you love can drift away. - Rue Bennett
+Last updated: 2024-04-07 16:51:27
+Random Quote: Stark: "Red, green, blue... who paints a button blue?"
+Carter: "Don't tell me the American playboy needs help pushing buttons."
+Stark: "Hedy Lamarr and I spent a weekend together, but she wasn't teaching me German." - Howard Stark
