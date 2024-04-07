@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 17:29:20
-Random Quote: Barney: "You avoiding the family too?"James: "I'm gay, I'm black and I'm getting a divorce. Those walking skeletons are gonna have more questions for me than their pharmacists." - James Stinson
+Last updated: 2024-04-07 17:29:57
+Random Quote: His blood ran black.  Made him my brother as much as yours.  -  Yoren of the Night's Watch
