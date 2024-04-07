@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 19:53:41
-Random Quote: You have to be as bad as them above in order to survive. - Polly Gray
+Last updated: 2024-04-07 19:54:47
+Random Quote: Just in case either of us can actually make it out of this hellhole somehow, we'll look after each other's loved ones, okay? - Oh Il-nam
