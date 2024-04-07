@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 19:26:34
-Random Quote: You don't parley when you're on the back foot. We'll strike a blow back first. - Thomas Shelby
+Last updated: 2024-04-07 19:27:43
+Random Quote: Sometimes people make decisions, shit happens, and we gotta act accordingly. - Marty Byrde
