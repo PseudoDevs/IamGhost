@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 17:42:57
-Random Quote: What do you think a knight is for, girl?  You think it's all taking favors from ladies and looking fine in gold plate?  Knights are for killing.  I killed my first man at twelve.  I've lost count of how many I've killed since then.  High lords with old names, fat rich men dressed in velvet, knights puffed up like bladders with their honors, yes, and women and children too... they're all meat, and I'm the butcher.  -  Sandor Clegane
+Last updated: 2024-04-07 17:43:33
+Random Quote: I found a Bollywood movie about a princess who falls for a lowly street sweeper. It's only seven hours long. - Kamala
