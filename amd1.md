@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 17:36:45
-Random Quote: If ever a man deserved to die screaming, it was Gregor Clegane.  -  Doran Martell
+Last updated: 2024-04-07 17:37:19
+Random Quote: I understand that if any more words come pouring out of your cunt mouth I'm going to have to eat every fucking chicken in this room.  -  Sandor Clegane
