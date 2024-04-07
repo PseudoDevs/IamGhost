@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 16:44:02
-Random Quote: These old knights are more cunning than you think, or they would never have lived to see their first grey hair.  -  Dagmer Cleftjaw
+Last updated: 2024-04-07 16:44:36
+Random Quote: When I'm king in my own right, I'm going to outlaw beets.  -  Tommen Baratheon
