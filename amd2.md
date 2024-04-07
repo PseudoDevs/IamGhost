@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 16:29:22
-Random Quote: Sitting around, smoking marijuana, eating Cheetos and masturbating do not constitute "plans". - Walter White
+Last updated: 2024-04-07 16:29:55
+Random Quote: We have to control this fing world, or it will control you. And if you don't protect yourself, it makes a mess and breaks you. - Miguel Angel Felix Gallardo
