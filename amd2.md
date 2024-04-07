@@ -1,3 +1,2 @@
-Last updated: 2024-04-07 20:34:04
-Random Quote: The Deep: "What do we do? We can't just kill everyone."
-Billy Butcher: "That's exactly what we're gonna do!" - Billy Butcher
+Last updated: 2024-04-07 20:34:37
+Random Quote: Not only are you wrong... but you are belligerently sticking to your guns and insulting me in the process. Robin Scherbatsky, you are an American. - Barney Stinson
