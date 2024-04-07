@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 19:09:36
-Random Quote: We are all full of sin. No pure human being exists. But no matter what we do, we never fall any lower than into God’s hands. - Noah
+Last updated: 2024-04-07 19:10:42
+Random Quote: Marshall: "All pregnant ladies have crazy sex dreams. It's just her hormones going berserk."Barney: "So who's responsible for her rapid thigh movement this time?"Ted: "Oh, my favorite was when she banged George Washington."Barney: "I liked the three-way with Bill Cosby and Papa Smurf."Ted: "Oh, he smurfed the smurf out of her."Marshall: "Yes, while The Cos smurfed off in the corner - we all remember." - Marshall Eriksen
