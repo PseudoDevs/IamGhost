@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 19:44:27
-Random Quote: I'm the Homelander. And I can do whatever the f-ck I want. - Homelander
+Last updated: 2024-04-07 19:45:01
+Random Quote: Catelyn would sooner Lord Umber had seen fit to stay sober, but telling the Greatjon not to drink was like telling him not to breathe for a few hours.  -  Catelyn Stark
