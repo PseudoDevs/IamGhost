@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 05:04:41
-Random Quote: That's where The Boys come in: Spank the bastards when they get out of line. - Billy Butcher
+Last updated: 2024-04-07 05:05:14
+Random Quote: This is Hawkins, okay? You wanna know the worst thing that's ever happened here in the four years I've been working here? It was when an owl attacked Eleanor Gillespie's head because it though that her hair was a nest. - Jim Hopper
