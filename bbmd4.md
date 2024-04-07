@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 16:46:43
-Random Quote: They are children, Sansa thought.  They are silly little girls, even Elinor.  They've never seen a battle, they've never seen a man die, they know nothing.  Their dreams were full of songs and stories, the way hers had been before Joffrey cut her father's head off.  Sansa pitied them.  Sansa envied them.  -  Sansa Stark
+Last updated: 2024-04-07 16:47:16
+Random Quote: When you do one good deed, it creates a ripple effect. One good deed leads to another and another. - Marshall Eriksen
