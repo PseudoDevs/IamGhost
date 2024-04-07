@@ -1,2 +1,3 @@
-Last updated: 2024-04-07 05:36:42
-Random Quote: That changes everything, how do you know who to trust? - Meemaw
+Last updated: 2024-04-07 05:37:15
+Random Quote: Larissa: "So you automatically assume a Nevermore student is the murderer, even though there's no evidence a crime was even committed."
+Donovan: "I'm sorry. I forgot, you only teach the good outcasts here, right?" - Donovan Galpin
