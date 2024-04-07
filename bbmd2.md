@@ -1,3 +1,2 @@
-Last updated: 2024-04-07 18:19:14
-Random Quote: Wyatt Langmore: "This job's my old man's idea. Something about 'calluses and character'."
-Charlotte Byrde: "Yeah, well, you're blowing leaves, not hiding Anne Frank." - Charlotte Byrde
+Last updated: 2024-04-07 18:19:49
+Random Quote: The "no more surprises"-thing is the best part of being married. - Lily Aldrin
