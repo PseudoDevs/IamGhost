@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 06:41:30
-Random Quote: Nothing is wrong with him, now turn back around before I break your neck. - Mary
+Last updated: 2024-04-07 06:42:03
+Random Quote: Barney: "Tell me more. Tell me more. Like did he have a car?"Marshall: "So is he the guy who... how shall I say this like a gentleman? Robin, did he take your maple leaf?"Barney: "Sounds to me like he gave you your first 'O Canada' face!" - Barney Stinson
