@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 06:27:31
-Random Quote: The big bro in the sky had answered my prayers. Allmighty five! - Barney Stinson
+Last updated: 2024-04-07 06:28:04
+Random Quote: Dragons old and young, true and false, bright and dark.  And you.  A small man with a big shadow, snarling in the midst of it all.  -  Moqorro
