@@ -1,3 +1,2 @@
-Last updated: 2024-04-07 07:29:20
-Random Quote: Jerry: "Rick! Beth! You love me after all!"
-Rick: "Eh, I love her, she loves you. Those credits don't transfer." - Rick Sanchez
+Last updated: 2024-04-07 07:29:53
+Random Quote: Most of him has gone into the tree... he has lived beyond his mortal span, and yet he lingers.  For us, for you, for the realms of men.  Only a little strength remains in his flesh.  He has a thousand eyes and one, but there is much to watch.  One day you will know.  -  Leaf
