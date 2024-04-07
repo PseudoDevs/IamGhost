@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 06:40:36
-Random Quote: Nobody takes an intro class to get on any other path, but the path to not being hungover anymore. I learned that in my intro to something-ology class. - Marshall Eriksen
+Last updated: 2024-04-07 06:41:12
+Random Quote: Never give power to the big man. - Alfie Solomons
