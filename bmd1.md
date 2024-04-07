@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 17:11:11
-Random Quote: (Love is) pain, horrible pain, that you want again and again. - Sophia Burset
+Last updated: 2024-04-07 17:11:45
+Random Quote: The absolute worst part of depression is that even though you know you're depressed, You're unable to stop yourself from getting worse. - Rue Bennett
