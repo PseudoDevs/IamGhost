@@ -1,2 +1,3 @@
-Last updated: 2024-04-07 18:25:11
-Random Quote: What you're doing right now. I'm getting a de-rection! - Barney Stinson
+Last updated: 2024-04-07 18:25:45
+Random Quote: Steven Grant: "I'm not trying to slag off marketing, but there's been a major blunder. Because they've got seven gods here, and the Ennead has nine."
+Donna: "I fired two of them for bein' late. Listen, if you don't stop natterin' at me, I swear I'll shove you in a sarcophagus. You can tell the pharaoh in there what's wrong with them and all." - Arthur Harrow
