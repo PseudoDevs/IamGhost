@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 06:09:18
-Random Quote: I rose too high, loved too hard, dared too much. I tried to grasp a star, overreached, and fell.  -  Jon Connington
+Last updated: 2024-04-07 06:09:52
+Random Quote: You don’t love anyone? Of course you don’t, darling. You don’t have the balls for it. To love, you need courage. - Nairobi
