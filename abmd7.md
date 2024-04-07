@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 04:15:34
-Random Quote: I was weaned on venom, Dalt.  Any viper takes a bite of me will rue it.  -  Gerold Dayne
+Last updated: 2024-04-07 04:16:08
+Random Quote: You want to dismantle an empire? Divide it! - Guillermo Gonzalez Calderoni
