@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 20:15:15
-Random Quote: Many years later, my brother would use the same argument in front of a judge. He was still convicted for urinating in a phone booth. - Sheldon Cooper
+Last updated: 2024-04-07 20:16:22
+Random Quote: Some battles are won with swords and spears, others with quills and ravens.  -  Tywin Lannister
