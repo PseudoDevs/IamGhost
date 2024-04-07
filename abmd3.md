@@ -1,4 +1,2 @@
-Last updated: 2024-04-07 19:38:22
-Random Quote: Morty: "Mom told me she wanted me to stay here to make sure you didn't die."
-Jerry: "Well, you tell your mother that I'm gonna be fine."
-Rick: "Don't train your child to lie, Jerry." - Rick Sanchez
+Last updated: 2024-04-07 19:38:55
+Random Quote: He made me kill a rabbit. I guess he thought it would make me into more of a man or something. I cried for a week. - Jonathan Byers
