@@ -1,4 +1,2 @@
-Last updated: 2024-04-07 05:17:43
-Random Quote: Ted: "It's freezing out there. Where's your coat?"
-Robin: "Ted, I'm Canadian. I don't need a coat. This kind of weather is nothing for me."
-Marshall: "Yeah. This is like a spring day back in Minnesota." - Marshall Eriksen
+Last updated: 2024-04-07 05:18:16
+Random Quote: Robin: "I wouldn't go to Cleveland for 125 million dollars, paid over six years."Ted: "Still with the LeBron jokes? Where's that ring he's supposed to have by now?" - Robin Scherbatsky
