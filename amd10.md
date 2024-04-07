@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 17:52:50
-Random Quote: Sorry Peter, we're grown-ups now, we can't fly to Netherland with you anymore. - Ted Mosby
+Last updated: 2024-04-07 17:53:27
+Random Quote: You're Reek.  You'll always be Reek, no matter how sweet you smell.  Your nose may lie to you.  Remember your name.  Remember who you are.  -  Ramsay Bolton
