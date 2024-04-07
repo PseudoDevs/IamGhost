@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 18:41:09
-Random Quote: I'm a cool dad. That's my thang. I surf the web... I text LOL - Laugh Out Loud, OMG - Oh My God, WTF - Why The Face. - Phil Dunphy
+Last updated: 2024-04-07 18:41:42
+Random Quote: A wolf is not a kraken.  What the kraken grasps it does not lose, be it longship or leviathan.  -  Victarion Greyjoy
