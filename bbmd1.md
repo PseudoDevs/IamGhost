@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 20:06:47
-Random Quote: B-Dawg, Barn Door, Stinson-natti, Bro-hio! Talk to me, how's it hangin'? - Robin Scherbatsky
+Last updated: 2024-04-07 20:07:20
+Random Quote: Do you remember that cave?  We should have stayed in that cave.  I told you so.  -  Ygritte

@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 20:06:47
-Random Quote: When the sun has set, no candle can replace it.  -  Loras Tyrell
+Last updated: 2024-04-07 20:07:20
+Random Quote: No man has ever died from bending his knee.  He who kneels may rise again, blade in hand.  He who will not kneel stays dead, stiff legs and all.  -  Balon Greyjoy
