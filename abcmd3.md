@@ -1,4 +1,2 @@
-Last updated: 2024-04-07 05:44:43
-Random Quote: Rick: "Guests are fans, Morty, which we are not. We'd like professional badges."
-"Do you have a crew?"
-Rick: "Yes. He's a getaway driver with Asperger's and my butt is a demolitions expert." - Rick Sanchez
+Last updated: 2024-04-07 05:45:18
+Random Quote: Whisky's good proofing water. Tells you who's real and who isn't. - Thomas Shelby
