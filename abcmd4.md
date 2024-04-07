@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 20:24:56
-Random Quote: My daughter has taken an axe for a lover.  I will not have my son bedeck himself like a whore.  It is as I feared.  The green lands have made you soft, and the Starks have made you theirs.  -  Balon Greyjoy
+Last updated: 2024-04-07 20:25:31
+Random Quote: This is New York City, don't get close to the neighbours. You nod at them politely in the hall, you call the cops if you haven't seen them in a while and you smell something funny and that's it! - Ted Mosby

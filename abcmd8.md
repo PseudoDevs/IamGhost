@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 20:24:23
-Random Quote: Sometimes I think everyone is just pretending to be brave, and none of us really are.  Maybe pretending is how you get brave, I don't know.  -  Grenn
+Last updated: 2024-04-07 20:25:31
+Random Quote: I have sinned and must atone, must parade my shame before the eyes of every beggar in the city.  They think that this will break my pride, that it will make an end to me, but they are wrong.  -  Cersei Lannister
