@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 17:44:47
-Random Quote: There is one difference between you and me: I'm not saying any of this to get in your pants. - How I Met Your Mother
+Last updated: 2024-04-07 17:45:23
+Random Quote: You think you're the only one he whispers secrets to?  He gives each of us just enough to convince us that we'd be helpless without him.  -  Cersei Lannister

@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 17:44:49
-Random Quote: All you Westerosi make a shame of loving.  Ther is no shame in loving.  If your septons say there is, your seven gods must be demons.  In the isles we know better.  Our gods gave us legs to run with, noses to smell with, hands to touch and feel.  What mad cruel god would give a man eyes and tell him he must forever keep them shut, and never look at all the beauty in the world?  Only a monster god, a demon of the darkness.  -  Kojja Mo
+Last updated: 2024-04-07 17:45:24
+Random Quote: You're Reek.  You'll always be Reek, no matter how sweet you smell.  Your nose may lie to you.  Remember your name.  Remember who you are.  -  Ramsay Bolton
