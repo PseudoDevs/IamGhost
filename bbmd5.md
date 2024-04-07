@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 20:25:31
-Random Quote: Hey kid, you know how your mom won't let you have icecream 'til after dinner, but then the waiting kind of makes it taste better? Well, I've been waiting two months for that bowl of ice cream - and tonight I'm gonna have sex with it. - Barney Stinson
+Last updated: 2024-04-07 20:28:20
+Random Quote: Rick: "If it's all the same, could we still get our stories straight? Because you're a terrible liar."Jerry: "You called me a master convincer!"Rick: "You believed me?" - Rick Sanchez
