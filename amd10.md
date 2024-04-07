@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 19:11:28
-Random Quote: Kids, you can't cling to the past. Because no matter how tight you hold on... it's already gone. - Ted Mosby
+Last updated: 2024-04-07 19:12:01
+Random Quote: You're Reek.  You'll always be Reek, no matter how sweet you smell.  Your nose may lie to you.  Remember your name.  Remember who you are.  -  Ramsay Bolton
