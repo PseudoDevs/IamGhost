@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 17:46:49
-Random Quote: You're a beautiful, sweet girl. Fuck this guy! - Nicky Nichols
+Last updated: 2024-04-07 17:47:22
+Random Quote: In Colombia, when money's involved, blood inevitably flows. - Steve Murphy
