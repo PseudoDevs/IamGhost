@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 05:03:56
-Random Quote: A wolf is not a kraken.  What the kraken grasps it does not lose, be it longship or leviathan.  -  Victarion Greyjoy
+Last updated: 2024-04-07 05:04:34
+Random Quote: In all the world, violent men are the easiest to deal with. - Irene O'Donnell
