@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 05:10:43
-Random Quote: Man cannot tame what God wishes to be wild. - Jacob Snell
+Last updated: 2024-04-07 05:11:56
+Random Quote: The Old Gods have no power in the south.  The weirwoods there were all cut down, thousands of years ago.  -  Osha
