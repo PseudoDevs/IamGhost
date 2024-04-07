@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 05:50:49
-Random Quote: If you think this has a happy ending, you haven't been paying attention.  -  Ramsay Bolton
+Last updated: 2024-04-07 05:53:14
+Random Quote: Larry Bloom: "Are we at least gonna talk about other options?"Piper Chapman: "You mean..."Larry Bloom: "It's not Voldemort, you can say it. Abortion." - Larry Bloom
