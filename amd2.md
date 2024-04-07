@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 04:14:24
-Random Quote: Phil: "Little heads up - there's no way I'm not crying at this wedding."Claire: "Phil, you cried on the way here."Phil: "I was on the brink already. I watched 'Dirty Dancing' before we left." - Phil Dunphy
+Last updated: 2024-04-07 04:14:58
+Random Quote: I never asked for this crown.  Gold is cold and heavy on the head, but so long as I am the king, I have a duty... if I must sacrifice one child to the flames to save a million from the dark... sacrifice... is never easy, Davos.  Or it is no true sacrifice.  -  Stannis Baratheon
