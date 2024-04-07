@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 07:13:15
-Random Quote: Gloria: "It seemd like all what we did was fight and make love. One time, I'm not kidding you, we fell out of the window together."Jay: "Which one were you doing?" - Jay Pritchett
+Last updated: 2024-04-07 07:13:51
+Random Quote: Bring on your storm, my lord... and recall, if you do, the name of this castle.  -  Cortnay Penrose
