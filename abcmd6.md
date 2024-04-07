@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 17:24:27
-Random Quote: I'm the Homelander. And I can do whatever the f-ck I want. - Homelander
+Last updated: 2024-04-07 17:25:00
+Random Quote: Robb Stark has won more battles in a year than the Lord of Highgarden had in twenty.  -  Tyrion Lannister

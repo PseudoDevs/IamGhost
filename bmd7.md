@@ -1,2 +1,3 @@
-Last updated: 2024-04-07 17:24:27
-Random Quote: You ought to have no trouble catching our uncles.  One is drunk on seawater, after all, and the other is a great grey bullock so dim he'll probably get lost.  -  Asha Greyjoy
+Last updated: 2024-04-07 17:25:00
+Random Quote: Grace Burgess: "You think I am a wh-re?"
+Tommy Shelby: "Everyone's a wh-re, Grace. We just sell different parts of ourselves." - Thomas Shelby
