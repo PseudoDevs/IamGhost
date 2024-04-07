@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 19:56:17
-Random Quote: A face took shape within the hearth.  Stannis?  she thought, for just a moment... but no, these were not his features.  A wooden face, corpse white.  Was this the enemy?  A thousand red eyes floated in the rising flames.  He sees me.  Beside him, a boy with a wolf's face threw back his head and howled.  -  Melisandre
+Last updated: 2024-04-07 19:56:50
+Random Quote: You'd have been the last lawyer I'd have gone to. - Walter White
