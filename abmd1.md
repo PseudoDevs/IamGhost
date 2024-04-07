@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 04:21:15
-Random Quote: Clearly, his taste in women is the same as his taste in lawyers. - Saul Goodman
+Last updated: 2024-04-07 04:25:02
+Random Quote: Everyone wants something, Alayne.  And when you know what a man wants you know who he is, and how to move him.  -  Petyr Baelish
