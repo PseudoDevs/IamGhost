@@ -1,3 +1,2 @@
-Last updated: 2024-04-07 16:48:33
-Random Quote: Lily: "We're going to Atlantic City to elope - right now!"
-Barney: "Oh, congratulations Lily! Marshall, you're getting married? What the hell?" - Barney Stinson
+Last updated: 2024-04-07 16:50:12
+Random Quote: Want to know what God thinks of money? Take a look at who he gives it to. - Pacho Herrera
