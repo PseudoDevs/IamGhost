@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 20:23:59
-Random Quote: Ted: "You name a chubby white kid LeBron and he's the one getting stuffed in the basketball hoop."Marshall: "Then I'm also crossing off Shaquille, Hakeem and Dikembe." - Ted Mosby
+Last updated: 2024-04-07 20:24:32
+Random Quote: There's nothing more powerful than a fat girl who doesn't give a f. - Kat Hernandez
