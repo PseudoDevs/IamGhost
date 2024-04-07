@@ -1,4 +1,2 @@
-Last updated: 2024-04-07 07:20:34
-Random Quote: Morticia: "Please excuse Wednesday. She's allergic to color."
-Enid: "Wow, what happens to you?"
-Wednesday: "I break out into hives, and then the flesh peels off my bones." - Wednesday Addams
+Last updated: 2024-04-07 07:21:07
+Random Quote: We've discussed this, mornings are for coffee and contemplation. - Jim Hopper
