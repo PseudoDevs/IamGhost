@@ -1,3 +1,2 @@
-Last updated: 2024-04-07 07:06:06
-Random Quote: Alien: "I was just reading you."
-Rick: "Congratulations on making it into print media. Real bright future there." - Rick Sanchez
+Last updated: 2024-04-07 07:09:06
+Random Quote: Money. That's what seperates the haves from the have-nots. But what is money? It's everything if you don't have it, right? - Marty Byrde
