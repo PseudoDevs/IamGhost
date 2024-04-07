@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 19:34:28
-Random Quote: Marshall: "Neither of you guys has any game, right? Or else you'd be married. Like me. If dating is the game, then marriage is winning the game."Ted: "Yeah, if you're playing in the women's league!" - Ted Mosby
+Last updated: 2024-04-07 19:35:01
+Random Quote: I've been dreaming of that since I was five. Well, that and my own operational Death Star. - Barney Stinson
