@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 05:48:58
-Random Quote: Money. That's what seperates the haves from the have-nots. But what is money? It's everything if you don't have it, right? - Marty Byrde
+Last updated: 2024-04-07 05:50:49
+Random Quote: A ruler who hides behind paid executioners soon forgets what death is.  -  Eddard Stark
