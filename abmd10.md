@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 04:30:16
-Random Quote: Think of the pickup plays we can run as a father-son duo. There's the "Father Knows Breast", there's the "Bush Dynasty", the "Lick Father, Lick Son". - Barney Stinson
+Last updated: 2024-04-07 04:30:54
+Random Quote: Euron's gifts are poisoned.  -  Victarion Greyjoy
