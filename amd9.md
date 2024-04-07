@@ -1,2 +1,3 @@
-Last updated: 2024-04-07 18:48:40
-Random Quote: They're all running away from something. Why else would someone want to go somewhere different? - Virginia Wilson
+Last updated: 2024-04-07 18:49:14
+Random Quote: Ellie: "There's not gonna be anything bad in here?"
+Joel: "Just you." - Joel Miller
