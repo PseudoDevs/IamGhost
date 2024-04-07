@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 18:12:14
-Random Quote: So a guy with cancer can't be an asshole?? Believe me, I speak from experience. - Saul Goodman
+Last updated: 2024-04-07 18:12:48
+Random Quote: Rattleshirt, we called him.  Treacherous and bloodthirsty.  If there's honor in him, he hides it down beneath his suit of bones.  -  Jon Snow
