@@ -1,4 +1,2 @@
-Last updated: 2024-04-07 16:45:16
-Random Quote: Greef: "Be careful, my friend. They've got you outnumbered ten to one."
-Din: "I like these odds."
-Greef: "I bet you do." - Greef Karga
+Last updated: 2024-04-07 16:46:23
+Random Quote: Knowledge is power, power is status and status means popular. - Eric Effiong
