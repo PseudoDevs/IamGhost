@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 19:40:36
-Random Quote: Rhaegar fought valiantly, Rhaegar fought nobly, and Rhaegar died.  -  Jorah Mormont
+Last updated: 2024-04-07 19:41:09
+Random Quote: My real father died in King's Landing.  I made a choice, and I chose wrong.  -  Theon Greyjoy
