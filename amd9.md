@@ -1,5 +1,2 @@
-Last updated: 2024-04-07 16:28:54
-Random Quote: Bo-Katan: "I haven't seen battle droids since the Clone Wars."
-Din: "I have."
-Bo-Katan: "Any of 'em look suspicious?"
-Din: "They all look suspicious." - Din Djarin
+Last updated: 2024-04-07 16:29:27
+Random Quote: When it comes to locker rooms, I like 'em just like my mother's bathing suits: I only wanna see 'em in one piece. - Jim Hopper
