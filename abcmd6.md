@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 18:17:02
-Random Quote: I cried my little black heart out. But tears don't fix anything. So I vowed to never do it again. - Wednesday Addams
+Last updated: 2024-04-07 18:17:35
+Random Quote: If you want my advice? Get out of your own goddamn drama for a minute. - Nicky Nichols
