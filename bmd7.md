@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 17:46:16
-Random Quote: All I wanted was to eat the chicken that is smarter than other chickens and to absorb it's power. - Galina 'Red' Reznikov
+Last updated: 2024-04-07 17:46:49
+Random Quote: I asked him why he kept her close, if he thought her so grotesque.  He said that all his other knights wanted things of him, castles or honors or riches, but all that Brienne wanted was to die for him.  -  Loras Tyrell
