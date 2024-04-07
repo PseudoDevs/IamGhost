@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 04:48:05
-Random Quote: I know the poison that my father used, and there is none slower or more agonizing.  Soon we may hear the Mountain screaming, even here in Sunspear.  -  Tyene Sand
+Last updated: 2024-04-07 04:48:38
+Random Quote: Freeways have exits, so do relationships. The first exit, my personal favourite, is six hours in: You meet, you talk, you have sex, you exit when she's in the shower. - Barney Stinson
