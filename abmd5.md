@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 20:02:58
-Random Quote: You're wrong.  Need Stark was my gaoler, but my blood is still salt and iron.  -  Theon Greyjoy
+Last updated: 2024-04-07 20:03:32
+Random Quote: Sometimes it just feels better not to talk. At All. About Anything. To Anyone. - Walter White
