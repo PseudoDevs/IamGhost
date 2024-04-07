@@ -1,2 +1,3 @@
-Last updated: 2024-04-07 05:52:03
-Random Quote: Most of him has gone into the tree... he has lived beyond his mortal span, and yet he lingers.  For us, for you, for the realms of men.  Only a little strength remains in his flesh.  He has a thousand eyes and one, but there is much to watch.  One day you will know.  -  Leaf
+Last updated: 2024-04-07 05:52:38
+Random Quote: Neither one of us are gonna say, "Hey, how's it going?" or "Good to see you!"
+Because it really will be good to see you. - Barney Stinson
