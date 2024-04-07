@@ -1,4 +1,2 @@
-Last updated: 2024-04-07 19:29:45
-Random Quote: Lorna Morello: "I need to start tightening up. You're making me feel like a cave."
-Nicky Nichols: "Baby, it's a c-nt, it stretches!"
-Lorna Morello: "Yeah, sometimes I feel like you're trying to climb inside my womb." - Lorna Morello
+Last updated: 2024-04-07 19:30:18
+Random Quote: Ted: "You know Robin? Been thinking about it. Guess it's kind of nice you're such a bad-ass."Robin: "It's pretty bad-ass you're so nice, Ted." - Robin Scherbatsky
