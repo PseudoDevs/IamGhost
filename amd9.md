@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 19:28:34
-Random Quote: The World is going to come to an end tonight. Yes think about it. End of the World, Nostradamus, Notre Dame, Fighting Irish, Irish, St. Patrick's Day. This is it Bro. Bro-calypse Now... Bro-Mageddon. - Barney Stinson
+Last updated: 2024-04-07 19:29:07
+Random Quote: I didn't give up on my dream house, because that's the thing about stupid decisions - we all make them, but time is funny and sometimes a little magical. It can take a stupid decision, and turn it into something else entirely. - Ted Mosby
