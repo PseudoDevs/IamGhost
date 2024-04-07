@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 04:21:51
-Random Quote: Jon was not afraid of death, but he did not want to die like that, trussed and bound and beheaded like a common brigand.  If he must perish, let it be with a sword in his hand, fighting his father's killers.  He was no true Stark, had never been one... but he could die like one.  Let them say that Eddard Stark had fathered four sons, not three.  -  Jon Snow
+Last updated: 2024-04-07 04:22:26
+Random Quote: Crazy? I'll tell you what's crazy. 50-year-old high school chemistry teacher comes into my office. The guy is so broke, he can't pay his own mortgage. One year later, he's got a pile of cash as big as a Volkswagen. - Saul Goodman
