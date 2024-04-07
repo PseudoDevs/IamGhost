@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 19:50:38
-Random Quote: Even in sin, you can still be a saint. - Don Neto
+Last updated: 2024-04-07 19:51:11
+Random Quote: My real father died in King's Landing.  I made a choice, and I chose wrong.  -  Theon Greyjoy
