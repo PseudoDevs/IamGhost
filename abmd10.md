@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 05:00:13
-Random Quote: Sometimes people make decisions, shit happens, and we gotta act accordingly. - Marty Byrde
+Last updated: 2024-04-07 05:01:26
+Random Quote: His blood ran black.  Made him my brother as much as yours.  -  Yoren of the Night's Watch
