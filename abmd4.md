@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 07:21:35
-Random Quote: Need found it hard to imagine what could frighten Stannis Baratheon, who had once held Storm's End through a year of siege, surviving on rats and boot leather while the Lords Tyrell and Redwyne sat outside with their hosts, banqueting in sight of his walls.  -  Eddard Stark
+Last updated: 2024-04-08 07:22:13
+Random Quote: Ted: "Basketball, people don't realize, is all geometry, physics and engineering. If you think like an architect, you could win a thousand games without ever touching a ball."Barney: "What happened to your ball?"Ted: "Some kids from the Hebrew school next door took it and wouldn't give it back." - Ted Mosby
