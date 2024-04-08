@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 11:26:04
-Random Quote: Our power comes from the perception of our power. - Mikhail Gorbachev
+Last updated: 2024-04-08 11:26:36
+Random Quote: The biggest case of my life and I'd already lost the jury. I mean, I've heard of "Twelve Angry Men",  but this was more like "Twelve Horny Women". - Marshall Eriksen
