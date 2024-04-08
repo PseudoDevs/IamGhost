@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 14:55:51
-Random Quote: I'm not him, I'm not the turncloak, he died at Winterfell.  My name is Reek.  It rhymes with freak.  -  Reek
+Last updated: 2024-04-08 14:56:24
+Random Quote: The end of a rope has been this man's destiny since the night he was born. - Chester Campbell
