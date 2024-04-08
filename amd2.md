@@ -1,2 +1,3 @@
-Last updated: 2024-04-08 07:40:34
-Random Quote: We have to control this fing world, or it will control you. And if you don't protect yourself, it makes a mess and breaks you. - Miguel Angel Felix Gallardo
+Last updated: 2024-04-08 07:41:47
+Random Quote: Ellie: "Everybody I've cared for, either died or left me."
+Joel: "You have no idea what loss is." - Joel Miller
