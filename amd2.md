@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 13:17:27
-Random Quote: I'm not surviving, I'm just existing. - Brook Soso
+Last updated: 2024-04-08 13:18:33
+Random Quote: Love's not always wise, I've learned.  It can lead us to great folly, but we follow our hearts... wherever they take us.  -  Robb Stark
