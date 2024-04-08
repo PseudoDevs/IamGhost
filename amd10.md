@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 14:56:22
-Random Quote: Robert could piss in a cup and men would call it wine, but I offer them cold clear water and they squint in suspicion and mutter to each other about how queer it tastes.  -  Stannis Baratheon
+Last updated: 2024-04-08 14:56:54
+Random Quote: That everything’s repeating That this has all happened before Like a massive déjĂ  Vu - 
