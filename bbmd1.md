@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 12:54:49
-Random Quote: And that, kids, is the kind of stupid thing you say, before you've met the person who hits the reset button on the world. Who makes everything new again. Who makes it seem ridiculous that you ever considered settling. - Ted Mosby
+Last updated: 2024-04-08 12:55:23
+Random Quote: Know the men who follow you and let them know you.  Don't ask your men to die for a stranger.  -  Eddard Stark
