@@ -1,3 +1,4 @@
-Last updated: 2024-04-08 07:39:21
-Random Quote: Freddie Thorne: "What kind of a list would have the name of a communist and the name of a bookmaker side by side?"
-Thomas Shelby: "Perhaps it's a list of men who give false hope to the poor." - Thomas Shelby
+Last updated: 2024-04-08 07:39:57
+Random Quote: Rick: "F you, Summer! And f the government. And f me for letting my car down, which I will never do again."
+Morty: "Jeez, Rick. You can't say FU to your grand-daughter!"
+Rick: "I just did, Morty. Here's dessert: F you!" - Rick Sanchez
