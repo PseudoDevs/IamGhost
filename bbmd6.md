@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 12:33:49
-Random Quote: I buried an axe so deep into Willem's skull, they had to bury him with it.  -  Yoren of the Knight's Watch
+Last updated: 2024-04-08 12:34:21
+Random Quote: Never forget what you are, for surely the world will not.  Make it your strength.  Then it can never be your weakness.  Armor yourself in it, and it will never be used to hurt you.  -  Tyrion Lannister

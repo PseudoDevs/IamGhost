@@ -1,2 +1,3 @@
-Last updated: 2024-04-08 12:33:16
-Random Quote: I already told you what you can do with your money. You seem like a guy who can take a hint, so what are we doing? - Mike Ehrmantraut
+Last updated: 2024-04-08 12:34:21
+Random Quote: Jessica: "I miss you."
+Morty: "You miss the old me. You miss someone that loved you so much, you never had to love him back." - Morty Smith
