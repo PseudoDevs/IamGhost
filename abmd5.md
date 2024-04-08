@@ -1,2 +1,4 @@
-Last updated: 2024-04-08 13:06:03
-Random Quote: A lie is just a great story that someone ruined with the truth. - Barney Stinson
+Last updated: 2024-04-08 13:06:36
+Random Quote: Bro McDonald had a farm, E-I-E-I-bro
+And on that farm he had some chicks, E-I-E-I-bro
+With a hot chick here and a dumb chick there... - Barney Stinson
