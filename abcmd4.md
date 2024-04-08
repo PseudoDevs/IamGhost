@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 14:58:07
-Random Quote: Every time I go after a busty dullard who can't tell time or thinks I'm the ghost of Leonardo DiCaprio, I'm shallow. But somehow it's okay for Robin to date a guy who can't be trusted around outlets. - Barney Stinson
+Last updated: 2024-04-08 14:59:13
+Random Quote: I have my voice, and the god is with me.  Mine is the strength of the sea, a strength the Crow's Eye cannot hope to withstand.  The waves may break upon the mountain, yet still they come, wave upon wave, and in the end only pebbles remain where once the mountain stood.  And soon even the pebbles are swept away, to be ground beneath the sea for all eternity.  -  Aeron Greyjoy
