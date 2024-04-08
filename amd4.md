@@ -1,2 +1,4 @@
-Last updated: 2024-04-08 11:30:18
-Random Quote: If you keep all your treasures in one purse, you only make it easier for those who would rob you.  -  Robb Stark
+Last updated: 2024-04-08 11:32:00
+Random Quote: Morticia: "Please excuse Wednesday. She's allergic to color."
+Enid: "Wow, what happens to you?"
+Wednesday: "I break out into hives, and then the flesh peels off my bones." - Wednesday Addams
