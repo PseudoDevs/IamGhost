@@ -1,4 +1,2 @@
-Last updated: 2024-04-08 11:25:33
-Random Quote: It could be for a brother or maybe her sick dad.
-[reads] "And then I want you to do me on the couch."
-Okay, maybe not a sick dad. Or a very sick dad, am I right? - Robin Scherbatsky
+Last updated: 2024-04-08 11:26:08
+Random Quote: I feel like her sobriety is completely dependent on how available I am to her. - Jules Vaughn
