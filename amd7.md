@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 13:06:20
-Random Quote: Penrose chose to die rather than give him up.  It still angers me.  How could he think I would hurt the boy?  I chose Robert, did I not?  When that hard day came, I chose blood over honor.  -  Stannis Baratheon
+Last updated: 2024-04-08 13:06:53
+Random Quote: Marshall: "The tiniest little burger joint you ever saw. Tucked between a taxidermist and a XXX bookstore."Barney: "Name two places where things get stuffed." - Barney Stinson
