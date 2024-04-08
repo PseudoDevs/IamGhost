@@ -1,2 +1,3 @@
-Last updated: 2024-04-08 14:45:39
-Random Quote: You could help a friend, but instead you're choosing the hot girl in the tight tank-top. Your training is complete, I'm so proud of this kid! - Barney Stinson
+Last updated: 2024-04-08 14:46:14
+Random Quote: Weems: "No doubt you'll find something that tickles your fancy."
+Wednesday: "The last person who tickled me lost a finger." - Wednesday Addams
