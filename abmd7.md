@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 12:34:11
-Random Quote: There's proving and there's knowing. -  Bill Oakley
+Last updated: 2024-04-08 12:35:23
+Random Quote: I knew Brienne when she was no more than a girl playing at her father's feet in Evenfall Hall, and I knew her still better when the Evenstar sent her here to Storm's End.  She loved Renly Baratheon from the first moment she laid eyes on him, a blind man could see it.  -  Cortnay Penrose

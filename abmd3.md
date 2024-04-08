@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 12:34:47
-Random Quote: We didn't choose this life, we're just living in it. - Number Five
+Last updated: 2024-04-08 12:35:23
+Random Quote: Kill the boy, Jon Snow.  Winter is almost upon us.  Kill the boy and let the man be born.  -  Aemon Targaryen
