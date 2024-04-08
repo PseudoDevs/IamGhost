@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 12:03:02
-Random Quote: Robin: "Who wants hot-wings?"Lily: "I'm in... or maybe we should just pour hot-sauce on Barney, since he's a total chicken." - Lily Aldrin
+Last updated: 2024-04-08 12:03:35
+Random Quote: Any time, a girl wants to get back at her ex-bodyfriends, we'll be there.Any time, a girl wants to solve her father-issues through promiscuity and binge drinking we will be there.Any time a bachelorette party drives through the city in a limo, sticking their heads out the sunroof, shouting 'what's up New York?', we will be what is 'up' New York! - Barney Stinson
