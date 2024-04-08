@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 13:28:40
-Random Quote: Life hurts. The moment you think you've got it all, it smacks you in the face. - Lucien
+Last updated: 2024-04-08 13:29:13
+Random Quote: Lord Varys, sometimes I feel as though you are the best friend I have in King's Landing and sometimes I feel you are my worst enemy.  -  Tyrion Lannister
