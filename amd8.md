@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 13:57:18
-Random Quote: Spare me your empty little compliments, girl... and your ser's.  I am no knight.  I spit on them and their vows.  My brother is a knight.  -  Sandor Clegane
+Last updated: 2024-04-08 13:57:51
+Random Quote: Robb Stark has won more battles in a year than the Lord of Highgarden had in twenty.  -  Tyrion Lannister
