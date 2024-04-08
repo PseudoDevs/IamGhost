@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 07:13:50
-Random Quote: Some people wander around their whole lives looking for a way out, but there’s only one path and it leads you ever deeper. - 
+Last updated: 2024-04-08 07:14:24
+Random Quote: You know nothing, Jon Snow.  -  Ygritte
