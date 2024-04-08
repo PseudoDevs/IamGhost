@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 13:42:43
-Random Quote: Any time, a girl wants to get back at her ex-bodyfriends, we'll be there.Any time, a girl wants to solve her father-issues through promiscuity and binge drinking we will be there.Any time a bachelorette party drives through the city in a limo, sticking their heads out the sunroof, shouting 'what's up New York?', we will be what is 'up' New York! - Barney Stinson
+Last updated: 2024-04-08 13:43:17
+Random Quote: Mother of dragons.  Mother of monsters.  What have I unleashed upon the world?  A queen I am, but my throne is made of burned bones, and it rests on quicksand.  Without dragons, how could she hope to hold Mereen, much less win back Westeros?  I am the blood of the dragon.  If they are monsters, so am I.  -  Daenerys Targaryen

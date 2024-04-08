@@ -1,2 +1,4 @@
-Last updated: 2024-04-08 13:42:42
-Random Quote: To go north, you must go south.  To reach the west, you must go east.  To go forward you must go back, and to touch the light you must pass beneath the shadow.  -  Quaithe
+Last updated: 2024-04-08 13:43:17
+Random Quote: Joel: "Where'd you get the money for this?"
+Sarah: "Drugs. I sell hardcore drugs."
+Joel: "It's better than what I do." - Joel Miller
