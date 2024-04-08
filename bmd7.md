@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 14:06:53
-Random Quote: You're like Hitler! But even Hitler cared about Germany or something. - Morty Smith
+Last updated: 2024-04-08 14:07:27
+Random Quote: Drugs are kind of cool. I mean, they're cool before they wreck your skin. And your life. And your family. That's when they get uncool. It's actually a very narrow window of cool. - Rue Bennett
