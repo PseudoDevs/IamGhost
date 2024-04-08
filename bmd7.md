@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 12:39:26
-Random Quote: I'm a cool dad. That's my thang. I surf the web... I text LOL - Laugh Out Loud, OMG - Oh My God, WTF - Why The Face. - Phil Dunphy
+Last updated: 2024-04-08 12:40:35
+Random Quote: A true man does what he will, not what he must.  -  Cersei Lannister
