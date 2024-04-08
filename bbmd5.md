@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 13:03:15
-Random Quote: The star sounds great. Good with me. Besides, nobody really sees many stars these days. - Oh Il-nam
+Last updated: 2024-04-08 13:04:24
+Random Quote: We can only die.  Why else do we don these black cloaks, but to die in defense of the realm?  -  Qhorin Halfhand

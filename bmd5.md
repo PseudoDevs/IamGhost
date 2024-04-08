@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 13:03:49
-Random Quote: You grew up with actors.  You learned their craft and you learned it well.  I grew up with soldiers.  I learned how to die a long time ago.  -  Eddard Stark
+Last updated: 2024-04-08 13:04:24
+Random Quote: I don't feel so good. It's like my testicals mixed poprocks and soda. - Ted Mosby
