@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 12:46:54
-Random Quote: Your lord father did not come to the wedding.  An insult, as I see it.  Even if he is dying.  He never came to my last wedding either.  He calls me the Late Lord Frey, you know.  Does he think I'm dead?  I'm not dead, and I promise you, I'lll outlive him as I outlived his father.  Your family has always pissed on me, don't deny it, don't lie, you know it's true.  -  Walder Frey
+Last updated: 2024-04-08 12:49:10
+Random Quote: Marshall: "All pregnant ladies have crazy sex dreams. It's just her hormones going berserk."Barney: "So who's responsible for her rapid thigh movement this time?"Ted: "Oh, my favorite was when she banged George Washington."Barney: "I liked the three-way with Bill Cosby and Papa Smurf."Ted: "Oh, he smurfed the smurf out of her."Marshall: "Yes, while The Cos smurfed off in the corner - we all remember." - Marshall Eriksen

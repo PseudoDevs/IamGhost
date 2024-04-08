@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 12:48:36
-Random Quote: Don’t take it so personally, okay? I don’t like most people. He’s in the vast majority. - Jonathan Byers
+Last updated: 2024-04-08 12:49:10
+Random Quote: Khaleesi, better a man should swallow scorpions than trust in the spawn of shadows, who dare not show their face beneath the sun.  It is known.  -  Rakharo
