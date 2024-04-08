@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 14:54:47
-Random Quote: Your pain defines who you are but it no longer holds power on you - Noah
+Last updated: 2024-04-08 14:55:21
+Random Quote: You wear your honor like a suit of armor, Stark.  You think it keeps you safe, but all it does is weigh you down and make it hard for you to move.  -  Petyr Baelish
