@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 12:12:22
-Random Quote: Ran: "We were all young, tryin' to make a name for ourselves. But runnin' with a Mandalorian, that brought us some reputation."Mayfeld: "Oh, yeah? What did he get out of it?"Ran: "I asked him that one time. You remember what you said, Mando? Target Practice." - Din Djarin
+Last updated: 2024-04-08 12:12:55
+Random Quote: Best way to catch the smart ones? Get an idiot working for them. - Jaime Kuykendall
