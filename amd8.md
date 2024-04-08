@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 13:12:33
-Random Quote: You don't parley when you're on the back foot. We'll strike a blow back first. - Thomas Shelby
+Last updated: 2024-04-08 13:13:06
+Random Quote: That everything’s repeating That this has all happened before Like a massive déjĂ  Vu - 
