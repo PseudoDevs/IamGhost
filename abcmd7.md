@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 15:12:14
-Random Quote: Things never work out the way you imagine they will. - Lucien
+Last updated: 2024-04-08 15:12:55
+Random Quote: Edric Storm, they call him.  He is said to be the very image of my brother.  If men were to see him, and then look again at Joffrey and Tommen, they could not help but wonder, I would think.  -  Stannis Baratheon
