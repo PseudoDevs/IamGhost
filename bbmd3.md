@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 07:41:10
-Random Quote: Camping is just being homeless... without the change. - Summer Smith
+Last updated: 2024-04-08 07:42:26
+Random Quote: Why the oldest son, and not the best - fitted?  The crown will suit me, as it never suited Robert and would not suit Stannis. 
