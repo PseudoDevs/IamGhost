@@ -1,2 +1,3 @@
-Last updated: 2024-04-08 14:16:22
-Random Quote: I’ve spent my life being a bit of a son of a bitch, but today I think I want to die with dignity. - Berlin
+Last updated: 2024-04-08 14:16:56
+Random Quote: Tommy: "I'll have some men watch her house 'til the danger passes."
+Polly: "'Til the danger passes. That'll be the bloody day." - Polly Gray
