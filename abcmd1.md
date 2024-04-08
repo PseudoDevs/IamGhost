@@ -1,3 +1,2 @@
-Last updated: 2024-04-08 11:58:09
-Random Quote: "Crutch down and bend over a little bit."
-Barney: "Wow, It took five shots of tequila to have you in that position." - Barney Stinson
+Last updated: 2024-04-08 11:58:44
+Random Quote: Someone has to protect this family from the man who protects this family. - Skyler White
