@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 14:25:24
-Random Quote: A war is coming. I'm afraid your friends at Hawkins are very much in the eye of the storm. I don't know how to say this other than just to say it: without you, we can't win this war. - Sam Owens
+Last updated: 2024-04-08 14:26:31
+Random Quote: No matter how tough things get, children always turn out okay. - Berlin
