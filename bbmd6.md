@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 11:09:17
-Random Quote: Dude, ditch Tiffany and join the Barnacle in the Pharma-Girl-Free-For-All. Side effects may include: loss of clothing, rug burns, shortness of breath and soar abdominals the next morning. What in the world is up! - Barney Stinson
+Last updated: 2024-04-08 11:09:51
+Random Quote: You ever hear about Wall Street, Morty? You know what those guys do in their fancy boardrooms? They take their balls and they dip them in cocaine and wipe them all over each other. - Rick Sanchez
