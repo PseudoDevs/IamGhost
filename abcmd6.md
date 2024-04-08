@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 13:33:28
-Random Quote: There have always been men who found it easier to speak vows than to keep them.  -  Arys Oakheart
+Last updated: 2024-04-08 13:34:01
+Random Quote: In all the world, violent men are the easiest to deal with. - Irene O'Donnell
