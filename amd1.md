@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 13:57:51
-Random Quote: This is the one that you saved? You are as its father. A clan of two. But you have removed your helmet. Then you are a Mandalorian no more. - The Armorer
+Last updated: 2024-04-08 13:58:24
+Random Quote: I'd invite you to stay as well, Gustavo, but I don't want my breakfast ruined by all the "ding, ding ding." - Don Eladio
