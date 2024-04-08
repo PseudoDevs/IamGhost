@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 14:11:19
-Random Quote: Roose Bolton's cold and cunning, aye, but a man can deal with Roose.  We've all known worse.  But this bastard son of his... they say he's mad and cruel, a monster.  -  Locke
+Last updated: 2024-04-08 14:11:53
+Random Quote: Catelyn would sooner Lord Umber had seen fit to stay sober, but telling the Greatjon not to drink was like telling him not to breathe for a few hours.  -  Catelyn Stark
