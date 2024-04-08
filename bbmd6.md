@@ -1,3 +1,2 @@
-Last updated: 2024-04-08 11:13:52
-Random Quote: Lily: "I can't believe I unloaded like that on a high-school senior."
-Robin: "I can't believe a high-school senior unloaded like that on me." - Robin Scherbatsky
+Last updated: 2024-04-08 11:14:27
+Random Quote: There's kids playing hockey in the back. It's like you want us to make fun of you! - Barney Stinson
