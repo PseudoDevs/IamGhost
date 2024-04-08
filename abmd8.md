@@ -1,3 +1,2 @@
-Last updated: 2024-04-08 15:07:32
-Random Quote: Gor Koresh: "This is no place for a child."
-Mando: "Wherever I go, he goes. I've been quested to bring him to his kind." - Din Djarin
+Last updated: 2024-04-08 15:08:05
+Random Quote: You cannot change the nature of things. I am who I am. And you are who you are. Nothing will change that. - Ángel
