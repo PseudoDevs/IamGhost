@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 12:40:31
-Random Quote: Marshall, you being 18 isn't a bad thing. It just means you get to spend even more of your life with her. - Ted Mosby
+Last updated: 2024-04-08 12:41:04
+Random Quote: Think of the pickup plays we can run as a father-son duo. There's the "Father Knows Breast", there's the "Bush Dynasty", the "Lick Father, Lick Son". - Barney Stinson
