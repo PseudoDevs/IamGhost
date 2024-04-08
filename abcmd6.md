@@ -1,2 +1,3 @@
-Last updated: 2024-04-08 12:15:35
-Random Quote: Dance, until your feet hurt. Sing, until your lungs hurt. Act, until you're William Hurt. - Phil Dunphy
+Last updated: 2024-04-08 12:16:08
+Random Quote: Weems: "No doubt you'll find something that tickles your fancy."
+Wednesday: "The last person who tickled me lost a finger." - Wednesday Addams
