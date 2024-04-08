@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 15:12:50
-Random Quote: Pennsatucky: "It weren't my fault. I was just doing as the Spirit commanded."Pussey: "Fuck are you? Joan of Arc?"Pennsatucky: "No, I'm from Waynesboro, my name is Tiffany..." - Tiffany 'Pennsatucky' Doggett
+Last updated: 2024-04-08 15:13:34
+Random Quote: Discouraging premarital sex is against my religion. - Barney Stinson
