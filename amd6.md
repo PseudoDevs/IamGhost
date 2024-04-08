@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 14:23:07
-Random Quote: One does not speak unless one knows. - Din Djarin
+Last updated: 2024-04-08 14:24:14
+Random Quote: What you have to do is show these suckers what you’re capable of. Show them you’re not scared. - Nairobi
