@@ -1,2 +1,3 @@
-Last updated: 2024-04-08 14:29:23
-Random Quote: Marshall: "Open your eyes, ref! That's not a pregnant lady..."Ted: "...it's a basketball under his shirt. Blow the freakin' whistle!" - Ted Mosby
+Last updated: 2024-04-08 14:29:56
+Random Quote: Joel: "A deep breath in, slow breath out. You squeeze the trigger like you love it. Gentle, steady, nice and slow."
+Ellie: "You gonna shoot this thing or get it pregnant?" - Ellie Williams
