@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 14:33:49
-Random Quote: Robb, who had been more a brother to Theon than any son born of Balon Greyjoy's loins.  Murdered at the Red Wedding, butchered by the Freys.  I should have been with him.  Where was I?  I should have died with him.  -  Theon Greyjoy
+Last updated: 2024-04-08 14:34:23
+Random Quote: I'd invite you to stay as well, Gustavo, but I don't want my breakfast ruined by all the "ding, ding ding." - Don Eladio
