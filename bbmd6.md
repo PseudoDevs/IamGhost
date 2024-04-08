@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 14:44:31
-Random Quote: Help was not promised, lovely girl.  Only death.  -  Jaqen H'ghar
+Last updated: 2024-04-08 14:45:04
+Random Quote: What is honor compared to a woman's love?  What is duty against the feel of a newborn son in your arms, or the memory of a brother's smile.  Wind and words.  Wind and words.  We are only human, and the gods have fashioned us for love.  That is our great glory and our great tragedy.  -  Aemon Targaryen
