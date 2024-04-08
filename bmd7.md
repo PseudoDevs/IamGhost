@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 14:26:29
-Random Quote: To be a scientist is to be naive. - Valery Legasov
+Last updated: 2024-04-08 14:27:02
+Random Quote: Robert was the true steel.  Stannis is pure iron, black and hard and strong, yes, but brittle, the way iron gets.  He'll break before he bends.  And Renly, that one, he's copper, bright and shiny, pretty to look at but not worth all that much at the end of the day.  -  Donal Noye
