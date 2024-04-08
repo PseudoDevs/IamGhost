@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 07:46:09
-Random Quote: Which meant for the first time in years, the world was wide open. Because kids, when a door closes... well, you know the rest. - Ted Mosby
+Last updated: 2024-04-08 07:46:48
+Random Quote: Rattleshirt, we called him.  Treacherous and bloodthirsty.  If there's honor in him, he hides it down beneath his suit of bones.  -  Jon Snow
