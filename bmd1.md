@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 07:27:55
-Random Quote: When dead men come hunting us in the night, do you think it matters who sits the Iron Throne?  -  Jeor Mormont
+Last updated: 2024-04-08 07:28:28
+Random Quote: Put me on your magical boat, man, and sail me down your chocolaty river of meth! - Badger
