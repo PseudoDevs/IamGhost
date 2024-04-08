@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 13:53:32
-Random Quote: Young I was, and vain, but the sea washed my follies and my vanities away.  That man drowned, nephew.  His lungs filled with seawater, and the fish ate the scales off his eyes.  When I rose again, I saw clearly.  -  Aeron Greyjoy
+Last updated: 2024-04-08 13:54:05
+Random Quote: My only aim is to take many lives. The more the better I feel. - 

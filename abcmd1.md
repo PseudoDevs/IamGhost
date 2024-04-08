@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 13:52:59
-Random Quote: Why is it always the innocents who suffer most, when you high lords play your game of thrones?  -  Varys
+Last updated: 2024-04-08 13:54:05
+Random Quote: You know how sometimes you'll meet a girl and there'll be that one bewitching little detail that'll make you fall in love with her instantly? You know, a little freckle on the nose, the lilt of her laugh, the way she pronounces a certain word or phrase... - Ted Mosby
