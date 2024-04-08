@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 14:04:47
-Random Quote: Edric Storm, they call him.  He is said to be the very image of my brother.  If men were to see him, and then look again at Joffrey and Tommen, they could not help but wonder, I would think.  -  Stannis Baratheon
+Last updated: 2024-04-08 14:05:53
+Random Quote: I liked the way I dressed you, but I'm worried I f'ed with your gender expression. - Jules Vaughn
