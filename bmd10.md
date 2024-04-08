@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 12:42:18
-Random Quote: Yesterday, today and tomorrow are not consecutive, they are connected in a never-ending circle. Everything is connected - The Stranger
+Last updated: 2024-04-08 12:42:51
+Random Quote: They are children, Sansa thought.  They are silly little girls, even Elinor.  They've never seen a battle, they've never seen a man die, they know nothing.  Their dreams were full of songs and stories, the way hers had been before Joffrey cut her father's head off.  Sansa pitied them.  Sansa envied them.  -  Sansa Stark
