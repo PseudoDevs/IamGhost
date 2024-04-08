@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 12:01:58
-Random Quote: Words are wind, and the only good wind is that which fills our sails.  -  Victarion Greyjoy
+Last updated: 2024-04-08 12:02:31
+Random Quote: I knew Brienne when she was no more than a girl playing at her father's feet in Evenfall Hall, and I knew her still better when the Evenstar sent her here to Storm's End.  She loved Renly Baratheon from the first moment she laid eyes on him, a blind man could see it.  -  Cortnay Penrose
