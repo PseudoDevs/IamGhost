@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 15:15:59
-Random Quote: Buzz buzz buzz - The fly
+Last updated: 2024-04-08 15:16:33
+Random Quote: Robert... he is in my dreams as well.  Laughing.  Drinking.  Boasting.  Those were the things he was best at.  Those, and fighting.  I never bested him at anything.  -  Stannis Baratheon
