@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 11:32:00
-Random Quote: If you don't push, I will shove that baby up your throat and pull it out of your mouth! - Dr. Sonya
+Last updated: 2024-04-08 11:32:35
+Random Quote: His blood ran black.  Made him my brother as much as yours.  -  Yoren of the Night's Watch
