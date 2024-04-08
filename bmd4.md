@@ -1,2 +1,4 @@
-Last updated: 2024-04-08 14:13:37
-Random Quote: What's a bigger feeling than love? - Elliot
+Last updated: 2024-04-08 14:14:10
+Random Quote: Oh Il-nam: "As a kid, I'm willing to bet you got spanked a lot."
+Seong Gi-hun: "How did you know?"
+Oh Il-nam: "My son did too. He was just like you, friend." - Oh Il-nam
