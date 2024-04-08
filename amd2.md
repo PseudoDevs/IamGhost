@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 12:01:38
-Random Quote: When something seems too perfect, it's usually anything but. - Allison Hargreeves
+Last updated: 2024-04-08 12:02:13
+Random Quote: Knowledge is a weapon, Jon.  Arm yourself well before you ride forth to battle.  -  Maester Aemon
