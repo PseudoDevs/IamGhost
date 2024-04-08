@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 13:03:19
-Random Quote: It's not Aerys I rue, it's Robert... Why is it no one names Robert oathbreaker?  He tore the realm apart, yet I am the one with shit for honor.  -  Jaime Lannister
+Last updated: 2024-04-08 13:04:58
+Random Quote: Get ready, Cleveland. The last man to screw you that hard and then disappear, was LeBron James! - Barney Stinson
