@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 07:43:05
-Random Quote: Science fact: Sisters are the worst. - Sheldon
+Last updated: 2024-04-08 07:46:10
+Random Quote: You grew up with actors.  You learned their craft and you learned it well.  I grew up with soldiers.  I learned how to die a long time ago.  -  Eddard Stark
