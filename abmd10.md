@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 11:26:19
-Random Quote: Barney: "I met a girl last night. So perky and full of life and not at all fake."Ted: "You're talking about her boobs, right?"Barney: "Si. And that wasn't Spanish, that was cup size. What up?!" - Barney Stinson
+Last updated: 2024-04-08 11:26:52
+Random Quote: Saul Goodman is the last line of defense for the little guy. Are you getting sold down the river? He's a life raft. You getting stepped on? He's a sharp stick. You got Goliath on your back - Saul's the guy with the slingshot. He's the righter of wrongs. He's friend to the friendless. - Saul Goodman
