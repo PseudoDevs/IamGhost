@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 13:30:19
-Random Quote: Haley: "Dad, can you just please tell mom, that I can take a two hour break and go to a party?"Phil: "No Ma'am, I'm not stepping into that one. We're not playing 'good cop - mom'.'" - Phil Dunphy
+Last updated: 2024-04-08 13:30:53
+Random Quote: Lies are necessary, when the truth is too difficult to believe. - Pablo Escobar
