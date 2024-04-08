@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 13:17:15
-Random Quote: Tequila makes me wanna dance. - Jules Vaughn
+Last updated: 2024-04-08 13:17:48
+Random Quote: So how do you take down a crook who's at the top of his game? Who has every cop in town in his pocket? Well, you hold your breath and you hope you get lucky. - Walt Breslin
