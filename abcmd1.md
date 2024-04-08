@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 13:47:54
-Random Quote: Jesus! Just grow some fucking balls! - Walter White
+Last updated: 2024-04-08 13:48:28
+Random Quote: In King's Landing, there are two sorts of people.  The players and the pieces.  -  Petyr Baelish
