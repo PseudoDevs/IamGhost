@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 14:41:27
-Random Quote: Did you just bring a bomb into a hospital? - Jesse Pinkman
+Last updated: 2024-04-08 14:42:00
+Random Quote: Any man who steps between a father and his vengeance asks for death.  -  Rickard Karstark
