@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 11:57:33
-Random Quote: Then perhaps Lord Eddard should have kept you chained to a dungeon wall.  Instead he raised you among his own sons, the sweet boys you have butchered, and to my undying shame I trained you in the arts of war.  Would that I had thrust a sword through your belly instead of placing one in your hand.  -  Rodrik Cassel
+Last updated: 2024-04-08 11:58:08
+Random Quote: This is my own private domicile and I will not be harassed…bitch! - Jesse Pinkman
