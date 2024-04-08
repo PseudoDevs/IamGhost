@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 11:14:52
-Random Quote: Tell the Crow's Eye he's afraid of kinslaying and he'll murder one of his own sons just to prove you wrong.  -  Asha Greyjoy
+Last updated: 2024-04-08 11:15:25
+Random Quote: Shelly, remember when you thought you had leprosy, and it was just a patch of dry skin? - Mary
