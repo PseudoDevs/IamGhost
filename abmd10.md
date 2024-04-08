@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 13:06:02
-Random Quote: It's easier when you're a kid anyway. You don't have anybody else relying on you. That's the hardest part. - Joel Miller
+Last updated: 2024-04-08 13:06:35
+Random Quote: Knowledge is power, power is status and status means popular. - Eric Effiong
