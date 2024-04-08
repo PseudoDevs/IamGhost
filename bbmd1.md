@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 07:47:21
-Random Quote: I hate it when you talk sometimes. No... all the time. - Nicky Nichols
+Last updated: 2024-04-08 07:47:54
+Random Quote: I like my testicles attached to my body, rather than rolling around next to some eyeliner in Robin's purse. Stinson out! - Barney Stinson
