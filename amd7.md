@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 15:09:02
-Random Quote: In Texas, the holy trinity is God, Football and barbecueNot necessarily in that order. - Sheldon
+Last updated: 2024-04-08 15:09:39
+Random Quote: Winter will never come for the likes of us.  Should we die in battle, they will surely sing of us, and it's always summer in the songs.  In the songs all knights are gallant, all maids are beautiful, and the sun is always shining.  -  Brienne of Tarth
