@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 13:30:50
-Random Quote: I will put you under the jail. - Hank Schrader
+Last updated: 2024-04-08 13:31:23
+Random Quote: Why the oldest son, and not the best - fitted?  The crown will suit me, as it never suited Robert and would not suit Stannis. 
