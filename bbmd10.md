@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 14:54:56
-Random Quote: You, Vision, are the piece of the Mind Stone that lives in me. You are a body of wires and blood and bone that I created. You are my sadness and my hope. But mostly, you're my love. - Wanda Maximoff
+Last updated: 2024-04-08 14:55:28
+Random Quote: I will not be remembered as Set Arys the Unworthy.  I will not soil my cloak.  -  Arys Oakheart
