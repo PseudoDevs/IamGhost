@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 14:17:40
-Random Quote: I'm from Minnesota, where there's plenty hot-dogs for everyone. Perhaps even too many... - Marshall Eriksen
+Last updated: 2024-04-08 14:18:13
+Random Quote: We're going to Buffalo... and I've seen women from there; the city's aptly named. - Barney Stinson
