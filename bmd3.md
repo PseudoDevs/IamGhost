@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 07:36:05
-Random Quote: I prefer my history dead.  Dead history is writ in ink, the living sort in blood.  -  Rodrik Harlaw
+Last updated: 2024-04-08 07:36:38
+Random Quote: I did it for me. I liked it. I was good at it. And I was really... I was alive. - Walter White
