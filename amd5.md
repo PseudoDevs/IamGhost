@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 14:21:26
-Random Quote: Ted: "[to Marshall, lying next to him] Marshall, are you still thinking about Lily?"Marshall: "Yeah."Ted: "Please stop!" - Ted Mosby
+Last updated: 2024-04-08 14:21:59
+Random Quote: We're cosigning birthday cards, we got toothbrushes at each other's places, foreplay's out the window. I'm in, I'm out, I'm sleeping - it's great. - Ted Mosby
