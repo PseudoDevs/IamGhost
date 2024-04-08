@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 14:34:51
-Random Quote: I am scared, 'cause I don't know how to fly. But you're there at the bottom of the slide to catch me when I fall. - Hannah Baker
+Last updated: 2024-04-08 14:35:24
+Random Quote: Red: "Black girls hear about a chicken, of course this will happen."Piper: "Why, because all black people love chicken?"Red: "Don't be racist. Because they're all on heroin, and somebody's been telling them there's heroin in the chicken." - Galina 'Red' Reznikov
