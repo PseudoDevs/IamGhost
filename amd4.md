@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 15:00:43
-Random Quote: The soldier's minute. In a battle that's all you get. One minute of everything at once. And anything before it nothing. Everything after, nothing. Nothing in comparison to that one minute. - Thomas Shelby
+Last updated: 2024-04-08 15:01:16
+Random Quote: A bag of dragons buys a man's silence for a while, but a well - placed quarrel buys it forever. 
