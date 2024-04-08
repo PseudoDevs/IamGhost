@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 12:03:27
-Random Quote: Fear is the worst enemy of progress. - 
+Last updated: 2024-04-08 12:04:03
+Random Quote: We can only die.  Why else do we don these black cloaks, but to die in defense of the realm?  -  Qhorin Halfhand
