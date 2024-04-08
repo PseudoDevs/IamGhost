@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 07:55:18
-Random Quote: No.  You were the betrayer.  You turned against me, against your own blood.  They cheated me.  Your horsey husband and his stinking savages.  They were cheats and liars.  They promised me a golden crown and gave me this.  -  Viserys Targaryen
+Last updated: 2024-04-08 07:55:51
+Random Quote: I am the storm, my lord, the first storm, and the last.  -  Euron Greyjoy
