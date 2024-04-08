@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 07:27:53
-Random Quote: I'm just saying, love is a million things. - Maddy Perez
+Last updated: 2024-04-08 07:28:26
+Random Quote: He'd led me in war, hunted with a king, won honor in tourney melees, ridden with Brynden Blackfish and Greatjon Umber, fought in the Whispering Wood, bedded more girls than he could name, and yet his uncle was treating him as though he were still a child of ten.  -  Theon Greyjoy
