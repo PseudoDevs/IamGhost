@@ -1,2 +1,3 @@
-Last updated: 2024-04-08 13:19:17
-Random Quote: You must be blind as well as maimed, Set.  Lift your eyes, and you will see the direwolf still flies above our walls.  -  Brynden Tully
+Last updated: 2024-04-08 13:19:50
+Random Quote: Jerry: "Well, traditionally, science faires are a father-son thing."
+Rick: "Well, scientifically, traditions are an idiot thing." - Rick Sanchez
