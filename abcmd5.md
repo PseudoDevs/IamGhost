@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 11:22:32
-Random Quote: Forgotten? Oh, Wanda, I'm incapable of forgetfulness. I remember everything. That's not an exaggeration. In fact... I'm incapable of exaggeration. - Vision
+Last updated: 2024-04-08 11:23:09
+Random Quote: I don't care if you're so scared you foul your breeches, and I don't care if a thousand wildlings are coming over the walls howling for your blood, you get those birds off, or I swear I'll hunt you through all seven hells and make you damn sorry that you didn't.  -  Jeor Mormont
