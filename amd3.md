@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 14:23:06
-Random Quote: Pain is always there cause life is freaking painful, okay? - Tiffany 'Pennsatucky' Doggett
+Last updated: 2024-04-08 14:23:40
+Random Quote: The Red God has his due, sweet girl, and only death may pay for life.  This girl took three that were his.  This girl must give three in their places.  Speak the names, and a man will do the rest.  -  Jaqen H'ghar
