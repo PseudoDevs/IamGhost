@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 07:12:07
-Random Quote: One does not speak unless one knows. - Din Djarin
+Last updated: 2024-04-08 07:12:41
+Random Quote: No sword is strong until it's been tempered.  The Stark boy is a child.  No doubt he likes the sound of warhorns well enough, and the sight of his banners fluttering in the wind, but in the end it comes down to butcher's work.  I doubt he has the stomach for it.  -  Tywin Lannister
