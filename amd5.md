@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 12:27:44
-Random Quote: I knew quite a few Jedi, you know. I don't know what they taught you about us, but there was a time we actually got along quite well. Fought side by side. - Bo-Katan
+Last updated: 2024-04-08 12:28:53
+Random Quote: I can't see myself living in CaliforniaI don't trust their carefree lifestyle. - Sheldon
