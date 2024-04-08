@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 07:50:32
-Random Quote: The men of always aren't interested in the children of never. - Pablo Escobar
+Last updated: 2024-04-08 07:53:39
+Random Quote: Marshall: "During that time, I have been, how do I put this delicately, saving all my love for you."Lily: "I have read eleven books on conception, I have cut out alcohol, caffeine and sugar. I take my temperature every hour. But good for you for not playing with yourself!" - Lily Aldrin
