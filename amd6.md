@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 13:27:29
-Random Quote: I asked him why he kept her close, if he thought her so grotesque.  He said that all his other knights wanted things of him, castles or honors or riches, but all that Brienne wanted was to die for him.  -  Loras Tyrell
+Last updated: 2024-04-08 13:28:03
+Random Quote: The big bro in the sky had answered my prayers. Allmighty five! - Barney Stinson
