@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 07:25:48
-Random Quote: Jane Goodall had to go to Africa to study the apes. I just had to go to dinner. - Sheldon Cooper
+Last updated: 2024-04-08 07:26:20
+Random Quote: Perhaps magic was once a mighty force in the world, but no longer.  What little remains is no more than the wisp of smoke that lingers in the air after a great fire has burned out, and even that is fading.  Valyria was the last ember, and Valyria is gone.  -  Maester Luwin
