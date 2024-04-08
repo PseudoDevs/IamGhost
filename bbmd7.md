@@ -1,3 +1,2 @@
-Last updated: 2024-04-08 12:31:13
-Random Quote: Bro, bro, bro your broat, gently to the bar
-Hit on sluts, then do ten shots and... - Barney Stinson
+Last updated: 2024-04-08 12:33:00
+Random Quote: Lily: "Sorry this is taking so long. He kicked for everybody else."Marshall: "It's hard for the little guy to perform under pressure."Barney: "Top ten things Marshall said on his wedding night."Kevin: "Wow! It was small, but I think I felt something."Robin: "Top ten things Lily said on her wedding night." - Robin Scherbatsky
