@@ -1,2 +1,4 @@
-Last updated: 2024-04-08 12:17:03
-Random Quote: I was wed three times and my wives gave me daughters.  Now only Beth remains to me.  My brother Martyn fathered four strong sons, yet only Jory lived to be a man.  When he was slain, Martyn's line died with him.  When we speak of the morrow nothing is ever certain.  -  Rodrik Cassel
+Last updated: 2024-04-08 12:17:36
+Random Quote: Joel: "I need you to tell us where we are."
+Man: "If you got a map, why you lost?"
+Ellie: "Must've missed all the street signs in the enormous f-cking forest." - Ellie Williams

@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 12:17:03
-Random Quote: Are you allowed to say that to people in my tax bracket? - Iron Man
+Last updated: 2024-04-08 12:17:35
+Random Quote: Fool's blood, king's blood, blood on the maiden's thigh, but chains for the guests and chains for the bridegroom, aye aye aye.  -  Patchface
