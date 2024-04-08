@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 12:06:25
-Random Quote: Drugs are kind of cool. I mean, they're cool before they wreck your skin. And your life. And your family. That's when they get uncool. It's actually a very narrow window of cool. - Rue Bennett
+Last updated: 2024-04-08 12:07:01
+Random Quote: Words are like arrows, Arianne.  Once loosed, you cannot call them back.  -  Areo Hotah
