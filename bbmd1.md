@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 13:37:37
-Random Quote: We can only die.  Why else do we don these black cloaks, but to die in defense of the realm?  -  Qhorin Halfhand
+Last updated: 2024-04-08 13:38:10
+Random Quote: There are things out there that our little minds will never comprehend - 

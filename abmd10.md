@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 13:37:36
-Random Quote: The Peaky Blinders. The vicious, merciless gangs who blind those who see and cut out the tongues of those who talk. - Chester Campbell
+Last updated: 2024-04-08 13:38:10
+Random Quote: Dismissing Selmy, where was the sense in that?  Yes, the man was old, but the name of Barristan the Bold still has meaning in the realm.  He lent honor to any man he served.  -  Tywin Lannister
