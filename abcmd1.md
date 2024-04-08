@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 12:51:23
-Random Quote: I will kill your wife, I will kill your son, I will kill your infant daughter. - Gustavo Fring
+Last updated: 2024-04-08 12:51:56
+Random Quote: Sometimes people make decisions, shit happens, and we gotta act accordingly. - Marty Byrde
