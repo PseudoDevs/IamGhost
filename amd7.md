@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 12:58:39
-Random Quote: Nothing is wrong with him, now turn back around before I break your neck. - Mary
+Last updated: 2024-04-08 12:59:12
+Random Quote: The Boltons have always been as cruel as they are cunning, but this one seems a beast in human skin.  -  Robett Glover
