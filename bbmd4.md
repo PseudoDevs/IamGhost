@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 12:15:23
-Random Quote: Why is it always the innocents who suffer most, when you high lords play your game of thrones?  -  Varys
+Last updated: 2024-04-08 12:15:56
+Random Quote: Any man who steps between a father and his vengeance asks for death.  -  Rickard Karstark
