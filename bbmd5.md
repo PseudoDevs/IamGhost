@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 13:29:43
-Random Quote: Ted: "As a kid, I was known as a bit of a detective. In fact, when my friend's retainer went missing, the Mosby Boys were put on the case, and it was..."Victoria: "The retainer was in the garbage. The Mosby Boys were you, your sister, and a neighborhood squirrel you thought you had tamed."Ted: "I can't believe Squirrel-lock Holmes turned on us like that, eight weeks of training down the drain." - Ted Mosby
+Last updated: 2024-04-08 13:30:17
+Random Quote: We are not husband and wife... anymore. We're just business partners. And our job is to raise those kids. - Marty Byrde
