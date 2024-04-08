@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 14:42:17
-Random Quote: Didn't you notice? Those jerks with masks came in and removed the beds of the people who died. Make on mistake out there, and yours is next. - Jang Deok-su
+Last updated: 2024-04-08 14:43:24
+Random Quote: Lily, I think we made a mistake moving out to the suburbs. I miss our home. I miss our booth with our friends. And I'm pretty sure I have a drumstick... somewhere bad. - Marshall Eriksen
