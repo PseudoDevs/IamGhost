@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 12:23:03
-Random Quote: In his chainmail shirt with a sword in his hand, Gendry looked almost a man grown, and dangerous.  Hot Pie looked like Hot Pie.  -  Arya Stark
+Last updated: 2024-04-08 12:23:37
+Random Quote: Everything will be okay in the end. If it's not okay, it's not the end. - Yuk Je
