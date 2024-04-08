@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 12:15:41
-Random Quote: Someone has to protect this family from the man who protects this family. - Skyler White
+Last updated: 2024-04-08 12:16:47
+Random Quote: Knowledge is a weapon, Jon.  Arm yourself well before you ride forth to battle.  -  Maester Aemon
