@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 07:13:08
-Random Quote: If we're together long enough I hope that one day you see yourself like I do. - Kevin
+Last updated: 2024-04-08 07:13:44
+Random Quote: Demons made of snow and ice and cold.  The ancient enemy.  The only enemy that matters.  -  Stannis Baratheon
