@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 12:40:59
-Random Quote: All the tales agreed that the green men had strange magic powers.  Maybe they could help him walk again, even turn him into a knight.  They turned the little crannogman into a knight, even if it was only for a day, he thought.  A day would be enough.  -  Bran Stark
+Last updated: 2024-04-08 12:41:31
+Random Quote: Everyone wants something, Alayne.  And when you know what a man wants you know who he is, and how to move him.  -  Petyr Baelish
