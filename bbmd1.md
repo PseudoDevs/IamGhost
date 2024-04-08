@@ -1,2 +1,4 @@
-Last updated: 2024-04-08 07:54:17
-Random Quote: Obara would make Oldtown our father's funeral pyre, but I am not so greedy.  Four lives will suffice for me.  Lord Tywin's golden twins, as payment for Elia's children.  The old lion, for Elia herself.  And last of all the little king, for my father... only royal blood can wash out my father's murder.  -  Nymeria Sand
+Last updated: 2024-04-08 07:55:09
+Random Quote: Ted: "It's freezing out there. Where's your coat?"
+Robin: "Ted, I'm Canadian. I don't need a coat. This kind of weather is nothing for me."
+Marshall: "Yeah. This is like a spring day back in Minnesota." - Marshall Eriksen
