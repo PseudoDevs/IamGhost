@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 15:06:56
-Random Quote: Larry Bloom: "Are we at least gonna talk about other options?"Piper Chapman: "You mean..."Larry Bloom: "It's not Voldemort, you can say it. Abortion." - Larry Bloom
+Last updated: 2024-04-08 15:07:29
+Random Quote: Discouraging premarital sex is against my religion. - Barney Stinson
