@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 13:51:03
-Random Quote: Know the men who follow you and let them know you.  Don't ask your men to die for a stranger.  -  Eddard Stark
+Last updated: 2024-04-08 13:51:36
+Random Quote: I believe the world's a bad place. And I don't think I'm much better. But we have to try. - Walt Breslin
