@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 12:18:25
-Random Quote: In this world, everything is governed by balance. There’s what you stand to gain and what you stand to lose. And when you think you’ve got nothing to lose, you become overconfident - Professor
+Last updated: 2024-04-08 12:19:00
+Random Quote: Robb Stark has won more battles in a year than the Lord of Highgarden had in twenty.  -  Tyrion Lannister
