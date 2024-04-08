@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 12:27:23
-Random Quote: The only person who gets to torture my brother is me. - Wednesday Addams
+Last updated: 2024-04-08 12:27:56
+Random Quote: The Lion does not concern itself with the opinions of sheep.  -  Tywin Lannister
