@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 14:55:28
-Random Quote: Your innocence may be as plain as the scar on your face, but it will not save you.  No more than your father will.  But I might.  Not as your judge.  As your champion.  -  Oberyn Martell
+Last updated: 2024-04-08 14:56:01
+Random Quote: Whisky's good proofing water. Tells you who's real and who isn't. - Thomas Shelby
