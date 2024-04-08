@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 13:02:45
-Random Quote: Any time, a girl wants to get back at her ex-bodyfriends, we'll be there.Any time, a girl wants to solve her father-issues through promiscuity and binge drinking we will be there.Any time a bachelorette party drives through the city in a limo, sticking their heads out the sunroof, shouting 'what's up New York?', we will be what is 'up' New York! - Barney Stinson
+Last updated: 2024-04-08 13:03:19
+Random Quote: It's not Aerys I rue, it's Robert... Why is it no one names Robert oathbreaker?  He tore the realm apart, yet I am the one with shit for honor.  -  Jaime Lannister
