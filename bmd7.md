@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 13:30:16
-Random Quote: Name one thing in this world that is non negotiable. - Walter White
+Last updated: 2024-04-08 13:30:50
+Random Quote: I dreamed of the man who came today, the one they call Reek.  You and your brother lay dead at his feet, and he was skinning off your faces with a long red blade.  -  Jojen Reed
