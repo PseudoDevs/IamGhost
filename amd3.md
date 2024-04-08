@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 13:44:20
-Random Quote: Don Eladio, look into Fring's eyes. There you will see the truth. The Chicken Man hates you. He is our enemy. He plots against us. I demand blood for blood. - Hector Salamanca
+Last updated: 2024-04-08 13:44:54
+Random Quote: It was the white cloak that soiled me, not the other way around.  -  Jaime Lannister
