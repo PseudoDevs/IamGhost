@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 13:19:07
-Random Quote: If you don’t know who I am, then maybe your best course would be to tread lightly. - Walter White
+Last updated: 2024-04-08 13:20:15
+Random Quote: You want to know the horrible truth?  I can't even remember what she looked like.  I only know she was the one thing I ever wanted, and seven kingdoms couldn't fill the hole she left behind.  -  Robert Baratheon
