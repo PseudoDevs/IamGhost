@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 07:18:31
-Random Quote: Know the men who follow you and let them know you.  Don't ask your men to die for a stranger.  -  Eddard Stark
+Last updated: 2024-04-08 07:19:05
+Random Quote: Seriously? "Hello Kitty"? - Jesse Pinkman
