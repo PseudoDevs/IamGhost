@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 12:41:44
-Random Quote: From experience, it often takes a new perspective before one is able to see the light. - Elia Kane
+Last updated: 2024-04-08 12:42:52
+Random Quote: Know the men who follow you and let them know you.  Don't ask your men to die for a stranger.  -  Eddard Stark
