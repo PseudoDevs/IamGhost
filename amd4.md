@@ -1,3 +1,2 @@
-Last updated: 2024-04-08 07:57:44
-Random Quote: This woman has a hold on my heart that I could not break if I wanted to, and there have been times that I wanted to.
-It has been overwhelming and humbling and even painful at times, but I could not stop loving her any more than I could stop breathing. - Barney Stinson
+Last updated: 2024-04-08 11:07:22
+Random Quote: A dad makes a toilet look like R2-D2 and it breaks the front page of Reddit. But I'm Charles Manson because I gave you your own world instead of an iPad. - Rick Sanchez

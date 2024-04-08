@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 07:58:39
-Random Quote: I'm supposed to be this hero, idol symbol, but I don't know what the hell I'm doing. - Starlight
+Last updated: 2024-04-08 11:07:22
+Random Quote: This is the one that you saved? You are as its father. A clan of two. But you have removed your helmet. Then you are a Mandalorian no more. - The Armorer
