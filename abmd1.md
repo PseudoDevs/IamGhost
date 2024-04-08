@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 07:43:42
-Random Quote: Always keep your foes confused.  If they are never certain who you are or what you want, they cannot know what you are like to do next.  Sometimes the best way to baffle them is to make moves that have no purpose, or even seem to work against you.  Remember that, Sansa, when you come to play the game.  -  Petyr Baelish
+Last updated: 2024-04-08 07:44:18
+Random Quote: Who do you think killed all the dragons the last time around?  Gallant dragonslayers armed with swords?  The world the Citadel is building has no place in it for sorcery or prophecy or glass candles, much less for dragons.  Ask yourself why Aemon Targaryen was allowed to waste his life upon the Wall, when by rights he should have been raised to archmaester.  His blood was why.  He could not be trusted.  No more than I can.  -  Archmaester Marwyn
