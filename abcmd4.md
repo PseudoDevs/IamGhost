@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 11:24:55
-Random Quote: Shut the f*ck up and let me die in peace. - Mike Ehrmantraut
+Last updated: 2024-04-08 11:25:29
+Random Quote: Robert could piss in a cup and men would call it wine, but I offer them cold clear water and they squint in suspicion and mutter to each other about how queer it tastes.  -  Stannis Baratheon
