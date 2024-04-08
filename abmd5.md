@@ -1,2 +1,4 @@
-Last updated: 2024-04-08 11:16:28
-Random Quote: In Texas, the holy trinity is God, Football and barbecue. Not necessarily in that order. - Sheldon Cooper
+Last updated: 2024-04-08 11:17:01
+Random Quote: Marshall: "Except the flames of Lucifer keep singein our back bumper as we drive through this hellish, cheese-infected wasteland."
+Lily: "Wisconsin?"
+Marshall: "Wisconsin!" - Marshall Eriksen
