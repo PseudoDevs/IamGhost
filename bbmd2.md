@@ -1,2 +1,3 @@
-Last updated: 2024-04-08 13:31:07
-Random Quote: Yes, Lord Umber, leave me to the king.  He means to give me a scolding before he forgives me.  That's how he deals with treason, our King in the North.  Or should I call you the King Who Lost the North, your Grace?  -  Rickard Karstark
+Last updated: 2024-04-08 13:31:40
+Random Quote: Robin: "I'm drinking 'til I forget the 1999 NFC Championship?"
+Marshall: "The Vikings were two minutes away from going to the Super Bowl, when our kicker, who hadn't missed all year, shanked a field goal, and we lost in overtime. Damn!" - Marshall Eriksen
