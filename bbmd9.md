@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 12:50:39
-Random Quote: She studied Theon Greyjoy's sly smile, wondering what it meant.  That young man had a way of looking as though he knew some secret jest that only he was privy to; Catelyn had never liked it.  -  Catelyn Stark
+Last updated: 2024-04-08 12:51:12
+Random Quote: What Colonel Sanders is to chicken, Saul Goodman is to the law. - Saul Goodman
