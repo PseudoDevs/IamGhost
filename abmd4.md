@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 07:18:47
-Random Quote: Whatever happens next, it's not gonna go down the way you think it is. - Mike Ehrmantraut
+Last updated: 2024-04-08 07:19:19
+Random Quote: Your innocence may be as plain as the scar on your face, but it will not save you.  No more than your father will.  But I might.  Not as your judge.  As your champion.  -  Oberyn Martell
