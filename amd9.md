@@ -1,3 +1,2 @@
-Last updated: 2024-04-08 15:02:56
-Random Quote: Dragon: "My name is Balthromaw. Breaker of skies, slayer of mountain."
-Rick: "Rule 1: You're now scooper of your own poops, or I will take you down like the black-light poster you are." - Rick Sanchez
+Last updated: 2024-04-08 15:03:29
+Random Quote: Either get out early, or you get out too late. - Pacho Herrera
