@@ -1,2 +1,3 @@
-Last updated: 2024-04-08 11:54:34
-Random Quote: I don't remember much between the ages of eight and twelve. Just that the world moved fast and my brain moved slow. And every now and then, if I focused too closely on the way I breathed, I'd die. Until every second of every day, you find yourself trying to outrun your anxiety. - Rue Bennett
+Last updated: 2024-04-08 11:55:07
+Random Quote: Mi-nyeo: "Deok-su. You betray me... I'll kill you. Okay?"
+Deok-su: "You're the reason that I think I might die tonight." - Jang Deok-su
