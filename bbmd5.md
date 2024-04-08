@@ -1,2 +1,5 @@
-Last updated: 2024-04-08 15:11:17
-Random Quote: When you get too close to the sun, your dreams may melt away. - Steve Murphy
+Last updated: 2024-04-08 15:12:50
+Random Quote: Therapist: "You need to stop doing these weird things. Go out sometime."
+Klaus: "I went to the park today."
+Therapist: "There you go! I hope you got something from that."
+Klaus: "[Opens up coat] This duck." - Klaus Hargreeves
