@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 15:08:48
-Random Quote: Bring on your storm, my lord... and recall, if you do, the name of this castle.  -  Cortnay Penrose
+Last updated: 2024-04-08 15:09:22
+Random Quote: I'm from Minnesota, where there's plenty hot-dogs for everyone. Perhaps even too many... - Marshall Eriksen

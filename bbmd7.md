@@ -1,5 +1,3 @@
-Last updated: 2024-04-08 15:08:48
-Random Quote: Dina: "You're infuriating."
-Ellie: "Have you met you?"
-Dina: "You make me want to go back outside into that blizzard."
-Ellie: "No one is stopping you." - Joel Miller
+Last updated: 2024-04-08 15:09:21
+Random Quote: "Everybody else can see Ben, right?"
+"Yeah, and he's a complete d-ckhead." - Allison Hargreeves
