@@ -1,3 +1,2 @@
-Last updated: 2024-04-08 13:39:18
-Random Quote: Morty: "You're really this pissed about my mum making sure I'm okay with our adventures?"
-Rick: "What's next, Morty? What if I want you to jump off the Empire State Building? I have to ask?" - Rick Sanchez
+Last updated: 2024-04-08 13:39:52
+Random Quote: Sometimes a truce is the most important part of a war. - Professor
