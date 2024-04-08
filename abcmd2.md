@@ -1,2 +1,3 @@
-Last updated: 2024-04-08 11:54:35
-Random Quote: I knew Brienne when she was no more than a girl playing at her father's feet in Evenfall Hall, and I knew her still better when the Evenstar sent her here to Storm's End.  She loved Renly Baratheon from the first moment she laid eyes on him, a blind man could see it.  -  Cortnay Penrose
+Last updated: 2024-04-08 11:55:08
+Random Quote: Dragon: "My name is Balthromaw. Breaker of skies, slayer of mountain."
+Rick: "Rule 1: You're now scooper of your own poops, or I will take you down like the black-light poster you are." - Rick Sanchez

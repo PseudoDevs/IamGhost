@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 11:54:01
-Random Quote: In the game of thrones, even the humblest pieces have wills of their own.  Sometimes they refuse to make the moves you've planned for them.  Mark that well, Alayne.  It's a lesson that Cersei Lannister still has yet to learn.  -  Petyr Baelish
+Last updated: 2024-04-08 11:55:08
+Random Quote: Ted: "Cleveland sports are still relevant! 'LeBron who?' Right, guys?"Barney: "Ted, neither you, nor Cleveland knows how to get over someone leaving them." - Barney Stinson
