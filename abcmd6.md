@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 14:30:59
-Random Quote: Okay, I've missed you. Not in a "we're gonna make out" way, not even in an "I forgive you" way. Just in an "I've missed you" way. - Robin Scherbatsky
+Last updated: 2024-04-08 14:31:33
+Random Quote: I only have one rule. For every three 10's you bang, throw a bone to a 5. They're grateful and hard working and let's face it, sometimes you just want to lay there. - Barney Stinson
