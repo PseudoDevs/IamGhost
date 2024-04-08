@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 14:47:17
-Random Quote: Death is always inevitable. destiny is nothing but the connection between cause and effect. In light, in shadow. - 
+Last updated: 2024-04-08 14:47:51
+Random Quote: A mind needs books as a sword needs a whetstone, if it is to keep its edge.  -  Tyrion Lannister
