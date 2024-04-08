@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 07:13:12
-Random Quote: Power resides where men believe it resides... It's a trick, a shadow on the wall.  -  Varys
+Last updated: 2024-04-08 07:13:46
+Random Quote: That's what they do, don't they? They show you the world, and then they tell you you can't have it. - Virginia Wilson
