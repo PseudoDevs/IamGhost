@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 11:11:19
-Random Quote: I don't know anything about norse gods, but I do know how to bring the thunder. - Thor
+Last updated: 2024-04-08 11:11:52
+Random Quote: You are her perfect prince, agreed, bright and bold and comely as any maid could wish.  Daenerys Targaryen is no maid, however.  She is the widow of a Dothraki Khal, a mother of dragons and sacker of cities, Aegon the Conquereror with teats.  She may not prove as willing as you wish.  -  Tyrion Lannister
