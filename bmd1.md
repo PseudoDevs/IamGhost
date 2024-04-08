@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 12:12:12
-Random Quote: Is she worth the pain? A man does not suffer like this for his own glory. There is a fine line between devotion and delusion. Love can break more than your heart. It can shatter your mind. - O-Bengh
+Last updated: 2024-04-08 12:13:19
+Random Quote: People say Hawkins is cursed. They're not way off. - Dustin Henderson
