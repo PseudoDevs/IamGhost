@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 07:49:19
-Random Quote: Power tastes best when sweetened by courtesy; you had best learn that if you ever hope to rule.  -  Roose Bolton
+Last updated: 2024-04-08 07:52:24
+Random Quote: And at some point you make a choice about who you are and what you want. - Rue Bennett
