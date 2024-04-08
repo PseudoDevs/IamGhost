@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 14:58:14
-Random Quote: You two suck at peddling meth. - Saul Goodman
+Last updated: 2024-04-08 14:58:47
+Random Quote: You think you're the only one he whispers secrets to?  He gives each of us just enough to convince us that we'd be helpless without him.  -  Cersei Lannister
