@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 12:04:03
-Random Quote: We can only die.  Why else do we don these black cloaks, but to die in defense of the realm?  -  Qhorin Halfhand
+Last updated: 2024-04-08 12:05:15
+Random Quote: There's always hope tomorrow'll be taco night. - Nicky Nichols
