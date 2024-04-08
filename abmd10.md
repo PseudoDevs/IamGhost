@@ -1,4 +1,2 @@
-Last updated: 2024-04-08 13:24:44
-Random Quote: Morty: "Mom told me she wanted me to stay here to make sure you didn't die."
-Jerry: "Well, you tell your mother that I'm gonna be fine."
-Rick: "Don't train your child to lie, Jerry." - Rick Sanchez
+Last updated: 2024-04-08 13:25:49
+Random Quote: She had a nice face, her booty was in place, but Barney don't chase. - Barney Stinson
