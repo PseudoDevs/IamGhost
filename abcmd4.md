@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 13:17:06
-Random Quote: Come on, baby, do the magic hand thing! - Greef Karga
+Last updated: 2024-04-08 13:17:39
+Random Quote: I will not be remembered as Set Arys the Unworthy.  I will not soil my cloak.  -  Arys Oakheart
