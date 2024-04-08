@@ -1,3 +1,2 @@
-Last updated: 2024-04-08 11:25:43
-Random Quote: Wyatt Langmore: "This job's my old man's idea. Something about 'calluses and character'."
-Charlotte Byrde: "Yeah, well, you're blowing leaves, not hiding Anne Frank." - Charlotte Byrde
+Last updated: 2024-04-08 11:26:16
+Random Quote: If we miss Hawaii because of this, guess who's not doing "The Disappearing Salami" anytime soon? - Quinn Garvey
