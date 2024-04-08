@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 13:24:57
-Random Quote: Mrs. Buckminster was a spoonful of sugar. But so far, everyone we can afford on this website HeyNannyNanny.com is "Scary Poppins". - Lily Aldrin
+Last updated: 2024-04-08 13:25:29
+Random Quote: Name one thing in this world that is non negotiable. - Walter White
