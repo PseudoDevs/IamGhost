@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 15:00:44
-Random Quote: Do not tell me you're gonna start searching for "the one" again. The only time I wanna hear you saying "the one", is if it's followed by the word "hundred". - Barney Stinson
+Last updated: 2024-04-08 15:01:50
+Random Quote: People are oblivious to reality. They only see what they want to see, when all they have to do is shift their perspective to see the full scope of things. - Yuk Je
