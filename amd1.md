@@ -1,2 +1,3 @@
-Last updated: 2024-04-08 14:18:45
-Random Quote: Euron's gifts are poisoned.  -  Victarion Greyjoy
+Last updated: 2024-04-08 14:19:52
+Random Quote: Jang Deok-su: "Tell me what you're good at?"
+Han Mi-nyeo: "Everything, except the things I can't do." - Oh Il-nam
