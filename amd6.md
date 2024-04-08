@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 12:21:43
-Random Quote: There are worse ways to die than warm and drunk.  I knew a brother drowned himself in wine once.  It was a poor vintage, though, and his corpse did not improve it.  -  Dolorous Edd Tollett
+Last updated: 2024-04-08 12:22:49
+Random Quote: Power tastes best when sweetened by courtesy; you had best learn that if you ever hope to rule.  -  Roose Bolton
