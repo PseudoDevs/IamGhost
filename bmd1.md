@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 11:54:39
-Random Quote: The absolute worst part of depression is that even though you know you're depressed, You're unable to stop yourself from getting worse. - Rue Bennett
+Last updated: 2024-04-08 11:55:49
+Random Quote: Why is it always the innocents who suffer most, when you high lords play your game of thrones?  -  Varys
