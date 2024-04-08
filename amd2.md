@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 07:49:53
-Random Quote: The bad guys need to get lucky every time. The good guys just need to get lucky once. - Steve Murphy
+Last updated: 2024-04-08 07:50:27
+Random Quote: Kill the boy, Jon Snow.  Winter is almost upon us.  Kill the boy and let the man be born.  -  Aemon Targaryen
