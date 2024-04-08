@@ -1,4 +1,2 @@
-Last updated: 2024-04-08 11:18:05
-Random Quote: Greef: "Nevarro is a very fine planet. And now that the scum and villainy have been washed away, it's very respectable again."
-Mando: "As a bounty hunter hive?"
-Greef: "Some of my favorite people are bounty hunters." - Greef Karga
+Last updated: 2024-04-08 11:21:54
+Random Quote: A grievous wound, aye, but Thoros healed it.  There's never been no better healer.  -  Lem Lemoncloak
