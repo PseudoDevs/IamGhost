@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 12:52:15
-Random Quote: We can only die.  Why else do we don these black cloaks, but to die in defense of the realm?  -  Qhorin Halfhand
+Last updated: 2024-04-08 12:52:49
+Random Quote: A bag of dragons buys a man's silence for a while, but a well - placed quarrel buys it forever. 
