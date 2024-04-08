@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 11:25:56
-Random Quote: Kids, you may think your only choices are to swallow your anger or throw it in someone's face, but there's a third option: You can just let it go, and only when you do that is it really gone and you can move forward. - Ted Mosby
+Last updated: 2024-04-08 11:26:28
+Random Quote: Well, I'm just gonna go jerk off then. For the 500th time today. - Larry Bloom
