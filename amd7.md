@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 11:43:11
-Random Quote: Years ago, I bought a Betamax, good product, top of the line. Experts said it was better than a VHS. Turned out to be a complete waste of time and money. - Mike Ehrmantraut
+Last updated: 2024-04-08 11:43:44
+Random Quote: Bulls are strong.  Bears.  I have seen my bastard fight.  He is not entirely to blame.  Reek was his tutor, the first Reek, and Reek was never trained at arms.  Ramsay is ferocious, I will grant you, but he swings that sword like a butcher hacking meat.  -  Roose Bolton
