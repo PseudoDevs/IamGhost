@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 14:05:13
-Random Quote: You two suck at peddling meth. - Saul Goodman
+Last updated: 2024-04-08 14:05:46
+Random Quote: In the game of thrones, even the humblest pieces have wills of their own.  Sometimes they refuse to make the moves you've planned for them.  Mark that well, Alayne.  It's a lesson that Cersei Lannister still has yet to learn.  -  Petyr Baelish
