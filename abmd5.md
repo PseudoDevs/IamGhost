@@ -1,3 +1,4 @@
-Last updated: 2024-04-08 14:07:20
-Random Quote: Layla: "Summon the suit!"
-Steven: "Summon the soup? What are you saying?" - Arthur Harrow
+Last updated: 2024-04-08 14:07:53
+Random Quote: Joel: "I need you to tell us where we are."
+Man: "If you got a map, why you lost?"
+Ellie: "Must've missed all the street signs in the enormous f-cking forest." - Ellie Williams
