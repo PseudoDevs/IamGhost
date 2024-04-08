@@ -1,3 +1,2 @@
-Last updated: 2024-04-08 14:20:00
-Random Quote: Sam: "What's going on in that cyborg brain of yours?"
-Bucky: "You don't wanna know!" - Bucky Barnes
+Last updated: 2024-04-08 14:20:34
+Random Quote: The men of Westeros are ever rushing.  What good is this, I ask you?  He who hurries through life hurries to his grave.  -  Salladhor Saan
