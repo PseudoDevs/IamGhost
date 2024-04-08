@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 11:43:28
-Random Quote: In his chainmail shirt with a sword in his hand, Gendry looked almost a man grown, and dangerous.  Hot Pie looked like Hot Pie.  -  Arya Stark
+Last updated: 2024-04-08 11:44:38
+Random Quote: I wouldn't lie to you. Well... that's a lie. - Rick Sanchez
