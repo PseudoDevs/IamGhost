@@ -1,3 +1,2 @@
-Last updated: 2024-04-08 13:08:22
-Random Quote: Grace Burgess: "You think I am a wh-re?"
-Tommy Shelby: "Everyone's a wh-re, Grace. We just sell different parts of ourselves." - Thomas Shelby
+Last updated: 2024-04-08 13:08:56
+Random Quote: We all wanted to be loved by a man incapable of giving love. - Number Five
