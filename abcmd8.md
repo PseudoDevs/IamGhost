@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 11:13:49
-Random Quote: This is my lucky St. Paddys Day suit. I have dry-cleaned many stain out of this baby. - Barney Stinson
+Last updated: 2024-04-08 11:14:24
+Random Quote: Don Eladio, look into Fring's eyes. There you will see the truth. The Chicken Man hates you. He is our enemy. He plots against us. I demand blood for blood. - Hector Salamanca
