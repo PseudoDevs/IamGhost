@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 13:14:18
-Random Quote: Look, I found a rock that looks like a penis with one ball. It's my Lance Armstrong rock. - Piper Chapman
+Last updated: 2024-04-08 13:14:51
+Random Quote: My uncle Kevan would make a passably good regent if someone pressed the duty on him, but he will never reach for it.  The gods shaped him to be a follower, not a leader.  -  Tyrion Lannister
