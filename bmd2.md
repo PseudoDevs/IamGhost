@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 15:02:01
-Random Quote: There's always hope tomorrow'll be taco night. - Nicky Nichols
+Last updated: 2024-04-08 15:02:34
+Random Quote: Elia Martell, Princess of Dorne.  You raped her!  You murdered her!  You killed her children!  -  Oberyn Martell

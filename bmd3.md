@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 15:02:01
-Random Quote: In this world, a man must learn to seize whatever gifts the gods chose to send him.  That was a lesson I learned at some cost.  -  The Tattered Prince
+Last updated: 2024-04-08 15:02:34
+Random Quote: The Horned Lord once said that sorcery is a sword without a hilt.  There is no safe way to grasp it.  -  Dalla
