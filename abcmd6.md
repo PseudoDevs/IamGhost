@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 11:55:14
-Random Quote: You want to know if I was ever really in love with you? Every morning, I wake up wishing I wasn't. You are a constant reminder of what I can't have. A life. Love. You. - Lucien
+Last updated: 2024-04-08 11:55:50
+Random Quote: It's easier when you're a kid anyway. You don't have anybody else relying on you. That's the hardest part. - Joel Miller
