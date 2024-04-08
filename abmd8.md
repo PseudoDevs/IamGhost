@@ -1,3 +1,2 @@
-Last updated: 2024-04-08 07:26:43
-Random Quote: Summer: "I think it's in our best interest to work as a team."
-Morty: "Yeah, most people would call that 'family'." - Morty Smith
+Last updated: 2024-04-08 07:27:59
+Random Quote: What do a bunch o' bloody peasants know about a lord's honor?  We know some about murder, though.  -  Lem Lemoncloak
