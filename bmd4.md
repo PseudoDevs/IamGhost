@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 12:29:27
-Random Quote: It is R'hllor who brings you back, my lord.  The Lord of Light.  I am only his instrument.  -  Thoros of Myr
+Last updated: 2024-04-08 12:30:01
+Random Quote: In this world, a man must learn to seize whatever gifts the gods chose to send him.  That was a lesson I learned at some cost.  -  The Tattered Prince
