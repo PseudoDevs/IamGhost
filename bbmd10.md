@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 15:12:51
-Random Quote: If you want my advice? Get out of your own goddamn drama for a minute. - Nicky Nichols
+Last updated: 2024-04-08 15:13:35
+Random Quote: Take care of this little one or maybe, it'll take care of you. - Greef Karga
