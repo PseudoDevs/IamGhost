@@ -1,3 +1,2 @@
-Last updated: 2024-04-08 11:50:42
-Random Quote: I hired a decorator and I asked him: "What would the inside of Tinkerbell's vagina look like?"
-And the kid just ran with it! - Quinn Garvey
+Last updated: 2024-04-08 11:51:15
+Random Quote: You have to be as bad as them above in order to survive. - Polly Gray
