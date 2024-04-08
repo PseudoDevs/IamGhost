@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 14:37:38
-Random Quote: If a man does not use his member it grows smaller and smaller, until one day he wants to piss and cannot find it.  -  Tormund Giantsbane
+Last updated: 2024-04-08 14:38:11
+Random Quote: A war is coming. I'm afraid your friends at Hawkins are very much in the eye of the storm. I don't know how to say this other than just to say it: without you, we can't win this war. - Sam Owens

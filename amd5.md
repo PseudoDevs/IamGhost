@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 14:37:38
-Random Quote: All due respect, sir, isn't that a lot of firepower to aim at a country most Americans can't find on a map? - Pepper Potts
+Last updated: 2024-04-08 14:38:11
+Random Quote: Lily: "We'll all have a wedding dress camp-out. It'll be fun!"Barney: "I can't go. I've got this thing."Lily: "What thing?"Barney: "A penis!" - Barney Stinson
