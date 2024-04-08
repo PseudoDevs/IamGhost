@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 13:26:22
-Random Quote: Do you think I can't tell Lord Stannis from Lord Tywin?  They're both bungholes who think they're too noble to shit, but never mind about that, I know the difference.  -  Walder Frey
+Last updated: 2024-04-08 13:27:29
+Random Quote: Destined? Aren't you tired of waiting for destiny, Ted? Isn't it time to make your own destiny? - Robin Scherbatsky
