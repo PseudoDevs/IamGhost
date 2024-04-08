@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 13:10:04
-Random Quote: The soldier's minute. In a battle that's all you get. One minute of everything at once. And anything before it nothing. Everything after, nothing. Nothing in comparison to that one minute. - Thomas Shelby
+Last updated: 2024-04-08 13:10:38
+Random Quote: The greatest fools are ofttimes more clever than the men who laugh at them.  -  Tywin Lannister
