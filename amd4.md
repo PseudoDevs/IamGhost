@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 11:28:07
-Random Quote: Your innocence may be as plain as the scar on your face, but it will not save you.  No more than your father will.  But I might.  Not as your judge.  As your champion.  -  Oberyn Martell
+Last updated: 2024-04-08 11:28:40
+Random Quote: When I'm king in my own right, I'm going to outlaw beets.  -  Tommen Baratheon
