@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 11:54:53
-Random Quote: We all must choose.  Man or woman, young or old, lord or peasant, our choices are the same.  We choose light or we choose darkness.  -  Melisandre
+Last updated: 2024-04-08 11:55:26
+Random Quote: In this fall - this is tough. In this fall I'm going to take my talents to Mouth Beach. - Barney Stinson
