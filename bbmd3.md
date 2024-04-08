@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 11:30:36
-Random Quote: This little bogwing is what all the fuss was about. What a precious little creature! I can see why you didn't want to harm a hair on its wrinkled little head. - Greef Karga
+Last updated: 2024-04-08 11:31:09
+Random Quote: It is so nice to be out in the fresh air. You smell that? That's the smell of urine that isn't Marvin's. - Marshall Eriksen
