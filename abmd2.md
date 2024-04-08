@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 13:18:42
-Random Quote: I like firsts. Good or bad, they're always memorable. - Ahsoka Tano
+Last updated: 2024-04-08 13:19:15
+Random Quote: This is Stannis Baratheon.  The man will fight to the bitter end and then some.  -  Tywin Lannister
