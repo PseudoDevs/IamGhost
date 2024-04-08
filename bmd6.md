@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 11:41:38
-Random Quote: Barney: "I only smoke in certain situations. Postcoital, when I'm with Germans, sometimes those two overlap, coital, birthdays, to annoy my mom, precoital, on a sailboat, the day the Mets are mathematically eliminated every year and pregnancy scares."Ted: "Why are you smoking right now?"Barney: "I'm always precoital, Ted." - Barney Stinson
+Last updated: 2024-04-08 11:42:50
+Random Quote: There's only three things you'll ever see me fight:The stubborn clasp of a bra.Sexual harassment charges - nine for nine!And the urge to vomit when, I see someone wearing brown shoes with a black suit. - Barney Stinson
