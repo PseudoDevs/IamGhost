@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 12:57:40
-Random Quote: In the end, love is a good reason for everything to fall apart. - Tokyo
+Last updated: 2024-04-08 12:58:13
+Random Quote: They'll bend the knee or I'll destroy them.  -  Stannis Baratheon
