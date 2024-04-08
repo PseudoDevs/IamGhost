@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 13:14:35
-Random Quote: Eleven: "Promise?"Mike: "It means something that you can't break. Ever." - Mike Wheeler
+Last updated: 2024-04-08 13:15:08
+Random Quote: When you date someone, it's like you're taking one long course in who that person is and then, when you break up, all that stuff becomes useless. It's the emotional equivalent of an English degree... - Ted Mosby
