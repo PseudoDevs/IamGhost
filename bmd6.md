@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 11:13:52
-Random Quote: If there was any shame in a dude getting a pedicure I don't think there would've been a feature about it in Details magazine. - Barney Stinson
+Last updated: 2024-04-08 11:14:28
+Random Quote: A feeling of unresolved resentment against injustices suffered, a sense of helplessness because of the overwhelming odds against one, a feeling of acute pain in one's guts and bowels, making the whole body writhe and squirm, and an obstinate urge to take revenge and to right the wrong - all these combined. - Seong Gi-hun
