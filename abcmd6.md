@@ -1,5 +1,3 @@
-Last updated: 2024-04-08 11:53:32
-Random Quote: Abby: "Do we have to go back this way?"
-Owen: "Consider it an opportunity to work on your fears."
-Abby: "How about I work my foot up your ass?"
-Owen: "Abby, stop flirting!" - Joel Miller
+Last updated: 2024-04-08 11:54:06
+Random Quote: Summer: "Someone out there is trying to kill us."
+Rick: "Someone's always trying to kill us." - Rick Sanchez
