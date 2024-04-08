@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 12:40:08
-Random Quote: Robin: "Ted, are you acting out the last scene of 'Sleepless in Seattle' with little dolls?"Ted: "How long have you been out here?"Robin: "Ten seconds."Ted: "Yeah - just the last scene." - Robin Scherbatsky
+Last updated: 2024-04-08 12:40:41
+Random Quote: I have never liked you, Cersei, but you were my own sister, so I never did you harm.  You've ended that.  I will hurt you for this.  I don't know how yet, but give me time.  A day will come when you think yourself safe and happy, and suddenly your joy will turn to ashes in your mouth, and you'll know the debt is paid.  -  Tyrion Lannister
