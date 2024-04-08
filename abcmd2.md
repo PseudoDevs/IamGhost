@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 11:27:09
-Random Quote: Ted, your throwing your life away. This girl is blinding you with her shiny hair and her boob-shaped boobs! - Barney Stinson
+Last updated: 2024-04-08 11:27:42
+Random Quote: It was the white cloak that soiled me, not the other way around.  -  Jaime Lannister
