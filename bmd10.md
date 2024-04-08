@@ -1,2 +1,3 @@
-Last updated: 2024-04-08 12:19:34
-Random Quote: As the twig is bent, so grows the tree. - Pacho Herrera
+Last updated: 2024-04-08 12:20:09
+Random Quote: Ellie: "Everybody I've cared for, either died or left me."
+Joel: "You have no idea what loss is." - Joel Miller
