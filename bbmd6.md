@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 14:58:47
-Random Quote: You think you're the only one he whispers secrets to?  He gives each of us just enough to convince us that we'd be helpless without him.  -  Cersei Lannister
+Last updated: 2024-04-08 14:59:20
+Random Quote: I believe the world's a bad place. And I don't think I'm much better. But we have to try. - Walt Breslin
