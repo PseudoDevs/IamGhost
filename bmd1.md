@@ -1,2 +1,3 @@
-Last updated: 2024-04-08 07:49:17
-Random Quote: There are so many great things to do with the human mouth, why waste it on talking? - Barney Stinson
+Last updated: 2024-04-08 07:49:54
+Random Quote: Joel: "A deep breath in, slow breath out. You squeeze the trigger like you love it. Gentle, steady, nice and slow."
+Ellie: "You gonna shoot this thing or get it pregnant?" - Ellie Williams
