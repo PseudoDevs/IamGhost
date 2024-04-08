@@ -1,2 +1,3 @@
-Last updated: 2024-04-08 14:54:40
-Random Quote: People taking power who don't deserve it. It never ends well. - Jérôme
+Last updated: 2024-04-08 14:55:14
+Random Quote: Tommy: "I'll have some men watch her house 'til the danger passes."
+Polly: "'Til the danger passes. That'll be the bloody day." - Polly Gray
