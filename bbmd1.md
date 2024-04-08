@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 15:08:11
-Random Quote: Gods help you, Theon Greyjoy.  Now you are truly lost.  -  Rodrik Cassel
+Last updated: 2024-04-08 15:08:44
+Random Quote: Ted: "All my friends from high-school, they're here with their wifes or kids. My date for the night is a sticky magazine..."Robin: "Sounds like high-school all over again!" - Robin Scherbatsky
