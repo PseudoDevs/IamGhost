@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 15:14:04
-Random Quote: Someone has to protect this family from the man who protects this family. - Skyler White
+Last updated: 2024-04-08 15:14:37
+Random Quote: The Wall can stop an army, but not a man alone.  -  Mance Rayder
