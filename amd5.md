@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 13:29:03
-Random Quote: I'm just saying, love is a million things. - Maddy Perez
+Last updated: 2024-04-08 13:29:36
+Random Quote: If I'm always looking back, I'm never looking ahead. We are who we are because of consequences. You can't live without consequences. - Morty Smith
