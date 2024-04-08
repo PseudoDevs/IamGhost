@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 14:15:03
-Random Quote: You don't parley when you're on the back foot. We'll strike a blow back first. - Thomas Shelby
+Last updated: 2024-04-08 14:15:36
+Random Quote: You must be blind as well as maimed, Set.  Lift your eyes, and you will see the direwolf still flies above our walls.  -  Brynden Tully
