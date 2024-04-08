@@ -1,4 +1,2 @@
-Last updated: 2024-04-08 07:29:12
-Random Quote: Joel: "I need you to tell us where we are."
-Man: "If you got a map, why you lost?"
-Ellie: "Must've missed all the street signs in the enormous f-cking forest." - Ellie Williams
+Last updated: 2024-04-08 07:29:45
+Random Quote: Place was overrun with rats when we moved in.  The spearwives killed the nasty buggers.  Now the place is overrun with spearwives.  There's days I want the rats back.  -  Dolorous Edd Tollett
