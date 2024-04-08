@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 07:35:35
-Random Quote: The beautiful thing about getting high is that time ceases to exist. - Rue Bennett
+Last updated: 2024-04-08 07:36:14
+Random Quote: You grew up with actors.  You learned their craft and you learned it well.  I grew up with soldiers.  I learned how to die a long time ago.  -  Eddard Stark
