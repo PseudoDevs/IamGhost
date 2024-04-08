@@ -1,6 +1,2 @@
-Last updated: 2024-04-08 15:00:11
-Random Quote: Sam: "They might be a part of the big three."
-Bucky: "What big three?"
-Sam: "Androids, aliens and wizards."
-Bucky: "That's not a thing."
-Sam: "That's definitely a thing." - Sam Wilson
+Last updated: 2024-04-08 15:00:44
+Random Quote: You were supposed to be my wife, to bear me children with silver hair and purple eyes, to keep the blood of the dragon pure.  I took care of you.  I taught you who you were.  I fed you.  I sold our mother's crown to keep you fed.  -  Viserys Targaryen
