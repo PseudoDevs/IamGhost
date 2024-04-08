@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 12:24:15
-Random Quote: Those men sitting in Mexico City might be done with me, but I'm not done with them. - Miguel Angel Felix Gallardo
+Last updated: 2024-04-08 12:25:25
+Random Quote: Qhorin was my enemy.  But also my brother, once.  So... shall I thank you for killing him, Jon Snow?  Or curse you?  -  Mance Rayder
