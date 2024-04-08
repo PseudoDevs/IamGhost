@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 12:17:52
-Random Quote: Lily: "Ted, you did this all yourself?"Ted: "Just like Ryan Gosling in 'The Notebook'. It was pretty manly 'til I mentioned Ryan Gosling in 'The Notebook', huh?" - Ted Mosby
+Last updated: 2024-04-08 12:18:26
+Random Quote: Never bring a knife to a sword fight. Unless it's concealed. - Wednesday Addams
