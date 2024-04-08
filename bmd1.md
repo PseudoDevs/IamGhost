@@ -1,4 +1,2 @@
-Last updated: 2024-04-08 12:15:35
-Random Quote: Morticia: "Please excuse Wednesday. She's allergic to color."
-Enid: "Wow, what happens to you?"
-Wednesday: "I break out into hives, and then the flesh peels off my bones." - Wednesday Addams
+Last updated: 2024-04-08 12:16:42
+Random Quote: Dreams change. Other things become important. - 
