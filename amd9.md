@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 07:14:18
-Random Quote: There are moments when we must understand that the decisions we make influence more than just our own fates. - 
+Last updated: 2024-04-08 07:14:52
+Random Quote: There are no men like me.  There's only me.  -  Jaime Lannister
