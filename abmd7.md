@@ -1,2 +1,3 @@
-Last updated: 2024-04-08 13:06:40
-Random Quote: Are you allowed to say that to people in my tax bracket? - Iron Man
+Last updated: 2024-04-08 13:07:14
+Random Quote: Give it a week, you'll get her back. And her front.
+Oh! Did you feel that? I think we just had a "what up?"-quake! - Barney Stinson
