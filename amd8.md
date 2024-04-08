@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 12:14:01
-Random Quote: The Pork Authority is closed. Looks like it's Hand Central Station for you little buddy. - James Stinson
+Last updated: 2024-04-08 12:14:35
+Random Quote: I never asked for this, no more than I asked to be king.  Yet dare I disregard her?  We do not choose our destinies.  Yet we must... we must do our duty, no?  Great or small, we must do our duty.  -  Stannis Baratheon
