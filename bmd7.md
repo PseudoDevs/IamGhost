@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 13:34:11
-Random Quote: A mind needs books as a sword needs a whetstone, if it is to keep its edge.  -  Tyrion Lannister
+Last updated: 2024-04-08 13:34:44
+Random Quote: In the United States, the Mafia makes witnesses disappear so they can't testify in court. In Colombia, Pablo Escobar made the whole court disappear. - Steve Murphy
