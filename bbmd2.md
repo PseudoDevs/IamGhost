@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 12:13:47
-Random Quote: There's always hope tomorrow'll be taco night. - Nicky Nichols
+Last updated: 2024-04-08 12:14:20
+Random Quote: You gonna ruin my life? I f'ing promise you I can do that a lot better than you can! - Rue Bennett
