@@ -1,3 +1,2 @@
-Last updated: 2024-04-08 12:27:09
-Random Quote: Morticia: "That boy's family was going to file attempted murder charges. How would that have looked on your record?"
-Wednesday: "Terrible. Everyone would know I failed to get the job done." - Wednesday Addams
+Last updated: 2024-04-08 12:27:44
+Random Quote: I like her. She makes you try new things, it's good for you. I'm serious - you seem less afraid when you're with her. I like it and it also makes me kind of sad. - Hannah Baker
