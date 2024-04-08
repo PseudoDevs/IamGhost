@@ -1,3 +1,2 @@
-Last updated: 2024-04-08 07:14:19
-Random Quote: Jerry: "Space sperm? Sperm from... space?"
-Rick: "Very impressive verbal forensic work, Jerry." - Rick Sanchez
+Last updated: 2024-04-08 07:14:55
+Random Quote: It seems to me that a queen who trusts no one is as foolish as a queen who trusts everyone.  -  Daenerys Targaryen
