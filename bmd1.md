@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 07:21:08
-Random Quote: Underneath all of those lies is one true thing. One true thing that can support the weight of all the lies in the world, and that's the fact that I love you. - Barney Stinson
+Last updated: 2024-04-08 07:21:41
+Random Quote: Being a Mandalorian is not just learning about how to fight. You also have to know how to navigate the Galaxy. That way you'll never be lost. - Din Djarin

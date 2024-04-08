@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 07:20:34
-Random Quote: When a maester donned his collar, he put aside the hope of children, yet Cressen had oft felt a father nonetheless.  Robert, Stannis, Renly: three sons he had raised after the angry sea claimed Lord Steffon.  -  Maester Cressen
+Last updated: 2024-04-08 07:21:41
+Random Quote: Growing up, I'd always lose my umbrella so my mom would get angry. So then, she gave me broken ones to bring to school. - Seong Gi-hun
