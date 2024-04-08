@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 12:17:57
-Random Quote: There is no such thing as magic, just illusion. Things only change when we change them. But you have to do it skillfully, in secret. Then it seems like magic. - Mikkel Nielsen
+Last updated: 2024-04-08 12:18:29
+Random Quote: You grew up with actors.  You learned their craft and you learned it well.  I grew up with soldiers.  I learned how to die a long time ago.  -  Eddard Stark
