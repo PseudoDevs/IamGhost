@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 13:57:59
-Random Quote: A guy opens his door and gets shot and you think that of me? No. I am the one who knocks! - Walter White
+Last updated: 2024-04-08 13:58:33
+Random Quote: We can only die.  Why else do we don these black cloaks, but to die in defense of the realm?  -  Qhorin Halfhand

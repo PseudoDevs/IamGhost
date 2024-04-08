@@ -1,4 +1,2 @@
-Last updated: 2024-04-08 13:56:53
-Random Quote: It could be for a brother or maybe her sick dad.
-[reads] "And then I want you to do me on the couch."
-Okay, maybe not a sick dad. Or a very sick dad, am I right? - Robin Scherbatsky
+Last updated: 2024-04-08 13:58:33
+Random Quote: Little did I know that I would be stepping into a nightmare full of mystery, mayhem and murder. I think I'm going to love it here. - Wednesday Addams
