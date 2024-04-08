@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 12:32:52
-Random Quote: What Colonel Sanders is to chicken, Saul Goodman is to the law. - Saul Goodman
+Last updated: 2024-04-08 12:33:25
+Random Quote: Place was overrun with rats when we moved in.  The spearwives killed the nasty buggers.  Now the place is overrun with spearwives.  There's days I want the rats back.  -  Dolorous Edd Tollett
