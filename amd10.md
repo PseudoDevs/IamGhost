@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 14:57:27
-Random Quote: Do not tell me you're gonna start searching for "the one" again. The only time I wanna hear you saying "the one", is if it's followed by the word "hundred". - Barney Stinson
+Last updated: 2024-04-08 14:57:59
+Random Quote: Because there's no way watching it can be more fun than playing it yourself. - Oh Il-nam
