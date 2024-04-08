@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 07:16:28
-Random Quote: Gustavo. When I looked into your eyes... hate. A little bit's okay. As long as you never forget who's boss. - Don Eladio
+Last updated: 2024-04-08 07:17:02
+Random Quote: Colombians say, God made our land so beautiful it was unfair to the rest of the world. So to even the score, God populated the land with a race of evil men. - C� sar Gaviria
