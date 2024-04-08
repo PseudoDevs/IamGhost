@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 07:27:20
-Random Quote: Maybe people are nostalgic about high school 'cause it's, like, the last time in their life that they get to dream. - Cassie Howard
+Last updated: 2024-04-08 07:28:00
+Random Quote: I am Bo-Katan of Clan Kryze. I was born on Mandalore and fought in the Purge. I am the last of my line. - Bo-Katan
