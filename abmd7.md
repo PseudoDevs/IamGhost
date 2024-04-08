@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 07:57:37
-Random Quote: Love is poison.  A sweet poison, yes, but it will kill you all the same.  -  Cersei Lannister
+Last updated: 2024-04-08 11:07:26
+Random Quote: Early drinkin’ means quick drunken. - Jim Hopper
