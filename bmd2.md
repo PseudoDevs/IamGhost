@@ -1,2 +1,3 @@
-Last updated: 2024-04-08 07:12:03
-Random Quote: We've discussed this, mornings are for coffee and contemplation. - Jim Hopper
+Last updated: 2024-04-08 07:12:37
+Random Quote: Lily: "We don't wanna burden our little angel with all kinds of gender-specific expectations. Boys can do ballet, girls can play football."
+Marshall: "Hell, the Green Bay Packers have been proving that for years." - Marshall Eriksen
