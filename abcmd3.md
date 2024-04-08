@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 07:52:13
-Random Quote: Even brave men blind themselves sometimes, when they are afraid to see.  -  Beric Dondarrian
+Last updated: 2024-04-08 07:52:47
+Random Quote: The Lord of Light cherishes the innocent.  There is no sacrifice more precious.  From his king's blood and his untainted fire, a dragon shall be born.  -  Melisandre
