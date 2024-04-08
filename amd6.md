@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 12:42:52
-Random Quote: I don't want to die, I've only kissed one boy so far. - Missy
+Last updated: 2024-04-08 12:43:26
+Random Quote: The common people pray for rain, healthy children, and a summer that never ends.  It is no matter to them if the high lords play their game of thrones, so long as they are left in peace.  They never are.  -  Jorah Mormont
