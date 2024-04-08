@@ -1,2 +1,4 @@
-Last updated: 2024-04-08 12:04:37
-Random Quote: You are the love of my life. Everything I have and everything I am is yours. Forever. - Barney Stinson
+Last updated: 2024-04-08 12:05:46
+Random Quote: Greef: "Nevarro is a very fine planet. And now that the scum and villainy have been washed away, it's very respectable again."
+Mando: "As a bounty hunter hive?"
+Greef: "Some of my favorite people are bounty hunters." - Greef Karga
