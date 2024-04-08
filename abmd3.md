@@ -1,3 +1,3 @@
-Last updated: 2024-04-08 12:09:55
-Random Quote: Alex: "What's Jagermeister?"
-Phil: "Well, you know how in a fairytale there's always a potion that makes the princess fall asleep and then the guys start kissing her? Well, this is like that, except you don't wake up in a castle, you wake up in a frat house with a bad reputation." - Phil Dunphy
+Last updated: 2024-04-08 12:10:28
+Random Quote: Larissa: "So you automatically assume a Nevermore student is the murderer, even though there's no evidence a crime was even committed."
+Donovan: "I'm sorry. I forgot, you only teach the good outcasts here, right?" - Donovan Galpin
