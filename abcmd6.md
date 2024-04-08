@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 13:58:33
-Random Quote: Never bring a knife to a sword fight. Unless it's concealed. - Wednesday Addams
+Last updated: 2024-04-08 13:59:06
+Random Quote: Ran: "We were all young, tryin' to make a name for ourselves. But runnin' with a Mandalorian, that brought us some reputation."Mayfeld: "Oh, yeah? What did he get out of it?"Ran: "I asked him that one time. You remember what you said, Mando? Target Practice." - Din Djarin
