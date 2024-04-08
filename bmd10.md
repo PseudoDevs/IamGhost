@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 14:17:29
-Random Quote: Airport Security: "How did you get that through the X-Ray machine?"Barney: "No questions from the audience, please!" - Barney Stinson
+Last updated: 2024-04-08 14:18:02
+Random Quote: Why is it always the innocents who suffer most, when you high lords play your game of thrones?  -  Varys
