@@ -1,2 +1,3 @@
-Last updated: 2024-04-08 13:41:33
-Random Quote: The Crow's Eye brought back monsters from the east... aye, and wizards too.  -  Tristifer Botley
+Last updated: 2024-04-08 13:42:07
+Random Quote: This woman has a hold on my heart that I could not break if I wanted to, and there have been times that I wanted to.
+It has been overwhelming and humbling and even painful at times, but I could not stop loving her any more than I could stop breathing. - Barney Stinson
