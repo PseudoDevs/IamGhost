@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 13:15:46
-Random Quote: Ted, every little boy wants to grow up to nail the doctor, or the lawyer. Somebody's gotta nail the receptionist. - Barney Stinson
+Last updated: 2024-04-08 13:16:19
+Random Quote: You want to hurt these guys, we gotta take down the ones calling the shots. - Jaime Kuykendall
