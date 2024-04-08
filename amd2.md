@@ -1,2 +1,3 @@
-Last updated: 2024-04-08 11:25:22
-Random Quote: New Mexico. It's another state. I mean, it's like California, just less traffic. - Lalo Salamanca
+Last updated: 2024-04-08 11:25:55
+Random Quote: The Deep: "What do we do? We can't just kill everyone."
+Billy Butcher: "That's exactly what we're gonna do!" - Billy Butcher
