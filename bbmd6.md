@@ -1,6 +1,2 @@
-Last updated: 2024-04-08 07:13:16
-Random Quote: Morty: "Rick, when you say you made an exact replica of the house, did you mean, like, an exact replica?"
-Rick: "I know about the Yosemite T-Shirt, Morty."
-Morty: "Shit."
-Rick: "You know you can use tissues, right?"
-Morty: "I can't finish without it!" - Morty Smith
+Last updated: 2024-04-08 07:14:59
+Random Quote: She had a nice face, her booty was in place, but Barney don't chase. - Barney Stinson
