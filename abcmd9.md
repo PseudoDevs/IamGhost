@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 07:35:14
-Random Quote: Birds are lost, messages stolen or sold... there are things I might tell you of that eunuch that would chill your blood...  -  Grand Maester Pycelle
+Last updated: 2024-04-08 07:35:47
+Random Quote: I hide in plain sight, same as you. - Gustavo Fring
