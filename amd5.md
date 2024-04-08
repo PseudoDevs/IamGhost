@@ -1,3 +1,2 @@
-Last updated: 2024-04-08 14:20:52
-Random Quote: Lily: "Swear on the lifes of your unborn boy and girl!"
-Ted: "I swear... on Luke and Leia!" - Ted Mosby
+Last updated: 2024-04-08 14:21:26
+Random Quote: Ted: "[to Marshall, lying next to him] Marshall, are you still thinking about Lily?"Marshall: "Yeah."Ted: "Please stop!" - Ted Mosby
