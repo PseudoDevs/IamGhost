@@ -1,3 +1,2 @@
-Last updated: 2024-04-08 14:33:45
-Random Quote: May: "May Carleton. I breed racehorses and train them. What is it you do?"
-Thommy: "I rarely answer questions is what I do." - Thomas Shelby
+Last updated: 2024-04-08 14:34:18
+Random Quote: What's the difference between peanut butter and jam?You can't peanut butter your dick up someone's ass. - Barney Stinson
