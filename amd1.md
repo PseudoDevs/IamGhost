@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 11:55:15
-Random Quote: Elia of Dorne.  I killed her screaming whelp.  Then I raped her.  Then I smashed her fucking head in like this.  -  Gregor Clegane
+Last updated: 2024-04-08 11:55:50
+Random Quote: I stayed up all night wondering where the sun went. Then it dawned on me. - Will Livingston
