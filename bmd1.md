@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 12:48:02
-Random Quote: These old knights are more cunning than you think, or they would never have lived to see their first grey hair.  -  Dagmer Cleftjaw
+Last updated: 2024-04-08 12:49:43
+Random Quote: Now my bastards presume to teach me courtesy.  I'll speak any way I like, damn you.  I've had three kings to guest in my life, and queens as well, do you think I require lessons from the likes of you, Ryger?  Your mother was milking goats the first time I gave her my seed.  -  Walder Frey
