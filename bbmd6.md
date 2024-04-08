@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 14:47:54
-Random Quote: Long distance is a lie teenagers tell each other to get laid the summer before college. - Ted Mosby
+Last updated: 2024-04-08 14:48:28
+Random Quote: My lady, I have seen how you look at my brother.  Loras is valiant and handsome, and we all love him dearly... but your Imp will make a better husband.  He is a bigger man than he seems, I think.  -  Garlan Tyrell
