@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 14:40:54
-Random Quote: I don't remember much between the ages of eight and twelve. Just that the world moved fast and my brain moved slow. And every now and then, if I focused too closely on the way I breathed, I'd die. Until every second of every day, you find yourself trying to outrun your anxiety. - Rue Bennett
+Last updated: 2024-04-08 14:42:00
+Random Quote: Sometimes distance is the only way to find peace. So you can heal your wound. - Berlin
