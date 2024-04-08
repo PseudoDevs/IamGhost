@@ -1,3 +1,2 @@
-Last updated: 2024-04-08 14:56:34
-Random Quote: Jessica: "I miss you."
-Morty: "You miss the old me. You miss someone that loved you so much, you never had to love him back." - Morty Smith
+Last updated: 2024-04-08 14:57:08
+Random Quote: Any man who steps between a father and his vengeance asks for death.  -  Rickard Karstark
