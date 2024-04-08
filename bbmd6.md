@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 11:34:58
-Random Quote: It's not even the lies that hurt, you know? It's the fact that you're never really emotionally prepared for someone to leave you. - Rue Bennett
+Last updated: 2024-04-08 11:35:33
+Random Quote: I have won every battle, yet somehow I'm losing the war.  -  Robb Stark
