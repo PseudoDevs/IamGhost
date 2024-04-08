@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 07:49:56
-Random Quote: Freeways have exits, so do relationships. The first exit, my personal favourite, is six hours in: You meet, you talk, you have sex, you exit when she's in the shower. - Barney Stinson
+Last updated: 2024-04-08 07:50:33
+Random Quote: Kids, you may think your only choices are to swallow your anger or throw it in someone's face, but there's a third option: You can just let it go, and only when you do that is it really gone and you can move forward. - Ted Mosby
