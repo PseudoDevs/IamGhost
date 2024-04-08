@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 11:58:41
-Random Quote: Robert wanted smiles and cheers, always, so he went where he found them, to his friends and his whores.  Robert wanted to be loved.  My brother Tyrion has the same disease.  -  Cersei Lannister
+Last updated: 2024-04-08 11:59:14
+Random Quote: Eleven: "Promise?"Mike: "It means something that you can't break. Ever." - Mike Wheeler
