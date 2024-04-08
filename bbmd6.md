@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 12:57:52
-Random Quote: I'm honest.  It's the world that's awful.  -  Sandor Clegane
+Last updated: 2024-04-08 12:58:25
+Random Quote: A man will tell you poison is dishonorable, but a woman's honor is different.  The Mother shaped us to protect our children, and our only dishonor is failure.  -  Lysa Arryn
