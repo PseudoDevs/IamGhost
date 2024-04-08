@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 11:16:49
-Random Quote: What's a bigger feeling than love? - Elliot
+Last updated: 2024-04-08 11:17:22
+Random Quote: Place was overrun with rats when we moved in.  The spearwives killed the nasty buggers.  Now the place is overrun with spearwives.  There's days I want the rats back.  -  Dolorous Edd Tollett
