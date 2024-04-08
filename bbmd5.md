@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 11:51:42
-Random Quote: I understand that if any more words come pouring out of your cunt mouth I'm going to have to eat every fucking chicken in this room.  -  Sandor Clegane
+Last updated: 2024-04-08 11:52:53
+Random Quote: Ties and no playoffs? Why do you even do this? - Jim Hopper

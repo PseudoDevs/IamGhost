@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 11:52:18
-Random Quote: I was weaned on venom, Dalt.  Any viper takes a bite of me will rue it.  -  Gerold Dayne
+Last updated: 2024-04-08 11:52:53
+Random Quote: I know this hurts little buddy, but you'll love again someday. Because time will heal a broken heart, but not that bitch's window. - Barney Stinson

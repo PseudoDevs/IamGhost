@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 11:52:18
-Random Quote: Eight years ago I made an ass of myself chasing after you and I made an ass of myself chasing after you a bunch of times since then. And I have no regrets because it led me to something I wouldn't trade for the world, it led to you being my friend. So as your friend and a leading expert in the field of making an ass of yourself. I say to you, from the heart, get the hell out of this car! - Ted Mosby
+Last updated: 2024-04-08 11:52:53
+Random Quote: Don't knock long-distance relationships, I really think they can work. I'm juggling four right now. There's Lisa in Madrid, there's Erica in Tokyo, there's Laura in Denmark. And Kelly on 34th street. The last thinks I'm a humble sheep-shearer from Kelani. - Barney Stinson
