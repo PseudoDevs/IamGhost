@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 13:44:58
-Random Quote: In this world, everything is governed by balance. There’s what you stand to gain and what you stand to lose. And when you think you’ve got nothing to lose, you become overconfident - Professor
+Last updated: 2024-04-08 13:45:32
+Random Quote: Asha Greyjoy did not intend to be taken alive.  She would die as she had lived, with an axe in her hand and a laugh upon her lips.  -  Asha Greyjoy
