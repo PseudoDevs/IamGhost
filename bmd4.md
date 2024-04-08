@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 14:26:30
-Random Quote: Sometimes it just feels better not to talk. At All. About Anything. To Anyone. - Walter White
+Last updated: 2024-04-08 14:27:04
+Random Quote: They'll bend the knee or I'll destroy them.  -  Stannis Baratheon
