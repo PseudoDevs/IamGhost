@@ -1,3 +1,2 @@
-Last updated: 2024-04-08 13:44:29
-Random Quote: Lily: "We don't wanna burden our little angel with all kinds of gender-specific expectations. Boys can do ballet, girls can play football."
-Marshall: "Hell, the Green Bay Packers have been proving that for years." - Marshall Eriksen
+Last updated: 2024-04-08 13:45:02
+Random Quote: Barney: "Canada sucks."Robin: "Okay, well, you're one-quarter Canadian, so by that logic you one-quarter suck!"Barney: "I'm 100% awesome and you know it!"Robin: "Yeah, I do." - Robin Scherbatsky
