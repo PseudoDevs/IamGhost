@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 13:55:46
-Random Quote: Any man who steps between a father and his vengeance asks for death.  -  Rickard Karstark
+Last updated: 2024-04-08 13:57:26
+Random Quote: Never give power to the big man. - Alfie Solomons
