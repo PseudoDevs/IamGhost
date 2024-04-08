@@ -1,2 +1,3 @@
-Last updated: 2024-04-08 14:00:42
-Random Quote: You are the love of my life. Everything I have and everything I am is yours. Forever. - Barney Stinson
+Last updated: 2024-04-08 14:01:15
+Random Quote: Lily: "We don't wanna burden our little angel with all kinds of gender-specific expectations. Boys can do ballet, girls can play football."
+Marshall: "Hell, the Green Bay Packers have been proving that for years." - Marshall Eriksen
