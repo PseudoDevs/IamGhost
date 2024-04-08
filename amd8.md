@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 11:45:47
-Random Quote: There is no such thing as magic, just illusion. Things only change when we change them. But you have to do it skillfully, in secret. Then it seems like magic. - Mikkel Nielsen
+Last updated: 2024-04-08 11:46:23
+Random Quote: What you have to do is show these suckers what you’re capable of. Show them you’re not scared. - Nairobi

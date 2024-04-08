@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 11:45:48
-Random Quote: Barney: "Her butt?"Marshall: "What is it, too much?"Lily: "Too low?"Robin: "Or ist it an issue of access?" - Robin Scherbatsky
+Last updated: 2024-04-08 11:46:23
+Random Quote: You have to be as bad as them above in order to survive. - Polly Gray
