@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 14:58:44
-Random Quote: I knew quite a few Jedi, you know. I don't know what they taught you about us, but there was a time we actually got along quite well. Fought side by side. - Bo-Katan
+Last updated: 2024-04-08 14:59:18
+Random Quote: Some people wander around their whole lives looking for a way out, but there’s only one path and it leads you ever deeper. - 
