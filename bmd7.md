@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 12:26:44
-Random Quote: What you're doing right now. I'm getting a de-rection! - Barney Stinson
+Last updated: 2024-04-08 12:27:50
+Random Quote: Your innocence may be as plain as the scar on your face, but it will not save you.  No more than your father will.  But I might.  Not as your judge.  As your champion.  -  Oberyn Martell
