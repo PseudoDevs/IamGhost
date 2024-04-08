@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 11:34:23
-Random Quote: He can hear youHe knows if you've been bad or goodLike Santa, but he can send you to hell. - Missy
+Last updated: 2024-04-08 11:34:58
+Random Quote: It's not even the lies that hurt, you know? It's the fact that you're never really emotionally prepared for someone to leave you. - Rue Bennett
