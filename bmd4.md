@@ -1,3 +1,2 @@
-Last updated: 2024-04-08 14:48:56
-Random Quote: This woman has a hold on my heart that I could not break if I wanted to, and there have been times that I wanted to.
-It has been overwhelming and humbling and even painful at times, but I could not stop loving her any more than I could stop breathing. - Barney Stinson
+Last updated: 2024-04-08 14:49:29
+Random Quote: I mean she just walked out. At least when I walk out on a girl I have the common courtesy to sleep with her first. It's called manners! - Barney Stinson
