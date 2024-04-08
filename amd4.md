@@ -1,2 +1,3 @@
-Last updated: 2024-04-08 07:11:52
-Random Quote: And at some point you make a choice about who you are and what you want. - Rue Bennett
+Last updated: 2024-04-08 07:12:28
+Random Quote: Weems: "No doubt you'll find something that tickles your fancy."
+Wednesday: "The last person who tickled me lost a finger." - Wednesday Addams
