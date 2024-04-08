@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 11:26:43
-Random Quote: It's nice that they found each other. Sometimes you fall for someone you'd never expect, but that doesn't make it wrong. Doesn't everyone deserve to be happy? - Barney Stinson
+Last updated: 2024-04-08 11:27:19
+Random Quote: If you wish to give up on playing, the 25.5 billion won will be sent to the bereaved families of the late players. - Jang Deok-su
