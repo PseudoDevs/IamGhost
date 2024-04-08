@@ -1,3 +1,2 @@
-Last updated: 2024-04-08 11:15:55
-Random Quote: Morty: "You were a teenager when dad got you pregnant!"
-Beth: "I was 17. That's at least 26 in boy years." - Beth Smith
+Last updated: 2024-04-08 11:16:28
+Random Quote: Every hookup at a weekend wedding is decided at Friday Night Drinks. Get stuck with the wrong girl tonight, the only action you'll be getting all weekend is a self five and I don't mean the cool kind. Self-five! That's the cool kind. - Barney Stinson
