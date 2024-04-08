@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 07:35:07
-Random Quote: Look, I found a rock that looks like a penis with one ball. It's my Lance Armstrong rock. - Piper Chapman
+Last updated: 2024-04-08 07:35:40
+Random Quote: My lady, I have seen how you look at my brother.  Loras is valiant and handsome, and we all love him dearly... but your Imp will make a better husband.  He is a bigger man than he seems, I think.  -  Garlan Tyrell
