@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 12:21:20
-Random Quote: The most beautiful woman in the world has urgent need of my axe.  -  Victarion Greyjoy.
+Last updated: 2024-04-08 12:22:30
+Random Quote: Being a Mandalorian is not just learning about how to fight. You also have to know how to navigate the Galaxy. That way you'll never be lost. - Din Djarin
