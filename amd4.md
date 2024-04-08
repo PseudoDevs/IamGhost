@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 11:36:11
-Random Quote: It's like...It's like I'm a fucked-up-shit magnet. - Maria Ruiz
+Last updated: 2024-04-08 11:36:47
+Random Quote: Some people wander around their whole lives looking for a way out, but there’s only one path and it leads you ever deeper. - 
