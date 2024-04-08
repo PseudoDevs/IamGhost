@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 13:23:51
-Random Quote: You ought to have no trouble catching our uncles.  One is drunk on seawater, after all, and the other is a great grey bullock so dim he'll probably get lost.  -  Asha Greyjoy
+Last updated: 2024-04-08 13:24:24
+Random Quote: Most of him has gone into the tree... he has lived beyond his mortal span, and yet he lingers.  For us, for you, for the realms of men.  Only a little strength remains in his flesh.  He has a thousand eyes and one, but there is much to watch.  One day you will know.  -  Leaf
