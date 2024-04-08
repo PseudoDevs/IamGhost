@@ -1,3 +1,2 @@
-Last updated: 2024-04-08 11:57:00
-Random Quote: Jay: "I got you a little gift to celebrate. I know it’s not much...-"
-Gloria: "It’s practically nothing!" - Gloria Pritchett
+Last updated: 2024-04-08 11:57:34
+Random Quote: Lily: "Just give me his name!"Robin: "Fine. It's Bill Pepper."Lily: "Kind of a coincidence there happens to be a bill and a pepper shaker here on the table. Any chance you and Bill had a three-way with Fork Napkin?" - Lily Aldrin
