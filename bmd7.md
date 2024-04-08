@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 14:53:37
-Random Quote: There have always been men who found it easier to speak vows than to keep them.  -  Arys Oakheart
+Last updated: 2024-04-08 14:54:51
+Random Quote: His blood ran black.  Made him my brother as much as yours.  -  Yoren of the Night's Watch
