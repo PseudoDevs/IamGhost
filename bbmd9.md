@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 14:06:53
-Random Quote: Do you remember that cave?  We should have stayed in that cave.  I told you so.  -  Ygritte
+Last updated: 2024-04-08 14:08:00
+Random Quote: A family is like a small business. And with a small business, at times, there comes a bit of transition. - Marty Byrde
