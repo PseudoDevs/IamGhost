@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 15:08:08
-Random Quote: You don't bring a date to a wedding, that's like taking a deer carcass on a hunting trip. - Barney Stinson
+Last updated: 2024-04-08 15:08:42
+Random Quote: So I will only ask you once, Lord Snow.  Are you a brother of the Night's Watch, or a bastard boy who wants to play at war?  -  Jeor Mormont
