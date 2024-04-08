@@ -1,4 +1,2 @@
-Last updated: 2024-04-08 15:06:15
-Random Quote: Joel: "You keep going for family."
-Ellie: "I'm not family?"
-Joel: "No. You're cargo." - Joel Miller
+Last updated: 2024-04-08 15:07:21
+Random Quote: The past is always with us, Tyler. Now, you can try and run away but it's always there. - Rendell Locke

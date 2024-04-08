@@ -1,3 +1,2 @@
-Last updated: 2024-04-08 15:06:48
-Random Quote: Ellie: "There's not gonna be anything bad in here?"
-Joel: "Just you." - Joel Miller
+Last updated: 2024-04-08 15:07:21
+Random Quote: I'm just here to lend a helping hand, you know, make sure the business is running in order. I got a good head for numbers. But listen, don't even worry. It's gonna be like I'm not even here. - Lalo Salamanca
