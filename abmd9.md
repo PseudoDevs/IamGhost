@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 11:50:39
-Random Quote: No one had expected the broken boy to live.  The gods could not kill Bran, no more than I could.  It was a strange thought, and stranger still to remember that Bran might still be alive.  -  Theon Greyjoy
+Last updated: 2024-04-08 11:51:12
+Random Quote: Friends tell the truth. - Eleven
