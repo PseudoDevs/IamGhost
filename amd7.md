@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 15:03:29
-Random Quote: Barney: "Fine, we'll just have a nice, tasteful rehearsal dinner. Maybe at a French restaurant, I know just the place."Robin: "What's the name of the restaurant?"Barney: "La Sertag." - Barney Stinson
+Last updated: 2024-04-08 15:04:02
+Random Quote: Let's hit a motel, jam in a quickie and get you back to your wedding. - Ted Mosby
