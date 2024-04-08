@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 11:07:36
-Random Quote: Nerds who aren't good at math?Life is going to be rough boys! - Robin Scherbatsky
+Last updated: 2024-04-08 11:08:10
+Random Quote: You want to know the horrible truth?  I can't even remember what she looked like.  I only know she was the one thing I ever wanted, and seven kingdoms couldn't fill the hole she left behind.  -  Robert Baratheon
