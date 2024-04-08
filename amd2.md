@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 14:58:31
-Random Quote: Kids, you can't cling to the past. Because no matter how tight you hold on... it's already gone. - Ted Mosby
+Last updated: 2024-04-08 14:59:04
+Random Quote: I was weaned on venom, Dalt.  Any viper takes a bite of me will rue it.  -  Gerold Dayne
