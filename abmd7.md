@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 13:55:12
-Random Quote: Nerds who aren't good at math?Life is going to be rough boys! - Robin Scherbatsky
+Last updated: 2024-04-08 13:55:45
+Random Quote: I never asked for this crown.  Gold is cold and heavy on the head, but so long as I am the king, I have a duty... if I must sacrifice one child to the flames to save a million from the dark... sacrifice... is never easy, Davos.  Or it is no true sacrifice.  -  Stannis Baratheon
