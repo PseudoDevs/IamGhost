@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 12:51:26
-Random Quote: Now you may be asking yourself why is sports icon John McEnroe narrating this tale? It'll make sense later I promise. - John McEnroe
+Last updated: 2024-04-08 12:52:33
+Random Quote: She hated her life, not because it was bad, but because when you hate your brain and your body, it's hard to enjoy the rest. - Rue Bennett
