@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 13:17:39
-Random Quote: I will not be remembered as Set Arys the Unworthy.  I will not soil my cloak.  -  Arys Oakheart
+Last updated: 2024-04-08 13:18:11
+Random Quote: You have to be as bad as them above in order to survive. - Polly Gray
