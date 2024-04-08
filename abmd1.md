@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 15:09:46
-Random Quote: I have a tender spot in my heart for cripples, bastards, and broken things.  -  Tyrion Lannister
+Last updated: 2024-04-08 15:10:22
+Random Quote: Young I was, and vain, but the sea washed my follies and my vanities away.  That man drowned, nephew.  His lungs filled with seawater, and the fish ate the scales off his eyes.  When I rose again, I saw clearly.  -  Aeron Greyjoy
