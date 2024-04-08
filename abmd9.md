@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 15:08:38
-Random Quote: Some people wander around their whole lives looking for a way out, but there’s only one path and it leads you ever deeper. - 
+Last updated: 2024-04-08 15:10:58
+Random Quote: Most people are nothing but pawns on a chessboard led by an unknown hand - Noah
