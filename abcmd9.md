@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 15:05:21
-Random Quote: You ought to have no trouble catching our uncles.  One is drunk on seawater, after all, and the other is a great grey bullock so dim he'll probably get lost.  -  Asha Greyjoy
+Last updated: 2024-04-08 15:05:54
+Random Quote: When I'm king in my own right, I'm going to outlaw beets.  -  Tommen Baratheon
