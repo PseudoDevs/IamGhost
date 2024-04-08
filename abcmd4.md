@@ -1,2 +1,6 @@
-Last updated: 2024-04-08 11:18:17
-Random Quote: There are no true knights, no more than there are gods.  If you can't protect yourself, die and get out of the way of those who can.  Sharp steel and strong arms rule this world, don't ever believe any different.  -  Sandor Clegane
+Last updated: 2024-04-08 11:18:50
+Random Quote: Morty: "Rick, when you say you made an exact replica of the house, did you mean, like, an exact replica?"
+Rick: "I know about the Yosemite T-Shirt, Morty."
+Morty: "Shit."
+Rick: "You know you can use tissues, right?"
+Morty: "I can't finish without it!" - Morty Smith
