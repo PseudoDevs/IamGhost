@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 15:07:40
-Random Quote: Lily: "Sorry this is taking so long. He kicked for everybody else."Marshall: "It's hard for the little guy to perform under pressure."Barney: "Top ten things Marshall said on his wedding night."Kevin: "Wow! It was small, but I think I felt something."Robin: "Top ten things Lily said on her wedding night." - Robin Scherbatsky
+Last updated: 2024-04-08 15:08:14
+Random Quote: Every Halloween I bring a spare costume. In case I strike out with the hottest girl at the party. That way I have a second chance to make a first impression. - Barney Stinson
