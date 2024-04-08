@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 14:49:04
-Random Quote: There's no shame in fear, my father told me, what matters is how we face it.  -  Jon Snow
+Last updated: 2024-04-08 14:49:38
+Random Quote: People are oblivious to reality. They only see what they want to see, when all they have to do is shift their perspective to see the full scope of things. - Yuk Je
