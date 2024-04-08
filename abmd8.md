@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 12:25:21
-Random Quote: In this world, everything is governed by balance. There’s what you stand to gain and what you stand to lose. And when you think you’ve got nothing to lose, you become overconfident - Professor
+Last updated: 2024-04-08 12:25:54
+Random Quote: When you date someone, it's like you're taking one long course in who that person is and then, when you break up, all that stuff becomes useless. It's the emotional equivalent of an English degree... - Ted Mosby
