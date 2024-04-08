@@ -1,3 +1,2 @@
-Last updated: 2024-04-08 13:18:59
-Random Quote: Ellie: "Everybody I've cared for, either died or left me."
-Joel: "You have no idea what loss is." - Joel Miller
+Last updated: 2024-04-08 13:20:05
+Random Quote: Fear cuts deeper than swords.  -  Syrio Forel
