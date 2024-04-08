@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 07:44:21
-Random Quote: Don Eladio, look into Fring's eyes. There you will see the truth. The Chicken Man hates you. He is our enemy. He plots against us. I demand blood for blood. - Hector Salamanca
+Last updated: 2024-04-08 07:44:56
+Random Quote: Sometimes you gotta do bad things to catch bad people. - Javier Pe�a
