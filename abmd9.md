@@ -1,3 +1,2 @@
-Last updated: 2024-04-08 13:09:30
-Random Quote: Jerry: "Why Florida?"
-Cat: "Because they don't ask questions. They play Volleyball, they party and they have fun." - Rick and Morty
+Last updated: 2024-04-08 13:10:04
+Random Quote: The soldier's minute. In a battle that's all you get. One minute of everything at once. And anything before it nothing. Everything after, nothing. Nothing in comparison to that one minute. - Thomas Shelby
