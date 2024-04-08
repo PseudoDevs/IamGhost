@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 11:26:07
-Random Quote: Animal instinct. When faced with danger, seek refuge in the herd. - Seong Gi-hun
+Last updated: 2024-04-08 11:26:42
+Random Quote: 'You leaving already, Chief?"Jim Hopper: "Oh, come on, you think I actually wanted to come to this thing? I was just hungry."'Oh, yeah, that's the spirit."Jim Hopper: "Well, your wife doesn't have time to cook for me, you know what I'm saying." - Jim Hopper
