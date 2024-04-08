@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 12:10:28
-Random Quote: Oberyn was ever the viper.  Deadly, dangerous, unpredictable.  No man dared tread on him.  I was the grass.  Pleasant, complaisant, sweet - smelling, swaying with every breeze.  Who fears to walk upon the grass?  But it is the grass that hides the viper from his enemies and shelters him until he strikes. 
+Last updated: 2024-04-08 12:11:01
+Random Quote: There is only one street where that is normal. Here's a hint: A giant yellow bird lives on it. - Barney Stinson
