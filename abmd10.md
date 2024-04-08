@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 13:37:02
-Random Quote: Turns out, when you projectile vomit on skates, you roll right into the spray. - Ted Mosby
+Last updated: 2024-04-08 13:37:36
+Random Quote: The Peaky Blinders. The vicious, merciless gangs who blind those who see and cut out the tongues of those who talk. - Chester Campbell
