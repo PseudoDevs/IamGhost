@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 12:11:53
-Random Quote: You're gonna get endless requests to play some game, that has something to do with gangsters and farming! - Marshall Eriksen
+Last updated: 2024-04-08 12:12:26
+Random Quote: Larry Bloom: "Piper, you put a pee stick in my rinsing cup."Piper Chapman: "Well, you put your pee stick in my vagina. And that's why we're in this situation." - Piper Chapman
