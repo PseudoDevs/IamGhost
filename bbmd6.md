@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 13:26:27
-Random Quote: A man will tell you poison is dishonorable, but a woman's honor is different.  The Mother shaped us to protect our children, and our only dishonor is failure.  -  Lysa Arryn
+Last updated: 2024-04-08 13:27:34
+Random Quote: I'm sorry, can you repeat that? I don't speak "I-never-get-laid". - Barney Stinson
