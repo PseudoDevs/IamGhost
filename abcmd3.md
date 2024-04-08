@@ -1,2 +1,3 @@
-Last updated: 2024-04-08 15:09:11
-Random Quote: Spare me your empty little compliments, girl... and your ser's.  I am no knight.  I spit on them and their vows.  My brother is a knight.  -  Sandor Clegane
+Last updated: 2024-04-08 15:09:47
+Random Quote: "I thought Mandalorians were honorable."
+Koska Reeves: "We are, kid. All it takes is a few credits." - Din Djarin
