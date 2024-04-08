@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 15:15:27
-Random Quote: Death is always inevitable. destiny is nothing but the connection between cause and effect. In light, in shadow. - 
+Last updated: 2024-04-08 15:16:00
+Random Quote: Name one thing in this world that is non negotiable. - Walter White
