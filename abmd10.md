@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 15:08:36
-Random Quote: Barney: "Ted, it's a well-known statistic, that 83% of people, married longer than 6 months, are saving someone on the side."Ted: "Do you know that when you make up a statistic, you always use 83% ?" - Ted Mosby
+Last updated: 2024-04-08 15:09:10
+Random Quote: Strip off their skins.  Lord Bolton, he used to say a naked man has few secrets, but a flayed man's got none.  -  Ramsay Bolton
