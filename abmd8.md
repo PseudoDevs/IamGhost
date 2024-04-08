@@ -1,2 +1,3 @@
-Last updated: 2024-04-08 12:31:31
-Random Quote: The frightened child who sheltered in my manse died on the Dothraki Sea, and was reborn in blood and fire.  This dragon queen who wears her name is a true Targaryen.  -  Illyrio Mopatis
+Last updated: 2024-04-08 12:32:04
+Random Quote: Lily: "We're going to Atlantic City to elope - right now!"
+Barney: "Oh, congratulations Lily! Marshall, you're getting married? What the hell?" - Barney Stinson
