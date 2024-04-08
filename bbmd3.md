@@ -1,3 +1,2 @@
-Last updated: 2024-04-08 15:13:35
-Random Quote: "I thought Mandalorians were honorable."
-Koska Reeves: "We are, kid. All it takes is a few credits." - Din Djarin
+Last updated: 2024-04-08 15:14:19
+Random Quote: Mitchell: "we've decided we really wanted to have a baby so, we initially asked one of our lesbian friends to be a surrogate."Cameron: "Then we figured, they already mean enough, can you imagine one of them pregnant?" - Cameron Tucker
