@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 12:57:37
-Random Quote: So Robin? Guess who nailed the chick from "Metro News One" last night! - Barney Stinson
+Last updated: 2024-04-08 12:58:11
+Random Quote: Kill the boy, Jon Snow.  Winter is almost upon us.  Kill the boy and let the man be born.  -  Aemon Targaryen
