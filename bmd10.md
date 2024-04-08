@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 07:13:15
-Random Quote: Roose Bolton's cold and cunning, aye, but a man can deal with Roose.  We've all known worse.  But this bastard son of his... they say he's mad and cruel, a monster.  -  Locke
+Last updated: 2024-04-08 07:13:49
+Random Quote: Words are wind, and the only good wind is that which fills our sails.  -  Victarion Greyjoy
