@@ -1,4 +1,2 @@
-Last updated: 2024-04-08 15:01:50
-Random Quote: Morticia: "Please excuse Wednesday. She's allergic to color."
-Enid: "Wow, what happens to you?"
-Wednesday: "I break out into hives, and then the flesh peels off my bones." - Wednesday Addams
+Last updated: 2024-04-08 15:02:23
+Random Quote: Those called "fools" are the only ones brave enough to see the truth. - Rick Sanchez
