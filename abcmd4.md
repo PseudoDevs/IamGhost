@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 07:38:44
-Random Quote: I keep making mistakes and not learning from them. - Cassie Howard
+Last updated: 2024-04-08 07:39:58
+Random Quote: See, lad, that's why he's the king and I'm not.  I can outdrink, outfight, and outsing him, and my member's thrice the size o' his, but Mance has cunning.  -  Tormund Giantsbane
