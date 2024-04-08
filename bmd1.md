@@ -1,3 +1,2 @@
-Last updated: 2024-04-08 07:49:54
-Random Quote: Joel: "A deep breath in, slow breath out. You squeeze the trigger like you love it. Gentle, steady, nice and slow."
-Ellie: "You gonna shoot this thing or get it pregnant?" - Ellie Williams
+Last updated: 2024-04-08 07:50:31
+Random Quote: My father knew the worth of Howland Reed.  -  Robb Stark
