@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 11:30:27
-Random Quote: My metabolism is all messed up. See, I can moose down a pint of fudge ripple for a midnight snack and wake up having lost weight. Well, everywhere except for my boobs. So annoying. - Robin Scherbatsky
+Last updated: 2024-04-08 11:30:59
+Random Quote: It's "The Little Engine with Wood", "The Whore-ient Express", "The Long Island Tail Road"! - Barney Stinson
