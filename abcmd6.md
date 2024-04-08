@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 13:51:53
-Random Quote: Fear cuts deeper than swords.  -  Syrio Forel
+Last updated: 2024-04-08 13:52:27
+Random Quote: Mitchell: "we've decided we really wanted to have a baby so, we initially asked one of our lesbian friends to be a surrogate."Cameron: "Then we figured, they already mean enough, can you imagine one of them pregnant?" - Cameron Tucker
