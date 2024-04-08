@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 15:08:03
-Random Quote: Wylla.  Did you see how brave she was.  Even when I threatened to have her tongue out, she reminded me of the debt White Harbor owes to the Starks of Winterfell, a debt that can never be repaid.  Wylla spoke from the heart... not every woman can be as brave as my Wylla.  -  Wyman Manderly
+Last updated: 2024-04-08 15:08:36
+Random Quote: I waited, and so can he.  I waited half my life.  She had played the dutiful daughter, the blushing bride, the pliant wife.  She had suffered Robert's drunken groping, Jaime's jealousy, Renly's mockery, Varys with his titters, Stannis endlessly grinding his teeth.  She had contended with Jon Arryn, Need Stark, and her vile, treacherous, murderous dwarf brother, all the while promising herself that one day it would be her turn.  If Margaery Tyrell thinks to cheat me of my hour in the sun, she had bloody well think again.  -  Cersei Lannister
