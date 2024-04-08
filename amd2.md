@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 11:38:36
-Random Quote: The Old Gods stir and will not let me sleep.  I dreamt I saw a shadow with a burning heart butchering a golden stag, aye.  I dreamt of a man without a face, waiting on a bridge that swayed and swung.  On his shoulder perched a drowned crow with seaweed hanging from his wings.  I dreamt of a roaring river and a woman that was a fish.  Dead she drifted, with red tears on her cheeks, but when her eyes did open, oh, I woke from terror.  All this I dreamt, and more.  -  The Ghost of High Heart
+Last updated: 2024-04-08 11:39:13
+Random Quote: Ted: "The road to this day has had a few twists and turns, hasn't it?"Marshall: "Yeah... just a few. In a weird way, it all makes sense though, doesn't it?" - Marshall Eriksen
