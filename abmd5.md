@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 13:34:12
-Random Quote: What if Einstein's parents had held him back? We wouldn't even have the... - I was gonna say atomic bomb, but there's probably a better example. - Meemaw
+Last updated: 2024-04-08 13:34:46
+Random Quote: Think of me as Yoda - only, instead of being little and green, I wear suits and I'm awesome. I'm your bro. I'm Broda. - Barney Stinson
