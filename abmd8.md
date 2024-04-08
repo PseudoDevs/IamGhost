@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 11:56:54
-Random Quote: Barney: "Your challenge is accepted Lil, there is no girl too prettyFor I am Barney Stinson, Player King of New York City."Ted: "You can't anoint yourself the king, just like that jerk, LeBron."Barney: "He left the Cavs three years ago. Bro, give it up, move on." - Barney Stinson
+Last updated: 2024-04-08 11:57:27
+Random Quote: A godly man got no cause to fear such.  I said as much to that Mance Rayder once, when he come sniffing round.  He never listened, no more'n you crows with your swords and your bloody fires.  That won't help you none when the white cold comes.  Only the gods will help you then.  You best get right with the gods.  -  Craster
