@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 07:57:05
-Random Quote: Some people wander around their whole lives looking for a way out, but there’s only one path and it leads you ever deeper. - 
+Last updated: 2024-04-08 07:57:42
+Random Quote: Will you explain to me how that was offside? No, I'm asking you, seriously. Explain offside to me! It makes no sense. - Rebecca Welton
