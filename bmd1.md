@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 13:34:34
-Random Quote: I don't need a calculator, dad. I am one. - Sheldon Cooper
+Last updated: 2024-04-08 13:35:40
+Random Quote: Brandon Stark was never shy about taking what he wanted.  I am old now, a dried - up thing, too long a widow, but I still remember the look of my maiden's blood on his cock the night he claimed me.  I think Brandon liked the sight as well.  A bloody sword is a beautiful thing, yes.  It hurt, but it was a sweet pain. 
