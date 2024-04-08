@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 11:11:21
-Random Quote: You have to be as bad as them above in order to survive. - Polly Gray
+Last updated: 2024-04-08 11:12:32
+Random Quote: People taking power who don't deserve it. It never ends well. - Jérôme
