@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 07:20:11
-Random Quote: You cannot change the nature of things. I am who I am. And you are who you are. Nothing will change that. - Ángel
+Last updated: 2024-04-08 07:20:45
+Random Quote: Hush, Alerie, don't take that tone with me.  And don't call me mother.  If I'd given birth to you, I'm sure I'd remember.  I'm only to blame for your husband, the lord oaf of Highgarden.  -  Olenna Tyrell
