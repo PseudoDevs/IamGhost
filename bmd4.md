@@ -1,3 +1,2 @@
-Last updated: 2024-04-08 11:57:13
-Random Quote: Dragon: "My name is Balthromaw. Breaker of skies, slayer of mountain."
-Rick: "Rule 1: You're now scooper of your own poops, or I will take you down like the black-light poster you are." - Rick Sanchez
+Last updated: 2024-04-08 11:57:46
+Random Quote: You wanna know what line doesn't work on a harp player? "Hey baby, wanna pluck?" - Barney Stinson

@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 11:56:40
-Random Quote: Quentyn had never felt so much a boy as when he'd stood before Daenerys Targaryen, pleading for her hand.  The thought of bedding her terrified him almost as much as her dragons had.  -  Quentyn Martell
+Last updated: 2024-04-08 11:57:46
+Random Quote: Barney: "Whoa, Ted, that thing you're packing is way too big to fit in that box."Ted: "Yeah, that's what your mom said."Barney: "How dare you?"Ted: "No, she actually said that." - Ted Mosby
