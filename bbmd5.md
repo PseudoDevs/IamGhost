@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 12:20:37
-Random Quote: Never give power to the big man. - Alfie Solomons
+Last updated: 2024-04-08 12:21:09
+Random Quote: You can never tell with men. They go for whoever their dcks point at and there's no changing their minds. - Polly Gray
