@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 14:40:01
-Random Quote: Missy Cooper: I don't want to die, I've only kissed one boy so far. - Missy Cooper
+Last updated: 2024-04-08 14:40:35
+Random Quote: Being a Mandalorian is not just learning about how to fight. You also have to know how to navigate the Galaxy. That way you'll never be lost. - Din Djarin
