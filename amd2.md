@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 12:17:32
-Random Quote: I hate it when you talk sometimes. No... all the time. - Nicky Nichols
+Last updated: 2024-04-08 12:18:05
+Random Quote: Know the men who follow you and let them know you.  Don't ask your men to die for a stranger.  -  Eddard Stark
