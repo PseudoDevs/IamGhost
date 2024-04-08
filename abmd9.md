@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 12:39:03
-Random Quote: We're done when I say we're done. - Walter White
+Last updated: 2024-04-08 12:39:35
+Random Quote: Is she worth the pain? A man does not suffer like this for his own glory. There is a fine line between devotion and delusion. Love can break more than your heart. It can shatter your mind. - O-Bengh
