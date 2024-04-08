@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 11:51:52
-Random Quote: I was in the desert. But if visiting the sands were a crime, the line of sinners would be longer than the Nile. - Arthur Harrow
+Last updated: 2024-04-08 11:52:25
+Random Quote: Young or old, a true knight is sworn to protect those who are weaker than himself, or die in the attempt.  -  Brienne of Tarth
