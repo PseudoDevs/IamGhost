@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 14:38:09
-Random Quote: Think of me as Yoda - only, instead of being little and green, I wear suits and I'm awesome. I'm your bro. I'm Broda. - Barney Stinson
+Last updated: 2024-04-08 14:38:42
+Random Quote: Folly and desperation are ofttimes hard to tell apart.  -  Maester Luwin
