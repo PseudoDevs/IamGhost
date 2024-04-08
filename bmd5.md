@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 07:24:40
-Random Quote: Never forget what you are, for surely the world will not.  Make it your strength.  Then it can never be your weakness.  Armor yourself in it, and it will never be used to hurt you.  -  Tyrion Lannister
+Last updated: 2024-04-08 07:25:14
+Random Quote: The Peaky Blinders. The vicious, merciless gangs who blind those who see and cut out the tongues of those who talk. - Chester Campbell
