@@ -1,2 +1,3 @@
-Last updated: 2024-04-08 13:07:49
-Random Quote: There's something that I need to ask you and I want you to be honest with me. Why do white people like Carrot Top? - Barney Stinson
+Last updated: 2024-04-08 13:08:22
+Random Quote: Grace Burgess: "You think I am a wh-re?"
+Tommy Shelby: "Everyone's a wh-re, Grace. We just sell different parts of ourselves." - Thomas Shelby
