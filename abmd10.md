@@ -1,2 +1,3 @@
-Last updated: 2024-04-08 12:15:43
-Random Quote: Summer will end soon enough, and childhood as well.  -  Eddard Stark
+Last updated: 2024-04-08 12:16:16
+Random Quote: Ellie: "Everybody I've cared for, either died or left me."
+Joel: "You have no idea what loss is." - Joel Miller
