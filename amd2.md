@@ -1,3 +1,2 @@
-Last updated: 2024-04-08 11:25:55
-Random Quote: The Deep: "What do we do? We can't just kill everyone."
-Billy Butcher: "That's exactly what we're gonna do!" - Billy Butcher
+Last updated: 2024-04-08 11:26:28
+Random Quote: You're not gonna believe this because it usually never happens, but I made a mistake! - Rick Sanchez
