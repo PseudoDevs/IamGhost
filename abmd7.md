@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 13:10:38
-Random Quote: The Mandalorian. His armor alone is worth more than my bounty. - Fennec Shand
+Last updated: 2024-04-08 13:11:14
+Random Quote: Elia Martell, Princess of Dorne.  You raped her!  You murdered her!  You killed her children!  -  Oberyn Martell

@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 13:10:39
-Random Quote: Larry Bloom: "Are we at least gonna talk about other options?"Piper Chapman: "You mean..."Larry Bloom: "It's not Voldemort, you can say it. Abortion." - Larry Bloom
+Last updated: 2024-04-08 13:11:14
+Random Quote: My name is ASAC Schrader, and you can go f*ck yourself. - Hank Schrader
