@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 13:24:38
-Random Quote: When treating with liars, even an honest man must lie.  -  Wyman Manderly
+Last updated: 2024-04-08 13:25:11
+Random Quote: Some of you cared. None of you cared enough. - Hannah Baker
