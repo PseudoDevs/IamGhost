@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 07:56:27
-Random Quote: Robert... he is in my dreams as well.  Laughing.  Drinking.  Boasting.  Those were the things he was best at.  Those, and fighting.  I never bested him at anything.  -  Stannis Baratheon
+Last updated: 2024-04-08 07:57:04
+Random Quote: This little bogwing is what all the fuss was about. What a precious little creature! I can see why you didn't want to harm a hair on its wrinkled little head. - Greef Karga
