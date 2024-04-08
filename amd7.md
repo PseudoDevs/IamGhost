@@ -1,2 +1,5 @@
-Last updated: 2024-04-08 07:30:31
-Random Quote: The average American consumes 55 pounds of beef per year. And then there’s Texas, where we can knock that off in a couple of months. Maybe faster if we’re talking about smoked brisket. - Sheldon
+Last updated: 2024-04-08 07:31:45
+Random Quote: "What's love to you?"
+Flaca: "It's like getting into a bath, but the water is like warm chocolate pudding. And the Smiths are playing. There Is A Light That Never Goes Out.' There's mood lighting all over, and there's like five dudes massaging you."
+Maritza: "And you have a pizza!"
+Flaca: "She's right. You also have a pizza." - Marisol 'Flaca' Gonzales & Maritza Ramos
