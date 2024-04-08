@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 13:53:46
-Random Quote: No.  You were the betrayer.  You turned against me, against your own blood.  They cheated me.  Your horsey husband and his stinking savages.  They were cheats and liars.  They promised me a golden crown and gave me this.  -  Viserys Targaryen
+Last updated: 2024-04-08 13:54:19
+Random Quote: Kingthlayer... you are my captifth.  -  Vargo Hoat
