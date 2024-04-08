@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 07:40:15
-Random Quote: Dear Billy, I don't know if you can even hear this. Ever since you left, everything's been a total disaster. For a while, we tried to be happy... normal. I know that's impossible. - Max Mayfield
+Last updated: 2024-04-08 07:40:48
+Random Quote: You can never tell with men. They go for whoever their dcks point at and there's no changing their minds. - Polly Gray
