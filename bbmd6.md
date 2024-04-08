@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 07:17:58
-Random Quote: When I look at something, I don't see it for what it is, I see it for what it could be. When I look at something, I see how it ends. - Miguel Angel Felix Gallardo
+Last updated: 2024-04-08 07:18:33
+Random Quote: I've had shits that I've liked better than Walder Frey.  -  Brynden Tully
