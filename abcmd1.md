@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 14:14:41
-Random Quote: We can only die.  Why else do we don these black cloaks, but to die in defense of the realm?  -  Qhorin Halfhand
+Last updated: 2024-04-08 14:15:15
+Random Quote: I cost a girl her life because I was afraid to love her - Clay Jensen
