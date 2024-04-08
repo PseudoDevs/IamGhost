@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 12:47:28
-Random Quote: Pennsatucky: "It weren't my fault. I was just doing as the Spirit commanded."Pussey: "Fuck are you? Joan of Arc?"Pennsatucky: "No, I'm from Waynesboro, my name is Tiffany..." - Tiffany 'Pennsatucky' Doggett
+Last updated: 2024-04-08 12:48:36
+Random Quote: Don’t take it so personally, okay? I don’t like most people. He’s in the vast majority. - Jonathan Byers
