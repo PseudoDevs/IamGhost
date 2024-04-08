@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 13:33:04
-Random Quote: There is a savage beast in every man, and it stirs when you put a sword in his hand.  -  Jorah Mormont
+Last updated: 2024-04-08 13:33:37
+Random Quote: You gotta move...The fuck...On! - Gloria Mendoza
