@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 11:48:24
-Random Quote: The title was but a courtesy due him as a council member; Varys was lord of nothing but the spiderweb, the master of none but his whispers.  -  Catelyn Stark
+Last updated: 2024-04-08 11:48:57
+Random Quote: So you do have a plan? Yeah, Mr. White! Yeah, science! - Jesse Pinkman
