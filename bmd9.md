@@ -1,3 +1,2 @@
-Last updated: 2024-04-08 07:43:04
-Random Quote: Miguel: "Would you have really fed me to those hippos?"
-Pablo: "No. Hippos don't like Mexicans either." - Pablo Escobar
+Last updated: 2024-04-08 07:43:40
+Random Quote: The soldier's minute. In a battle that's all you get. One minute of everything at once. And anything before it nothing. Everything after, nothing. Nothing in comparison to that one minute. - Thomas Shelby
