@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 11:09:14
-Random Quote: If that’s true, if you don’t know who I am, then maybe your best course… would be to tread lightly. - Walter White
+Last updated: 2024-04-08 11:10:20
+Random Quote: A queen must listen to all.  The highborn and the low, the strong and the weak, the noble and the venal.  One voice may speak you false, but in many there is always truth to be found.  -  Daenerys Targaryen
