@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 12:44:01
-Random Quote: Think of me as Yoda - only, instead of being little and green, I wear suits and I'm awesome. I'm your bro. I'm Broda. - Barney Stinson
+Last updated: 2024-04-08 12:45:10
+Random Quote: I am one far more accustomed to demanding answers, fool, than to giving them. - Thor
