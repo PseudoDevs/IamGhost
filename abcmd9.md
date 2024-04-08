@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 15:05:54
-Random Quote: When I'm king in my own right, I'm going to outlaw beets.  -  Tommen Baratheon
+Last updated: 2024-04-08 15:06:27
+Random Quote: His blood is bad.  He needs to be leeched.  The leeches suck away the bad blood, all the rage and pain.  No man can think so full of anger.  Ramsay, though... his tainted blood would poison even leeches, I fear.  -  Roose Bolton
