@@ -1,3 +1,2 @@
-Last updated: 2024-04-08 07:26:39
-Random Quote: Freddie: "If you want me out of Birmingham, it'll have to be in a wooden box."
-Polly: "You lay a hand on our Ada, I'll put you in a wooden box myself!" - Polly Gray
+Last updated: 2024-04-08 07:27:16
+Random Quote: Yes, I'm in a rotten mood. No, I don't want to talk about it. Yes, this has booze in it. No, it's not my first. - Lily Aldrin
