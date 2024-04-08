@@ -1,3 +1,2 @@
-Last updated: 2024-04-08 14:07:32
-Random Quote: Doctor: "Hypothetically speaking, every new father-to-be get nervous."
-Vision: "Well, I have nerves of steel, so there goes your theory, Mr. Doctor." - Vision
+Last updated: 2024-04-08 14:08:05
+Random Quote: Just when you thought things couldn't get any worse, we gotta go to Jersey. - Hulk
