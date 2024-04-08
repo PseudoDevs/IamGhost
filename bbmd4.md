@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 14:37:12
-Random Quote: The baby slide right out, huh? It's like a 'whoosh', like a waterslide. [Lily screaming] Slightly painful waterslide. - Dr. Sonya
+Last updated: 2024-04-08 14:38:20
+Random Quote: When you play the game of thrones, you win or you die.  There is no middle ground.  -  Cersei Lannister
