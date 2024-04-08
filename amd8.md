@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 13:09:14
-Random Quote: I'm not him, I'm not the turncloak, he died at Winterfell.  My name is Reek.  It rhymes with freak.  -  Reek
+Last updated: 2024-04-08 13:09:47
+Random Quote: Whisky's good proofing water. Tells you who's real and who isn't. - Thomas Shelby
