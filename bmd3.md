@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 12:36:33
-Random Quote: One does not speak unless one knows. - Din Djarin
+Last updated: 2024-04-08 14:54:50
+Random Quote: They say the king loved to hunt.  The things we love destroy us every time, lad.  Remember that.  -  Jeor Mormont
