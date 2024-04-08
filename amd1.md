@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 12:11:30
-Random Quote: Marshall: "If economic sanctions and trade-restrictions aren't enforced, the destruction of the rainforest will continue and over a million species will be wiped out!"Ted: "So you don't want coffee?" - Ted Mosby
+Last updated: 2024-04-08 12:12:03
+Random Quote: The Lord of Light cherishes the innocent.  There is no sacrifice more precious.  From his king's blood and his untainted fire, a dragon shall be born.  -  Melisandre
