@@ -1,2 +1,6 @@
-Last updated: 2024-04-08 11:30:48
-Random Quote: Our brain isn't always entirely reliable. Everything that we see and feel and hear are the result of electrical impulses. And sometimes we misinterpret those impulses. It's what makes people go mad. - Maura Franklin
+Last updated: 2024-04-08 11:31:22
+Random Quote: You lie to your husband all the time...
+"That shirt looks great on you."
+"I love your mom."
+"I never fantasize about Barney when we're doing it."
+Sound familiar, Pinocchio? - Barney Stinson
