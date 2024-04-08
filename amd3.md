@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 12:27:23
-Random Quote: There's no shame in fear, my father told me, what matters is how we face it.  -  Jon Snow
+Last updated: 2024-04-08 12:27:56
+Random Quote: Catelyn would sooner Lord Umber had seen fit to stay sober, but telling the Greatjon not to drink was like telling him not to breathe for a few hours.  -  Catelyn Stark
