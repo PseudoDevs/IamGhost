@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 14:48:56
-Random Quote: Some battles are won with swords and spears, others with quills and ravens.  -  Tywin Lannister
+Last updated: 2024-04-08 14:49:30
+Random Quote: Now don't be a p-ssy, laser my f-cking t-ts! - Stormfront
