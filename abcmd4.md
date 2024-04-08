@@ -1,3 +1,2 @@
-Last updated: 2024-04-08 07:34:21
-Random Quote: I hired a decorator and I asked him: "What would the inside of Tinkerbell's vagina look like?"
-And the kid just ran with it! - Quinn Garvey
+Last updated: 2024-04-08 07:36:16
+Random Quote: I'm pretty much the master of handling things completely wrong. - Alex Vause
