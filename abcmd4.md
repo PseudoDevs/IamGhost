@@ -1,3 +1,2 @@
-Last updated: 2024-04-08 11:45:19
-Random Quote: Freddie: "You think I can't handle Tommy Shelby?"
-Polly: "You can't. I am having trouble these days and I'm twice the man you are." - Polly Gray
+Last updated: 2024-04-08 11:45:52
+Random Quote: Since I stopped dating Robin, there's this thing I haven't used as much as I would like. It's kind of big. Surprisingly heavy. Kind of leathery. And it's black.This, my friends, is the playbook! - Barney Stinson
