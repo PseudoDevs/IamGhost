@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 11:08:09
-Random Quote: Archeology. One big mess of obsessive bookworms. - Arthur Harrow
+Last updated: 2024-04-08 11:08:42
+Random Quote: Sometimes I think everyone is just pretending to be brave, and none of us really are.  Maybe pretending is how you get brave, I don't know.  -  Grenn
