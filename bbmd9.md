@@ -1,3 +1,2 @@
-Last updated: 2024-04-08 13:20:13
-Random Quote: Dragon: "My name is Balthromaw. Breaker of skies, slayer of mountain."
-Rick: "Rule 1: You're now scooper of your own poops, or I will take you down like the black-light poster you are." - Rick Sanchez
+Last updated: 2024-04-08 13:20:47
+Random Quote: Robin: "Have plans with Don on Saturday, he's making me Chinese."Lily: "I'll assume you're talking about food, otherwise, I have some follow-up-questions." - Lily Aldrin
