@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 07:49:09
-Random Quote: I thought you where vomit-free since nintythree... so that was a lie? - Marshall Eriksen
+Last updated: 2024-04-08 07:49:43
+Random Quote: The frightened child who sheltered in my manse died on the Dothraki Sea, and was reborn in blood and fire.  This dragon queen who wears her name is a true Targaryen.  -  Illyrio Mopatis
