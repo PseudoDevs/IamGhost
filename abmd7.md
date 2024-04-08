@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 12:58:45
-Random Quote: I got thirty this time, men and boys all bound for the Wall, and don't be thinking they're like that bastard brother o' yours.  Lord Eddard gave me pick o' the dungeons, and I didn't find no little lordlings down there.  This log, half o' them would turn you over to the queen quick as spit for a pardon and maybe a few silvers.  The other half'd do the same, only they'd rape you first.  -  Yoren of the Night's Watch
+Last updated: 2024-04-08 12:59:19
+Random Quote: Lucas: "Do you think she's acting weird?"Dustin: "You're asking if the weirdo is acting weird?" - Dustin Henderson
