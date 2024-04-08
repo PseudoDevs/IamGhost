@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 13:26:17
-Random Quote: We’re wanderers in the darkness. - 
+Last updated: 2024-04-08 13:26:51
+Random Quote: There is a savage beast in every man, and it stirs when you put a sword in his hand.  -  Jorah Mormont
