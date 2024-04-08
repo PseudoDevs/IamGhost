@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 12:17:16
-Random Quote: There's chaos in you. Embrace the chaos! - Arthur Harrow
+Last updated: 2024-04-08 12:18:25
+Random Quote: The Lion does not concern itself with the opinions of sheep.  -  Tywin Lannister
