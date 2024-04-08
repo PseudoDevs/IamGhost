@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 14:08:33
-Random Quote: Dinner's a very intimate activity. It requires a level of connection and eye contact, that sex just doesn't. Call me old-fashioned, but I need to have sex with a girl at least three times before I'll even consider having dinner with her. - Barney Stinson
+Last updated: 2024-04-08 14:09:07
+Random Quote: Ted: "You name a chubby white kid LeBron and he's the one getting stuffed in the basketball hoop."Marshall: "Then I'm also crossing off Shaquille, Hakeem and Dikembe." - Ted Mosby
