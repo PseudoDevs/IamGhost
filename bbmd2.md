@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 13:20:05
-Random Quote: Fear cuts deeper than swords.  -  Syrio Forel
+Last updated: 2024-04-08 13:20:38
+Random Quote: Come with me to the House of the Undying, and you shall drink of truth and wisdom.  -  Pyat Pree
