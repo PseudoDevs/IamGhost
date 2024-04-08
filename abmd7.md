@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 11:44:01
-Random Quote: He'd led me in war, hunted with a king, won honor in tourney melees, ridden with Brynden Blackfish and Greatjon Umber, fought in the Whispering Wood, bedded more girls than he could name, and yet his uncle was treating him as though he were still a child of ten.  -  Theon Greyjoy
+Last updated: 2024-04-08 11:44:36
+Random Quote: Dustin: "Even if he is, it doesn't automatically mean that he's bad."Mike: "That's like saying just because someone's from the Death Star doesn't make them bad."Dustin: "We have a bond."Mike: "A bond? Just because he likes nougat?" - Mike Wheeler
