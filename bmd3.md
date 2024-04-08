@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 11:46:58
-Random Quote: Speak into the mic, bitch. - Jesse Pinkman
+Last updated: 2024-04-08 11:47:33
+Random Quote: Mitchell: "We didn't just go to Vietnam for pleasure. We kinda have some big news."Jay: "Oh God, if Cam comes out there with boobs, I'm leaving." - Jay Pritchett
