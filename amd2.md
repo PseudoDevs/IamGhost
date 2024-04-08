@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 13:36:27
-Random Quote: We’re not free in what we do because we’re not free in what we want. We can’t overcome what’s deep within us - The Stranger
+Last updated: 2024-04-08 13:37:00
+Random Quote: A ruler who hides behind paid executioners soon forgets what death is.  -  Eddard Stark
