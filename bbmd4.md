@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 13:15:46
-Random Quote: Success is 1% inspiration, 98% perspiration, and 2% attention to detail. - Phil Dunphy
+Last updated: 2024-04-08 13:16:19
+Random Quote: Spare me your empty little compliments, girl... and your ser's.  I am no knight.  I spit on them and their vows.  My brother is a knight.  -  Sandor Clegane
