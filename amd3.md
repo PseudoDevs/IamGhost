@@ -1,2 +1,3 @@
-Last updated: 2024-04-08 13:09:58
-Random Quote: Every Halloween I bring a spare costume. In case I strike out with the hottest girl at the party. That way I have a second chance to make a first impression. - Barney Stinson
+Last updated: 2024-04-08 13:10:31
+Random Quote: Mr. Nimbus: "Say goodbye to your precious dry land! For soon it will be wet!"
+Rick: "Yeah, global warming is already doing that. But sure, yeah, go for it. Make us slightly more wet." - Rick Sanchez
