@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 14:13:57
-Random Quote: Place was overrun with rats when we moved in.  The spearwives killed the nasty buggers.  Now the place is overrun with spearwives.  There's days I want the rats back.  -  Dolorous Edd Tollett
+Last updated: 2024-04-08 14:14:30
+Random Quote: Well, if there is something wrong with him, it ain't constipation. - Meemaw
