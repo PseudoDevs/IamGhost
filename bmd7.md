@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 11:19:24
-Random Quote: To have power does not mean that one can abuse the poor. - Pablo Escobar
+Last updated: 2024-04-08 11:20:38
+Random Quote: A man lives three lives. The first one ends with the loss of naivety, the second, with the loss of innocence and the third… with the loss of life itself. It’s inevitable that we go through all three stages. - Adam
