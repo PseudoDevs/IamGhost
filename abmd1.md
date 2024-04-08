@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 14:55:16
-Random Quote: If we're together long enough I hope that one day you see yourself like I do. - Kevin
+Last updated: 2024-04-08 14:55:50
+Random Quote: Lily: "Your job is very simple. At the wedding, do not sleep with anyone even remotely related to me."Barney: "Yeah. Lily, you know I can't promise that" - Barney Stinson
