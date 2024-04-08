@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 13:13:29
-Random Quote: All the decisions we made in the past leads us inexorably into the future. - Tokyo
+Last updated: 2024-04-08 13:14:03
+Random Quote: I told you once, there are old sellswords and there are bold sellswords, but there are no old bold sellswords.  -  Brown Ben Plumm
