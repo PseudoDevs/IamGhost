@@ -1,2 +1,3 @@
-Last updated: 2024-04-08 11:20:35
-Random Quote: There's only one thing that could blind a man as smart as you, Tommy. Love. - Polly Gray
+Last updated: 2024-04-08 11:21:08
+Random Quote: Morty: "You're really this pissed about my mum making sure I'm okay with our adventures?"
+Rick: "What's next, Morty? What if I want you to jump off the Empire State Building? I have to ask?" - Rick Sanchez
