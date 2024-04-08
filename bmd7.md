@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 15:12:05
-Random Quote: I am not crazy. I am unique. - Suzanne Warren
+Last updated: 2024-04-08 15:12:49
+Random Quote: People are oblivious to reality. They only see what they want to see, when all they have to do is shift their perspective to see the full scope of things. - Yuk Je
