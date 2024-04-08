@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 11:08:05
-Random Quote: The world was full of cravens who pretended to be heroes; it took a queer sort of courage to admit to cowardice as Samwell Tarly had.  -  Jon Snow
+Last updated: 2024-04-08 11:08:39
+Random Quote: My only aim is to take many lives. The more the better I feel. - 
