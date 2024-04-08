@@ -1,4 +1,2 @@
-Last updated: 2024-04-08 12:03:36
-Random Quote: Five: "Help me with this crossword puzzle. I need a five letter word for 'disappointment'."
-Diego: "Klaus."
-Five: "It fits." - Number Five
+Last updated: 2024-04-08 12:04:08
+Random Quote: No sword is strong until it's been tempered.  The Stark boy is a child.  No doubt he likes the sound of warhorns well enough, and the sight of his banners fluttering in the wind, but in the end it comes down to butcher's work.  I doubt he has the stomach for it.  -  Tywin Lannister
