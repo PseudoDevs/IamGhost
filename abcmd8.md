@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 12:17:17
-Random Quote: The more you move up in the world, the more enemies you make. - Rue Bennett
+Last updated: 2024-04-08 12:19:00
+Random Quote: These old knights are more cunning than you think, or they would never have lived to see their first grey hair.  -  Dagmer Cleftjaw
