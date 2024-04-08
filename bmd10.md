@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 14:42:54
-Random Quote: If you don't make it back, there's one thing that I need to tell you... - Klaus Hargreeves
+Last updated: 2024-04-08 14:43:27
+Random Quote: You have to be as bad as them above in order to survive. - Polly Gray
