@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 15:12:53
-Random Quote: A feeling of unresolved resentment against injustices suffered, a sense of helplessness because of the overwhelming odds against one, a feeling of acute pain in one's guts and bowels, making the whole body writhe and squirm, and an obstinate urge to take revenge and to right the wrong - all these combined. - Seong Gi-hun
+Last updated: 2024-04-08 15:15:05
+Random Quote: Some battles are won with swords and spears, others with quills and ravens.  -  Tywin Lannister

@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 15:14:20
-Random Quote: War. Such a fascinating concept. A temporary salve for a permanent human flaw. - The Handler
+Last updated: 2024-04-08 15:15:04
+Random Quote: A wolf is not a kraken.  What the kraken grasps it does not lose, be it longship or leviathan.  -  Victarion Greyjoy
