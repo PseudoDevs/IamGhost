@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 11:26:49
-Random Quote: I heard enough to know she saved your a-s. - Mike Ehrmantraut
+Last updated: 2024-04-08 11:27:22
+Random Quote: Old stories are like old friends, Old Nan used to say.  You have to visit them from time to time.  -  Bran Stark
