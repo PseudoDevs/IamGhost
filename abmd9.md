@@ -1,2 +1,3 @@
-Last updated: 2024-04-08 07:53:59
-Random Quote: Rattleshirt, we called him.  Treacherous and bloodthirsty.  If there's honor in him, he hides it down beneath his suit of bones.  -  Jon Snow
+Last updated: 2024-04-08 07:54:32
+Random Quote: Ravonna: "You really believe in this Loki variant?"
+Mobius: "Luckily, he believes in himself enough for the both of us." - Mobius M. Mobius
