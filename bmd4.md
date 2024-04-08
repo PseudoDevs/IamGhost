@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 13:46:06
-Random Quote: You need to figure out what the fuck you want. - Nicky Nichols
+Last updated: 2024-04-08 13:46:39
+Random Quote: Lily, I think we made a mistake moving out to the suburbs. I miss our home. I miss our booth with our friends. And I'm pretty sure I have a drumstick... somewhere bad. - Marshall Eriksen
