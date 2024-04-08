@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 12:15:44
-Random Quote: You wear your honor like a suit of armor, Stark.  You think it keeps you safe, but all it does is weigh you down and make it hard for you to move.  -  Petyr Baelish
+Last updated: 2024-04-08 12:16:17
+Random Quote: I liked the way I dressed you, but I'm worried I f'ed with your gender expression. - Jules Vaughn
