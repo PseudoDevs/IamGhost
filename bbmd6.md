@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 12:25:23
-Random Quote: I have worked at the downfall of Tywin Lannister since the day they told me of Elia and her children.  -  Doran Martell
+Last updated: 2024-04-08 12:25:58
+Random Quote: Nick: "So, I went to this fortune teller today and she said there was a curse on me."Robin: "Did she sell you something to ward off the curse?"Nick: "It's like you're a fortune teller, too." - Nick
