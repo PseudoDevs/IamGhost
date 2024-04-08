@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 12:52:55
-Random Quote: There are dreamers and there are realists in this world. You'd think the dreamers would find the dreamers and the realists would find the realists, but more often than not the opposite is true. You see, the dreamers need the realists to keep them from soaring too close to the sun. And the realists, well without the dreamers, they might not ever get off the ground. - Cameron Tucker
+Last updated: 2024-04-08 12:53:28
+Random Quote: Aunties are older Indian women who have no blood-relation to you. But are allowed to have opinions about your life and all your shortcomings. And you have to be nice to them because you're Indian. - John McEnroe
