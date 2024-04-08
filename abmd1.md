@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 07:44:18
-Random Quote: Who do you think killed all the dragons the last time around?  Gallant dragonslayers armed with swords?  The world the Citadel is building has no place in it for sorcery or prophecy or glass candles, much less for dragons.  Ask yourself why Aemon Targaryen was allowed to waste his life upon the Wall, when by rights he should have been raised to archmaester.  His blood was why.  He could not be trusted.  No more than I can.  -  Archmaester Marwyn
+Last updated: 2024-04-08 07:44:55
+Random Quote: I have been a voice with no body. A body, but not human. And now, a memory made real. Who knows what I might be next? - Vision
