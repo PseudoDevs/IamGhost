@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 14:02:26
-Random Quote: I will put you under the jail. - Hank Schrader
+Last updated: 2024-04-08 14:03:33
+Random Quote: I've had shits that I've liked better than Walder Frey.  -  Brynden Tully
