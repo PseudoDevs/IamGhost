@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 15:12:14
-Random Quote: Young I was, and vain, but the sea washed my follies and my vanities away.  That man drowned, nephew.  His lungs filled with seawater, and the fish ate the scales off his eyes.  When I rose again, I saw clearly.  -  Aeron Greyjoy
+Last updated: 2024-04-08 15:12:55
+Random Quote: If we say some prayers, do we all get to go to heaven? I should really pray too if that's how easy it is. Our God who art in Heaven, we worked as a team to send people to your side. And we sent a bunch of them today. And please help us with a whole lot more to be with you. - Oh Il-nam

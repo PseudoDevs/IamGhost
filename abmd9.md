@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 15:11:33
-Random Quote: Career has been trouncing romance for years. It's like the Globetrotters versus the Generals: Career's sinking hook shots from half court, romance is just a bunch of slow white guys, who couldn't make it in the Italian league. - Ted Mosby
+Last updated: 2024-04-08 15:12:54
+Random Quote: Then perhaps Lord Eddard should have kept you chained to a dungeon wall.  Instead he raised you among his own sons, the sweet boys you have butchered, and to my undying shame I trained you in the arts of war.  Would that I had thrust a sword through your belly instead of placing one in your hand.  -  Rodrik Cassel

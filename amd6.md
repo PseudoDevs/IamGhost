@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 15:12:10
-Random Quote: I rose too high, loved too hard, dared too much. I tried to grasp a star, overreached, and fell.  -  Jon Connington
+Last updated: 2024-04-08 15:12:53
+Random Quote: Phil: "Little heads up - there's no way I'm not crying at this wedding."Claire: "Phil, you cried on the way here."Phil: "I was on the brink already. I watched 'Dirty Dancing' before we left." - Phil Dunphy

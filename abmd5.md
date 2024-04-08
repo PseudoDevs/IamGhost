@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 15:10:22
-Random Quote: Time is crucial in a kidnapping. The sooner action's taken, the better your chances of things working out, and everybody coming home in one piece. They put that in the handbook nowadays. - Walt Breslin
+Last updated: 2024-04-08 15:12:54
+Random Quote: I never met a real Mandalorian. Heard stories. I know you're good at killing. - Cobb Vanth
