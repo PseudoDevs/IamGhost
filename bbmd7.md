@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 11:38:00
-Random Quote: My real father died in King's Landing.  I made a choice, and I chose wrong.  -  Theon Greyjoy
+Last updated: 2024-04-08 11:39:51
+Random Quote: So roll me further bitch! - Jesse Pinkman
