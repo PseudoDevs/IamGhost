@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 07:17:41
-Random Quote: Robb Stark won the war on the battlefield and lost it in a bedchamber.  -  Jaime Lannister
+Last updated: 2024-04-08 07:18:14
+Random Quote: You grew up with actors.  You learned their craft and you learned it well.  I grew up with soldiers.  I learned how to die a long time ago.  -  Eddard Stark
