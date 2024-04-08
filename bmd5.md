@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 11:07:33
-Random Quote: Very nice, Lily. You know, she is a guest in this country. So while you may choose to turn your back on her, I choose... to turn my front on her. What up! - Barney Stinson
+Last updated: 2024-04-08 11:08:07
+Random Quote: If I'm always looking back, I'm never looking ahead. We are who we are because of consequences. You can't live without consequences. - Morty Smith
