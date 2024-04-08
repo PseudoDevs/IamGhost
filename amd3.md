@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 12:35:57
-Random Quote: Believe me, I’ve had five divorces. Do you know what five divorces are? Five times I believed in love. - Berlin
+Last updated: 2024-04-08 12:36:31
+Random Quote: So young.  Though mayhaps this was a blessing.  Had he lived, he would have grown up to be a Frey.  -  Wyman Manderly
