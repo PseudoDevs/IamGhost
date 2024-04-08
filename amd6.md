@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 11:22:22
-Random Quote: Always look people in the eye. Even if they're blind. Just say, 'I am looking you in the eye.' - Phil Dunphy
+Last updated: 2024-04-08 11:22:55
+Random Quote: Kingthlayer... you are my captifth.  -  Vargo Hoat
