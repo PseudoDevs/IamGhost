@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 13:41:37
-Random Quote: Stop crying. Remember? Crying makes you ugly and weak. - Dayanara Diaz
+Last updated: 2024-04-08 13:42:10
+Random Quote: The Red God has his due, sweet girl, and only death may pay for life.  This girl took three that were his.  This girl must give three in their places.  Speak the names, and a man will do the rest.  -  Jaqen H'ghar
