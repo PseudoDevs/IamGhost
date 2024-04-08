@@ -1,3 +1,4 @@
-Last updated: 2024-04-08 14:55:53
-Random Quote: Kids, you can't talk yourself into falling in love. It doesn't take days of deliberation. When it's real, you know pretty quickly and with absolute certainty.
-I had forgotten that, but I was about to be reminded... - Ted Mosby
+Last updated: 2024-04-08 14:56:26
+Random Quote: Morty: "Mom told me she wanted me to stay here to make sure you didn't die."
+Jerry: "Well, you tell your mother that I'm gonna be fine."
+Rick: "Don't train your child to lie, Jerry." - Rick Sanchez
