@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 13:11:48
-Random Quote: I don't need to be good at Math, I have beautiful hair. - Missy
+Last updated: 2024-04-08 13:13:30
+Random Quote: Dragons old and young, true and false, bright and dark.  And you.  A small man with a big shadow, snarling in the midst of it all.  -  Moqorro
