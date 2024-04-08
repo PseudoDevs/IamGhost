@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 07:48:40
-Random Quote: No, that you think you'll graduate High-School. - Meemaw
+Last updated: 2024-04-08 07:52:23
+Random Quote: We all have things we keep hidden. Sometimes, keeping secrets is how you survive. Because in High School, one rumor, one picture, one incident, can define you forever. - Hannah Baker
