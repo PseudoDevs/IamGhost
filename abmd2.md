@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 13:56:17
-Random Quote: Marshall: "If economic sanctions and trade-restrictions aren't enforced, the destruction of the rainforest will continue and over a million species will be wiped out!"Ted: "So you don't want coffee?" - Ted Mosby
+Last updated: 2024-04-08 13:56:50
+Random Quote: Oh, Cersei is lovely to look at, truly, but cold... the way she guards her cunt, you'd think she had all the gold of Casterly Rock between her legs.  -  Robert Baratheon

@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 13:56:18
-Random Quote: I have my own ghosts, Bran.  A brother that I loved, a brother that I hated, a woman I desired.  Through the trees, I see them still, but no word of mine has ever reached them.  The past remains the past.  We can learn from it, but we cannot change it.  -  Bloodraven
+Last updated: 2024-04-08 13:56:51
+Random Quote: Growing up, I'd always lose my umbrella so my mom would get angry. So then, she gave me broken ones to bring to school. - Seong Gi-hun
