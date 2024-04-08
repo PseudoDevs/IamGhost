@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 14:36:05
-Random Quote: Sometimes I don't know if I love how much I fear Claire, or fear how much I love her. - Phil Dunphy
+Last updated: 2024-04-08 14:36:38
+Random Quote: Walter Jr., you’re my big man. There are going to be some things that you’ll come to learn about me in the next few days. But just know that no matter how it may look, I only had you in my heart. Goodbye! - Walter White
