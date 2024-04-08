@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 12:41:09
-Random Quote: You're not gonna believe this because it usually never happens, but I made a mistake! - Rick Sanchez
+Last updated: 2024-04-08 12:41:44
+Random Quote: I am the Greyjoy, Lord Reaper of Pyke, King of Salt and Rock, Son of the Sea Wind, and no man gives me a crown.  I pay the iron price.  I will take my crown, as Urron Redhand did five thousand years ago.  -  Balon Greyjoy
