@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 13:30:00
-Random Quote: This is the one that you saved? You are as its father. A clan of two. But you have removed your helmet. Then you are a Mandalorian no more. - The Armorer
+Last updated: 2024-04-08 13:30:34
+Random Quote: But every now and then it’s good to question those who question things. - Noah
