@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 07:46:47
-Random Quote: When will you guys realize, that the only difference between my real life and a p0rn0 is, my real life has better lighting? - Barney Stinson
+Last updated: 2024-04-08 07:47:26
+Random Quote: A ruler who hides behind paid executioners soon forgets what death is.  -  Eddard Stark
