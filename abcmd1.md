@@ -1,2 +1,3 @@
-Last updated: 2024-04-08 11:29:05
-Random Quote: Usually after a sandwich, I feel paranoid, but I'm not. WHY AM I NOT BEING PARANOID?? - Marshall Eriksen
+Last updated: 2024-04-08 11:30:49
+Random Quote: Elliot: "I'm not sure it's a good thing we met."
+Rue: "What are you talking about? You're my new favorite person." - Rue Bennett

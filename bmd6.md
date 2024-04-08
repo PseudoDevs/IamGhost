@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 11:29:40
-Random Quote: You will never walk again... but you will fly.  -  Bloodraven
+Last updated: 2024-04-08 11:30:50
+Random Quote: You are her perfect prince, agreed, bright and bold and comely as any maid could wish.  Daenerys Targaryen is no maid, however.  She is the widow of a Dothraki Khal, a mother of dragons and sacker of cities, Aegon the Conquereror with teats.  She may not prove as willing as you wish.  -  Tyrion Lannister
