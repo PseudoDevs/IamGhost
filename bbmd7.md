@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 07:29:14
-Random Quote: That right there, that's a scone. Tastes like a muffin except it sucks all the spit out of your mouth. - Jim Hopper
+Last updated: 2024-04-08 07:29:51
+Random Quote: If you mean when will Chernobyl be completly save - the half-life of Plutonium 239 is 24,000 years. Perhaps we should just say, 'not in our lifetimes'. - Valery Legasov
