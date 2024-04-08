@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 12:21:12
-Random Quote: What's the point of having magic keys if we can't even use them? - Bode Locke
+Last updated: 2024-04-08 12:21:45
+Random Quote: We can only die.  Why else do we don these black cloaks, but to die in defense of the realm?  -  Qhorin Halfhand
