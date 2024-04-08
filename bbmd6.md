@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 12:24:49
-Random Quote: Let's hit a motel, jam in a quickie and get you back to your wedding. - Ted Mosby
+Last updated: 2024-04-08 12:25:23
+Random Quote: I have worked at the downfall of Tywin Lannister since the day they told me of Elia and her children.  -  Doran Martell
