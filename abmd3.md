@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 11:56:47
-Random Quote: I was weaned on venom, Dalt.  Any viper takes a bite of me will rue it.  -  Gerold Dayne
+Last updated: 2024-04-08 11:57:20
+Random Quote: Droids are not good or bad. They are neutral reflections of those who imprint them. - Kuiil

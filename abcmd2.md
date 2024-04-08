@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 11:56:47
-Random Quote: Lord Varys, sometimes I feel as though you are the best friend I have in King's Landing and sometimes I feel you are my worst enemy.  -  Tyrion Lannister
+Last updated: 2024-04-08 11:57:20
+Random Quote: Sometimes science is more art than science. - Rick Sanchez
