@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 13:42:50
-Random Quote: Barney: "I met a girl last night. So perky and full of life and not at all fake."Ted: "You're talking about her boobs, right?"Barney: "Si. And that wasn't Spanish, that was cup size. What up?!" - Barney Stinson
+Last updated: 2024-04-08 13:43:23
+Random Quote: The Boltons have always been as cruel as they are cunning, but this one seems a beast in human skin.  -  Robett Glover
