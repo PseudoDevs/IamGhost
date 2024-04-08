@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 11:41:59
-Random Quote: I just want to stand on top of the Wall and piss off the edge of the world.  -  Tyrion Lannister
+Last updated: 2024-04-08 11:43:04
+Random Quote: The Lion does not concern itself with the opinions of sheep.  -  Tywin Lannister
