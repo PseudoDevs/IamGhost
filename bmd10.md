@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 11:45:12
-Random Quote: They're all running away from something. Why else would someone want to go somewhere different? - Virginia Wilson
+Last updated: 2024-04-08 11:45:47
+Random Quote: It's not even the lies that hurt, you know? It's the fact that you're never really emotionally prepared for someone to leave you. - Rue Bennett
