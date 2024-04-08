@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 11:14:13
-Random Quote: You're mine.  Mine, as I'm yours.  And if we die, we die.  All men must die, Jon Snow.  But first, we'll live.  -  Ygritte
+Last updated: 2024-04-08 11:14:46
+Random Quote: There is a tool for every task, and a task for every tool.  -  Tywin Lannister
