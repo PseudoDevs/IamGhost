@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 13:12:23
-Random Quote: Knights?  Dondarrion's a knight, but the rest of you are the sorriest lot of outlaws and broken men I've ever seen.  -  Sandor Clegane
+Last updated: 2024-04-08 13:12:57
+Random Quote: Animal instinct. When faced with danger, seek refuge in the herd. - Seong Gi-hun
