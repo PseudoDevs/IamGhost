@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 12:33:16
-Random Quote: Bear Island knows no king save the King in the North, whose name is Stark.  -  Lyanna Mormont
+Last updated: 2024-04-08 12:33:49
+Random Quote: I buried an axe so deep into Willem's skull, they had to bury him with it.  -  Yoren of the Knight's Watch
