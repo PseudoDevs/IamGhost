@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 07:32:41
-Random Quote: When I'm king in my own right, I'm going to outlaw beets.  -  Tommen Baratheon
+Last updated: 2024-04-08 07:33:14
+Random Quote: Will you explain to me how that was offside? No, I'm asking you, seriously. Explain offside to me! It makes no sense. - Rebecca Welton
