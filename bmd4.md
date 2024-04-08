@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 14:57:04
-Random Quote: Ted: "Do you have a cold?"Barney: "I'm fine. My nose is just overflowing with awesome and I had to get some of it out." - Barney Stinson
+Last updated: 2024-04-08 14:57:37
+Random Quote: Treason is a noxious weed.  It must be torn up, root and stem and seed, lest new traitors sprout from every roadside.  -  Grand Maester Pycelle
