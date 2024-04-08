@@ -1,2 +1,4 @@
-Last updated: 2024-04-08 11:13:13
-Random Quote: Welcome to the church of MathologyToday I'd like to talk about prime numbers and why they give us joy. - Sheldon
+Last updated: 2024-04-08 11:13:51
+Random Quote: Greef: "Be careful, my friend. They've got you outnumbered ten to one."
+Din: "I like these odds."
+Greef: "I bet you do." - Greef Karga
