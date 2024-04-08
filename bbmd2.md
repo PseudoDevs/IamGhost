@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 12:33:55
-Random Quote: Come on, baby, do the magic hand thing! - Greef Karga
+Last updated: 2024-04-08 12:34:28
+Random Quote: It's not Aerys I rue, it's Robert... Why is it no one names Robert oathbreaker?  He tore the realm apart, yet I am the one with shit for honor.  -  Jaime Lannister
