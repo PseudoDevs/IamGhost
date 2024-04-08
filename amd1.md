@@ -1,3 +1,2 @@
-Last updated: 2024-04-08 11:30:33
-Random Quote: Ellie: "There's not gonna be anything bad in here?"
-Joel: "Just you." - Joel Miller
+Last updated: 2024-04-08 11:31:05
+Random Quote: Roose Bolton's cold and cunning, aye, but a man can deal with Roose.  We've all known worse.  But this bastard son of his... they say he's mad and cruel, a monster.  -  Locke
