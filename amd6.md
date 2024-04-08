@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 11:39:15
-Random Quote: You wear your honor like a suit of armor, Stark.  You think it keeps you safe, but all it does is weigh you down and make it hard for you to move.  -  Petyr Baelish
+Last updated: 2024-04-08 11:40:26
+Random Quote: You have courage.  Not battle courage perhaps but... I don't know... a kind of woman's courage.  -  Brienne of Tarth
