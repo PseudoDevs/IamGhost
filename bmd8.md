@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 11:19:00
-Random Quote: It's not even the lies that hurt, you know? It's the fact that you're never really emotionally prepared for someone to leave you. - Rue Bennett
+Last updated: 2024-04-08 11:19:33
+Random Quote: Your heart's talking to you, Barney. Do you have the guts to listen to it? - Lily Aldrin
