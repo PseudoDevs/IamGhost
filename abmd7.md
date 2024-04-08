@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 14:07:26
-Random Quote: Best-available idea doesn't make something a good idea. - Kinsey Locke
+Last updated: 2024-04-08 14:07:59
+Random Quote: I dream of a tree sometimes.  A weirwood, like the one in the godswood.  It calls to me.  The wolf dreams are better.  I smell things, and sometimes I can taste the blood.  -  Bran Stark
