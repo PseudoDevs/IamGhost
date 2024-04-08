@@ -1,2 +1,4 @@
-Last updated: 2024-04-08 13:37:19
-Random Quote: When you spend years thinking about something obsessively, that something is your whole world, your perfect world. - Tokyo
+Last updated: 2024-04-08 13:37:52
+Random Quote: Morty: "Mom told me she wanted me to stay here to make sure you didn't die."
+Jerry: "Well, you tell your mother that I'm gonna be fine."
+Rick: "Don't train your child to lie, Jerry." - Rick Sanchez
