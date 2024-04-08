@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 07:15:15
-Random Quote: When something seems too perfect, it's usually anything but. - Allison Hargreeves
+Last updated: 2024-04-08 07:15:48
+Random Quote: He climbed onto his throne over the corpses of children, though I will grant you he was no Joffrey.  -  Arianne Martell
