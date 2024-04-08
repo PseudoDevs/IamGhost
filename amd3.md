@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 14:40:21
-Random Quote: It's only once you've stopped, that you realize how hard it is to start again. So you force yourself not to want it. - Ted Mosby
+Last updated: 2024-04-08 14:40:54
+Random Quote: She don't speak.  You bloody bastards cut her throat too deep for that.  But she remembers.  -  Lem Lemoncloack
