@@ -1,2 +1,3 @@
-Last updated: 2024-04-08 11:26:28
-Random Quote: Well, I'm just gonna go jerk off then. For the 500th time today. - Larry Bloom
+Last updated: 2024-04-08 11:27:01
+Random Quote: Freddie: "You think I can't handle Tommy Shelby?"
+Polly: "You can't. I am having trouble these days and I'm twice the man you are." - Polly Gray
