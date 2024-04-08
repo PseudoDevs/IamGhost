@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 12:47:42
-Random Quote: War. Such a fascinating concept. A temporary salve for a permanent human flaw. - The Handler
+Last updated: 2024-04-08 12:48:15
+Random Quote: Robert could piss in a cup and men would call it wine, but I offer them cold clear water and they squint in suspicion and mutter to each other about how queer it tastes.  -  Stannis Baratheon
