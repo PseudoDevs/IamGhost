@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 12:29:27
-Random Quote: The Old Gods have no power in the south.  The weirwoods there were all cut down, thousands of years ago.  -  Osha
+Last updated: 2024-04-08 12:30:02
+Random Quote: Canada also helped in two world wars and gave the world Neil Young, William Shatner, Leonard Cohen, Pamela Anderson, one quarter of Barney Stinson, instant mashed potatoes and best of all - you. - Barney Stinson
