@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 14:15:48
-Random Quote: Kids, that was the one time I ever lost faith in the idea that my life would be better in three years. And what's funny is, three years from that moment, my life was amazing. - Ted Mosby
+Last updated: 2024-04-08 14:16:21
+Random Quote: Ted: "Why wouldn't she just come right out and say what she wants?"Marshall: "Men. It's like, if there weren't pickle jars to open and spiders to kill and computers to back up, what would be their point?"Lily: "Mmh-hmm!"Ted: "Okay, when did Marshall become a slightly more feminine you?" - Ted Mosby
