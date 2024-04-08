@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 07:45:32
-Random Quote: Lord Varys, sometimes I feel as though you are the best friend I have in King's Landing and sometimes I feel you are my worst enemy.  -  Tyrion Lannister
+Last updated: 2024-04-08 07:46:11
+Random Quote: All religion is a foolish answer to a foolish question. - Thomas Shelby
