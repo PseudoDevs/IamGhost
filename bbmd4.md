@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 13:27:57
-Random Quote: She studied Theon Greyjoy's sly smile, wondering what it meant.  That young man had a way of looking as though he knew some secret jest that only he was privy to; Catelyn had never liked it.  -  Catelyn Stark
+Last updated: 2024-04-08 13:28:31
+Random Quote: If you love something, you can never let it go. Not even for a second. Or it's gone forever. - Ted Mosby
