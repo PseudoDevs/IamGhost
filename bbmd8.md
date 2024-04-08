@@ -1,6 +1,2 @@
-Last updated: 2024-04-08 07:24:53
-Random Quote: Morty: "Rick, when you say you made an exact replica of the house, did you mean, like, an exact replica?"
-Rick: "I know about the Yosemite T-Shirt, Morty."
-Morty: "Shit."
-Rick: "You know you can use tissues, right?"
-Morty: "I can't finish without it!" - Morty Smith
+Last updated: 2024-04-08 07:25:25
+Random Quote: Your lord father did not come to the wedding.  An insult, as I see it.  Even if he is dying.  He never came to my last wedding either.  He calls me the Late Lord Frey, you know.  Does he think I'm dead?  I'm not dead, and I promise you, I'lll outlive him as I outlived his father.  Your family has always pissed on me, don't deny it, don't lie, you know it's true.  -  Walder Frey
