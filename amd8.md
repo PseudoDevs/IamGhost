@@ -1,2 +1,3 @@
-Last updated: 2024-04-08 13:13:06
-Random Quote: That everything’s repeating That this has all happened before Like a massive déjĂ  Vu - 
+Last updated: 2024-04-08 13:13:39
+Random Quote: Marylin Thornhill: "I trust Enid has given you the old Nevermore welcome."
+Wednesday: "She's been smothering me with hospitality. I hope to return the favor... in her sleep." - Wednesday Addams
