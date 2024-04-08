@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 07:35:31
-Random Quote: Damn it, Ted! I was about to drop some sweet word play about logarithms and getting into a rhythm with my log. - Barney Stinson
+Last updated: 2024-04-08 07:36:05
+Random Quote: I prefer my history dead.  Dead history is writ in ink, the living sort in blood.  -  Rodrik Harlaw
