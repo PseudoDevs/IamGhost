@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 11:16:53
-Random Quote: It's not just football. It's life. - Cal Jacobs
+Last updated: 2024-04-08 11:17:29
+Random Quote: Words are like arrows, Arianne.  Once loosed, you cannot call them back.  -  Areo Hotah
