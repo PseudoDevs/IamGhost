@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 11:29:03
-Random Quote: Smoking marijuana, eating cheetos, and masturbating do not constitute plans in my book. - Walter White
+Last updated: 2024-04-08 11:29:39
+Random Quote: Old gods or new, it makes no matter, no man is so accursed as the kinslayer.  -  Rickard Karstark
