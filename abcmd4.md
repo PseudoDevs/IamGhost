@@ -1,5 +1,2 @@
-Last updated: 2024-04-08 11:53:56
-Random Quote: Therapist: "You need to stop doing these weird things. Go out sometime."
-Klaus: "I went to the park today."
-Therapist: "There you go! I hope you got something from that."
-Klaus: "[Opens up coat] This duck." - Klaus Hargreeves
+Last updated: 2024-04-08 11:54:29
+Random Quote: Best-available idea doesn't make something a good idea. - Kinsey Locke
