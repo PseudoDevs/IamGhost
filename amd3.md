@@ -1,4 +1,2 @@
-Last updated: 2024-04-08 13:03:49
-Random Quote: Morticia: "Please excuse Wednesday. She's allergic to color."
-Enid: "Wow, what happens to you?"
-Wednesday: "I break out into hives, and then the flesh peels off my bones." - Wednesday Addams
+Last updated: 2024-04-08 13:04:23
+Random Quote: Here are a few fun facts about Long Island... Number 1: It's Brooklyn's fart-trail. - Robin Scherbatsky
