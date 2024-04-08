@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 13:43:52
-Random Quote: Whatever you do in this life, it's not legendary, unless your friends are there to see it. - Barney Stinson
+Last updated: 2024-04-08 13:44:26
+Random Quote: Khaleesi, better a man should swallow scorpions than trust in the spawn of shadows, who dare not show their face beneath the sun.  It is known.  -  Rakharo
