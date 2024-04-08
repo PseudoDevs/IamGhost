@@ -1,2 +1,3 @@
-Last updated: 2024-04-08 14:01:28
-Random Quote: Eighty-six years. But with good behavior... who knows? - Saul Goodman
+Last updated: 2024-04-08 14:02:02
+Random Quote: Tommy: "I'll have some men watch her house 'til the danger passes."
+Polly: "'Til the danger passes. That'll be the bloody day." - Polly Gray
