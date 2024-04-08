@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 12:34:45
-Random Quote: The best pie you have ever tasted, my lords.  Wash it down with Arbor gold and savor every bite.  I know I shall.  -  Wyman Manderly
+Last updated: 2024-04-08 12:35:21
+Random Quote: I'll have to take a page from Robert's book, not that he ever read one.  -  Stannis Baratheon
