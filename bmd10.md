@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 12:45:10
-Random Quote: It's not Aerys I rue, it's Robert... Why is it no one names Robert oathbreaker?  He tore the realm apart, yet I am the one with shit for honor.  -  Jaime Lannister
+Last updated: 2024-04-08 12:45:45
+Random Quote: I can bring you in warm, or I can bring you in cold. - Din Djarin
