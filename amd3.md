@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 14:28:10
-Random Quote: People are oblivious to reality. They only see what they want to see, when all they have to do is shift their perspective to see the full scope of things. - Yuk Je
+Last updated: 2024-04-08 14:28:44
+Random Quote: Robb, if that sword could bring him back, I should never let you sheathe it until Need stood at my side once more... but he is gone, and a hundred Whispering Woods will not change that.  -  Catelyn Stark
