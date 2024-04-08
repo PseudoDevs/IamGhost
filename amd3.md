@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 14:49:10
-Random Quote: Knowledge is power, power is status and status means popular. - Eric Effiong
+Last updated: 2024-04-08 14:49:44
+Random Quote: Aye, and from what I saw of Joffrey, you are as unfit a mother as you are a ruler.  -  Kevan Lannister
