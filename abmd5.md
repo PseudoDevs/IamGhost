@@ -1,2 +1,3 @@
-Last updated: 2024-04-08 11:23:09
-Random Quote: I never wanted any of it to change, but that's not how life works. - Ted Mosby
+Last updated: 2024-04-08 11:23:44
+Random Quote: Lily: "Swear on the lifes of your unborn boy and girl!"
+Ted: "I swear... on Luke and Leia!" - Ted Mosby
