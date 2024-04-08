@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 12:37:07
-Random Quote: She don't speak.  You bloody bastards cut her throat too deep for that.  But she remembers.  -  Lem Lemoncloack
+Last updated: 2024-04-08 12:38:17
+Random Quote: A guy opens his door and gets shot and you think that of me? No. I am the one who knocks! - Walter White
