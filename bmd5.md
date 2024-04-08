@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 14:02:54
-Random Quote: Kingthlayer... you are my captifth.  -  Vargo Hoat
+Last updated: 2024-04-08 14:03:28
+Random Quote: He would have killed me but for Howland Reed.  -  Eddard Stark
