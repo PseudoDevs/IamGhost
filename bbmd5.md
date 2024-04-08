@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 12:57:04
-Random Quote: Never forget what you are, for surely the world will not.  Make it your strength.  Then it can never be your weakness.  Armor yourself in it, and it will never be used to hurt you.  -  Tyrion Lannister
+Last updated: 2024-04-08 12:57:37
+Random Quote: Sometimes, the cure is a little taste of the disease. The difference between medicine and poison sometimes is only dosage. - Arthur Harrow
