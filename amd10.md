@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 14:59:38
-Random Quote: Don Eladio, look into Fring's eyes. There you will see the truth. The Chicken Man hates you. He is our enemy. He plots against us. I demand blood for blood. - Hector Salamanca
+Last updated: 2024-04-08 15:00:11
+Random Quote: Demons made of snow and ice and cold.  The ancient enemy.  The only enemy that matters.  -  Stannis Baratheon
