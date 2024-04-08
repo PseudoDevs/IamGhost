@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 12:46:33
-Random Quote: Euron's gifts are poisoned.  -  Victarion Greyjoy
+Last updated: 2024-04-08 12:47:06
+Random Quote: There are worse ways to die than warm and drunk.  I knew a brother drowned himself in wine once.  It was a poor vintage, though, and his corpse did not improve it.  -  Dolorous Edd Tollett
