@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 11:14:29
-Random Quote: When you date someone, it's like you're taking one long course in who that person is and then, when you break up, all that stuff becomes useless. It's the emotional equivalent of an English degree... - Ted Mosby
+Last updated: 2024-04-08 11:15:05
+Random Quote: You are the love of my life. Everything I have and everything I am is yours. Forever. - Barney Stinson
