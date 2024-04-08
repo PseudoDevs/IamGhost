@@ -1,2 +1,3 @@
-Last updated: 2024-04-08 11:18:22
-Random Quote: Talkin' to you was one of the best parts of my whole year. - Fezco
+Last updated: 2024-04-08 11:18:55
+Random Quote: Lily: "We're going to Atlantic City to elope - right now!"
+Barney: "Oh, congratulations Lily! Marshall, you're getting married? What the hell?" - Barney Stinson
