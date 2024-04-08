@@ -1,2 +1,6 @@
-Last updated: 2024-04-08 11:58:26
-Random Quote: All I know is, he's not in the same grade as me anymoreAnd I'm thrilled. - Missy
+Last updated: 2024-04-08 11:58:59
+Random Quote: Polly: "Six."
+John: "Six what?"
+Polly: "Six questions since you walked through that door. Soon you'll have to start being the man with the answers."
+John: "Why?"
+Polly: "Seven." - Polly Gray
