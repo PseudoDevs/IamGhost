@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 11:22:58
-Random Quote: I dreamed of the man who came today, the one they call Reek.  You and your brother lay dead at his feet, and he was skinning off your faces with a long red blade.  -  Jojen Reed
+Last updated: 2024-04-08 11:23:31
+Random Quote: Whatever happens next, it's not gonna go down the way you think it is. - Mike Ehrmantraut
