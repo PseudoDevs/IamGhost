@@ -1,3 +1,3 @@
-Last updated: 2024-04-08 14:20:18
-Random Quote: Alien: "I was just reading you."
-Rick: "Congratulations on making it into print media. Real bright future there." - Rick Sanchez
+Last updated: 2024-04-08 14:20:52
+Random Quote: Lily: "Swear on the lifes of your unborn boy and girl!"
+Ted: "I swear... on Luke and Leia!" - Ted Mosby
