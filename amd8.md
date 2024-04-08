@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 07:29:40
-Random Quote: I don't want to be good. I am going to be great. - Pablo Escobar
+Last updated: 2024-04-08 07:30:13
+Random Quote: My lady, I have seen how you look at my brother.  Loras is valiant and handsome, and we all love him dearly... but your Imp will make a better husband.  He is a bigger man than he seems, I think.  -  Garlan Tyrell
