@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 12:50:09
-Random Quote: We are not husband and wife... anymore. We're just business partners. And our job is to raise those kids. - Marty Byrde
+Last updated: 2024-04-08 12:50:42
+Random Quote: You two suck at peddling meth. - Saul Goodman
