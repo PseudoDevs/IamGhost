@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 07:50:33
-Random Quote: Don Eladio, look into Fring's eyes. There you will see the truth. The Chicken Man hates you. He is our enemy. He plots against us. I demand blood for blood. - Hector Salamanca
+Last updated: 2024-04-08 07:51:46
+Random Quote: The only way to keep your people loyal is to make certain they fear you more than they do the enemy.  -  Cersei Lannister
