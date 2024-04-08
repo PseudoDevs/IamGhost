@@ -1,3 +1,2 @@
-Last updated: 2024-04-08 15:15:03
-Random Quote: Lily: "I can't believe I unloaded like that on a high-school senior."
-Robin: "I can't believe a high-school senior unloaded like that on me." - Robin Scherbatsky
+Last updated: 2024-04-08 15:15:46
+Random Quote: 'You leaving already, Chief?"Jim Hopper: "Oh, come on, you think I actually wanted to come to this thing? I was just hungry."'Oh, yeah, that's the spirit."Jim Hopper: "Well, your wife doesn't have time to cook for me, you know what I'm saying." - Jim Hopper
