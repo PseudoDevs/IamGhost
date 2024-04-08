@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 13:47:53
-Random Quote: People deserve a second chance, just like businesses. - Marty Byrde
+Last updated: 2024-04-08 13:48:27
+Random Quote: Robert... he is in my dreams as well.  Laughing.  Drinking.  Boasting.  Those were the things he was best at.  Those, and fighting.  I never bested him at anything.  -  Stannis Baratheon
