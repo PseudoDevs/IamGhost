@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 12:52:33
-Random Quote: She hated her life, not because it was bad, but because when you hate your brain and your body, it's hard to enjoy the rest. - Rue Bennett
+Last updated: 2024-04-08 12:53:41
+Random Quote: The septons preach about the seven hells.  What do they know?  Only a man who's been burned knows what hell is truly like.  -  Sandor Clegane
