@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 11:28:31
-Random Quote: Jesus! Just grow some fucking balls! - Walter White
+Last updated: 2024-04-08 11:29:40
+Random Quote: Elia of Dorne.  I killed her screaming whelp.  Then I raped her.  Then I smashed her fucking head in like this.  -  Gregor Clegane
