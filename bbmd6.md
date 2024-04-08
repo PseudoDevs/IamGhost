@@ -1,2 +1,4 @@
-Last updated: 2024-04-08 12:26:33
-Random Quote: A dog who bites every owner he's had can only be disciplined with a firm hand. Or put down. - Gustavo Fring
+Last updated: 2024-04-08 12:27:08
+Random Quote: Morticia: "Please excuse Wednesday. She's allergic to color."
+Enid: "Wow, what happens to you?"
+Wednesday: "I break out into hives, and then the flesh peels off my bones." - Wednesday Addams
