@@ -1,3 +1,2 @@
-Last updated: 2024-04-08 07:49:18
-Random Quote: Grace: "I had the phone put in. It's in the back."
-Tommy: "If we knew someone else who had a phone, we could call them." - Thomas Shelby
+Last updated: 2024-04-08 07:51:08
+Random Quote: I'm the Homelander. And I can do whatever the f-ck I want. - Homelander
