@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 13:32:54
-Random Quote: .OkaySomebody's got to teach this kid to swear, it's embarrassing. - Meemaw
+Last updated: 2024-04-08 13:33:27
+Random Quote: You grew up with actors.  You learned their craft and you learned it well.  I grew up with soldiers.  I learned how to die a long time ago.  -  Eddard Stark
