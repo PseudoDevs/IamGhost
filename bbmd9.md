@@ -1,2 +1,3 @@
-Last updated: 2024-04-08 11:15:05
-Random Quote: Sheldon, faith means believing in something you can't know for sure is realAnd right now, I am struggling with that. - Mary
+Last updated: 2024-04-08 11:15:41
+Random Quote: May: "May Carleton. I breed racehorses and train them. What is it you do?"
+Thommy: "I rarely answer questions is what I do." - Thomas Shelby
