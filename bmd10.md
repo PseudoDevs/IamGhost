@@ -1,2 +1,3 @@
-Last updated: 2024-04-08 13:30:18
-Random Quote: Even brave men blind themselves sometimes, when they are afraid to see.  -  Beric Dondarrian
+Last updated: 2024-04-08 13:30:51
+Random Quote: Jang Deok-su: "Tell me what you're good at?"
+Han Mi-nyeo: "Everything, except the things I can't do." - Oh Il-nam
