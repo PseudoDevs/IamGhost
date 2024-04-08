@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 12:13:19
-Random Quote: We didn't choose this life, we're just living in it. - Number Five
+Last updated: 2024-04-08 12:13:53
+Random Quote: Drugs are kind of cool. I mean, they're cool before they wreck your skin. And your life. And your family. That's when they get uncool. It's actually a very narrow window of cool. - Rue Bennett
