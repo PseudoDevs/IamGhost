@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 12:28:53
-Random Quote: A dad makes a toilet look like R2-D2 and it breaks the front page of Reddit. But I'm Charles Manson because I gave you your own world instead of an iPad. - Rick Sanchez
+Last updated: 2024-04-08 12:29:29
+Random Quote: This is Stannis Baratheon.  The man will fight to the bitter end and then some.  -  Tywin Lannister
