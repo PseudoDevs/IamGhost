@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 13:42:43
-Random Quote: I'm growing a child in my belly, a child that just developed ears, and it's a very thin sweater. So, please, if you must tell your story, just make it cheerful. - Lily Aldrin
+Last updated: 2024-04-08 13:43:52
+Random Quote: When I'm king in my own right, I'm going to outlaw beets.  -  Tommen Baratheon
