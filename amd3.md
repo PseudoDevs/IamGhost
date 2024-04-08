@@ -1,4 +1,2 @@
-Last updated: 2024-04-08 12:50:54
-Random Quote: Ted: "Okay, time to get the horn back to the bistro."
-Robin: "Oh Ted, I don't know if I can go again, that tuckered me out."
-Ted: "No euphemism." - Robin Scherbatsky
+Last updated: 2024-04-08 12:51:27
+Random Quote: Ted: "She was 15?!"Barney: "No. A 15. Like in blackjack."Ted: "As in.. not sure whether you'd hit it?"Barney: "Exactly!" - Barney Stinson
