@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 11:42:16
-Random Quote: Demons made of snow and ice and cold.  The ancient enemy.  The only enemy that matters.  -  Stannis Baratheon
+Last updated: 2024-04-08 11:42:51
+Random Quote: He would see this country burn if he could be king of the ashes.  -  Varys
