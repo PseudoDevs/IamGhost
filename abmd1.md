@@ -1,3 +1,2 @@
-Last updated: 2024-04-08 12:30:37
-Random Quote: What do I think love is? It's like when someone makes your stomach feel all tight, but floaty at the same time, you know? And your cheeks hurt from smiling. And you smile so much, that people think something's wrong with you.
-...And also fucking. Twenty-four seven, deep-dick, can't-walk-right fucking. - Aleida Diaz
+Last updated: 2024-04-08 12:31:13
+Random Quote: Night gathers, and now my watch begins.  It shall not end until my death.  I shall take no wife, hold no lands, father no children.  I shall wear no crowns and win no glory.  I shall live and die at my post.  I am the sword in the darkness.  I am the watcher on the walls.  I am the fire that burns against the cold, the light that brings the dawn, the horn that wakes the sleepers, the shield that guards the realms of men.  I pledge my life and honor to the Night's Watch, for this night and all the nights to come.  -  Vow of the Night's Watch
