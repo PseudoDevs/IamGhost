@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 13:11:48
-Random Quote: Lily, I think we made a mistake moving out to the suburbs. I miss our home. I miss our booth with our friends. And I'm pretty sure I have a drumstick... somewhere bad. - Marshall Eriksen
+Last updated: 2024-04-08 13:12:22
+Random Quote: It's probably his... I've spent years, training my boys to swim the other way. - Barney Stinson
