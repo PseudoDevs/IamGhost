@@ -1,4 +1,2 @@
-Last updated: 2024-04-08 14:07:00
-Random Quote: Oh Il-nam: "As a kid, I'm willing to bet you got spanked a lot."
-Seong Gi-hun: "How did you know?"
-Oh Il-nam: "My son did too. He was just like you, friend." - Oh Il-nam
+Last updated: 2024-04-08 14:07:32
+Random Quote: When things go well, people start thinking it's because they're so fing smart. - Walt Breslin
