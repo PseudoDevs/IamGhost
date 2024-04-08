@@ -1,4 +1,2 @@
-Last updated: 2024-04-08 14:14:10
-Random Quote: Oh Il-nam: "As a kid, I'm willing to bet you got spanked a lot."
-Seong Gi-hun: "How did you know?"
-Oh Il-nam: "My son did too. He was just like you, friend." - Oh Il-nam
+Last updated: 2024-04-08 14:14:43
+Random Quote: Rhaegar fought valiantly, Rhaegar fought nobly, and Rhaegar died.  -  Jorah Mormont
