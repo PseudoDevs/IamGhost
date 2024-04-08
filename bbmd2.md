@@ -1,2 +1,3 @@
-Last updated: 2024-04-08 12:36:39
-Random Quote: Euron's gifts are poisoned.  -  Victarion Greyjoy
+Last updated: 2024-04-08 12:37:12
+Random Quote: Morty: "Rick, can we not leave without my sister?"
+Rick: "Ugh. You have infinite sisters, Morty. Not that I want to spend the rest of my day looking for another one. Sum-Sum, let's go! Grandpa's concern for your safety is fleeting." - Rick Sanchez
