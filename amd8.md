@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 11:13:39
-Random Quote: Kids, morals usually come at the end of stories, but this one is so important, I'm gonna tell you now. Don't ever, ever invite an ex to your wedding. - Ted Mosby
+Last updated: 2024-04-08 11:14:13
+Random Quote: Knights?  Dondarrion's a knight, but the rest of you are the sorriest lot of outlaws and broken men I've ever seen.  -  Sandor Clegane
