@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 07:20:16
-Random Quote: I'm growing a child in my belly, a child that just developed ears, and it's a very thin sweater. So, please, if you must tell your story, just make it cheerful. - Lily Aldrin
+Last updated: 2024-04-08 07:20:49
+Random Quote: Larry: "She's guilty she's leaving. It's a guilt pig roasting box."Pete: "At least you get something. I'm not getting laid for a year too. But what do I get?"Larry: "A baby?"Pete: "You can't eat it." - Pete Harper
