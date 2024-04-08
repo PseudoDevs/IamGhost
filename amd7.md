@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 11:13:42
-Random Quote: This is New York City, don't get close to the neighbours. You nod at them politely in the hall, you call the cops if you haven't seen them in a while and you smell something funny and that's it! - Ted Mosby
+Last updated: 2024-04-08 11:14:15
+Random Quote: Spare me your empty little compliments, girl... and your ser's.  I am no knight.  I spit on them and their vows.  My brother is a knight.  -  Sandor Clegane
