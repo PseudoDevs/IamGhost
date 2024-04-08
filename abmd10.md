@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 11:41:59
-Random Quote: You Westerosi are all the same.  You sew some beast upon a scrap of silk, and suddenly you are all lions or dragons or eagles.  -  Illyrio Mopatis
+Last updated: 2024-04-08 11:43:04
+Random Quote: Barney: "Whoa, Ted, that thing you're packing is way too big to fit in that box."Ted: "Yeah, that's what your mom said."Barney: "How dare you?"Ted: "No, she actually said that." - Ted Mosby
