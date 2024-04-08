@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 12:57:03
-Random Quote: I have a tender spot in my heart for cripples, bastards, and broken things.  -  Tyrion Lannister
+Last updated: 2024-04-08 12:58:44
+Random Quote: I will not be remembered as Set Arys the Unworthy.  I will not soil my cloak.  -  Arys Oakheart
