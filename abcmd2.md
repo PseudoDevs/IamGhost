@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 07:30:29
-Random Quote: So I will only ask you once, Lord Snow.  Are you a brother of the Night's Watch, or a bastard boy who wants to play at war?  -  Jeor Mormont
+Last updated: 2024-04-08 07:31:06
+Random Quote: And, you know, you just can't be mad at me for wanting you to be okay. - Rue Bennett
