@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 07:37:30
-Random Quote: The Wall can stop an army, but not a man alone.  -  Mance Rayder
+Last updated: 2024-04-08 07:38:08
+Random Quote: A bag of dragons buys a man's silence for a while, but a well - placed quarrel buys it forever. 
