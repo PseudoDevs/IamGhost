@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 14:40:10
-Random Quote: Penrose chose to die rather than give him up.  It still angers me.  How could he think I would hurt the boy?  I chose Robert, did I not?  When that hard day came, I chose blood over honor.  -  Stannis Baratheon
+Last updated: 2024-04-08 14:40:43
+Random Quote: If you don't think there's hope for the world, why bother going on? - Ellie Williams
