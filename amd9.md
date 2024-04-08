@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 11:18:06
-Random Quote: Put me on your magical boat, man, and sail me down your chocolaty river of meth! - Badger
+Last updated: 2024-04-08 11:18:44
+Random Quote: Aye, and from what I saw of Joffrey, you are as unfit a mother as you are a ruler.  -  Kevan Lannister
