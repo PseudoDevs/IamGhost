@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 11:21:15
-Random Quote: Get ready, Cleveland. The last man to screw you that hard and then disappear, was LeBron James! - Barney Stinson
+Last updated: 2024-04-08 11:21:51
+Random Quote: You have courage.  Not battle courage perhaps but... I don't know... a kind of woman's courage.  -  Brienne of Tarth
