@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 11:38:01
-Random Quote: The baby slide right out, huh? It's like a 'whoosh', like a waterslide. [Lily screaming] Slightly painful waterslide. - Dr. Sonya
+Last updated: 2024-04-08 11:38:38
+Random Quote: A queen must listen to all.  The highborn and the low, the strong and the weak, the noble and the venal.  One voice may speak you false, but in many there is always truth to be found.  -  Daenerys Targaryen
