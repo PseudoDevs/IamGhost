@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 11:48:08
-Random Quote: Shelly, remember when you thought you had leprosy, and it was just a patch of dry skin? - Mary
+Last updated: 2024-04-08 11:48:44
+Random Quote: If you wish to give up on playing, the 25.5 billion won will be sent to the bereaved families of the late players. - Jang Deok-su
