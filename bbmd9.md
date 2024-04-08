@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 14:53:03
-Random Quote: Many years later, my brother would use the same argument in front of a judge. He was still convicted for urinating in a phone booth. - Sheldon Cooper
+Last updated: 2024-04-08 14:53:37
+Random Quote: I will kill your wife, I will kill your son, I will kill your infant daughter. - Gustavo Fring
