@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 12:29:28
-Random Quote: You're like Hitler! But even Hitler cared about Germany or something. - Morty Smith
+Last updated: 2024-04-08 12:30:03
+Random Quote: Oh, come on. If you don't laugh, it just seems mean. - Barney Stinson
