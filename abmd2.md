@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 13:08:48
-Random Quote: You have courage.  Not battle courage perhaps but... I don't know... a kind of woman's courage.  -  Brienne of Tarth
+Last updated: 2024-04-08 13:09:21
+Random Quote: Get the keys and remove those chains from him, before you make me rue the day I raped your mother.  -  Roose Bolton
