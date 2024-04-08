@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 11:08:34
-Random Quote: I am not in danger, Skyler. I AM the danger! - Walter White
+Last updated: 2024-04-08 11:09:08
+Random Quote: Grief never gets any smaller, so you have to make yourself bigger around it. The best way to do that is to open up. Let people in. - Rendell Locke
