@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 14:40:01
-Random Quote: A war is coming. I'm afraid your friends at Hawkins are very much in the eye of the storm. I don't know how to say this other than just to say it: without you, we can't win this war. - Sam Owens
+Last updated: 2024-04-08 14:40:35
+Random Quote: I don't have a phone. I refuse to be a slave to technology. - Wednesday Addams
