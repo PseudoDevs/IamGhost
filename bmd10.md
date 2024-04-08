@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 14:07:26
-Random Quote: Lily: "We'll all have a wedding dress camp-out. It'll be fun!"Barney: "I can't go. I've got this thing."Lily: "What thing?"Barney: "A penis!" - Barney Stinson
+Last updated: 2024-04-08 14:07:59
+Random Quote: This is my lucky St. Paddys Day suit. I have dry-cleaned many stain out of this baby. - Barney Stinson
