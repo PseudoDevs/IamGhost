@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 14:54:53
-Random Quote: Lily: "Whenever we board a flight, you lick the plane!"Marshall: "Have we crashed even once?" - Marshall Eriksen
+Last updated: 2024-04-08 14:55:27
+Random Quote: For some women it was the ashes of my parents. For others it was the trophy from Wimbledon and believe it or not, for one busty dullard, it was both. Game, enormous set and match! - Barney Stinson
