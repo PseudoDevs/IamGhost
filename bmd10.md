@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 11:20:20
-Random Quote: I heard enough to know she saved your a-s. - Mike Ehrmantraut
+Last updated: 2024-04-08 11:20:53
+Random Quote: No man has ever died from bending his knee.  He who kneels may rise again, blade in hand.  He who will not kneel stays dead, stiff legs and all.  -  Balon Greyjoy
