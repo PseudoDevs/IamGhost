@@ -1,3 +1,2 @@
-Last updated: 2024-04-08 11:15:21
-Random Quote: Kids, you can't talk yourself into falling in love. It doesn't take days of deliberation. When it's real, you know pretty quickly and with absolute certainty.
-I had forgotten that, but I was about to be reminded... - Ted Mosby
+Last updated: 2024-04-08 11:15:54
+Random Quote: In short, the god mankind has prayed to for thousands of years the god that everything is bound with, this god exists as nothing other than time itself. - 
