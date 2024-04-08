@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 13:47:06
-Random Quote: We all have things we keep hidden. Sometimes, keeping secrets is how you survive. Because in High School, one rumor, one picture, one incident, can define you forever. - Hannah Baker
+Last updated: 2024-04-08 13:47:39
+Random Quote: I'm just here to lend a helping hand, you know, make sure the business is running in order. I got a good head for numbers. But listen, don't even worry. It's gonna be like I'm not even here. - Lalo Salamanca

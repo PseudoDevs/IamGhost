@@ -1,4 +1,2 @@
-Last updated: 2024-04-08 13:46:43
-Random Quote: Bo-Katan: "I've scugged off a lot of Imperial warlords."
-Din: "They tend to get mad when you hijack their ships."
-Bo-Katan: "Now you tell me." - Bo-Katan
+Last updated: 2024-04-08 13:47:19
+Random Quote: I've had shits that I've liked better than Walder Frey.  -  Brynden Tully

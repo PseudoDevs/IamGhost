@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 13:46:44
-Random Quote: If I could be a different person, I promise you, I would. Not 'cause I want it, but 'cause they do. - Rue Bennett
+Last updated: 2024-04-08 13:47:19
+Random Quote: We have to control this fing world, or it will control you. And if you don't protect yourself, it makes a mess and breaks you. - Miguel Angel Felix Gallardo
