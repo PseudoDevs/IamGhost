@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 07:23:05
-Random Quote: Oh my God, Larry, by the time I get out, there will've been like three new generations of iPhones! - Piper Chapman
+Last updated: 2024-04-08 07:23:39
+Random Quote: Think of the pickup plays we can run as a father-son duo. There's the "Father Knows Breast", there's the "Bush Dynasty", the "Lick Father, Lick Son". - Barney Stinson
