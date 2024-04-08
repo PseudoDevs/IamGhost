@@ -1,2 +1,4 @@
-Last updated: 2024-04-08 13:14:04
-Random Quote: People come into our lives exactly when they should. - Nina Locke
+Last updated: 2024-04-08 13:14:38
+Random Quote: Oh Il-nam: "As a kid, I'm willing to bet you got spanked a lot."
+Seong Gi-hun: "How did you know?"
+Oh Il-nam: "My son did too. He was just like you, friend." - Oh Il-nam
