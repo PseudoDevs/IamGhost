@@ -1,2 +1,4 @@
-Last updated: 2024-04-08 14:14:07
-Random Quote: Yes Barney, your submissions were recieved and no, we will not be attending any parties in your pants. - Ted Mosby
+Last updated: 2024-04-08 14:15:15
+Random Quote: Greef: "Be careful, my friend. They've got you outnumbered ten to one."
+Din: "I like these odds."
+Greef: "I bet you do." - Greef Karga

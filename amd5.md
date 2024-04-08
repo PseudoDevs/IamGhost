@@ -1,2 +1,4 @@
-Last updated: 2024-04-08 14:14:41
-Random Quote: The most important moments are the ones that make you realize there’s no turning back. You’ve crossed a line, and you’re stuck on the other side now. - Tokyo
+Last updated: 2024-04-08 14:15:15
+Random Quote: Greef: "Nevarro is a very fine planet. And now that the scum and villainy have been washed away, it's very respectable again."
+Mando: "As a bounty hunter hive?"
+Greef: "Some of my favorite people are bounty hunters." - Greef Karga
