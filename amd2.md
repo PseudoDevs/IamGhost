@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 12:35:58
-Random Quote: The title was but a courtesy due him as a council member; Varys was lord of nothing but the spiderweb, the master of none but his whispers.  -  Catelyn Stark
+Last updated: 2024-04-08 12:38:51
+Random Quote: I think my soul just threw up a little bit. - Lily Aldrin
