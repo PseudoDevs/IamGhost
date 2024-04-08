@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 13:05:14
-Random Quote: Marshall: "When a woman puts on an engagement ring, it's like when Bilbo Baggins wears the One Ring in The Hobbit."Robin: "Okay, can you say that again, but not in nerd?"Marshall: "Sure. Uh, the ring is like the cloak that Harry Potter wears to sneak around Hogwarts."Robin: "Yeah, I don't speak virgin either." - Robin Scherbatsky
+Last updated: 2024-04-08 13:05:47
+Random Quote: This little bogwing is what all the fuss was about. What a precious little creature! I can see why you didn't want to harm a hair on its wrinkled little head. - Greef Karga
