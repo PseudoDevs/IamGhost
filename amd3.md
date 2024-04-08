@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 13:22:36
-Random Quote: Ted: "You know Robin? Been thinking about it. Guess it's kind of nice you're such a bad-ass."Robin: "It's pretty bad-ass you're so nice, Ted." - Robin Scherbatsky
+Last updated: 2024-04-08 13:23:42
+Random Quote: Ted: "Luckily, you are friends with a former Boy Scout and a Boy Scout is always what?"Robin: "Unpopular?"Lily: "Beaten up?"Barney: "Going to the movies with his mom?"Ted: "A Boy Scout is always prepared..."Robin: "...prepared to spend lunch in his locker?"Marshall: "...prepared to die a virgin?"Barney: "...prepared to paint his sister's nails?" - Ted Mosby
