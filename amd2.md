@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 11:40:22
-Random Quote: I know our relationship isn't exactly what you want it to be. And I know I may not love you the way you love me, but I DO love you. Isn't that worth hanging on to? - Robin Scherbatsky
+Last updated: 2024-04-08 11:40:54
+Random Quote: Serve, Obey, Protect.  Simple vows for a simple man.  -  Areo Hotah
