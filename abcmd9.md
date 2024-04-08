@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 15:03:41
-Random Quote: Lily, I think we made a mistake moving out to the suburbs. I miss our home. I miss our booth with our friends. And I'm pretty sure I have a drumstick... somewhere bad. - Marshall Eriksen
+Last updated: 2024-04-08 15:04:14
+Random Quote: I am the storm, my lord, the first storm, and the last.  -  Euron Greyjoy
