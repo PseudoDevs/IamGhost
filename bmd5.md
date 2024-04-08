@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 14:47:22
-Random Quote: Just because I don't have fear, doesn't make me irrational. - Kinsey Locke
+Last updated: 2024-04-08 14:49:03
+Random Quote: Bear Island knows no king save the King in the North, whose name is Stark.  -  Lyanna Mormont
