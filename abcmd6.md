@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 14:38:42
-Random Quote: Folly and desperation are ofttimes hard to tell apart.  -  Maester Luwin
+Last updated: 2024-04-08 14:39:15
+Random Quote: A bag of dragons buys a man's silence for a while, but a well - placed quarrel buys it forever. 
