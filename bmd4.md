@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 14:33:15
-Random Quote: Money. That's what seperates the haves from the have-nots. But what is money? It's everything if you don't have it, right? - Marty Byrde
+Last updated: 2024-04-08 14:33:49
+Random Quote: Robb, who had been more a brother to Theon than any son born of Balon Greyjoy's loins.  Murdered at the Red Wedding, butchered by the Freys.  I should have been with him.  Where was I?  I should have died with him.  -  Theon Greyjoy
