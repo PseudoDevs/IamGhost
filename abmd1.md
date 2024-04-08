@@ -1,3 +1,2 @@
-Last updated: 2024-04-08 11:27:19
-Random Quote: Ellie: "Everybody I've cared for, either died or left me."
-Joel: "You have no idea what loss is." - Joel Miller
+Last updated: 2024-04-08 11:30:15
+Random Quote: You see, ladies? When you're out with a Blinder, you don't have to queue. - Arthur Shelby

@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 11:29:40
-Random Quote: There are moments when we must understand that the decisions we make influence more than just our own fates. - 
+Last updated: 2024-04-08 11:30:15
+Random Quote: Barney: "On your tombstone, it will be, 'Lily Aldrin. Caring wife. Loving friend. Slapbet-Commissioner.'"Marshall: "And your tombstone will read, 'Got slapped by Marhsall so hard he died.'" - Marshall Eriksen
