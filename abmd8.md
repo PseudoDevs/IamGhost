@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 15:05:18
-Random Quote: A hall to die in, and men to bury me.  I thank you, my lords... but I spit on your pity... I am a knight... I shall die a knight.  -  Barristan Selmy
+Last updated: 2024-04-08 15:05:52
+Random Quote: If you're looking for the word that means caring for someone beyond all rationality and wanting them to have everything they want, no matter how much it destroys you, it's love! - Ted Mosby
