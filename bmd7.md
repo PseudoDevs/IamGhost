@@ -1,4 +1,2 @@
-Last updated: 2024-04-08 12:56:10
-Random Quote: Tony Stark: "Lieutenant Killmonger? What is that? German?"
-Killmonger: "A nickname."
-Tony Stark: "That's clearly a good fit." - Killmonger
+Last updated: 2024-04-08 12:56:43
+Random Quote: So that's it? A couple of white Urkels offer you sausages and you're gone? - Robin Scherbatsky
