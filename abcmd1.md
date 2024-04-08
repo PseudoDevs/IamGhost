@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 14:01:20
-Random Quote: Robin: "Barney, I am not ready for them to find out about us."Barney: "Then you're gonna have to stay in there for the entire trilogy. Don't worry, it's only 382 minutes."Robin: "Nerd!" - Robin Scherbatsky
+Last updated: 2024-04-08 14:02:26
+Random Quote: Wylla.  Did you see how brave she was.  Even when I threatened to have her tongue out, she reminded me of the debt White Harbor owes to the Starks of Winterfell, a debt that can never be repaid.  Wylla spoke from the heart... not every woman can be as brave as my Wylla.  -  Wyman Manderly
