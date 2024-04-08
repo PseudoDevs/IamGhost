@@ -1,5 +1,2 @@
-Last updated: 2024-04-08 12:21:51
-Random Quote: Therapist: "You need to stop doing these weird things. Go out sometime."
-Klaus: "I went to the park today."
-Therapist: "There you go! I hope you got something from that."
-Klaus: "[Opens up coat] This duck." - Klaus Hargreeves
+Last updated: 2024-04-08 12:22:25
+Random Quote: I want you to wanna kiss me so bad that you don't even ask. - Jules Vaughn
