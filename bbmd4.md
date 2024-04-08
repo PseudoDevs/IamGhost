@@ -1,3 +1,2 @@
-Last updated: 2024-04-08 07:17:58
-Random Quote: Elliot: "I'm not sure it's a good thing we met."
-Rue: "What are you talking about? You're my new favorite person." - Rue Bennett
+Last updated: 2024-04-08 07:18:34
+Random Quote: Many good men have been bad kings, and some bad men have been good kings.  -  Maester Aemon
