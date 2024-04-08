@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 12:48:08
-Random Quote: This is my lucky St. Paddys Day suit. I have dry-cleaned many stain out of this baby. - Barney Stinson
+Last updated: 2024-04-08 12:48:41
+Random Quote: I learned form Set Arthur Dayne, the Sword of the Morning, who could have slain all five of you with his left hand while he was taking a piss with the right.  -  Jaime Lannister
