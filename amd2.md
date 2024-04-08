@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 07:52:05
-Random Quote: Every year, there are a million new, hot 22-year-olds walking into bars and call me "glass-half-full"... but I think they're getting dumber. - Barney Stinson
+Last updated: 2024-04-08 07:52:38
+Random Quote: I could keep you safe.  They're all afraid of me.  No one would hurt you again, or I'd kill them.  -  Sandor Clegane
