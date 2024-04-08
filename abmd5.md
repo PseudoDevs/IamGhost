@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 13:38:09
-Random Quote: You are the love of my life. Everything I have and everything I am is yours. Forever. - Barney Stinson
+Last updated: 2024-04-08 13:39:18
+Random Quote: Why is it always the innocents who suffer most, when you high lords play your game of thrones?  -  Varys
