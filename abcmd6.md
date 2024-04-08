@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 14:57:33
-Random Quote: I only have one rule. For every three 10's you bang, throw a bone to a 5. They're grateful and hard working and let's face it, sometimes you just want to lay there. - Barney Stinson
+Last updated: 2024-04-08 14:58:38
+Random Quote: I've had shits that I've liked better than Walder Frey.  -  Brynden Tully
