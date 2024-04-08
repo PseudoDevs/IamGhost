@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 11:28:39
-Random Quote: People say Hawkins is cursed. They're not way off. - Dustin Henderson
+Last updated: 2024-04-08 11:29:12
+Random Quote: I told you once, there are old sellswords and there are bold sellswords, but there are no old bold sellswords.  -  Brown Ben Plumm
