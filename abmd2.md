@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 14:57:29
-Random Quote: A grievous wound, aye, but Thoros healed it.  There's never been no better healer.  -  Lem Lemoncloak
+Last updated: 2024-04-08 14:58:02
+Random Quote: Marshall: "Lily, you snooped through her stuff?"Lily: "No, it's like the first thing you see when you jimmy open her desk-drawer with the letter opener her grandfather left her, according to her diary." - Lily Aldrin
