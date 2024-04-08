@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 11:25:13
-Random Quote: Do it. If you ever want to see these boobs again, crawl, you son of a me. - Lily Aldrin
+Last updated: 2024-04-08 11:25:46
+Random Quote: Strip off their skins.  Lord Bolton, he used to say a naked man has few secrets, but a flayed man's got none.  -  Ramsay Bolton
