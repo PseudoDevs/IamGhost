@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 14:52:48
-Random Quote: Mitchell: "It's been five years now and he still does this thing were he announces himself before walking into any room we're in, just to make sure he doesn't ever see us kiss."Cameron: "Wish my mother had that system. Remember?" - Cameron Tucker
+Last updated: 2024-04-08 14:53:21
+Random Quote: I don't have a phone. I refuse to be a slave to technology. - Wednesday Addams
