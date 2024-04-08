@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 11:57:20
-Random Quote: Droids are not good or bad. They are neutral reflections of those who imprint them. - Kuiil
+Last updated: 2024-04-08 11:57:53
+Random Quote: When the sun rises in the west and sets in the east.  When the seas go dry and mountains blow in the wind like leaves.  When your womb quickens again, and you bear a living child.  Then he will return, and not before.  -  Mirri Maz Duur
