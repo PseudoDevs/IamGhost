@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 07:52:23
-Random Quote: We all have things we keep hidden. Sometimes, keeping secrets is how you survive. Because in High School, one rumor, one picture, one incident, can define you forever. - Hannah Baker
+Last updated: 2024-04-08 07:53:38
+Random Quote: Sometimes we have to let things go because we can't keep them forever. - Maura Franklin
