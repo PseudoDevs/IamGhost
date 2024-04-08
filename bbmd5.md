@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 13:35:20
-Random Quote: My only aim is to take many lives. The more the better I feel. - 
+Last updated: 2024-04-08 13:35:54
+Random Quote: Do you know what it is like to be sold, squire?  I do.  My brother sold me to Khal Drogo for the promise of a golden crown.  Well, Drogo crowned him in gold, though not as he had wished, and I... my sun - and
