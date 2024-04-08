@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 14:00:22
-Random Quote: It's not Aerys I rue, it's Robert... Why is it no one names Robert oathbreaker?  He tore the realm apart, yet I am the one with shit for honor.  -  Jaime Lannister
+Last updated: 2024-04-08 14:00:55
+Random Quote: Why have average when you can have extraordinary? - Madelyn Stillwell
