@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 12:38:50
-Random Quote: Master Mott said Thoros could outdrink even King Robert.  They were pease in a pod, he told me, both gluttons and sots.  -  Gendry
+Last updated: 2024-04-08 12:39:24
+Random Quote: Demons made of snow and ice and cold.  The ancient enemy.  The only enemy that matters.  -  Stannis Baratheon
