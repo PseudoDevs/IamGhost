@@ -1,4 +1,3 @@
-Last updated: 2024-04-08 07:39:57
-Random Quote: Rick: "F you, Summer! And f the government. And f me for letting my car down, which I will never do again."
-Morty: "Jeez, Rick. You can't say FU to your grand-daughter!"
-Rick: "I just did, Morty. Here's dessert: F you!" - Rick Sanchez
+Last updated: 2024-04-08 07:40:34
+Random Quote: What do I think love is? It's like when someone makes your stomach feel all tight, but floaty at the same time, you know? And your cheeks hurt from smiling. And you smile so much, that people think something's wrong with you.
+...And also fucking. Twenty-four seven, deep-dick, can't-walk-right fucking. - Aleida Diaz
