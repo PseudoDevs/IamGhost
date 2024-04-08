@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 14:23:19
-Random Quote: That was the night I was born. I rose like a phoenix from her mentholated bosom and strode into the world, Armani-clad and fully awesome. - Barney Stinson
+Last updated: 2024-04-08 14:23:52
+Random Quote: I am the storm, my lord, the first storm, and the last.  -  Euron Greyjoy
