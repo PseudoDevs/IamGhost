@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 12:31:46
-Random Quote: Ted: "My mother is not one-night-stand material!"Barney: "Yeah, you're right. It wasn't night and we weren't standing." - Barney Stinson
+Last updated: 2024-04-08 12:32:19
+Random Quote: A ruler who hides behind paid executioners soon forgets what death is.  -  Eddard Stark
