@@ -1,3 +1,2 @@
-Last updated: 2024-04-08 12:33:32
-Random Quote: Neither one of us are gonna say, "Hey, how's it going?" or "Good to see you!"
-Because it really will be good to see you. - Barney Stinson
+Last updated: 2024-04-08 12:34:39
+Random Quote: Ted: "I thought you said you got rid of everything your ex-boyfriends gave you?"Robin: "Well yeah, but not my dogs."Ted: "You said everything."Robin: "But not living things."Ted: "Tell that to the rare bolivian cactus i threw away!" - Ted Mosby
