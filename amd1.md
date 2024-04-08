@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 07:34:01
-Random Quote: Sometimes our best decisions are the ones that don't make any sense at all. - Ted Mosby
+Last updated: 2024-04-08 07:34:34
+Random Quote: Who do you think killed all the dragons the last time around?  Gallant dragonslayers armed with swords?  The world the Citadel is building has no place in it for sorcery or prophecy or glass candles, much less for dragons.  Ask yourself why Aemon Targaryen was allowed to waste his life upon the Wall, when by rights he should have been raised to archmaester.  His blood was why.  He could not be trusted.  No more than I can.  -  Archmaester Marwyn
