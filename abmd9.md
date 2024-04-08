@@ -1,2 +1,6 @@
-Last updated: 2024-04-08 14:41:42
-Random Quote: No.  You were the betrayer.  You turned against me, against your own blood.  They cheated me.  Your horsey husband and his stinking savages.  They were cheats and liars.  They promised me a golden crown and gave me this.  -  Viserys Targaryen
+Last updated: 2024-04-08 14:42:16
+Random Quote: You lie to your husband all the time...
+"That shirt looks great on you."
+"I love your mom."
+"I never fantasize about Barney when we're doing it."
+Sound familiar, Pinocchio? - Barney Stinson
