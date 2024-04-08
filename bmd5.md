@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 07:13:46
-Random Quote: Come with me to the House of the Undying, and you shall drink of truth and wisdom.  -  Pyat Pree
+Last updated: 2024-04-08 07:14:21
+Random Quote: One does not speak unless one knows. - Din Djarin
