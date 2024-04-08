@@ -1,2 +1,4 @@
-Last updated: 2024-04-08 13:38:10
-Random Quote: Dismissing Selmy, where was the sense in that?  Yes, the man was old, but the name of Barristan the Bold still has meaning in the realm.  He lent honor to any man he served.  -  Tywin Lannister
+Last updated: 2024-04-08 13:38:44
+Random Quote: Tony Stark: "Lieutenant Killmonger? What is that? German?"
+Killmonger: "A nickname."
+Tony Stark: "That's clearly a good fit." - Killmonger
