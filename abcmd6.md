@@ -1,2 +1,3 @@
-Last updated: 2024-04-08 11:22:50
-Random Quote: Camping is just being homeless... without the change. - Summer Smith
+Last updated: 2024-04-08 11:23:24
+Random Quote: Tommy: "I'll have some men watch her house 'til the danger passes."
+Polly: "'Til the danger passes. That'll be the bloody day." - Polly Gray
