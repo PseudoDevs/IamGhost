@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 12:30:02
-Random Quote: Ted: "Luckily, you are friends with a former Boy Scout and a Boy Scout is always what?"Robin: "Unpopular?"Lily: "Beaten up?"Barney: "Going to the movies with his mom?"Ted: "A Boy Scout is always prepared..."Robin: "...prepared to spend lunch in his locker?"Marshall: "...prepared to die a virgin?"Barney: "...prepared to paint his sister's nails?" - Ted Mosby
+Last updated: 2024-04-08 12:30:36
+Random Quote: No, only a boy who dreams.  The greenseers were more than that.  They were wargs as well, as you are, and the greatest of them could wear the skins of any beast that flies or swims or crawls, and could look through the eyes of the weirwoods as well, and see the truth that lies beneath the world.  -  Jojen Reed
