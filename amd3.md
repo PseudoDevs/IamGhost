@@ -1,2 +1,3 @@
-Last updated: 2024-04-08 13:18:44
-Random Quote: Sticky's even sent me a boob-shaped hand-sanitizer dispenser. It's clean and dirty at the same time. - Barney Stinson
+Last updated: 2024-04-08 13:19:17
+Random Quote: Marylin Thornhill: "I trust Enid has given you the old Nevermore welcome."
+Wednesday: "She's been smothering me with hospitality. I hope to return the favor... in her sleep." - Wednesday Addams
