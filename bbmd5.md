@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 14:58:13
-Random Quote: Robin: "He has a book of plays he uses to trick women into sleeping with him."Patrice: "Oh, no way. Barney's my honey bear."Robin: "Actually, one of his plays is called 'The Honey Bear'. He dresses up like Winnie the Pooh, and the next thing you know, his hand's stuck in your pot." - Robin Scherbatsky
+Last updated: 2024-04-08 14:58:46
+Random Quote: I am not in danger, Skyler. I AM the danger! - Walter White
