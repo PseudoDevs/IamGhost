@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 11:17:32
-Random Quote: You want to rule?  This is what ruling is; lying on a bed of weeds, ripping them out by the root, one by one, before they strangle you in your sleep.  -  Cersei Lannister
+Last updated: 2024-04-08 11:18:07
+Random Quote: We all wanted to be loved by a man incapable of giving love. - Number Five
