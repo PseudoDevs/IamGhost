@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 12:02:13
-Random Quote: No tales were ever told of me.  Do you think I would be sitting here if it were otherwise?  Your amusements are your own, I will not chide you on that count, but you must be more discreet.  A peaceful land, a quiet people.  That has always been my rule.  Make it yours.  -  Roose Bolton
+Last updated: 2024-04-08 12:02:48
+Random Quote: Love doesn't make sense. I mean, you can't logic your way into or out of it. Love ist totally nonsensical, but we have to keep doing it or else we're lost and love is dead and humanity should just pack it in. Because love is the best thing we do. - Ted Mosby

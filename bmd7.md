@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 12:02:13
-Random Quote: It seems to me that a queen who trusts no one is as foolish as a queen who trusts everyone.  -  Daenerys Targaryen
+Last updated: 2024-04-08 12:02:48
+Random Quote: It's only once you've stopped, that you realize how hard it is to start again. So you force yourself not to want it. - Ted Mosby
