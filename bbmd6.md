@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 12:02:14
-Random Quote: I have been called many things, my lord, byt kind is seldom one of them.  -  Maester Aemon
+Last updated: 2024-04-08 12:02:49
+Random Quote: Birds are lost, messages stolen or sold... there are things I might tell you of that eunuch that would chill your blood...  -  Grand Maester Pycelle
