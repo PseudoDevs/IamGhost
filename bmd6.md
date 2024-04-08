@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 11:16:15
-Random Quote: I'm sorry, can you repeat that? I don't speak "I-never-get-laid". - Barney Stinson
+Last updated: 2024-04-08 11:16:51
+Random Quote: I got thirty this time, men and boys all bound for the Wall, and don't be thinking they're like that bastard brother o' yours.  Lord Eddard gave me pick o' the dungeons, and I didn't find no little lordlings down there.  This log, half o' them would turn you over to the queen quick as spit for a pardon and maybe a few silvers.  The other half'd do the same, only they'd rape you first.  -  Yoren of the Night's Watch
