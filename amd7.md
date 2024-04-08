@@ -1,2 +1,4 @@
-Last updated: 2024-04-08 12:55:23
-Random Quote: I saw a couple riding a tandem bike, and it made me think of how you don't know how to ride a bike. - Kamala
+Last updated: 2024-04-08 12:55:54
+Random Quote: Oh Il-nam: "As a kid, I'm willing to bet you got spanked a lot."
+Seong Gi-hun: "How did you know?"
+Oh Il-nam: "My son did too. He was just like you, friend." - Oh Il-nam
