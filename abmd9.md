@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 11:16:26
-Random Quote: Everyone was yelling stuff.  Hot Pie yelled hot pie.  He must have yelled it a hundred times.  -  Arya Stark
+Last updated: 2024-04-08 11:17:32
+Random Quote: They'll bend the knee or I'll destroy them.  -  Stannis Baratheon
