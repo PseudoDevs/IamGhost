@@ -1,5 +1,2 @@
-Last updated: 2024-04-08 11:34:23
-Random Quote: Bo-Katan: "I haven't seen battle droids since the Clone Wars."
-Din: "I have."
-Bo-Katan: "Any of 'em look suspicious?"
-Din: "They all look suspicious." - Din Djarin
+Last updated: 2024-04-08 11:34:59
+Random Quote: What's a bigger feeling than love? - Elliot
