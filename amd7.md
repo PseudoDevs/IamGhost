@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 14:31:34
-Random Quote: Maybe the Big Bang is nothing more than God’s act of creation. - 
+Last updated: 2024-04-08 14:32:07
+Random Quote: Asha Greyjoy did not intend to be taken alive.  She would die as she had lived, with an axe in her hand and a laugh upon her lips.  -  Asha Greyjoy
