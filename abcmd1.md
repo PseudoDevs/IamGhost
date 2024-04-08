@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 13:24:42
-Random Quote: Science fact: Sisters are the worst. - Sheldon
+Last updated: 2024-04-08 13:25:15
+Random Quote: She had seen Bronn fight on the high road; it was no accident that he had survived the journey while other men had died.  He moved like a panther, and that ugly sword of his seemed a part of his arm.  -  Catelyn Stark
