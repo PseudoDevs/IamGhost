@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 13:29:45
-Random Quote: See, lad, that's why he's the king and I'm not.  I can outdrink, outfight, and outsing him, and my member's thrice the size o' his, but Mance has cunning.  -  Tormund Giantsbane
+Last updated: 2024-04-08 13:30:18
+Random Quote: Even brave men blind themselves sometimes, when they are afraid to see.  -  Beric Dondarrian
