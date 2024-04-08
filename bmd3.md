@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 12:14:27
-Random Quote: Kids, you may think your only choices are to swallow your anger or throw it in someone's face, but there's a third option: You can just let it go, and only when you do that is it really gone and you can move forward. - Ted Mosby
+Last updated: 2024-04-08 12:15:01
+Random Quote: As the twig is bent, so grows the tree. - Pacho Herrera
