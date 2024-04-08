@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 12:13:09
-Random Quote: Imagine you were born in a poor family, in a poor city, in a poor country, and by the time you were 28 years old, you have so much money you can't even count it. What do you do? You make your dreams come true. - Steve Murphy
+Last updated: 2024-04-08 12:13:41
+Random Quote: They say the king loved to hunt.  The things we love destroy us every time, lad.  Remember that.  -  Jeor Mormont
