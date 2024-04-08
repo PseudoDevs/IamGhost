@@ -1,2 +1,3 @@
-Last updated: 2024-04-08 07:13:41
-Random Quote: Ted: "It's the Drunk Train! You crossed out all the stops and wrote Vagina-Ville."Barney: "That's not true. That one says Boner Gardens." - Barney Stinson
+Last updated: 2024-04-08 07:14:15
+Random Quote: I hired a decorator and I asked him: "What would the inside of Tinkerbell's vagina look like?"
+And the kid just ran with it! - Quinn Garvey
