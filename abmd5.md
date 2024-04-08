@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 14:21:40
-Random Quote: A dog who bites every owner he's had can only be disciplined with a firm hand. Or put down. - Gustavo Fring
+Last updated: 2024-04-08 14:22:13
+Random Quote: Robb Stark has won more battles in a year than the Lord of Highgarden had in twenty.  -  Tyrion Lannister
