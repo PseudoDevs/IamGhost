@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 12:41:31
-Random Quote: Everyone wants something, Alayne.  And when you know what a man wants you know who he is, and how to move him.  -  Petyr Baelish
+Last updated: 2024-04-08 12:42:04
+Random Quote: If we're together long enough I hope that one day you see yourself like I do. - Kevin
