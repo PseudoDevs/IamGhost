@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 11:43:40
-Random Quote: No one had expected the broken boy to live.  The gods could not kill Bran, no more than I could.  It was a strange thought, and stranger still to remember that Bran might still be alive.  -  Theon Greyjoy
+Last updated: 2024-04-08 11:44:13
+Random Quote: The "no more surprises"-thing is the best part of being married. - Lily Aldrin
