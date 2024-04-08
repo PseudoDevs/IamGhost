@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 13:54:33
-Random Quote: First times are special. Unique. But the last times are beyond comparison. They are priceless. But people don’t know it’s their last time. - Berlin
+Last updated: 2024-04-08 13:55:39
+Random Quote: In the game of thrones, even the humblest pieces have wills of their own.  Sometimes they refuse to make the moves you've planned for them.  Mark that well, Alayne.  It's a lesson that Cersei Lannister still has yet to learn.  -  Petyr Baelish
