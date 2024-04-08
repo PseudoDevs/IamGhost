@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 11:26:26
-Random Quote: Knights?  Dondarrion's a knight, but the rest of you are the sorriest lot of outlaws and broken men I've ever seen.  -  Sandor Clegane
+Last updated: 2024-04-08 11:26:59
+Random Quote: A man will tell you poison is dishonorable, but a woman's honor is different.  The Mother shaped us to protect our children, and our only dishonor is failure.  -  Lysa Arryn
