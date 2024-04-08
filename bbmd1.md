@@ -1,2 +1,2 @@
-Last updated: 2024-04-07 20:34:34
-Random Quote: Robert... he is in my dreams as well.  Laughing.  Drinking.  Boasting.  Those were the things he was best at.  Those, and fighting.  I never bested him at anything.  -  Stannis Baratheon
+Last updated: 2024-04-08 07:12:07
+Random Quote: A bag of dragons buys a man's silence for a while, but a well - placed quarrel buys it forever. 
