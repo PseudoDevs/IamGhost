@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 14:05:46
-Random Quote: The Old Gods have no power in the south.  The weirwoods there were all cut down, thousands of years ago.  -  Osha
+Last updated: 2024-04-08 14:06:19
+Random Quote: Sometimes you gotta do bad things to catch bad people. - Javier Pe�a
