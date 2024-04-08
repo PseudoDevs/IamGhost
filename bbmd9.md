@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 12:58:55
-Random Quote: Marshall: "Lily dream-banged someone we know."Barney: "Okay, you caught me vermilion-handed. The truth is, I've spent the last five years trying to inception your wife."Marshall: "That movie only came out two years ago."Barney: "What movie?" - Barney Stinson
+Last updated: 2024-04-08 12:59:28
+Random Quote: Little did I know that I would be stepping into a nightmare full of mystery, mayhem and murder. I think I'm going to love it here. - Wednesday Addams
