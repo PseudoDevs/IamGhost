@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 11:18:06
-Random Quote: The Lord of Light cherishes the innocent.  There is no sacrifice more precious.  From his king's blood and his untainted fire, a dragon shall be born.  -  Melisandre
+Last updated: 2024-04-08 11:19:22
+Random Quote: Just when you thought things couldn't get any worse, we gotta go to Jersey. - Hulk

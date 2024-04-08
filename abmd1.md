@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 11:18:07
-Random Quote: You're a freak, but what? Do you wanna be normal? Do you wanna be just like everyone else? - Jonathan Byers
+Last updated: 2024-04-08 11:19:22
+Random Quote: There are moments when we must understand that the decisions we make influence more than just our own fates. - 

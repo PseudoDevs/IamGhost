@@ -1,2 +1,3 @@
-Last updated: 2024-04-08 11:18:49
-Random Quote: Speak into the mic, bitch. - Jesse Pinkman
+Last updated: 2024-04-08 11:19:24
+Random Quote: Wyatt Langmore: "This job's my old man's idea. Something about 'calluses and character'."
+Charlotte Byrde: "Yeah, well, you're blowing leaves, not hiding Anne Frank." - Charlotte Byrde
