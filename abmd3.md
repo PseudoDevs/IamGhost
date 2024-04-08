@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 11:58:26
-Random Quote: You don’t want a criminal lawyer. You want a criminal lawyer. - Jesse Pinkman
+Last updated: 2024-04-08 11:59:32
+Random Quote: I know this hurts little buddy, but you'll love again someday. Because time will heal a broken heart, but not that bitch's window. - Barney Stinson
