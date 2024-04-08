@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 07:26:05
-Random Quote: Sometimes people make decisions, shit happens, and we gotta act accordingly. - Marty Byrde
+Last updated: 2024-04-08 07:27:58
+Random Quote: Rickard Karstark killed more than a Frey and a Lannister.  He killed my honor.  -  Robb Stark
