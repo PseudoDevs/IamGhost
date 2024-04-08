@@ -1,4 +1,2 @@
-Last updated: 2024-04-08 12:05:46
-Random Quote: Greef: "Nevarro is a very fine planet. And now that the scum and villainy have been washed away, it's very respectable again."
-Mando: "As a bounty hunter hive?"
-Greef: "Some of my favorite people are bounty hunters." - Greef Karga
+Last updated: 2024-04-08 12:06:19
+Random Quote: As the twig is bent, so grows the tree. - Pacho Herrera
