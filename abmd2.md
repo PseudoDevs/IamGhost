@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 11:27:19
-Random Quote: If you wish to give up on playing, the 25.5 billion won will be sent to the bereaved families of the late players. - Jang Deok-su
+Last updated: 2024-04-08 11:27:55
+Random Quote: Any man who steps between a father and his vengeance asks for death.  -  Rickard Karstark
