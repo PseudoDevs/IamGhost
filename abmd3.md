@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 07:47:44
-Random Quote: Well, I think that... when you have a connection with someone, it never really goes away, you know? - Alex Vause
+Last updated: 2024-04-08 07:48:17
+Random Quote: You are not the guy. You're not capable of being the guy. I had a guy but now I don't. You are not the guy. - Mike Ehrmantraut
