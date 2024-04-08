@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 13:11:14
-Random Quote: Elia Martell, Princess of Dorne.  You raped her!  You murdered her!  You killed her children!  -  Oberyn Martell
+Last updated: 2024-04-08 13:11:48
+Random Quote: Lily, I think we made a mistake moving out to the suburbs. I miss our home. I miss our booth with our friends. And I'm pretty sure I have a drumstick... somewhere bad. - Marshall Eriksen

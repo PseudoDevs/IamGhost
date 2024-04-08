@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 13:11:14
-Random Quote: You and I are opposites but also just the same. Like an image in a mirror. We hate people and they in turn hate us. And fear us. - Chester Campbell
+Last updated: 2024-04-08 13:11:48
+Random Quote: Edric Storm, they call him.  He is said to be the very image of my brother.  If men were to see him, and then look again at Joffrey and Tommen, they could not help but wonder, I would think.  -  Stannis Baratheon
