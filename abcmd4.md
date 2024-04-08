@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 07:27:17
-Random Quote: Lily: "How did you do it?"Barney: "Oh God, you found one of the cameras. I swear that's the only one! Wait, which one did you find?" - Barney Stinson
+Last updated: 2024-04-08 07:27:56
+Random Quote: A true man does what he will, not what he must.  -  Cersei Lannister
