@@ -1,2 +1,3 @@
-Last updated: 2024-04-08 07:42:16
-Random Quote: Even in sin, you can still be a saint. - Don Neto
+Last updated: 2024-04-08 07:42:49
+Random Quote: Mi-nyeo: "Deok-su. You betray me... I'll kill you. Okay?"
+Deok-su: "You're the reason that I think I might die tonight." - Jang Deok-su
