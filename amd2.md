@@ -1,3 +1,2 @@
-Last updated: 2024-04-08 07:18:35
-Random Quote: Freddie Thorne: "What kind of a list would have the name of a communist and the name of a bookmaker side by side?"
-Thomas Shelby: "Perhaps it's a list of men who give false hope to the poor." - Thomas Shelby
+Last updated: 2024-04-08 07:19:09
+Random Quote: Ted: "I could end up marrying this woman; I want our first kiss to be special."Lily: "Oh, that's sweet. So you chickened out like a little bitch?" - Lily Aldrin
