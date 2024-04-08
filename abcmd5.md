@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 07:57:05
-Random Quote: Jon, did you ever wonder why the men of the Night's Watch take no wives and father no children?  So they will not love, for love is the bane of honor, the death of duty.  -  Maester Aemon
+Last updated: 2024-04-08 11:07:30
+Random Quote: The Old Gods have no power in the south.  The weirwoods there were all cut down, thousands of years ago.  -  Osha
