@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 13:07:10
-Random Quote: I can't tell the difference between my waking life and dreams. - Arthur Harrow
+Last updated: 2024-04-08 13:07:43
+Random Quote: Free folk don't follow names, or little cloth animals sewn on a tunic.  They won't dance for coins, they don't care how you style yourself or what that chain of office means or who your grandsire was.  They follow strength.  They follow the man.  -  Mance Rayder
