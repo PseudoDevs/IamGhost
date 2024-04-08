@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 11:46:59
-Random Quote: Best way to catch the smart ones? Get an idiot working for them. - Jaime Kuykendall
+Last updated: 2024-04-08 11:47:34
+Random Quote: Power tastes best when sweetened by courtesy; you had best learn that if you ever hope to rule.  -  Roose Bolton
