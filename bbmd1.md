@@ -1,4 +1,3 @@
-Last updated: 2024-04-08 14:31:34
-Random Quote: Rick: "F you, Summer! And f the government. And f me for letting my car down, which I will never do again."
-Morty: "Jeez, Rick. You can't say FU to your grand-daughter!"
-Rick: "I just did, Morty. Here's dessert: F you!" - Rick Sanchez
+Last updated: 2024-04-08 14:32:07
+Random Quote: Morty: "I have English homework."
+Rick: "You're still learning English? It's the language you speak. How dumb are you?" - Rick Sanchez

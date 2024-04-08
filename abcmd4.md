@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 14:31:00
-Random Quote: They threw him off the goddamn railing. There's no way someone survives that. And yet, here he is. How is that possible? - Eyk Larsen
+Last updated: 2024-04-08 14:32:07
+Random Quote: The men of Westeros are ever rushing.  What good is this, I ask you?  He who hurries through life hurries to his grave.  -  Salladhor Saan
