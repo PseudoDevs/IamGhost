@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 13:35:32
-Random Quote: Sam Healy: "It's popular fiction. It's like global warming or female ejaculation."Piper: "No! No. No, it's not. This is real."Sam Healy: "How is it real? Wait, which?"Piper: "The chicken. And the... the chicken." - Piper Chapman
+Last updated: 2024-04-08 13:36:05
+Random Quote: Colombians say, God made our land so beautiful it was unfair to the rest of the world. So to even the score, God populated the land with a race of evil men. - C� sar Gaviria
