@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 12:14:35
-Random Quote: I never asked for this, no more than I asked to be king.  Yet dare I disregard her?  We do not choose our destinies.  Yet we must... we must do our duty, no?  Great or small, we must do our duty.  -  Stannis Baratheon
+Last updated: 2024-04-08 12:15:08
+Random Quote: There are so many great things to do with the human mouth, why waste it on talking? - Barney Stinson
