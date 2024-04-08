@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 12:50:17
-Random Quote: Robin: "I don't know if we should keep seeing each other."Nick: "You want to start turning off the lights during sex?"Robin: "No. God, no. No! I am just worried that, as a couple, we're not working out."Nick: "You want to start going to the gym together?" - Nick
+Last updated: 2024-04-08 12:50:52
+Random Quote: Turns out, when you projectile vomit on skates, you roll right into the spray. - Ted Mosby
