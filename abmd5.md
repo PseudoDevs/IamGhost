@@ -1,3 +1,2 @@
-Last updated: 2024-04-08 14:51:54
-Random Quote: Morty: "What are they mad at you for, anyway?"
-Rick: "Well, we're talking about me. It could be anything." - Rick Sanchez
+Last updated: 2024-04-08 14:53:03
+Random Quote: It's not even the lies that hurt, you know? It's the fact that you're never really emotionally prepared for someone to leave you. - Rue Bennett
