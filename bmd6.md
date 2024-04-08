@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 12:07:01
-Random Quote: I know you mean well. I know you wanna protect me. You have. And when we're done, we'll go wherever you want. Tommy's, sheep ranch, the moon... I'll follow you anywhere you go. But there's no halfway with this. We finish what we started. - Ellie Williams
+Last updated: 2024-04-08 12:07:35
+Random Quote: Do it. If you ever want to see these boobs again, crawl, you son of a me. - Lily Aldrin
