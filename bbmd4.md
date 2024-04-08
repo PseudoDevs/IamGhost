@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 12:35:56
-Random Quote: Have you ever been told you're different, odd, or simply don't belong? In a world full of normies, do you feel like an outcast? Me too. But I'm pleased to tell you there's a very special place for people like us. Nevermore Academy. - Wednesday Addams
+Last updated: 2024-04-08 12:36:31
+Random Quote: What if everything that came from the past was influenced by the future. - H.G. Tannhaus
