@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 12:59:52
-Random Quote: Barney: "I was having such a good time greasing 12-year-olds."Ted: "LaserTag."Marshall: "Helpful. Continue." - Marshall Eriksen
+Last updated: 2024-04-08 13:01:00
+Random Quote: Knowledge is a weapon, Jon.  Arm yourself well before you ride forth to battle.  -  Maester Aemon
