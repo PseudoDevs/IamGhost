@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 11:29:12
-Random Quote: I know our relationship isn't exactly what you want it to be. And I know I may not love you the way you love me, but I DO love you. Isn't that worth hanging on to? - Robin Scherbatsky
+Last updated: 2024-04-08 11:29:45
+Random Quote: You're Reek.  You'll always be Reek, no matter how sweet you smell.  Your nose may lie to you.  Remember your name.  Remember who you are.  -  Ramsay Bolton
