@@ -1,3 +1,2 @@
-Last updated: 2024-04-08 13:10:04
-Random Quote: Wanda: "I had a brother. His name was Pietro."
-Geraldine: "He was killed by Ultron, wasn't he?" - Monica "Geraldine" Rambeau
+Last updated: 2024-04-08 13:10:38
+Random Quote: You ever touch me again, I will burn your eyes out! - Starlight
