@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 14:21:59
-Random Quote: All the tales agreed that the green men had strange magic powers.  Maybe they could help him walk again, even turn him into a knight.  They turned the little crannogman into a knight, even if it was only for a day, he thought.  A day would be enough.  -  Bran Stark
+Last updated: 2024-04-08 14:22:32
+Random Quote: You know what the happiest animal in the world is? It's a goldfish. It's got a 10 second memory. Be a goldfish! - Rebecca Welton
