@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 11:26:08
-Random Quote: Apart, we're okay. But together we're poison. - Kim Wexler
+Last updated: 2024-04-08 11:26:43
+Random Quote: This is New York City, don't get close to the neighbours. You nod at them politely in the hall, you call the cops if you haven't seen them in a while and you smell something funny and that's it! - Ted Mosby
