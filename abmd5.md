@@ -1,3 +1,2 @@
-Last updated: 2024-04-08 12:11:37
-Random Quote: Joel: "A deep breath in, slow breath out. You squeeze the trigger like you love it. Gentle, steady, nice and slow."
-Ellie: "You gonna shoot this thing or get it pregnant?" - Ellie Williams
+Last updated: 2024-04-08 12:12:10
+Random Quote: The Night's Watch is a sworn brotherhood.  We have no families.  None of us will ever father sons.  Our wife is duty.  Our mistress is honor.  -  Benjen Stark
