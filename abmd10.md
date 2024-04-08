@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 11:48:44
-Random Quote: Brother, you're driving the "I-wanna-have-sex-with-her-truck" and its got a huge blind spot. - Marshall Eriksen
+Last updated: 2024-04-08 11:49:19
+Random Quote: Oberyn was ever the viper.  Deadly, dangerous, unpredictable.  No man dared tread on him.  I was the grass.  Pleasant, complaisant, sweet - smelling, swaying with every breeze.  Who fears to walk upon the grass?  But it is the grass that hides the viper from his enemies and shelters him until he strikes. 
