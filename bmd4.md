@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 12:38:16
-Random Quote: Please.  A sword, that's all I ask.  Let me die as Theon, not as Reek.  -  Theon Greyjoy
+Last updated: 2024-04-08 12:39:26
+Random Quote: Barney: "You avoiding the family too?"James: "I'm gay, I'm black and I'm getting a divorce. Those walking skeletons are gonna have more questions for me than their pharmacists." - James Stinson
