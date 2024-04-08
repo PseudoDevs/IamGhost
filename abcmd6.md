@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 11:29:40
-Random Quote: There is entirely too much tut - tutting in this realm, if you ask me.  All these kings would do a deal better if they put down their swords and listended to their mothers. 
+Last updated: 2024-04-08 11:33:10
+Random Quote: Some things are more important than doing math problems. - Bode Locke
