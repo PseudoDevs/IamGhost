@@ -1,2 +1,3 @@
-Last updated: 2024-04-08 11:20:01
-Random Quote: Jaime and I are more than brother and sister.  We are one person in two bodies.  We shared a womb together.  He came into this world holding my foot, our old maester said.  When he is in me, I feel... whole.  -  Cersei Lannister
+Last updated: 2024-04-08 11:20:39
+Random Quote: Jerry: "Space sperm? Sperm from... space?"
+Rick: "Very impressive verbal forensic work, Jerry." - Rick Sanchez
