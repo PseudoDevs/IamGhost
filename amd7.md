@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 14:02:01
-Random Quote: Pictures can be twisted and used against you and haunt you forever. - Hannah Baker
+Last updated: 2024-04-08 14:02:34
+Random Quote: Kill the boy, Jon Snow.  Winter is almost upon us.  Kill the boy and let the man be born.  -  Aemon Targaryen
