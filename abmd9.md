@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 14:34:57
-Random Quote: Ich love you too. But so what? - Kim Wexler
+Last updated: 2024-04-08 14:36:04
+Random Quote: My uncle Kevan would make a passably good regent if someone pressed the duty on him, but he will never reach for it.  The gods shaped him to be a follower, not a leader.  -  Tyrion Lannister
