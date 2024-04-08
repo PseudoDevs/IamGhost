@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 13:45:33
-Random Quote: Kids, that was the one time I ever lost faith in the idea that my life would be better in three years. And what's funny is, three years from that moment, my life was amazing. - Ted Mosby
+Last updated: 2024-04-08 13:46:06
+Random Quote: You need to figure out what the fuck you want. - Nicky Nichols
