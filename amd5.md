@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 11:10:12
-Random Quote: Oh, this dress is totally going to get me laid on my wedding night. - Lily Aldrin
+Last updated: 2024-04-08 11:10:46
+Random Quote: Ted: "When you leave someone at the altar, you always leave a note. It's common courtesy."Victoria: "I think common courtesy went out the window when I did." - Victoria
