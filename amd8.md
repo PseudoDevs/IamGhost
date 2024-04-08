@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 13:24:42
-Random Quote: Do you know what it is like to be sold, squire?  I do.  My brother sold me to Khal Drogo for the promise of a golden crown.  Well, Drogo crowned him in gold, though not as he had wished, and I... my sun - and
+Last updated: 2024-04-08 13:25:15
+Random Quote: Do not tell me you're gonna start searching for "the one" again. The only time I wanna hear you saying "the one", is if it's followed by the word "hundred". - Barney Stinson
