@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 11:21:17
-Random Quote: Robert was never the same after he put on that crown.  Some men are like swords, made for fighting.  Hang them up and they go to rust.  -  Donal Noye
+Last updated: 2024-04-08 11:21:54
+Random Quote: There is a time to fight and there is a time to be clever. - Pablo Escobar
