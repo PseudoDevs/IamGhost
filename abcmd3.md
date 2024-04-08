@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 11:09:09
-Random Quote: I don't want to die, I've only kissed one boy so far. - Missy
+Last updated: 2024-04-08 11:09:42
+Random Quote: Everyone was yelling stuff.  Hot Pie yelled hot pie.  He must have yelled it a hundred times.  -  Arya Stark
