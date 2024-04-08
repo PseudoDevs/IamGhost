@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 13:26:22
-Random Quote: The plan was to kill you and take the kid. But after what happened last night, I couldn't go through with it. - Greef Karga
+Last updated: 2024-04-08 13:26:56
+Random Quote: Lord Wyman is not the only one who lost kin at your Red Wedding, Frey.  Do you imagine Whoresbane loves you any better?  If you did not hold the Greatjon, he would pull out your entrails and make you eat them, as Lady Hornwood ate her fingers.  Flints, Cerwyns, Tallharts, Slates... they all had men with the Young Wolf.  The North remembers, Frey.  -  Barbrey Dustin
