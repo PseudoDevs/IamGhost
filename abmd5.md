@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 12:57:04
-Random Quote: That's what they do, don't they? They show you the world, and then they tell you you can't have it. - Virginia Wilson
+Last updated: 2024-04-08 12:58:45
+Random Quote: Brandon Stark was never shy about taking what he wanted.  I am old now, a dried - up thing, too long a widow, but I still remember the look of my maiden's blood on his cock the night he claimed me.  I think Brandon liked the sight as well.  A bloody sword is a beautiful thing, yes.  It hurt, but it was a sweet pain. 
