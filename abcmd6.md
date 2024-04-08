@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 11:07:30
-Random Quote: All religion is a foolish answer to a foolish question. - Thomas Shelby
+Last updated: 2024-04-08 11:08:04
+Random Quote: Now you may be asking yourself why is sports icon John McEnroe narrating this tale? It'll make sense later I promise. - John McEnroe
