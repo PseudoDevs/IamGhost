@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 13:07:14
-Random Quote: What do a bunch o' bloody peasants know about a lord's honor?  We know some about murder, though.  -  Lem Lemoncloak
+Last updated: 2024-04-08 13:07:48
+Random Quote: Barney: "On your tombstone, it will be, 'Lily Aldrin. Caring wife. Loving friend. Slapbet-Commissioner.'"Marshall: "And your tombstone will read, 'Got slapped by Marhsall so hard he died.'" - Marshall Eriksen
