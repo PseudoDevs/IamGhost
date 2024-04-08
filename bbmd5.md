@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 13:23:02
-Random Quote: Robin: "He has a book of plays he uses to trick women into sleeping with him."Patrice: "Oh, no way. Barney's my honey bear."Robin: "Actually, one of his plays is called 'The Honey Bear'. He dresses up like Winnie the Pooh, and the next thing you know, his hand's stuck in your pot." - Robin Scherbatsky
+Last updated: 2024-04-08 13:23:35
+Random Quote: Mother of dragons.  Mother of monsters.  What have I unleashed upon the world?  A queen I am, but my throne is made of burned bones, and it rests on quicksand.  Without dragons, how could she hope to hold Mereen, much less win back Westeros?  I am the blood of the dragon.  If they are monsters, so am I.  -  Daenerys Targaryen
