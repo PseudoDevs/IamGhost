@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 12:09:37
-Random Quote: Nobody takes an intro class to get on any other path, but the path to not being hungover anymore. I learned that in my intro to something-ology class. - Marshall Eriksen
+Last updated: 2024-04-08 12:10:10
+Random Quote: One minute we're just laying into each other, and then the next minute... well, same thing. - Ted Mosby
