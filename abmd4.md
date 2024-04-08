@@ -1,5 +1,3 @@
-Last updated: 2024-04-08 07:38:44
-Random Quote: Marshall: "What the hell happened?"
-Barney: "I said no questions asked."
-Marshall: "Star, clover, horseshoe... Barney, did you swallow real versions of all the Lucky Charms items?"
-Barney: "No questions asked! Now come on. Let's hit the bar. I'm buying. I just won 50 bucks from a little Irish guy on a dare." - Barney Stinson
+Last updated: 2024-04-08 07:39:21
+Random Quote: Freddie Thorne: "What kind of a list would have the name of a communist and the name of a bookmaker side by side?"
+Thomas Shelby: "Perhaps it's a list of men who give false hope to the poor." - Thomas Shelby
