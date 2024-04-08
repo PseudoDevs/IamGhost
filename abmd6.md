@@ -1,3 +1,2 @@
-Last updated: 2024-04-08 07:44:55
-Random Quote: Summer: "I think it's in our best interest to work as a team."
-Morty: "Yeah, most people would call that 'family'." - Morty Smith
+Last updated: 2024-04-08 07:45:32
+Random Quote: Rick: "Hey Morty, quick favor."Morty: "What, cover me in gasoline and spiders? Fine, yeah, I'm in."Rick: "Wasn't my first pitch but hey, not gonna waste this opportunity." - Rick Sanchez
