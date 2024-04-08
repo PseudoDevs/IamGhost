@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 15:07:01
-Random Quote: In short, the god mankind has prayed to for thousands of years the god that everything is bound with, this god exists as nothing other than time itself. - 
+Last updated: 2024-04-08 15:07:35
+Random Quote: Larry Bloom: "Are we at least gonna talk about other options?"Piper Chapman: "You mean..."Larry Bloom: "It's not Voldemort, you can say it. Abortion." - Larry Bloom
