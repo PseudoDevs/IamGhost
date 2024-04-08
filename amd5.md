@@ -1,3 +1,2 @@
-Last updated: 2024-04-08 14:28:46
-Random Quote: Weems: "No doubt you'll find something that tickles your fancy."
-Wednesday: "The last person who tickled me lost a finger." - Wednesday Addams
+Last updated: 2024-04-08 14:29:19
+Random Quote: So a guy with cancer can't be an asshole?? Believe me, I speak from experience. - Saul Goodman
