@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 12:34:12
-Random Quote: Celtigar pronounced it admirable.  If I were to show him the contents of my privy he would pronounce that admirable as well.  -  Stannis Baratheon
+Last updated: 2024-04-08 12:34:47
+Random Quote: Gloria: "It seemd like all what we did was fight and make love. One time, I'm not kidding you, we fell out of the window together."Jay: "Which one were you doing?" - Jay Pritchett
