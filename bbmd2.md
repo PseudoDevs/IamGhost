@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 11:48:27
-Random Quote: My daughter has taken an axe for a lover.  I will not have my son bedeck himself like a whore.  It is as I feared.  The green lands have made you soft, and the Starks have made you theirs.  -  Balon Greyjoy
+Last updated: 2024-04-08 11:49:00
+Random Quote: Sometimes it just feels better not to talk. At All. About Anything. To Anyone. - Walter White
