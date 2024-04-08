@@ -1,2 +1,6 @@
-Last updated: 2024-04-08 13:17:36
-Random Quote: Have you seen Mace Tyrell's boy?  The Knight of Flowers, they call him.  Now there's a son any man would be proud to own to.  Last tourney, he dumped the Kingslayer on his golden rump, you ought to have seen the look on Cersei's face.  I laughed till my sides hurt.  -  Robert Baratheon
+Last updated: 2024-04-08 13:18:09
+Random Quote: Morty: "Rick, when you say you made an exact replica of the house, did you mean, like, an exact replica?"
+Rick: "I know about the Yosemite T-Shirt, Morty."
+Morty: "Shit."
+Rick: "You know you can use tissues, right?"
+Morty: "I can't finish without it!" - Morty Smith
