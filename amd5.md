@@ -1,2 +1,3 @@
-Last updated: 2024-04-08 11:26:09
-Random Quote: A mind needs books as a sword needs a whetstone, if it is to keep its edge.  -  Tyrion Lannister
+Last updated: 2024-04-08 11:26:44
+Random Quote: Tommy: "I'll have some men watch her house 'til the danger passes."
+Polly: "'Til the danger passes. That'll be the bloody day." - Polly Gray
