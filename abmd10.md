@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 07:53:01
-Random Quote: Here's the thing, kids: When you believe in people, people come through. - Ted Mosby
+Last updated: 2024-04-08 07:53:39
+Random Quote: Oh, Cersei is lovely to look at, truly, but cold... the way she guards her cunt, you'd think she had all the gold of Casterly Rock between her legs.  -  Robert Baratheon
