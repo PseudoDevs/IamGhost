@@ -1,3 +1,2 @@
-Last updated: 2024-04-08 12:04:35
-Random Quote: Sam: "How do you know about Gandalf?"
-Bucky: "I read 'The Hobbit' in 1937, when it first came out." - Bucky Barnes
+Last updated: 2024-04-08 12:05:09
+Random Quote: What's the difference between peanut butter and jam?You can't peanut butter your dick up someone's ass. - Barney Stinson
