@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 12:17:35
-Random Quote: Shagg, son of Dolf will chop off their manhoods and feed them to the crows.  -  Shagga, son of Dolf
+Last updated: 2024-04-08 12:18:08
+Random Quote: Tequila makes me wanna dance. - Jules Vaughn
