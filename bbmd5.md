@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 14:23:52
-Random Quote: Life is a long journey where maps were drawn by a fool. - Juan Nepomuceno Guerra
+Last updated: 2024-04-08 14:24:25
+Random Quote: She had seen Bronn fight on the high road; it was no accident that he had survived the journey while other men had died.  He moved like a panther, and that ugly sword of his seemed a part of his arm.  -  Catelyn Stark

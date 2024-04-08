@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 14:23:52
-Random Quote: I am the storm, my lord, the first storm, and the last.  -  Euron Greyjoy
+Last updated: 2024-04-08 14:24:25
+Random Quote: Ran: "Mayfeld, he's one of the best triggermen I've ever seen. Former Imperial sharpshooter."Mando: "That's not saying much." - Din Djarin
