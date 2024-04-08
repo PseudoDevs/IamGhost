@@ -1,5 +1,3 @@
-Last updated: 2024-04-08 12:56:39
-Random Quote: Morty: "I'm dying, Rick!"
-Rick: "People who are really dying don't keep bringing it up."
-Morty: "Is that true?"
-Rick: "I don't know. I'm just usually around people that die faster." - Rick Sanchez
+Last updated: 2024-04-08 12:57:12
+Random Quote: Sam: "How do you know about Gandalf?"
+Bucky: "I read 'The Hobbit' in 1937, when it first came out." - Bucky Barnes
