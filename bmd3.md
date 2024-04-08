@@ -1,3 +1,2 @@
-Last updated: 2024-04-08 11:51:29
-Random Quote: Jerry: "Rick! Beth! You love me after all!"
-Rick: "Eh, I love her, she loves you. Those credits don't transfer." - Rick Sanchez
+Last updated: 2024-04-08 11:52:02
+Random Quote: There must always be a Stark in Winterfell.  -  Catelyn Stark
