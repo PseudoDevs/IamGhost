@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 11:34:16
-Random Quote: This is my own private domicile and I will not be harassed…bitch! - Jesse Pinkman
+Last updated: 2024-04-08 11:34:49
+Random Quote: I have served six kings, but here before us lies the greatest man I ever knew.  Lord Tywin wore no crown, yet he was all a king should be.  -  Grand Maester Pycelle
