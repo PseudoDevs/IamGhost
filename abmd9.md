@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 12:22:30
-Random Quote: Jerry: "I wish that shotgun was my penis."Beth: "If it were, you could call me Ernest Hemingway." - Beth Smith
+Last updated: 2024-04-08 12:23:40
+Random Quote: Serve, Obey, Protect.  Simple vows for a simple man.  -  Areo Hotah
