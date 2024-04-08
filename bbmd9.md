@@ -1,2 +1,3 @@
-Last updated: 2024-04-08 13:00:34
-Random Quote: Pardon me, but you really hurt my feelings. - Hannah Baker
+Last updated: 2024-04-08 13:01:06
+Random Quote: Lily: "We're going to Atlantic City to elope - right now!"
+Barney: "Oh, congratulations Lily! Marshall, you're getting married? What the hell?" - Barney Stinson
