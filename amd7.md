@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 14:23:10
-Random Quote: Be careful who you put your faith in. The only people who can betray us, are the ones we trust. - Maria Miller
+Last updated: 2024-04-08 14:24:17
+Random Quote: Not all Mandalorians are bounty hunters. Some of us serve a higher purpose. - Bo-Katan
