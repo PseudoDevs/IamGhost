@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 12:45:55
-Random Quote: You have a passing clever father, Devan.  He makes me wish I had more smugglers in my service.  And fewer lords.  -  Stannis Baratheon
+Last updated: 2024-04-08 12:46:28
+Random Quote: The bad guys need to get lucky every time. The good guys just need to get lucky once. - Steve Murphy
