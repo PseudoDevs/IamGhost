@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 12:38:29
-Random Quote: I'm a criminal, yo. - Jesse Pinkman
+Last updated: 2024-04-08 12:39:02
+Random Quote: Words are like arrows, Arianne.  Once loosed, you cannot call them back.  -  Areo Hotah
