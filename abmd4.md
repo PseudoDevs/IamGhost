@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 07:46:47
-Random Quote: Sometimes it just feels better not to talk. At All. About Anything. To Anyone. - Walter White
+Last updated: 2024-04-08 07:48:41
+Random Quote: You have a passing clever father, Devan.  He makes me wish I had more smugglers in my service.  And fewer lords.  -  Stannis Baratheon

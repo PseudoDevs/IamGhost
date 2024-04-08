@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 07:46:10
-Random Quote: The Stranger: We’re not free in what we do, because we’re not free in what we want. We can’t overcome what’s deep within us. - 
+Last updated: 2024-04-08 07:48:41
+Random Quote: Old gods or new, it makes no matter, no man is so accursed as the kinslayer.  -  Rickard Karstark
