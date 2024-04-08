@@ -1,3 +1,2 @@
-Last updated: 2024-04-08 07:20:57
-Random Quote: Morty: "I don't deserve this. I was just having fun."
-Rick: "So was Jeffrey Dahmer." - Rick Sanchez
+Last updated: 2024-04-08 07:21:34
+Random Quote: Be careful who you put your faith in. The only people who can betray us, are the ones we trust. - Maria Miller
