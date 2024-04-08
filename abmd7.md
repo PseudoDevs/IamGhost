@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 07:31:44
-Random Quote: In the game of thrones, even the humblest pieces have wills of their own.  Sometimes they refuse to make the moves you've planned for them.  Mark that well, Alayne.  It's a lesson that Cersei Lannister still has yet to learn.  -  Petyr Baelish
+Last updated: 2024-04-08 07:32:24
+Random Quote: You and I are opposites but also just the same. Like an image in a mirror. We hate people and they in turn hate us. And fear us. - Chester Campbell
