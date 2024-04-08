@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 13:00:37
-Random Quote: We’re not free in what we do because we’re not free in what we want. We can’t overcome what’s deep within us - The Stranger
+Last updated: 2024-04-08 13:01:09
+Random Quote: 'Damn, you look like hell, Chief."Jim Hopper: "Oh yeah? Well, I looked better than your wife when I left her this morning." - Jim Hopper
