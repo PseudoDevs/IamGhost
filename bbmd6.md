@@ -1,5 +1,2 @@
-Last updated: 2024-04-08 13:55:14
-Random Quote: Marshall: "What the hell happened?"
-Barney: "I said no questions asked."
-Marshall: "Star, clover, horseshoe... Barney, did you swallow real versions of all the Lucky Charms items?"
-Barney: "No questions asked! Now come on. Let's hit the bar. I'm buying. I just won 50 bucks from a little Irish guy on a dare." - Barney Stinson
+Last updated: 2024-04-08 13:55:47
+Random Quote: By "entertainment" they mean "table-shuffle-board", Makramee classes and other non-stimulating activities which are only used in Manhatten to calm down drug-addicts and the criminaly insane. - Robin Scherbatsky
