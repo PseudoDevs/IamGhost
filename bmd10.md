@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 14:15:47
-Random Quote: Listen, Morty. I hate to break it to you, but what people call 'Love' is just a chemical reaction that compells animals to breed. It hits hard, Morty, then it slowly fades. - Rick Sanchez
+Last updated: 2024-04-08 14:16:21
+Random Quote: In my body, where the shame gland should be, there is a second awesome gland. True story! - Barney Stinson
