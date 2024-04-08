@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 15:01:50
-Random Quote: Science fact: Sisters are the worst. - Sheldon Cooper
+Last updated: 2024-04-08 15:02:23
+Random Quote: Once, she had loved Prince Joffrey with all her heart, and admired and trusted his mother, the queen.  They had repaid that love and trust with her father's head.  Sansa would never make that mistake again.  -  Sansa Stark
