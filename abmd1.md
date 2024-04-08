@@ -1,4 +1,2 @@
-Last updated: 2024-04-08 12:05:50
-Random Quote: Oh Il-nam: "As a kid, I'm willing to bet you got spanked a lot."
-Seong Gi-hun: "How did you know?"
-Oh Il-nam: "My son did too. He was just like you, friend." - Oh Il-nam
+Last updated: 2024-04-08 12:06:24
+Random Quote: Why is it always the innocents who suffer most, when you high lords play your game of thrones?  -  Varys
