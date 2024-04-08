@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 12:04:01
-Random Quote: You wear your honor like a suit of armor, Stark.  You think it keeps you safe, but all it does is weigh you down and make it hard for you to move.  -  Petyr Baelish
+Last updated: 2024-04-08 12:04:35
+Random Quote: You poor stupid blind crippled fool.  Must I spell out every little thing for you?  Very well.  Cersei is a lying whore, she's been fucking Lancel and Osmund  Kettleblack and probably Moon Boy for all I know.  And I am the monster they all say I am.  Yes, I killed your vile son.  -  Tyrion Lannister
