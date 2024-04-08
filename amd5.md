@@ -1,2 +1,3 @@
-Last updated: 2024-04-08 14:28:11
-Random Quote: I am Maura Franklin. Born in Morefield. Today is October 19th, 1899. I am not crazy. - Maura Franklin
+Last updated: 2024-04-08 14:28:46
+Random Quote: Weems: "No doubt you'll find something that tickles your fancy."
+Wednesday: "The last person who tickled me lost a finger." - Wednesday Addams
