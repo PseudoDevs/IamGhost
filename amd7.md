@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 12:23:05
-Random Quote: Canada also helped in two world wars and gave the world Neil Young, William Shatner, Leonard Cohen, Pamela Anderson, one quarter of Barney Stinson, instant mashed potatoes and best of all - you. - Barney Stinson
+Last updated: 2024-04-08 12:23:40
+Random Quote: Even if I meet the girl of my dreams right the second, I'm still one night and nine months away, from having a family on my own. And that's assuming the mother of my childern is just a huge slut. - Ted Mosby
