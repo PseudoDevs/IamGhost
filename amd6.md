@@ -1,3 +1,2 @@
-Last updated: 2024-04-08 14:17:30
-Random Quote: This woman has a hold on my heart that I could not break if I wanted to, and there have been times that I wanted to.
-It has been overwhelming and humbling and even painful at times, but I could not stop loving her any more than I could stop breathing. - Barney Stinson
+Last updated: 2024-04-08 14:18:04
+Random Quote: I don't feel so good. It's like my testicals mixed poprocks and soda. - Ted Mosby

@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 14:16:56
-Random Quote: Stannis Baratheon with a grievance was like a mastiff with a bone; he gnawed it down to splinters.  -  Jon Snow
+Last updated: 2024-04-08 14:18:04
+Random Quote: I learned form Set Arthur Dayne, the Sword of the Morning, who could have slain all five of you with his left hand while he was taking a piss with the right.  -  Jaime Lannister
