@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 12:41:08
-Random Quote: The baby slide right out, huh? It's like a 'whoosh', like a waterslide. [Lily screaming] Slightly painful waterslide. - Dr. Sonya
+Last updated: 2024-04-08 12:41:43
+Random Quote: Dance, until your feet hurt. Sing, until your lungs hurt. Act, until you're William Hurt. - Phil Dunphy
