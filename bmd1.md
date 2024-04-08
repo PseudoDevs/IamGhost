@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 11:55:49
-Random Quote: Why is it always the innocents who suffer most, when you high lords play your game of thrones?  -  Varys
+Last updated: 2024-04-08 11:56:24
+Random Quote: Your pain defines who you are but it no longer holds power on you - Noah
