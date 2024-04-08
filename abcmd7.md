@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 15:07:31
-Random Quote: So young.  Though mayhaps this was a blessing.  Had he lived, he would have grown up to be a Frey.  -  Wyman Manderly
+Last updated: 2024-04-08 15:08:05
+Random Quote: There are moments when we must understand that the decisions we make influence more than just our own fates. - Claudia
