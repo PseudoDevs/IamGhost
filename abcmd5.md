@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 11:08:37
-Random Quote: Welcome to the church of MathologyToday I'd like to talk about prime numbers and why they give us joy. - Sheldon
+Last updated: 2024-04-08 11:09:10
+Random Quote: Come with me to the House of the Undying, and you shall drink of truth and wisdom.  -  Pyat Pree
