@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 14:22:13
-Random Quote: In this world, a man must learn to seize whatever gifts the gods chose to send him.  That was a lesson I learned at some cost.  -  The Tattered Prince
+Last updated: 2024-04-08 14:22:46
+Random Quote: You want to be a bounty hunter? Make the best deal for yourself and survive! - Fennec Shand
