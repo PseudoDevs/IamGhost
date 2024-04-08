@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 13:58:31
-Random Quote: Quinn: "In the event of divorce, Miss Garvey shall get full custody of Mr. Stinson's suits."Barney: "Why? What would you do with them?"Quinn: "Nothing. I'd just sit around and watch them go out of style." - Quinn Garvey
+Last updated: 2024-04-08 13:59:04
+Random Quote: The sun is about to set, and we'll be leaving soon. When we return, we're coming in hot. - Din Djarin
