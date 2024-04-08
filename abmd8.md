@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 07:37:30
-Random Quote: There is no such thing as magic, just illusion. Things only change when we change them. But you have to do it skillfully, in secret. Then it seems like magic. - Mikkel Nielsen
+Last updated: 2024-04-08 07:38:07
+Random Quote: Is it your fault that Bronn's an insolent black - hearted rogue?  He's always been an insolent black
