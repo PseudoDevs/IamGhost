@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 14:24:14
-Random Quote: What you have to do is show these suckers what you’re capable of. Show them you’re not scared. - Nairobi
+Last updated: 2024-04-08 14:24:48
+Random Quote: Mitchell: "We didn't just go to Vietnam for pleasure. We kinda have some big news."Jay: "Oh God, if Cam comes out there with boobs, I'm leaving." - Jay Pritchett
