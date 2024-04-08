@@ -1,3 +1,2 @@
-Last updated: 2024-04-08 07:34:28
-Random Quote: Bo-Katan: "You are not a Mandalorian."
-Boba: "Never said I was." - Boba Fett
+Last updated: 2024-04-08 07:35:01
+Random Quote: The more you move up in the world, the more enemies you make. - Rue Bennett
