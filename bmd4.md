@@ -1,2 +1,6 @@
-Last updated: 2024-04-08 12:04:03
-Random Quote: The average American consumes 55 pounds of beef per year. And then there’s Texas, where we can knock that off in a couple of months. Maybe faster if we’re talking about smoked brisket. - Sheldon
+Last updated: 2024-04-08 12:04:39
+Random Quote: You lie to your husband all the time...
+"That shirt looks great on you."
+"I love your mom."
+"I never fantasize about Barney when we're doing it."
+Sound familiar, Pinocchio? - Barney Stinson
