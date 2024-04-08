@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 07:39:02
-Random Quote: Shoot me and tomorrow those names are released. But save a bullet for yourself. Cause the system doesn't like heroes. - Miguel Angel Felix Gallardo
+Last updated: 2024-04-08 07:39:35
+Random Quote: You're wrong.  Need Stark was my gaoler, but my blood is still salt and iron.  -  Theon Greyjoy
