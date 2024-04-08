@@ -1,2 +1,3 @@
-Last updated: 2024-04-08 15:08:14
-Random Quote: I'll help you study. We're gonna stay up all night long. I'm gonna drill you and then we're gonna study. No, seriously. We're gonna do some cramming and then we're gonna study. No, seriously. We're gonna bone up on... - Barney Stinson
+Last updated: 2024-04-08 15:08:48
+Random Quote: Lily: "We're going to Atlantic City to elope - right now!"
+Barney: "Oh, congratulations Lily! Marshall, you're getting married? What the hell?" - Barney Stinson
