@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 07:30:51
-Random Quote: Marshall: "Baby, you're like 20 slutty chicks all rolled into one."Lily: "Sweet-talk is not gonna change my mind!" - Lily Aldrin
+Last updated: 2024-04-08 07:31:24
+Random Quote: It was the white cloak that soiled me, not the other way around.  -  Jaime Lannister
