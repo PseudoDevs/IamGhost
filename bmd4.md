@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 14:52:48
-Random Quote: She's gotta start working on tightening her pussy muscles, 'cause her fiance's dick is so small, it's like a hot dog in a hallway. - Nicky Nichols
+Last updated: 2024-04-08 14:53:21
+Random Quote: The Wall can stop an army, but not a man alone.  -  Mance Rayder
