@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 12:28:00
-Random Quote: I cried my little black heart out. But tears don't fix anything. So I vowed to never do it again. - Wednesday Addams
+Last updated: 2024-04-08 12:28:33
+Random Quote: I have served six kings, but here before us lies the greatest man I ever knew.  Lord Tywin wore no crown, yet he was all a king should be.  -  Grand Maester Pycelle
