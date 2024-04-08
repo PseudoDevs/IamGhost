@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 13:50:28
-Random Quote: Your innocence may be as plain as the scar on your face, but it will not save you.  No more than your father will.  But I might.  Not as your judge.  As your champion.  -  Oberyn Martell
+Last updated: 2024-04-08 13:51:01
+Random Quote: We all wanted to be loved by a man incapable of giving love. - Number Five
