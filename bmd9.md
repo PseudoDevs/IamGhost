@@ -1,3 +1,2 @@
-Last updated: 2024-04-08 07:55:50
-Random Quote: Ellie: "There's not gonna be anything bad in here?"
-Joel: "Just you." - Joel Miller
+Last updated: 2024-04-08 07:56:27
+Random Quote: You don't get to blame your problems on anyone but yourself. - Allison Hargreeves
