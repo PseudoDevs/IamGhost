@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 11:09:44
-Random Quote: Kids, that was the one time I ever lost faith in the idea that my life would be better in three years. And what's funny is, three years from that moment, my life was amazing. - Ted Mosby
+Last updated: 2024-04-08 11:10:17
+Random Quote: Because were baseball, strippers and guns can't help, the only thing that can really heal a broken heart, is time. - Ted Mosby
