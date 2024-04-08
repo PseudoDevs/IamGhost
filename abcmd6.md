@@ -1,3 +1,2 @@
-Last updated: 2024-04-08 13:06:41
-Random Quote: Float like a butterfly, sting like a bee,
-my name is Steven with a V. - Arthur Harrow
+Last updated: 2024-04-08 13:07:15
+Random Quote: The title was but a courtesy due him as a council member; Varys was lord of nothing but the spiderweb, the master of none but his whispers.  -  Catelyn Stark

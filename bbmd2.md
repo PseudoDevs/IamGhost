@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 13:06:41
-Random Quote: Every Halloween I bring a spare costume. In case I strike out with the hottest girl at the party. That way I have a second chance to make a first impression. - Barney Stinson
+Last updated: 2024-04-08 13:07:15
+Random Quote: I guess we all have things we try to hide. But they can't stay hidden forever. - Hannah Baker
