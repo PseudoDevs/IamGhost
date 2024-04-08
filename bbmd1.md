@@ -1,2 +1,3 @@
-Last updated: 2024-04-08 07:28:56
-Random Quote: I don't feel so good. It's like my testicals mixed poprocks and soda. - Ted Mosby
+Last updated: 2024-04-08 07:29:29
+Random Quote: Billy: "Halloween's a magical holiday. All about family, friends, and the thrill of getting to be someone else for a day."
+Tommy: "Wrong! Halloween's about candy. And scaring people, but mostly candy." - Tommy Maximoff
