@@ -1,2 +1,4 @@
-Last updated: 2024-04-08 14:33:49
-Random Quote: God. It's me, Barney. What up? I know we don't talk much, but I know a lot of girls call out your name because of me. Awesome! - Barney Stinson
+Last updated: 2024-04-08 14:34:23
+Random Quote: Morty: "Mom told me she wanted me to stay here to make sure you didn't die."
+Jerry: "Well, you tell your mother that I'm gonna be fine."
+Rick: "Don't train your child to lie, Jerry." - Rick Sanchez

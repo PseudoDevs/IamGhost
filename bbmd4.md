@@ -1,2 +1,3 @@
-Last updated: 2024-04-08 14:33:49
-Random Quote: Aye, and from what I saw of Joffrey, you are as unfit a mother as you are a ruler.  -  Kevan Lannister
+Last updated: 2024-04-08 14:34:23
+Random Quote: Sam: "What's going on in that cyborg brain of yours?"
+Bucky: "You don't wanna know!" - Bucky Barnes
