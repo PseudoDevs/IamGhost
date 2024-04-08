@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 11:49:20
-Random Quote: They'll bend the knee or I'll destroy them.  -  Stannis Baratheon
+Last updated: 2024-04-08 11:50:31
+Random Quote: It's like, I think about sex 24/7, but I don't really know how to do it. In the movies, you always see the girl kiss her way down the guy's body, but then, she moves off-screen. Is she stopping at the penis or kissing all the way to the foot? - Devi Vishwakumar
