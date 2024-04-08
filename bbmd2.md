@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 13:25:02
-Random Quote: I feel like her sobriety is completely dependent on how available I am to her. - Jules Vaughn
+Last updated: 2024-04-08 13:25:35
+Random Quote: For the night is dark and full of terrors.  -  Words of R'hllor

@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 13:25:02
-Random Quote: Asha Greyjoy did not intend to be taken alive.  She would die as she had lived, with an axe in her hand and a laugh upon her lips.  -  Asha Greyjoy
+Last updated: 2024-04-08 13:25:35
+Random Quote: Lily: "How did you do it?"Barney: "Oh God, you found one of the cameras. I swear that's the only one! Wait, which one did you find?" - Barney Stinson
