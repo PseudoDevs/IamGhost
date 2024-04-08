@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 12:08:31
-Random Quote: Past a certain point, all the dates grow hazy and confused, and the clarity of history becomes the fog of legend.  -  Hoster Blackwood
+Last updated: 2024-04-08 12:09:37
+Random Quote: Nobody takes an intro class to get on any other path, but the path to not being hungover anymore. I learned that in my intro to something-ology class. - Marshall Eriksen
