@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 12:23:38
-Random Quote: The truth is, our weakness is the same as anyone’s. It’s people. The people we care about. So I say, cut them loose. For your good and for theirs. That way you’re really bulletproof. - Maeve
+Last updated: 2024-04-08 12:24:12
+Random Quote: You think you're the only one he whispers secrets to?  He gives each of us just enough to convince us that we'd be helpless without him.  -  Cersei Lannister
