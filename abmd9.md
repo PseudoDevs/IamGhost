@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 12:24:15
-Random Quote: None will be free until the old ways are gone forever. - Kuiil
+Last updated: 2024-04-08 12:25:25
+Random Quote: Why is it always the innocents who suffer most, when you high lords play your game of thrones?  -  Varys
