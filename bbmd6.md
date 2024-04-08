@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 11:28:48
-Random Quote: Larry Bloom: "Are we at least gonna talk about other options?"Piper Chapman: "You mean..."Larry Bloom: "It's not Voldemort, you can say it. Abortion." - Larry Bloom
+Last updated: 2024-04-08 11:29:21
+Random Quote: The Mandalorian. His armor alone is worth more than my bounty. - Fennec Shand
