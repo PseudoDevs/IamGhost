@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 12:27:44
-Random Quote: Words are like arrows, Arianne.  Once loosed, you cannot call them back.  -  Areo Hotah
+Last updated: 2024-04-08 12:29:27
+Random Quote: The Old Gods have no power in the south.  The weirwoods there were all cut down, thousands of years ago.  -  Osha
