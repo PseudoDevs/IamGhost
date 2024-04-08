@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 13:25:49
-Random Quote: It was the white cloak that soiled me, not the other way around.  -  Jaime Lannister
+Last updated: 2024-04-08 13:26:22
+Random Quote: The plan was to kill you and take the kid. But after what happened last night, I couldn't go through with it. - Greef Karga
