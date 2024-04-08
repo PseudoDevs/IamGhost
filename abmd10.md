@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 14:54:28
-Random Quote: There is entirely too much tut - tutting in this realm, if you ask me.  All these kings would do a deal better if they put down their swords and listended to their mothers. 
+Last updated: 2024-04-08 14:54:45
+Random Quote: I want you to allow yourself to aknowledge the pain that you so clearly feel. - Fabiola Torres
