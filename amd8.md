@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 13:54:00
-Random Quote: God wasn't protecting you. The kid had shitty aim. - Grace Young
+Last updated: 2024-04-08 13:55:06
+Random Quote: A mind needs books as a sword needs a whetstone, if it is to keep its edge.  -  Tyrion Lannister
