@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 11:12:04
-Random Quote: Rattleshirt, we called him.  Treacherous and bloodthirsty.  If there's honor in him, he hides it down beneath his suit of bones.  -  Jon Snow
+Last updated: 2024-04-08 11:12:39
+Random Quote: Let's have a toast. For the hits life throws our way. With time, they're what make you stronger, young man. - Don Neto
