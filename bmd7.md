@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 14:36:21
-Random Quote: (Love is) pain, horrible pain, that you want again and again. - Sophia Burset
+Last updated: 2024-04-08 14:37:27
+Random Quote: Don Eladio, look into Fring's eyes. There you will see the truth. The Chicken Man hates you. He is our enemy. He plots against us. I demand blood for blood. - Hector Salamanca
