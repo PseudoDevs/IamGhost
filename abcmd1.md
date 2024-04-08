@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 07:41:47
-Random Quote: If you waste time trying to get people to love you, you'll end up the most popular dead man in town.  -  Bronn
+Last updated: 2024-04-08 07:42:25
+Random Quote: The less talk, the better. - Mike Ehrmantraut
