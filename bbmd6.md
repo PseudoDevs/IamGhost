@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 12:10:47
-Random Quote: When Barney overhears that Ted and Robin have a secret to reveal at the wedding reception, he begins to guess what it might be. - Lily Aldrin
+Last updated: 2024-04-08 12:11:20
+Random Quote: It is for my prince to command, for Hotah to obey.  -  Areo Hotah
