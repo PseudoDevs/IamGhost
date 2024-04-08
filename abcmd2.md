@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 15:06:27
-Random Quote: No.  You were the betrayer.  You turned against me, against your own blood.  They cheated me.  Your horsey husband and his stinking savages.  They were cheats and liars.  They promised me a golden crown and gave me this.  -  Viserys Targaryen
+Last updated: 2024-04-08 15:07:01
+Random Quote: I am IRONBORN!  I laugh at death.  -  Victarion Greyjoy

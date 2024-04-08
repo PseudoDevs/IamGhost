@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 15:06:27
-Random Quote: Dragons old and young, true and false, bright and dark.  And you.  A small man with a big shadow, snarling in the midst of it all.  -  Moqorro
+Last updated: 2024-04-08 15:07:01
+Random Quote: The beauty of a moment, is that it's fleeting. - Ted Mosby
