@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 11:08:42
-Random Quote: Tequila makes me wanna dance. - Jules Vaughn
+Last updated: 2024-04-08 11:09:48
+Random Quote: I am Pablo Emilio Escobar Gaviria. My eyes are everywhere. That means you guys can't move a finger in all of Antioquia without me knowing about it. Do you understand? Not a finger. One day, I'm going to be president of the Republic of Colombia. So look, I make deals for a living. Now, you can stay calm and accept my deal, or accept the consequences. - Pablo Escobar
