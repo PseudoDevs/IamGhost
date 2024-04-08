@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 07:44:01
-Random Quote: In short, the god mankind has prayed to for thousands of years the god that everything is bound with, this god exists as nothing other than time itself. - 
+Last updated: 2024-04-08 07:44:34
+Random Quote: The Old Gods have no power in the south.  The weirwoods there were all cut down, thousands of years ago.  -  Osha
