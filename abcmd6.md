@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 14:15:48
-Random Quote: You better go to your room before I give you a smack. Smacking is still an acceptable punishment in many minority cultures. - Nalini Vishwakumar
+Last updated: 2024-04-08 14:16:22
+Random Quote: Alvarez has been paying me for years. But you know what? I would have done it for free, because I hate every last one of you psycho sacks of sh-t! I opened Lalo's gate and I would do it again. And I'm glad what they did to him. He's a soulless pig. I wish I'd killed him with my own hands. And you know what else, Hector? I put you in that chair. Your heart meds? I switched them for sugar pills. You were dead and buried, and I had to watch this as-hole bring you back. So when you are sitting in your sh-tty nursing home, and you're sucking down on your Jell-O night after night for the rest of your life, you think of me, you twisted f-ck! - Ignacio 'Nacho' Varga
