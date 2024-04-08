@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 12:57:27
-Random Quote: There's kids playing hockey in the back. It's like you want us to make fun of you! - Barney Stinson
+Last updated: 2024-04-08 12:58:00
+Random Quote: My father won all the battles.  He killed Prince Rhaegar and took the crown, while your father was hiding under Casterly Rock.  A strong king acts boldly, he doesn't just talk.  -  Joffrey Baratheon
