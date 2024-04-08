@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 14:54:50
-Random Quote: They say the king loved to hunt.  The things we love destroy us every time, lad.  Remember that.  -  Jeor Mormont
+Last updated: 2024-04-08 14:55:23
+Random Quote: I hate kids. They don't drink, they haven't travelled... - Nicky Nichols
