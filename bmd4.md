@@ -1,2 +1,3 @@
-Last updated: 2024-04-08 12:11:34
-Random Quote: Theon found himself wondering if he should say a prayer.  Will the Old Gods hear me if I do?  They were not his gods, had never been his gods.  He was ironborn, a son of Pyke, his god was the Drowned God of the islands... but Winterfell was long leagues from the sea.  It had been a lifetime since any god had heard him.  He did not know who he was, or what he was, why he was still alive, why he had ever been born.  -  Theon Greyjoy
+Last updated: 2024-04-08 12:12:07
+Random Quote: Man: "Hello, sir. Can I talk to you?"
+Gi-hun: "I don't believe in Jesus." - Seong Gi-hun
