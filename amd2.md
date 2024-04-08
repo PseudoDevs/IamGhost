@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 07:38:44
-Random Quote: Barney: "Ted, it's a well-known statistic, that 83% of people, married longer than 6 months, are saving someone on the side."Ted: "Do you know that when you make up a statistic, you always use 83% ?" - Ted Mosby
+Last updated: 2024-04-08 07:39:20
+Random Quote: When a maester donned his collar, he put aside the hope of children, yet Cressen had oft felt a father nonetheless.  Robert, Stannis, Renly: three sons he had raised after the angry sea claimed Lord Steffon.  -  Maester Cressen

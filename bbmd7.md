@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 07:38:44
-Random Quote: The pain is his vessel, desire his compass. It is all that man is capable of. - 
+Last updated: 2024-04-08 07:39:19
+Random Quote: Though I would treasure your friendship, I'm mainly interested in your facility with murder.  And if the day ever comes when you're tempted to sell me out, remember this; whatever their price, I'll beat it.  I like living.  -  Tyrion Lannister
