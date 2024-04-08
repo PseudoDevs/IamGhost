@@ -1,3 +1,2 @@
-Last updated: 2024-04-08 07:29:07
-Random Quote: Gor Koresh: "This is no place for a child."
-Mando: "Wherever I go, he goes. I've been quested to bring him to his kind." - Din Djarin
+Last updated: 2024-04-08 07:29:40
+Random Quote: I don't want to be good. I am going to be great. - Pablo Escobar
