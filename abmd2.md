@@ -1,3 +1,2 @@
-Last updated: 2024-04-08 13:55:44
-Random Quote: Neither one of us are gonna say, "Hey, how's it going?" or "Good to see you!"
-Because it really will be good to see you. - Barney Stinson
+Last updated: 2024-04-08 13:56:17
+Random Quote: Marshall: "If economic sanctions and trade-restrictions aren't enforced, the destruction of the rainforest will continue and over a million species will be wiped out!"Ted: "So you don't want coffee?" - Ted Mosby

@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 13:55:44
-Random Quote: Marshall: "Lily dream-banged someone we know."Barney: "Okay, you caught me vermilion-handed. The truth is, I've spent the last five years trying to inception your wife."Marshall: "That movie only came out two years ago."Barney: "What movie?" - Barney Stinson
+Last updated: 2024-04-08 13:56:17
+Random Quote: Best way to catch the smart ones? Get an idiot working for them. - Jaime Kuykendall
