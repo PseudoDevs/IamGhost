@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 11:12:35
-Random Quote: I never met a real Mandalorian. Heard stories. I know you're good at killing. - Cobb Vanth
+Last updated: 2024-04-08 11:13:13
+Random Quote: For a joke to work, it has to have part of truth and part of pain. - Berlin
