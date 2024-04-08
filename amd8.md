@@ -1,6 +1,2 @@
-Last updated: 2024-04-08 12:54:15
-Random Quote: Polly: "Six."
-John: "Six what?"
-Polly: "Six questions since you walked through that door. Soon you'll have to start being the man with the answers."
-John: "Why?"
-Polly: "Seven." - Polly Gray
+Last updated: 2024-04-08 12:55:57
+Random Quote: I did it for me. I liked it. I was good at it. And... I was really... I was alive. - Walter White
