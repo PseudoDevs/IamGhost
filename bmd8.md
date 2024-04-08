@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 15:11:48
-Random Quote: If you're looking for the word that means caring for someone beyond all rationality and wanting them to have everything they want, no matter how much it destroys you, it's love! - Ted Mosby
+Last updated: 2024-04-08 15:12:22
+Random Quote: Ted: "Everyone has an opinion on how long it takes to recover from a breakup."Lily: "Half the length of the relationship."Marshall: "One week for every month you were together."Robin: "Exactly 10,000 drinks, however long that takes."Barney: "You can't measure something like this in time. There's a series of steps: From her bed to the front door. Bam! Out of there.... next!" - Barney Stinson
