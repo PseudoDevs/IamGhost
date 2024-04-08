@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 12:01:03
-Random Quote: The common people pray for rain, healthy children, and a summer that never ends.  It is no matter to them if the high lords play their game of thrones, so long as they are left in peace.  They never are.  -  Jorah Mormont
+Last updated: 2024-04-08 12:01:38
+Random Quote: When something seems too perfect, it's usually anything but. - Allison Hargreeves
