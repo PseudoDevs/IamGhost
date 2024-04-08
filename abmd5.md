@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 14:05:40
-Random Quote: When I have kids, and I tell them how I met their mother, I'm gonna tell them everything. The whole damn story. - Ted Mosby
+Last updated: 2024-04-08 14:06:13
+Random Quote: I don't have a phone. I refuse to be a slave to technology. - Wednesday Addams
