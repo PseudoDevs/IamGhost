@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 11:25:23
-Random Quote: I only have one rule. For every three 10's you bang, throw a bone to a 5. They're grateful and hard working and let's face it, sometimes you just want to lay there. - Barney Stinson
+Last updated: 2024-04-08 11:25:56
+Random Quote: Kids, you may think your only choices are to swallow your anger or throw it in someone's face, but there's a third option: You can just let it go, and only when you do that is it really gone and you can move forward. - Ted Mosby
