@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 14:47:22
-Random Quote: We have to control this fing world, or it will control you. And if you don't protect yourself, it makes a mess and breaks you. - Miguel Angel Felix Gallardo
+Last updated: 2024-04-08 14:47:57
+Random Quote: Be careful who you put your faith in. The only people who can betray us, are the ones we trust. - Maria Miller
