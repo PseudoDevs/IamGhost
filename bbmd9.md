@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 14:21:25
-Random Quote: We’re wanderers in the darkness. - 
+Last updated: 2024-04-08 14:24:49
+Random Quote: I will not be remembered as Set Arys the Unworthy.  I will not soil my cloak.  -  Arys Oakheart
