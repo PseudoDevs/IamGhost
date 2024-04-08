@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 15:07:08
-Random Quote: Robin: "Our boy's back in the game."Lily: "Thank God, it's been a hundred years since Mosby scored a dame."Marshall: "The last time he saw boobies was the screen-test scene in 'Fame'."Robin: "The last girl he dated, I think 'Righty' was her name." - Robin Scherbatsky
+Last updated: 2024-04-08 15:08:14
+Random Quote: No voting, no debate. It's not a democracy - it's a Rickpublic! - Summer Smith
