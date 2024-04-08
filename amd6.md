@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 13:42:08
-Random Quote: The good thing about relationships is that you finally forget how they started. - Tokyo
+Last updated: 2024-04-08 13:42:42
+Random Quote: Because someday, something will go wrong. It could cost you your life or something worse. And on that day what you can’t be thinking is that you are to be blamed for something you couldn’t control. That’s life. Enjoy it, until the party is over. - Berlin
