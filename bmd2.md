@@ -1,3 +1,2 @@
-Last updated: 2024-04-08 11:15:41
-Random Quote: The good news is, Luke has his bike.
-More good news, I taught some random kid a valuable lesson by stealing his bike. - Phil Dunphy
+Last updated: 2024-04-08 11:16:16
+Random Quote: The biggest case of my life and I'd already lost the jury. I mean, I've heard of "Twelve Angry Men",  but this was more like "Twelve Horny Women". - Marshall Eriksen
