@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 14:28:50
-Random Quote: She had made the mistake of speaking when Set Gregor wanted quiet, so the Mountain had smashed her teeth to splinters with a mailed fist and broken her pretty little nose as well.  He would have done worse, no doubt, if Cersei had not called him down to King's Landing to face the Red Viper's spear.  Jaime would not mourn him.  -  Jaime Lannister
+Last updated: 2024-04-08 14:29:23
+Random Quote: Stella's sister: "I'm a vegan. I wish I could tune out that moral voice inside me, that says eating animals is murder. But I guess I'm just not as strong as you are."Ted: "That's 'cause you need protein. I'll have the lamb." - Ted Mosby
