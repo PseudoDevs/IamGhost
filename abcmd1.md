@@ -1,2 +1,5 @@
-Last updated: 2024-04-08 12:22:26
-Random Quote: I would very much like to return your witty banter, but I am too exhausted to be clever. - Galina 'Red' Reznikov
+Last updated: 2024-04-08 12:22:59
+Random Quote: Bo-Katan: "I haven't seen battle droids since the Clone Wars."
+Din: "I have."
+Bo-Katan: "Any of 'em look suspicious?"
+Din: "They all look suspicious." - Din Djarin
