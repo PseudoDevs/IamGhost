@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 14:52:16
-Random Quote: Which meant for the first time in years, the world was wide open. Because kids, when a door closes... well, you know the rest. - Ted Mosby
+Last updated: 2024-04-08 14:52:49
+Random Quote: For the night is dark and full of terrors.  -  Words of R'hllor
