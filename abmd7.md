@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 14:20:18
-Random Quote: Animal instinct. When faced with danger, seek refuge in the herd. - Seong Gi-hun
+Last updated: 2024-04-08 14:20:51
+Random Quote: A wolf is not a kraken.  What the kraken grasps it does not lose, be it longship or leviathan.  -  Victarion Greyjoy
