@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 12:51:50
-Random Quote: The Empire improves every system it touches. Judge by any metric: safety, prosperity, trade, opportunity, peace. Compare Imperial rule to what is happening right now. Is the world more peaceful since the revolution? I see nothing but death and chaos. - The Client
+Last updated: 2024-04-08 12:52:22
+Random Quote: When you spend years thinking about something obsessively, that something is your whole world, your perfect world. - Tokyo
