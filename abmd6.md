@@ -1,4 +1,2 @@
-Last updated: 2024-04-08 07:52:39
-Random Quote: Ted: "It's freezing out there. Where's your coat?"
-Robin: "Ted, I'm Canadian. I don't need a coat. This kind of weather is nothing for me."
-Marshall: "Yeah. This is like a spring day back in Minnesota." - Marshall Eriksen
+Last updated: 2024-04-08 07:53:12
+Random Quote: Nerds who aren't good at math?Life is going to be rough boys! - Robin Scherbatsky
