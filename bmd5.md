@@ -1,2 +1,3 @@
-Last updated: 2024-04-08 11:41:04
-Random Quote: Just when you thought things couldn't get any worse, we gotta go to Jersey. - Hulk
+Last updated: 2024-04-08 11:42:15
+Random Quote: Morty: "I don't deserve this. I was just having fun."
+Rick: "So was Jeffrey Dahmer." - Rick Sanchez
