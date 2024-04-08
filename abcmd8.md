@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 11:48:45
-Random Quote: If I'm always looking back, I'm never looking ahead. We are who we are because of consequences. You can't live without consequences. - Morty Smith
+Last updated: 2024-04-08 11:49:55
+Random Quote: When you spend years thinking about something obsessively, that something is your whole world, your perfect world. - Tokyo
