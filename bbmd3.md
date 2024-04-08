@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 15:06:34
-Random Quote: Mike: "Where are you going? You just said, 'stick to the plan'."Dustin: "I am. I'm just gonna go get some chocolate pudding." - Dustin Henderson
+Last updated: 2024-04-08 15:07:07
+Random Quote: Mando: "I was not born on Mandalore."Greef Karga: "But you're Mandalorian?"Cara Dune: "Mandalorian isn't a race."Mando: "It's a Creed." - Din Djarin
