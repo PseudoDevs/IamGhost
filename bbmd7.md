@@ -1,2 +1,5 @@
-Last updated: 2024-04-08 15:08:14
-Random Quote: What Colonel Sanders is to chicken, Saul Goodman is to the law. - Saul Goodman
+Last updated: 2024-04-08 15:08:48
+Random Quote: Dina: "You're infuriating."
+Ellie: "Have you met you?"
+Dina: "You make me want to go back outside into that blizzard."
+Ellie: "No one is stopping you." - Joel Miller
