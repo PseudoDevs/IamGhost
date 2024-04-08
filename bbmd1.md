@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 13:26:03
-Random Quote: When you tear out a man's tongue, you are not proving him a liar, you're only telling the world that you fear what he might say.  -  Tyrion Lannister
+Last updated: 2024-04-08 13:26:36
+Random Quote: A bag of dragons buys a man's silence for a while, but a well - placed quarrel buys it forever. 
