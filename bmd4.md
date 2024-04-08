@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 14:04:47
-Random Quote: When the sun rises in the west and sets in the east.  When the seas go dry and mountains blow in the wind like leaves.  When your womb quickens again, and you bear a living child.  Then he will return, and not before.  -  Mirri Maz Duur
+Last updated: 2024-04-08 14:05:20
+Random Quote: Journey to face the unknown and ponder the question, "What if...?" - The Watcher
