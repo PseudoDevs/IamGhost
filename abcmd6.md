@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 12:32:59
-Random Quote: Mike Wheeler: "I'm not prostituting my sister."Lucas Sinclair: "But it's for a good cause." - Lucas Sinclair
+Last updated: 2024-04-08 12:34:10
+Random Quote: Make it easier for those whose vote you can count on. Make it harder for those you can't. That's how you rig an election without leaving a lick of evidence. - Walt Breslin
