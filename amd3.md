@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 14:38:09
-Random Quote: You need to figure out what the fuck you want. - Nicky Nichols
+Last updated: 2024-04-08 14:38:42
+Random Quote: It's only once you've stopped, that you realize how hard it is to start again. So you force yourself not to want it. - Ted Mosby
