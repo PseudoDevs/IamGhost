@@ -1,2 +1,3 @@
-Last updated: 2024-04-08 11:33:10
-Random Quote: The common people pray for rain, healthy children, and a summer that never ends.  It is no matter to them if the high lords play their game of thrones, so long as they are left in peace.  They never are.  -  Jorah Mormont
+Last updated: 2024-04-08 11:33:44
+Random Quote: Men and their d-cks never cease to amaze me. John, Lizzie Stark never did a day's work vertical.
+Brave is going where no man has gone before. And with Lizzie Stark, John, that's not what you'll be doing. - Polly Gray
