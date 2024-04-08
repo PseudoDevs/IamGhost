@@ -1,3 +1,2 @@
-Last updated: 2024-04-08 11:56:13
-Random Quote: Doctor: "Hypothetically speaking, every new father-to-be get nervous."
-Vision: "Well, I have nerves of steel, so there goes your theory, Mr. Doctor." - Vision
+Last updated: 2024-04-08 11:56:46
+Random Quote: It is for my prince to command, for Hotah to obey.  -  Areo Hotah
