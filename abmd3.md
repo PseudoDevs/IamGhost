@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 07:39:34
-Random Quote: The Horned Lord once said that sorcery is a sword without a hilt.  There is no safe way to grasp it.  -  Dalla
+Last updated: 2024-04-08 07:40:07
+Random Quote: Because there's no way watching it can be more fun than playing it yourself. - Oh Il-nam
