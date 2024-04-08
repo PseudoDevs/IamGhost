@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 14:17:29
-Random Quote: I asked him why he kept her close, if he thought her so grotesque.  He said that all his other knights wanted things of him, castles or honors or riches, but all that Brienne wanted was to die for him.  -  Loras Tyrell
+Last updated: 2024-04-08 14:18:03
+Random Quote: Shelly, remember when you thought you had leprosy, and it was just a patch of dry skin? - Mary
