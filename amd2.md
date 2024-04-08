@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 07:22:00
-Random Quote: I'm a criminal, yo. - Jesse Pinkman
+Last updated: 2024-04-08 07:22:33
+Random Quote: I prefer my history dead.  Dead history is writ in ink, the living sort in blood.  -  Rodrik Harlaw
