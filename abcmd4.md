@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 13:37:36
-Random Quote: I don't want to be good. I am going to be great. - Pablo Escobar
+Last updated: 2024-04-08 13:38:44
+Random Quote: Sometimes you gotta do bad things to catch bad people. - Javier Pe�a
