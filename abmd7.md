@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 11:51:20
-Random Quote: Ted: "The road to this day has had a few twists and turns, hasn't it?"Marshall: "Yeah... just a few. In a weird way, it all makes sense though, doesn't it?" - Marshall Eriksen
+Last updated: 2024-04-08 11:51:52
+Random Quote: If you keep all your treasures in one purse, you only make it easier for those who would rob you.  -  Robb Stark
