@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 07:26:21
-Random Quote: Ted, honey, I want you to go outside and bite the curb. I'll be out in a minute. - Lily Aldrin
+Last updated: 2024-04-08 07:26:54
+Random Quote: Phil: "Little heads up - there's no way I'm not crying at this wedding."Claire: "Phil, you cried on the way here."Phil: "I was on the brink already. I watched 'Dirty Dancing' before we left." - Phil Dunphy
