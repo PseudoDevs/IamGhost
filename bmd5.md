@@ -1,2 +1,5 @@
-Last updated: 2024-04-08 07:37:39
-Random Quote: There is only one god, and his name is Death.  And there is only one thing we say to Death: not today.  -  Syrio Forel
+Last updated: 2024-04-08 07:38:13
+Random Quote: Morty: "Mom, I have a friend coming over. Is that cool?"
+Beth: "I told your sister no parties."
+Morty: "It's one friend."
+Beth: "That's a party to you." - Beth Smith
