@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 13:06:05
-Random Quote: Ted: "I thought you said you got rid of everything your ex-boyfriends gave you?"Robin: "Well yeah, but not my dogs."Ted: "You said everything."Robin: "But not living things."Ted: "Tell that to the rare bolivian cactus i threw away!" - Ted Mosby
+Last updated: 2024-04-08 13:06:39
+Random Quote: You're a beautiful, sweet girl. Fuck this guy! - Nicky Nichols
