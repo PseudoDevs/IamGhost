@@ -1,7 +1,2 @@
-Last updated: 2024-04-08 15:12:06
-Random Quote: "Nevermore was founded over 200 years ago to educate outcasts."
-"Students from all walks of life."
-"And death."
-"Our mission is to help each student master their unique abilities. So we offer a full range of extracurricular activities. From painting... to archery."
-"For centuries, notable alumni have roamed these majestic halls, from the master of macabre, Edgar Allan Poe, to personal heroes like Ignatius Itt, and of course, Morticia and Gomez Addams."
-"Our highly trained faculty educate our young outcasts on a wide range of subjects. Everything from werewolf reproduction to Gorgon anatomy." - Larissa Weems
+Last updated: 2024-04-08 15:12:51
+Random Quote: Ted: "As a kid, I was known as a bit of a detective. In fact, when my friend's retainer went missing, the Mosby Boys were put on the case, and it was..."Victoria: "The retainer was in the garbage. The Mosby Boys were you, your sister, and a neighborhood squirrel you thought you had tamed."Ted: "I can't believe Squirrel-lock Holmes turned on us like that, eight weeks of training down the drain." - Ted Mosby
