@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 11:51:42
-Random Quote: I like dogs better than knights... A hound will die for you, but never lie to you.  And he'll look you straight in the face.  -  Sandor Clegane
+Last updated: 2024-04-08 11:52:53
+Random Quote: Robert was never the same after he put on that crown.  Some men are like swords, made for fighting.  Hang them up and they go to rust.  -  Donal Noye
