@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 12:23:01
-Random Quote: Dance, until your feet hurt. Sing, until your lungs hurt. Act, until you're William Hurt. - Phil Dunphy
+Last updated: 2024-04-08 12:23:34
+Random Quote: I'm not sure whose twisted idea it was to put hundreds of adolescents in underfunded schools run by people whose dreams were crushed years ago... but I admire the sadism. - Wednesday Addams
