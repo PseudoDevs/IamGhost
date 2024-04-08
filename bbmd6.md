@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 12:43:26
-Random Quote: I know our relationship isn't exactly what you want it to be. And I know I may not love you the way you love me, but I DO love you. Isn't that worth hanging on to? - Robin Scherbatsky
+Last updated: 2024-04-08 12:44:01
+Random Quote: His blood ran black.  Made him my brother as much as yours.  -  Yoren of the Night's Watch
