@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 13:37:12
-Random Quote: You fight back with your spirit, little one. You stand up for yourself! - Devi Vishwakumar
+Last updated: 2024-04-08 13:37:45
+Random Quote: Why is it always the innocents who suffer most, when you high lords play your game of thrones?  -  Varys
