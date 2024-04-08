@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 14:03:08
-Random Quote: My metabolism is all messed up. See, I can moose down a pint of fudge ripple for a midnight snack and wake up having lost weight. Well, everywhere except for my boobs. So annoying. - Robin Scherbatsky
+Last updated: 2024-04-08 14:03:41
+Random Quote: Ted: "No, seriously Robin, you should get the slap. I mean, you're a great slapper. In fact, I want to study slapping under your tutelage. I want to be your slap-prentice."Robin: "Don't sell yourself short there, Teddy. You're a slapping rock star. Your name should be Eric Slapton." - Robin Scherbatsky
