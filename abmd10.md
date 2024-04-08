@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 13:41:00
-Random Quote: When you're younger, everything feels so permanent. But as you get older, you begin to realize nothing is and everyone you love can drift away. - Rue Bennett
+Last updated: 2024-04-08 13:41:34
+Random Quote: Pictures can be twisted and used against you and haunt you forever. - Hannah Baker
