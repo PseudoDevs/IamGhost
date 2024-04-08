@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 12:24:32
-Random Quote: I swear to you, I was never so alive as when I was winning this throne, or so dead as now that I've won it.  -  Robert Baratheon
+Last updated: 2024-04-08 12:25:05
+Random Quote: The Peaky Blinders. The vicious, merciless gangs who blind those who see and cut out the tongues of those who talk. - Chester Campbell
