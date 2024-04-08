@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 14:04:07
-Random Quote: Some of you cared. None of you cared enough. - Hannah Baker
+Last updated: 2024-04-08 14:05:13
+Random Quote: I dreamed of the man who came today, the one they call Reek.  You and your brother lay dead at his feet, and he was skinning off your faces with a long red blade.  -  Jojen Reed
