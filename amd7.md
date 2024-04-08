@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 07:46:10
-Random Quote: You grew up with actors.  You learned their craft and you learned it well.  I grew up with soldiers.  I learned how to die a long time ago.  -  Eddard Stark
+Last updated: 2024-04-08 07:48:02
+Random Quote: Mitchell: "We didn't just go to Vietnam for pleasure. We kinda have some big news."Jay: "Oh God, if Cam comes out there with boobs, I'm leaving." - Jay Pritchett

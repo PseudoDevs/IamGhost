@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 07:46:48
-Random Quote: Rattleshirt, we called him.  Treacherous and bloodthirsty.  If there's honor in him, he hides it down beneath his suit of bones.  -  Jon Snow
+Last updated: 2024-04-08 07:48:02
+Random Quote: We've always been a trio! We're right up there with Batman and Robin and Alfred. Romeo and Juliet and the apothecary. Salt and pepper and cumin. - Ted Mosby
