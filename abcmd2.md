@@ -1,6 +1,2 @@
-Last updated: 2024-04-08 07:53:12
-Random Quote: When Mom was a groupie in the '70s, her scrambled eggs made her the darling of the MSG loading dock. Lot of songs written about those scrambled eggs:
-ZZ Top's "She's Got Legs"? Originally "She's Got Eggs".
-Led Zeppelin? "Scramble On".
-Steve Miller? "The Yolker".
-If you listen to Pink Floyd's "Dark Side of the Moon" while eating her eggs, it lines up perfectly. - Barney Stinson
+Last updated: 2024-04-08 07:53:46
+Random Quote: Underneath all of those lies is one true thing. One true thing that can support the weight of all the lies in the world, and that's the fact that I love you. - Barney Stinson
