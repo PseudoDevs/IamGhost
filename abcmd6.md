@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 11:45:47
-Random Quote: Financial adviser's not my dream job, but I am taking a fing bite out of the apple. - Bruce Liddell
+Last updated: 2024-04-08 11:46:22
+Random Quote: I was a better smuggler than a knight, he had written to his wife, a better knight than a King's hand, a better King's hand than a husband.  I am so sorry Marya, I have loved you.  Please forgive the wrongs I did you.  -  Davos Seaworth
