@@ -1,2 +1,3 @@
-Last updated: 2024-04-08 14:34:21
-Random Quote: Here's the thing, kids: When you believe in people, people come through. - Ted Mosby
+Last updated: 2024-04-08 14:34:54
+Random Quote: Grace Burgess: "You think I am a wh-re?"
+Tommy Shelby: "Everyone's a wh-re, Grace. We just sell different parts of ourselves." - Thomas Shelby
