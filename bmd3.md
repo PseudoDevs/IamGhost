@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 15:09:56
-Random Quote: I'm not in the meth business. I'm in the empire business. - Walter White
+Last updated: 2024-04-08 15:10:37
+Random Quote: Some battles are won with swords and spears, others with quills and ravens.  -  Tywin Lannister
