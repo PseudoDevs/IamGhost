@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 07:25:11
-Random Quote: Kuiil: "They really don't like you for some reason."Mandalorian: "Well, I did disintegrate a few of them." - Din Djarin
+Last updated: 2024-04-08 07:25:44
+Random Quote: You think you're the only one he whispers secrets to?  He gives each of us just enough to convince us that we'd be helpless without him.  -  Cersei Lannister
