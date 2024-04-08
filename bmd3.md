@@ -1,2 +1,4 @@
-Last updated: 2024-04-08 11:52:35
-Random Quote: Come on, we gotta rally. Make some memories. - Piper Chapman
+Last updated: 2024-04-08 11:53:08
+Random Quote: Joel: "You keep going for family."
+Ellie: "I'm not family?"
+Joel: "No. You're cargo." - Joel Miller
