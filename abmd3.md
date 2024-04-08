@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 12:20:09
-Random Quote: I think sometimes we aren't keeping secrets to hide from other people. I think sometimes we're keeping them to protect those people. - Tony Padilla
+Last updated: 2024-04-08 12:20:44
+Random Quote: Asha Greyjoy did not intend to be taken alive.  She would die as she had lived, with an axe in her hand and a laugh upon her lips.  -  Asha Greyjoy
