@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 12:42:37
-Random Quote: Ted, honey, I want you to go outside and bite the curb. I'll be out in a minute. - Lily Aldrin
+Last updated: 2024-04-08 12:43:10
+Random Quote: Little did I know that I would be stepping into a nightmare full of mystery, mayhem and murder. I think I'm going to love it here. - Wednesday Addams
