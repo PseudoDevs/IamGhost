@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 11:58:41
-Random Quote: Barney: "I'm dating a stripper."Ted: "Yes, I've seen your bus ad." - Ted Mosby
+Last updated: 2024-04-08 11:59:14
+Random Quote: Godless?  Why, Aeron, I am the godliest man ever to raise sail!  You serve one god, Damphair, but I have served ten thousand.  From Ib to Asshai, when men see my sails, they pray.  -  Euron Greyjoy
