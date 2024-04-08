@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 11:18:44
-Random Quote: What Colonel Sanders is to chicken, Saul Goodman is to the law. - Saul Goodman
+Last updated: 2024-04-08 11:19:22
+Random Quote: Nuncle always had a fondness for freaks and fools.  My father used to fight with him about it.  Let the wizards call upon their gods.  The Damphair will call on ours, and drown them.  -  Asha Greyjoy
