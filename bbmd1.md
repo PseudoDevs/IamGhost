@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 13:25:29
-Random Quote: Name one thing in this world that is non negotiable. - Walter White
+Last updated: 2024-04-08 13:26:03
+Random Quote: When you tear out a man's tongue, you are not proving him a liar, you're only telling the world that you fear what he might say.  -  Tyrion Lannister
