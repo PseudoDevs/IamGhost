@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 13:11:00
-Random Quote: I already told you what you can do with your money. You seem like a guy who can take a hint, so what are we doing? - Mike Ehrmantraut
+Last updated: 2024-04-08 13:11:33
+Random Quote: Freeways have exits, so do relationships. The first exit, my personal favourite, is six hours in: You meet, you talk, you have sex, you exit when she's in the shower. - Barney Stinson
