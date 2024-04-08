@@ -1,2 +1,3 @@
-Last updated: 2024-04-08 12:13:35
-Random Quote: You, Vision, are the piece of the Mind Stone that lives in me. You are a body of wires and blood and bone that I created. You are my sadness and my hope. But mostly, you're my love. - Wanda Maximoff
+Last updated: 2024-04-08 12:14:08
+Random Quote: Morty: "What are they mad at you for, anyway?"
+Rick: "Well, we're talking about me. It could be anything." - Rick Sanchez
