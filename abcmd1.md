@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 13:52:26
-Random Quote: You better go to your room before I give you a smack. Smacking is still an acceptable punishment in many minority cultures. - Nalini Vishwakumar
+Last updated: 2024-04-08 13:52:59
+Random Quote: Why is it always the innocents who suffer most, when you high lords play your game of thrones?  -  Varys
