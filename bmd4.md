@@ -1,2 +1,4 @@
-Last updated: 2024-04-08 12:47:24
-Random Quote: That girl was just crying. She's so sad and defenseless... anyone have a condom? - Barney Stinson
+Last updated: 2024-04-08 12:47:57
+Random Quote: Lorna Morello: "I need to start tightening up. You're making me feel like a cave."
+Nicky Nichols: "Baby, it's a c-nt, it stretches!"
+Lorna Morello: "Yeah, sometimes I feel like you're trying to climb inside my womb." - Lorna Morello
