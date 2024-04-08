@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 07:35:40
-Random Quote: My lady, I have seen how you look at my brother.  Loras is valiant and handsome, and we all love him dearly... but your Imp will make a better husband.  He is a bigger man than he seems, I think.  -  Garlan Tyrell
+Last updated: 2024-04-08 11:07:27
+Random Quote: I'm KFC baby - you don't mess with the Colonel's recipe! - Barney Stinson
