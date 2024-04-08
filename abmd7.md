@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 14:27:02
-Random Quote: Penrose chose to die rather than give him up.  It still angers me.  How could he think I would hurt the boy?  I chose Robert, did I not?  When that hard day came, I chose blood over honor.  -  Stannis Baratheon
+Last updated: 2024-04-08 14:27:35
+Random Quote: Love's not always wise, I've learned.  It can lead us to great folly, but we follow our hearts... wherever they take us.  -  Robb Stark
