@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 11:30:48
-Random Quote: We all wear masks. We all pretend. Presenting a perfect illusion on the outside, while we desperately try to hide who we are on the inside. - Ángel
+Last updated: 2024-04-08 11:31:23
+Random Quote: Everyone wants something, Alayne.  And when you know what a man wants you know who he is, and how to move him.  -  Petyr Baelish
