@@ -1,6 +1,2 @@
-Last updated: 2024-04-08 13:22:03
-Random Quote: You lie to your husband all the time...
-"That shirt looks great on you."
-"I love your mom."
-"I never fantasize about Barney when we're doing it."
-Sound familiar, Pinocchio? - Barney Stinson
+Last updated: 2024-04-08 13:23:42
+Random Quote: Ted: "You're like Mary Poppins, if her magic purse was also filled with drugs."Robin: "If? Ted, the kids in that movie jumped into a painting and spent 15 minutes chasing a cartoon fox. Spoonful of sugar? Grow Up!" - Robin Scherbatsky
