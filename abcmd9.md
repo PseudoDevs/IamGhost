@@ -1,3 +1,2 @@
-Last updated: 2024-04-08 11:29:34
-Random Quote: I hired a decorator and I asked him: "What would the inside of Tinkerbell's vagina look like?"
-And the kid just ran with it! - Quinn Garvey
+Last updated: 2024-04-08 11:30:07
+Random Quote: A lie is just a great story that someone ruined with the truth. - Barney Stinson
