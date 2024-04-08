@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 13:50:11
-Random Quote: Even in sin, you can still be a saint. - Don Neto
+Last updated: 2024-04-08 13:50:45
+Random Quote: Why is it always the innocents who suffer most, when you high lords play your game of thrones?  -  Varys
