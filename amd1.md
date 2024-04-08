@@ -1,3 +1,2 @@
-Last updated: 2024-04-08 13:24:42
-Random Quote: Robin: "I can't believe my great grandparents still do that."
-Barney: "And I never imagined a walker being used for anything other than walking." - Barney Stinson
+Last updated: 2024-04-08 13:25:49
+Random Quote: It was the white cloak that soiled me, not the other way around.  -  Jaime Lannister
