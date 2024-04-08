@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 13:29:27
-Random Quote: Shelly, remember when you thought you had leprosy, and it was just a patch of dry skin? - Mary
+Last updated: 2024-04-08 13:30:34
+Random Quote: The Old Gods have no power in the south.  The weirwoods there were all cut down, thousands of years ago.  -  Osha
