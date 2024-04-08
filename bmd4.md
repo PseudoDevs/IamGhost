@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 14:43:57
-Random Quote: Phil: "What a beautiful dress."Gloria: "Thank you, Phil."Phil: "Oh, okay."Claire: "Phil! She said Phil, not feel!" - Claire Dunphy
+Last updated: 2024-04-08 14:44:31
+Random Quote: The best pie you have ever tasted, my lords.  Wash it down with Arbor gold and savor every bite.  I know I shall.  -  Wyman Manderly
