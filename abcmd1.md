@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 11:16:53
-Random Quote: Are you aware, that breaking a broath can have deadly- even fatal repercussions? - Barney Stinson
+Last updated: 2024-04-08 11:17:29
+Random Quote: My old septon used to say that books are dead men talking.  Dead men should keep quiet, is what I say.  No one wants to hear a dead man's yabber.  -  Dolorous Edd Tollett
