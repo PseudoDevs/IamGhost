@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 14:09:39
-Random Quote: Robin: "We're like sisters."Ted: "You've never gotten through even one exchange without screaming at her."Robin: "Sisters fight, Ted!" - Robin Scherbatsky
+Last updated: 2024-04-08 14:10:12
+Random Quote: Why the oldest son, and not the best - fitted?  The crown will suit me, as it never suited Robert and would not suit Stannis. 
