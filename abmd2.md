@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 14:58:02
-Random Quote: Marshall: "Lily, you snooped through her stuff?"Lily: "No, it's like the first thing you see when you jimmy open her desk-drawer with the letter opener her grandfather left her, according to her diary." - Lily Aldrin
+Last updated: 2024-04-08 14:59:42
+Random Quote: As fun as this place is, it's late. So, what's our play? And don't say, "The Siamese Twins", we're not stretching out another one of my jackets! - Ted Mosby
