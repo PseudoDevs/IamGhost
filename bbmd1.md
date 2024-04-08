@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 14:33:48
-Random Quote: I know our relationship isn't exactly what you want it to be. And I know I may not love you the way you love me, but I DO love you. Isn't that worth hanging on to? - Robin Scherbatsky
+Last updated: 2024-04-08 14:34:23
+Random Quote: Might be you fooled these others, crow, but don't think you'll be fooling Mance.  He'll take one look a' you and know you're false.  And when he does, I'll make a cloak o' your wolf there, and open your soft boy's belly and sew a weasel up inside.  -  the Lord of Bones
