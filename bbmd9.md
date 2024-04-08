@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 12:33:36
-Random Quote: No one had expected the broken boy to live.  The gods could not kill Bran, no more than I could.  It was a strange thought, and stranger still to remember that Bran might still be alive.  -  Theon Greyjoy
+Last updated: 2024-04-08 12:34:11
+Random Quote: I'm a good boyfriend in my sleep. I can rock a killer foot rub with one hand and brew a kick-ass pot of chamomile in the other, that would make you weep. Hell, I've forgotten more about microwaving fat-free popcorn and watching Sandra Bullock movies than you'll ever know, but: thanks for your concern, rook! - Marshall Eriksen
