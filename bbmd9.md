@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 11:21:54
-Random Quote: I dreamed of the man who came today, the one they call Reek.  You and your brother lay dead at his feet, and he was skinning off your faces with a long red blade.  -  Jojen Reed
+Last updated: 2024-04-08 11:22:32
+Random Quote: When the sun has set, no candle can replace it.  -  Loras Tyrell
