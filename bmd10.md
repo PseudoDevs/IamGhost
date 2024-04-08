@@ -1,2 +1,3 @@
-Last updated: 2024-04-08 14:30:19
-Random Quote: Freeways have exits, so do relationships. The first exit, my personal favourite, is six hours in: You meet, you talk, you have sex, you exit when she's in the shower. - Barney Stinson
+Last updated: 2024-04-08 14:30:52
+Random Quote: Bo-Katan: "You are not a Mandalorian."
+Boba: "Never said I was." - Boba Fett
