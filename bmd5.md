@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 12:20:09
-Random Quote: A craven's knife can slay a queen as easily as a hero's.  -  Xaro Xhoan Daxos
+Last updated: 2024-04-08 12:23:05
+Random Quote: Some battles are won with swords and spears, others with quills and ravens.  -  Tywin Lannister
