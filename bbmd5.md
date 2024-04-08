@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 13:04:24
-Random Quote: We can only die.  Why else do we don these black cloaks, but to die in defense of the realm?  -  Qhorin Halfhand
+Last updated: 2024-04-08 13:04:58
+Random Quote: We will take them before last night's beer turns to piss. - Chester Campbell
