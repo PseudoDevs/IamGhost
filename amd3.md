@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 13:45:27
-Random Quote: The men of always aren't interested in the children of never. - Pablo Escobar
+Last updated: 2024-04-08 13:46:00
+Random Quote: This is Stannis Baratheon.  The man will fight to the bitter end and then some.  -  Tywin Lannister
