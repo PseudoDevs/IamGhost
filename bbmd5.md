@@ -1,2 +1,3 @@
-Last updated: 2024-04-08 15:15:21
-Random Quote: I only have one rule. For every three 10's you bang, throw a bone to a 5. They're grateful and hard working and let's face it, sometimes you just want to lay there. - Barney Stinson
+Last updated: 2024-04-08 15:15:54
+Random Quote: Weems: "No doubt you'll find something that tickles your fancy."
+Wednesday: "The last person who tickled me lost a finger." - Wednesday Addams
