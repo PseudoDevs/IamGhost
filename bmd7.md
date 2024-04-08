@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 14:58:44
-Random Quote: Imagine you were born in a poor family, in a poor city, in a poor country, and by the time you were 28 years old, you have so much money you can't even count it. What do you do? You make your dreams come true. - Steve Murphy
+Last updated: 2024-04-08 15:00:23
+Random Quote: The men of Westeros are ever rushing.  What good is this, I ask you?  He who hurries through life hurries to his grave.  -  Salladhor Saan

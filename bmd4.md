@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 14:59:50
-Random Quote: Jesus! Just grow some fucking balls! - Walter White
+Last updated: 2024-04-08 15:00:23
+Random Quote: Of course, nobody I knew in East-Texas in 1989 cared about Newtonian Physics. The only Newtons they cared about were Wayne and Fig. - Sheldon Cooper
