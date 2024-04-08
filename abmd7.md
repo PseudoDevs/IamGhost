@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 12:10:37
-Random Quote: Whatever you do in this life, it's not legendary, unless your friends are there to see it. - Barney Stinson
+Last updated: 2024-04-08 12:11:10
+Random Quote: You were supposed to be my wife, to bear me children with silver hair and purple eyes, to keep the blood of the dragon pure.  I took care of you.  I taught you who you were.  I fed you.  I sold our mother's crown to keep you fed.  -  Viserys Targaryen
