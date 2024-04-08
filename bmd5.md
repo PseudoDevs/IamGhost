@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 12:49:43
-Random Quote: The more you give a king, the more he wants.  We are walking on a bridge of ice with an abyss on either side.  Pleasing one king is difficult enough.  Pleasing two is hardly possible.  -  Jon Snow
+Last updated: 2024-04-08 12:50:17
+Random Quote: No one had expected the broken boy to live.  The gods could not kill Bran, no more than I could.  It was a strange thought, and stranger still to remember that Bran might still be alive.  -  Theon Greyjoy
