@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 13:55:12
-Random Quote: The absolute worst part of depression is that even though you know you're depressed, You're unable to stop yourself from getting worse. - Rue Bennett
+Last updated: 2024-04-08 13:56:19
+Random Quote: He is strong with the Force, but talent without training is nothing. I will give my life to protect the child, but he will not be safe until he masters his abilities. - Luke Skywalker
