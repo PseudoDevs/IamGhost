@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 14:38:20
-Random Quote: When you play the game of thrones, you win or you die.  There is no middle ground.  -  Cersei Lannister
+Last updated: 2024-04-08 14:38:54
+Random Quote: If you wish to give up on playing, the 25.5 billion won will be sent to the bereaved families of the late players. - Jang Deok-su
