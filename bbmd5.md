@@ -1,3 +1,2 @@
-Last updated: 2024-04-08 14:02:21
-Random Quote: Weems: "No doubt you'll find something that tickles your fancy."
-Wednesday: "The last person who tickled me lost a finger." - Wednesday Addams
+Last updated: 2024-04-08 14:02:54
+Random Quote: Lily: "Ted, you did this all yourself?"Ted: "Just like Ryan Gosling in 'The Notebook'. It was pretty manly 'til I mentioned Ryan Gosling in 'The Notebook', huh?" - Ted Mosby
