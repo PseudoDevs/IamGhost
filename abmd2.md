@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 13:26:56
-Random Quote: Sandy Rivers: "I don't know what went wrong."Robin: "Well, proposing a three way was bad. Starting without us was worse. Finishing in the hallway was the nail in the coffin." - Robin Scherbatsky
+Last updated: 2024-04-08 13:27:30
+Random Quote: All the tales agreed that the green men had strange magic powers.  Maybe they could help him walk again, even turn him into a knight.  They turned the little crannogman into a knight, even if it was only for a day, he thought.  A day would be enough.  -  Bran Stark
