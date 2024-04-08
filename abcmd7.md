@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 07:46:21
-Random Quote: Hey, want to come to my house and play telephone? I got the string, you got the cans. - Barney Stinson
+Last updated: 2024-04-08 07:46:54
+Random Quote: Rhaegar fought valiantly, Rhaegar fought nobly, and Rhaegar died.  -  Jorah Mormont
