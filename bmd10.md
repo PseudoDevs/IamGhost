@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 14:16:21
-Random Quote: In my body, where the shame gland should be, there is a second awesome gland. True story! - Barney Stinson
+Last updated: 2024-04-08 14:16:55
+Random Quote: Zoey: "Don't worry Ted, she's cute."Barney: "'Cute' means 'fat'!"Zoey: "She's not fat."Barney: "'Not fat' means 'ugly'." - Barney Stinson
