@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 11:49:19
-Random Quote: Because were baseball, strippers and guns can't help, the only thing that can really heal a broken heart, is time. - Ted Mosby
+Last updated: 2024-04-08 11:49:55
+Random Quote: Power resides where men believe it resides... It's a trick, a shadow on the wall.  -  Varys
