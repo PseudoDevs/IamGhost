@@ -1,3 +1,2 @@
-Last updated: 2024-04-08 11:19:11
-Random Quote: This woman has a hold on my heart that I could not break if I wanted to, and there have been times that I wanted to.
-It has been overwhelming and humbling and even painful at times, but I could not stop loving her any more than I could stop breathing. - Barney Stinson
+Last updated: 2024-04-08 11:19:44
+Random Quote: Ah, Arya.  You have a wildness in you, child.  The 'wolf blood', my father used to call it.  Lyanna had a touch of it, and my brother Brandon more than a touch.  It brought them both to an early grave.  Lyanna might have carried a sword, if my lord father had allowed it.  You remind me of her sometimes.  You even look like her.  -  Eddard Stark
