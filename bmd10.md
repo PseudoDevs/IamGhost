@@ -1,3 +1,2 @@
-Last updated: 2024-04-08 14:13:33
-Random Quote: Larissa: "So you automatically assume a Nevermore student is the murderer, even though there's no evidence a crime was even committed."
-Donovan: "I'm sorry. I forgot, you only teach the good outcasts here, right?" - Donovan Galpin
+Last updated: 2024-04-08 14:14:06
+Random Quote: In short, the god mankind has prayed to for thousands of years the god that everything is bound with, this god exists as nothing other than time itself. - 
