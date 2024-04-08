@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 14:18:04
-Random Quote: I learned form Set Arthur Dayne, the Sword of the Morning, who could have slain all five of you with his left hand while he was taking a piss with the right.  -  Jaime Lannister
+Last updated: 2024-04-08 14:18:37
+Random Quote: Sex now, we'll do the foreplay after. - Lily Aldrin
