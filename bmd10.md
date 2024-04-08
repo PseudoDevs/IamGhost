@@ -1,4 +1,2 @@
-Last updated: 2024-04-08 14:15:14
-Random Quote: Stark: "Red, green, blue... who paints a button blue?"
-Carter: "Don't tell me the American playboy needs help pushing buttons."
-Stark: "Hedy Lamarr and I spent a weekend together, but she wasn't teaching me German." - Howard Stark
+Last updated: 2024-04-08 14:15:47
+Random Quote: Listen, Morty. I hate to break it to you, but what people call 'Love' is just a chemical reaction that compells animals to breed. It hits hard, Morty, then it slowly fades. - Rick Sanchez
