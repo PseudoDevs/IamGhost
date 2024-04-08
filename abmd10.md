@@ -1,9 +1,2 @@
-Last updated: 2024-04-08 14:13:37
-Random Quote: If my love were an ocean,
-there would be no more land.
-If my love were a desert,
-you would see only sand.
-If my love were a star-
-late at night, only light.
-And if my love could grow wings,
-I'd be soaring in flight. - Jay Asher
+Last updated: 2024-04-08 14:14:43
+Random Quote: Elia Martell, Princess of Dorne.  You raped her!  You murdered her!  You killed her children!  -  Oberyn Martell
