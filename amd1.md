@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 13:18:33
-Random Quote: The wolf will prove the boy is who we say he is, should the Dreadfort attempt to deny him.  That is my price, Lord Davos.  Smuggle me back my liege lord, and I will take Stannis Baratheon as my king.  -  Wyman Manderly
+Last updated: 2024-04-08 13:19:07
+Random Quote: Have you ever thought that if you could go back in time, you might still make the same decisions? We all make our own snowballs out of our bad decisions. Balls that become massive, like the Indiana Jones boulder, chasing you down-hill only to crush you in the end. - Tokyo

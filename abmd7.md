@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 13:17:26
-Random Quote: Always look people in the eye. Even if they're blind. Just say, 'I am looking you in the eye.' - Phil Dunphy
+Last updated: 2024-04-08 13:19:07
+Random Quote: Rickard Karstark killed more than a Frey and a Lannister.  He killed my honor.  -  Robb Stark
