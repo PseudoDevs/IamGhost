@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 12:15:00
-Random Quote: Hush, Alerie, don't take that tone with me.  And don't call me mother.  If I'd given birth to you, I'm sure I'd remember.  I'm only to blame for your husband, the lord oaf of Highgarden.  -  Olenna Tyrell
+Last updated: 2024-04-08 12:15:34
+Random Quote: I don't want to die, I've only kissed one boy so far. - Missy
