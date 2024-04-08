@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 12:00:27
-Random Quote: You have courage.  Not battle courage perhaps but... I don't know... a kind of woman's courage.  -  Brienne of Tarth
+Last updated: 2024-04-08 12:01:02
+Random Quote: You're mine.  Mine, as I'm yours.  And if we die, we die.  All men must die, Jon Snow.  But first, we'll live.  -  Ygritte
