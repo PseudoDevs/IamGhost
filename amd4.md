@@ -1,2 +1,3 @@
-Last updated: 2024-04-08 07:57:05
-Random Quote: The years pass in their hundreds and their thousands, and what does any man see of life but a few summers, a few winters?  -  Maester Luwin
+Last updated: 2024-04-08 07:57:44
+Random Quote: This woman has a hold on my heart that I could not break if I wanted to, and there have been times that I wanted to.
+It has been overwhelming and humbling and even painful at times, but I could not stop loving her any more than I could stop breathing. - Barney Stinson

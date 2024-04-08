@@ -1,3 +1,2 @@
-Last updated: 2024-04-08 07:57:05
-Random Quote: Morty: "What are they mad at you for, anyway?"
-Rick: "Well, we're talking about me. It could be anything." - Rick Sanchez
+Last updated: 2024-04-08 07:57:44
+Random Quote: Mitchell: "We didn't just go to Vietnam for pleasure. We kinda have some big news."Jay: "Oh God, if Cam comes out there with boobs, I'm leaving." - Jay Pritchett
