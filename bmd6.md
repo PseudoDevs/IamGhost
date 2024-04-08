@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 15:03:08
-Random Quote: Now my bastards presume to teach me courtesy.  I'll speak any way I like, damn you.  I've had three kings to guest in my life, and queens as well, do you think I require lessons from the likes of you, Ryger?  Your mother was milking goats the first time I gave her my seed.  -  Walder Frey
+Last updated: 2024-04-08 15:03:41
+Random Quote: I have sinned and must atone, must parade my shame before the eyes of every beggar in the city.  They think that this will break my pride, that it will make an end to me, but they are wrong.  -  Cersei Lannister
