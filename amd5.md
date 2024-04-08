@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 12:21:59
-Random Quote: Everyone pretend podcasting isn't boring! - Rick Sanchez
+Last updated: 2024-04-08 12:22:33
+Random Quote: Why is it always the innocents who suffer most, when you high lords play your game of thrones?  -  Varys
