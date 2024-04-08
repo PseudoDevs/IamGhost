@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 12:12:45
-Random Quote: Whoever the hell that is. But the Crystal Ship definitely travels. - Jesse Pinkman
+Last updated: 2024-04-08 12:13:53
+Random Quote: Penrose chose to die rather than give him up.  It still angers me.  How could he think I would hurt the boy?  I chose Robert, did I not?  When that hard day came, I chose blood over honor.  -  Stannis Baratheon
