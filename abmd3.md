@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 14:20:19
-Random Quote: Tell the Crow's Eye he's afraid of kinslaying and he'll murder one of his own sons just to prove you wrong.  -  Asha Greyjoy
+Last updated: 2024-04-08 14:20:52
+Random Quote: Dear, in the end, love is what makes us see life in another color, and lately, you have only seen everything black. - Mariví Fuentes
