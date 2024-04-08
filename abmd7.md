@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 14:46:49
-Random Quote: Maybe people are nostalgic about high school 'cause it's, like, the last time in their life that they get to dream. - Cassie Howard
+Last updated: 2024-04-08 14:47:22
+Random Quote: Why didn't you say this to me when I was alive? - Hannah Baker
