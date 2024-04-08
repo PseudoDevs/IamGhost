@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 12:44:36
-Random Quote: The end is the beginning, and the beginning is the end - 
+Last updated: 2024-04-08 12:45:11
+Random Quote: Gloria: "It seemd like all what we did was fight and make love. One time, I'm not kidding you, we fell out of the window together."Jay: "Which one were you doing?" - Jay Pritchett
