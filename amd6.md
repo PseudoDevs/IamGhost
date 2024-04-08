@@ -1,3 +1,2 @@
-Last updated: 2024-04-08 14:11:20
-Random Quote: Ellie: "Everybody I've cared for, either died or left me."
-Joel: "You have no idea what loss is." - Joel Miller
+Last updated: 2024-04-08 14:11:54
+Random Quote: It wasn't the violence that scared her. It was the fact that she knew no matter what he did, she'd still love him. - Rue Bennett
