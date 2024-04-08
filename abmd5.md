@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 13:35:53
-Random Quote: Larry Bloom: "Are we at least gonna talk about other options?"Piper Chapman: "You mean..."Larry Bloom: "It's not Voldemort, you can say it. Abortion." - Larry Bloom
+Last updated: 2024-04-08 13:36:27
+Random Quote: I'd ask what you're up to, Klaus, but then it occurred to me: I don't care. - Number Five
