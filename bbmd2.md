@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 11:42:50
-Random Quote: Looks like somebody suffered from premature slapulation. - Marshall Eriksen
+Last updated: 2024-04-08 11:43:25
+Random Quote: Godless?  Why, Aeron, I am the godliest man ever to raise sail!  You serve one god, Damphair, but I have served ten thousand.  From Ib to Asshai, when men see my sails, they pray.  -  Euron Greyjoy
