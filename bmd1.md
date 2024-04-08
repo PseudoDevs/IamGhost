@@ -1,2 +1,3 @@
-Last updated: 2024-04-08 11:46:45
-Random Quote: If you don't like where you're heading, there's no shame in going back and changing your path. - Chuck McGill
+Last updated: 2024-04-08 11:47:18
+Random Quote: Summer: "Someone out there is trying to kill us."
+Rick: "Someone's always trying to kill us." - Rick Sanchez
