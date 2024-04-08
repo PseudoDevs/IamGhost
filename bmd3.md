@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 07:20:20
-Random Quote: Archeology. One big mess of obsessive bookworms. - Arthur Harrow
+Last updated: 2024-04-08 07:20:57
+Random Quote: A hall to die in, and men to bury me.  I thank you, my lords... but I spit on your pity... I am a knight... I shall die a knight.  -  Barristan Selmy
