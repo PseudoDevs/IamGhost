@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 15:09:17
-Random Quote: You can never tell with men. They go for whoever their dcks point at and there's no changing their minds. - Polly Gray
+Last updated: 2024-04-08 15:10:38
+Random Quote: I think it passing odd that I am loved by one for a kindness I never did, and reviled by so many for my finest act.  -  Jaime Lannister
