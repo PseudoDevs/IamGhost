@@ -1,2 +1,3 @@
-Last updated: 2024-04-08 12:13:19
-Random Quote: I guess, if we're splitting hairs, then technically... there was a plurality to the times I've lied to women for sex-having-purposes. - Barney Stinson
+Last updated: 2024-04-08 12:13:52
+Random Quote: Bo-Katan: "You are not a Mandalorian."
+Boba: "Never said I was." - Boba Fett
