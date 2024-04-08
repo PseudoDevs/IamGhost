@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 13:14:03
-Random Quote: I told you once, there are old sellswords and there are bold sellswords, but there are no old bold sellswords.  -  Brown Ben Plumm
+Last updated: 2024-04-08 13:14:37
+Random Quote: Beware, Thor, for thy brother shall free himself from our father's wrath And then shall you know the vengeance of Loki! - Thor
