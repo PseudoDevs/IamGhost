@@ -1,3 +1,2 @@
-Last updated: 2024-04-08 12:12:06
-Random Quote: Grace: "I had the phone put in. It's in the back."
-Tommy: "If we knew someone else who had a phone, we could call them." - Thomas Shelby
+Last updated: 2024-04-08 12:12:39
+Random Quote: What we know is a drop. What we don’t know is an ocean - 
