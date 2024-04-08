@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 07:29:53
-Random Quote: Sounds like you guys need to 'Clear Everything,' 'Subtract' the negativity and 'Add' some perspective. - How I Met Your Mother
+Last updated: 2024-04-08 07:30:29
+Random Quote: So I will only ask you once, Lord Snow.  Are you a brother of the Night's Watch, or a bastard boy who wants to play at war?  -  Jeor Mormont
