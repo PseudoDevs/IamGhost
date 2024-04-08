@@ -1,2 +1,6 @@
-Last updated: 2024-04-08 12:24:38
-Random Quote: I have served six kings, but here before us lies the greatest man I ever knew.  Lord Tywin wore no crown, yet he was all a king should be.  -  Grand Maester Pycelle
+Last updated: 2024-04-08 12:25:11
+Random Quote: Morty: "Rick, when you say you made an exact replica of the house, did you mean, like, an exact replica?"
+Rick: "I know about the Yosemite T-Shirt, Morty."
+Morty: "Shit."
+Rick: "You know you can use tissues, right?"
+Morty: "I can't finish without it!" - Morty Smith
