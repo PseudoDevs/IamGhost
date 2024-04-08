@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 12:05:49
-Random Quote: Things never work out the way you imagine they will. - Lucien
+Last updated: 2024-04-08 12:06:25
+Random Quote: This is the one that you saved? You are as its father. A clan of two. But you have removed your helmet. Then you are a Mandalorian no more. - The Armorer
