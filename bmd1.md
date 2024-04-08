@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 15:14:31
-Random Quote: Eight years ago I made an ass of myself chasing after you and I made an ass of myself chasing after you a bunch of times since then. And I have no regrets because it led me to something I wouldn't trade for the world, it led to you being my friend. So as your friend and a leading expert in the field of making an ass of yourself. I say to you, from the heart, get the hell out of this car! - Ted Mosby
+Last updated: 2024-04-08 15:15:06
+Random Quote: We all know what my brother would do.  Robert would gallop up to the gates of Winterfell alone, break them with his warhammer, and ride through the rubble to slay Roose Bolton with his left hand and the Bastard with his right.  I am no Robert.  But we will march, and we will free Winterfell... or die in the attempt.  -  Stannis Baratheon
