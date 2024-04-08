@@ -1,3 +1,2 @@
-Last updated: 2024-04-08 11:21:17
-Random Quote: Planetina: "Your acid rain is an acid pain... in the butt, Diesel Wiesel!"
-Rick: "Yikes! Who's the chick in need of a dialogue pass?" - Rick Sanchez
+Last updated: 2024-04-08 11:22:32
+Random Quote: Do not tell me you're gonna start searching for "the one" again. The only time I wanna hear you saying "the one", is if it's followed by the word "hundred". - Barney Stinson
