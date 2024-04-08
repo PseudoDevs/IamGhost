@@ -1,2 +1,3 @@
-Last updated: 2024-04-08 11:14:48
-Random Quote: I know the poison that my father used, and there is none slower or more agonizing.  Soon we may hear the Mountain screaming, even here in Sunspear.  -  Tyene Sand
+Last updated: 2024-04-08 11:15:21
+Random Quote: What do you call a fish with no eyes?
+Fsh. - Marshall Eriksen
