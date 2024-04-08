@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 07:17:11
-Random Quote: You shouldn't like things because people tell you you're supposed to. - Jonathan Byers
+Last updated: 2024-04-08 07:17:45
+Random Quote: The Red God has his due, sweet girl, and only death may pay for life.  This girl took three that were his.  This girl must give three in their places.  Speak the names, and a man will do the rest.  -  Jaqen H'ghar
