@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 14:01:20
-Random Quote: There are moments when we must understand that the decisions we make influence more than just our own fates. - 
+Last updated: 2024-04-08 14:02:59
+Random Quote: Cara: "It's gonna break his little heart."Mando: "He'll get over it. We all do." - Din Djarin
