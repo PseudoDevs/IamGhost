@@ -1,6 +1,2 @@
-Last updated: 2024-04-08 15:14:54
-Random Quote: Beth: "Do you want homeless people to have homes?"
-Jerry: "Yes."
-Beth: "Are you gonna build them?"
-Jerry: "No."
-Beth: "Then what good was the 'yes'?" - Beth Smith
+Last updated: 2024-04-08 15:15:27
+Random Quote: Sheldon, faith means believing in something you can't know for sure is realAnd right now, I am struggling with that. - Mary
