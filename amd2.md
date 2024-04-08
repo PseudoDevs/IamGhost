@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 11:48:09
-Random Quote: That was the night I was born. I rose like a phoenix from her mentholated bosom and strode into the world, Armani-clad and fully awesome. - Barney Stinson
+Last updated: 2024-04-08 11:49:18
+Random Quote: We just don't wanna rush anything, okay? We decided to wait, until she decides to let me have sex with her. - Barney Stinson
