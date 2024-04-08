@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 11:57:34
-Random Quote: She's gotta start working on tightening her pussy muscles, 'cause her fiance's dick is so small, it's like a hot dog in a hallway. - Nicky Nichols
+Last updated: 2024-04-08 11:58:09
+Random Quote: I hate kids. They don't drink, they haven't travelled... - Nicky Nichols
