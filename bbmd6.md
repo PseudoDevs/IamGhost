@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 13:18:33
-Random Quote: My skin has gone from porcelain, to ivory, to steel.  -  Sansa Stark
+Last updated: 2024-04-08 13:19:07
+Random Quote: When you play the game of thrones, you win or you die.  There is no middle ground.  -  Cersei Lannister
