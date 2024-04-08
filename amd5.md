@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 07:13:40
-Random Quote: Don't knock long-distance relationships, I really think they can work. I'm juggling four right now. There's Lisa in Madrid, there's Erica in Tokyo, there's Laura in Denmark. And Kelly on 34th street. The last thinks I'm a humble sheep-shearer from Kelani. - Barney Stinson
+Last updated: 2024-04-08 07:14:16
+Random Quote: Marshall: "You're really telling me, that when you watch 'The Karate Kid', you don't root for Daniel-san?"Barney: "Nope."Ted: "Who do you root for in 'Die Hard'?"Barney: "Hans Gruber. Charming international bandit. At the end, he died hard. He's the title character."Lily: "Okay, 'The Breakfast Club'?"Barney: "The teacher running detention. He's the only guy in the whole movie wearing a suit."Robin: "I got one. 'Terminator'."Barney: "What's the name of the movie, Robin? Who among us didn't shed a tear when his little red eye went out at the end, and he didn't get to kill these people?" - Barney Stinson
