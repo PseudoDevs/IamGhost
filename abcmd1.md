@@ -1,2 +1,5 @@
-Last updated: 2024-04-08 11:33:46
-Random Quote: The most beautiful woman in the world has urgent need of my axe.  -  Victarion Greyjoy.
+Last updated: 2024-04-08 11:34:23
+Random Quote: Bo-Katan: "I haven't seen battle droids since the Clone Wars."
+Din: "I have."
+Bo-Katan: "Any of 'em look suspicious?"
+Din: "They all look suspicious." - Din Djarin
