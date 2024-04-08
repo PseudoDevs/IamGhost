@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 11:08:00
-Random Quote: I'd ask what you're up to, Klaus, but then it occurred to me: I don't care. - Number Five
+Last updated: 2024-04-08 11:08:33
+Random Quote: Master Mott said Thoros could outdrink even King Robert.  They were pease in a pod, he told me, both gluttons and sots.  -  Gendry
