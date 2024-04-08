@@ -1,2 +1,3 @@
-Last updated: 2024-04-08 14:03:28
-Random Quote: Power resides where men believe it resides... It's a trick, a shadow on the wall.  -  Varys
+Last updated: 2024-04-08 14:04:01
+Random Quote: Dragon: "My name is Balthromaw. Breaker of skies, slayer of mountain."
+Rick: "Rule 1: You're now scooper of your own poops, or I will take you down like the black-light poster you are." - Rick Sanchez
