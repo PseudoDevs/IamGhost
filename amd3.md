@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 14:42:00
-Random Quote: Any man who steps between a father and his vengeance asks for death.  -  Rickard Karstark
+Last updated: 2024-04-08 14:42:33
+Random Quote: I am the storm, my lord, the first storm, and the last.  -  Euron Greyjoy
