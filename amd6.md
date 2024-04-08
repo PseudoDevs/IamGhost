@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 12:52:29
-Random Quote: When something seems too perfect, it's usually anything but. - Allison Hargreeves
+Last updated: 2024-04-08 12:53:02
+Random Quote: Because you're so broken you don't even trust yourself. And that's scary. - Nate Jacobs
