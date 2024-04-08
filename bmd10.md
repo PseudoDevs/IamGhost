@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 11:26:44
-Random Quote: Winter will never come for the likes of us.  Should we die in battle, they will surely sing of us, and it's always summer in the songs.  In the songs all knights are gallant, all maids are beautiful, and the sun is always shining.  -  Brienne of Tarth
+Last updated: 2024-04-08 11:27:19
+Random Quote: Why is it always the innocents who suffer most, when you high lords play your game of thrones?  -  Varys

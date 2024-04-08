@@ -1,3 +1,2 @@
-Last updated: 2024-04-08 11:26:44
-Random Quote: Tommy: "I'll have some men watch her house 'til the danger passes."
-Polly: "'Til the danger passes. That'll be the bloody day." - Polly Gray
+Last updated: 2024-04-08 11:27:19
+Random Quote: The Citadel took my chain, but they could not take my knowledge.  -  Qyburn
