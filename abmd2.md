@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 13:59:03
-Random Quote: I dreamed of the man who came today, the one they call Reek.  You and your brother lay dead at his feet, and he was skinning off your faces with a long red blade.  -  Jojen Reed
+Last updated: 2024-04-08 13:59:36
+Random Quote: Do you still trust people? Even after what you've been through? - Oh Il-nam
