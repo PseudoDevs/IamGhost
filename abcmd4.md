@@ -1,2 +1,3 @@
-Last updated: 2024-04-08 07:14:19
-Random Quote: What you have to do is show these suckers what you’re capable of. Show them you’re not scared. - Nairobi
+Last updated: 2024-04-08 07:14:54
+Random Quote: Peter Parker: "Splitting up? Do you guys just not have horror movies in Wakanda?"
+Okoye: "We don't need them. We have American reality shows." - Okoye
