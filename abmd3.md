@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 14:16:23
-Random Quote: If I got serious with Nora, it would be like if Mother Teresa focused all her attention on one really hot orphan. With great penis comes great responsibility. - Barney Stinson
+Last updated: 2024-04-08 14:16:56
+Random Quote: A family is like a small business. And with a small business, at times, there comes a bit of transition. - Marty Byrde
