@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 14:29:19
-Random Quote: So a guy with cancer can't be an asshole?? Believe me, I speak from experience. - Saul Goodman
+Last updated: 2024-04-08 14:29:52
+Random Quote: You give me one hour of phone-free bro time, during which we, and by we I mean you, get magnificently, mythologically drunk. I'm talking needing-subtitles-when-you-speak drunk. - Barney Stinson

@@ -1,2 +1,3 @@
-Last updated: 2024-04-08 14:28:46
-Random Quote: The storms come and go, waves crash overhead, the big fish eat the little fish, and I keep on paddling.  -  Varys
+Last updated: 2024-04-08 14:29:52
+Random Quote: Mi-nyeo: "Deok-su. You betray me... I'll kill you. Okay?"
+Deok-su: "You're the reason that I think I might die tonight." - Jang Deok-su
