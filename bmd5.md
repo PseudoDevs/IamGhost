@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 07:13:12
-Random Quote: All the decisions we made in the past leads us inexorably into the future. - Tokyo
+Last updated: 2024-04-08 07:13:46
+Random Quote: Come with me to the House of the Undying, and you shall drink of truth and wisdom.  -  Pyat Pree
