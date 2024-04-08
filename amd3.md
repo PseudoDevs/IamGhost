@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 12:07:36
-Random Quote: I only have one rule. For every three 10's you bang, throw a bone to a 5. They're grateful and hard working and let's face it, sometimes you just want to lay there. - Barney Stinson
+Last updated: 2024-04-08 12:08:46
+Random Quote: Any time, a girl wants to get back at her ex-bodyfriends, we'll be there.Any time, a girl wants to solve her father-issues through promiscuity and binge drinking we will be there.Any time a bachelorette party drives through the city in a limo, sticking their heads out the sunroof, shouting 'what's up New York?', we will be what is 'up' New York! - Barney Stinson

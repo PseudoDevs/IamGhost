@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 12:08:11
-Random Quote: Ted: "Want to know what I looked like at age 15? There it is."Robin: "I don't get it, that guy wasn't masturbating."Barney: "Yeah, and the waistband of his undies wasn't pulled up to his Cub Scouts neckerchief." - Robin Scherbatsky
+Last updated: 2024-04-08 12:08:46
+Random Quote: Your innocence may be as plain as the scar on your face, but it will not save you.  No more than your father will.  But I might.  Not as your judge.  As your champion.  -  Oberyn Martell
