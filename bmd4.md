@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 12:12:39
-Random Quote: Piper: "Not every Hispanic person wants the same thing."Lorna: "Oh, sure they do. They all want to come to America."Nicky: "Jesus, your entire world view is based on 'West Side Story', isn't it?" - Nicky Nichols
+Last updated: 2024-04-08 12:13:12
+Random Quote: I will put you under the jail. - Hank Schrader
