@@ -1,3 +1,2 @@
-Last updated: 2024-04-08 07:20:30
-Random Quote: Bro, bro, bro your broat, gently to the bar
-Hit on sluts, then do ten shots and... - Barney Stinson
+Last updated: 2024-04-08 07:21:04
+Random Quote: A wolf is not a kraken.  What the kraken grasps it does not lose, be it longship or leviathan.  -  Victarion Greyjoy
