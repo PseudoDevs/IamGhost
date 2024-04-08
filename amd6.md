@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 14:43:58
-Random Quote: Get the keys and remove those chains from him, before you make me rue the day I raped your mother.  -  Roose Bolton
+Last updated: 2024-04-08 14:44:31
+Random Quote: Folly and desperation are ofttimes hard to tell apart.  -  Maester Luwin
