@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 07:38:42
-Random Quote: I have people waiting for me. They don't know what I do, they never will. They're protected. But I do what I do so they can have a better life. And if I live or if I die, it really doesn't make a difference to me as long as they have what they need. So when it's my time to go, I will go knowing I did everything I could for them. Now, you ask me how I keep going? That's how. - Mike Ehrmantraut
+Last updated: 2024-04-08 07:39:19
+Random Quote: Here's what's gonna happen. One day you're gonna wake up, eat your breakfast, brush your teeth, go about your business. And sooner or later, you're gonna realize you haven't thought about it. None of it. And that's the moment you realize you can forget. When you know that's possible, it all gets easier. - Mike Ehrmantraut
