@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 14:10:46
-Random Quote: Presumptuous... that's a good thing, right? - Dustin Henderson
+Last updated: 2024-04-08 14:11:19
+Random Quote: Roose Bolton's cold and cunning, aye, but a man can deal with Roose.  We've all known worse.  But this bastard son of his... they say he's mad and cruel, a monster.  -  Locke
