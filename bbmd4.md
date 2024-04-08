@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 11:23:08
-Random Quote: Barney: "Or it's a chance to mess with her head by showing up with someone hotter. Even better. Triple-threat: hotter and bigger boobs."Ted: "That's only two?"Barney: "Count again!" - Barney Stinson
+Last updated: 2024-04-08 11:23:44
+Random Quote: The common people pray for rain, healthy children, and a summer that never ends.  It is no matter to them if the high lords play their game of thrones, so long as they are left in peace.  They never are.  -  Jorah Mormont
