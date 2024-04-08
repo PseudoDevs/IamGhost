@@ -1,3 +1,2 @@
-Last updated: 2024-04-08 07:55:09
-Random Quote: Wanda: "I had a brother. His name was Pietro."
-Geraldine: "He was killed by Ultron, wasn't he?" - Monica "Geraldine" Rambeau
+Last updated: 2024-04-08 07:55:48
+Random Quote: I have been called many things, my lord, byt kind is seldom one of them.  -  Maester Aemon
