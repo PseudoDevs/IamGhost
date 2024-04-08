@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 15:04:20
-Random Quote: Penrose chose to die rather than give him up.  It still angers me.  How could he think I would hurt the boy?  I chose Robert, did I not?  When that hard day came, I chose blood over honor.  -  Stannis Baratheon
+Last updated: 2024-04-08 15:04:53
+Random Quote: I'm a simple man making his way through the galaxy. Like my father before me. - Boba Fett
