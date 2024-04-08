@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 15:08:03
-Random Quote: Did you know that if gravity were slightly more powerful, the universe would collapse into a ball? - Sheldon
+Last updated: 2024-04-08 15:08:38
+Random Quote: Some people wander around their whole lives looking for a way out, but there’s only one path and it leads you ever deeper. - 
