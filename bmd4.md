@@ -1,3 +1,2 @@
-Last updated: 2024-04-08 11:59:57
-Random Quote: Aimee: "Did you know you need, like, sugar and flour and an oven to bake? And you don't shove it all in, you have to follow alle these rules."
-Maeve: "Yeah, it's called a recipe." - Maeve Wiley
+Last updated: 2024-04-08 12:00:31
+Random Quote: She had seen Bronn fight on the high road; it was no accident that he had survived the journey while other men had died.  He moved like a panther, and that ugly sword of his seemed a part of his arm.  -  Catelyn Stark
