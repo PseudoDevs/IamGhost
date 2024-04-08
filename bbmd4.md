@@ -1,3 +1,2 @@
-Last updated: 2024-04-08 12:52:37
-Random Quote: Journalist: "Mr. Stark, were you injured in the attack?"
-Tony Stark: "No, but I did spill my drink, and it was a '26 Macallan, so I'm pretty sure that's a war crime." - Iron Man
+Last updated: 2024-04-08 12:53:10
+Random Quote: I'm from Minnesota, where there's plenty hot-dogs for everyone. Perhaps even too many... - Marshall Eriksen
