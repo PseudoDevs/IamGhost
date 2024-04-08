@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 12:15:01
-Random Quote: Barney: "I'm dating a stripper."Ted: "Yes, I've seen your bus ad." - Ted Mosby
+Last updated: 2024-04-08 12:16:08
+Random Quote: I have worked at the downfall of Tywin Lannister since the day they told me of Elia and her children.  -  Doran Martell

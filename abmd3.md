@@ -1,2 +1,4 @@
-Last updated: 2024-04-08 12:15:01
-Random Quote: The last play you'll ever run. - Barney Stinson
+Last updated: 2024-04-08 12:16:08
+Random Quote: Rebecca: "So, I spoke to the owner of The Sun."
+Ted: "You spoke to God?!"
+Rebecca: "No, the newspaper." - Rebecca Welton
