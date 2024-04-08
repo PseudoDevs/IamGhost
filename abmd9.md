@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 14:58:36
-Random Quote: When something seems too perfect, it's usually anything but. - Allison Hargreeves
+Last updated: 2024-04-08 14:59:09
+Random Quote: Grey Wind ate two of his fingers, and he laughed about it.  -  Robb Stark on Greatjon Umber
