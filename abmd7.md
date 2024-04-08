@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 12:13:22
-Random Quote: People are oblivious to reality. They only see what they want to see, when all they have to do is shift their perspective to see the full scope of things. - Yuk Je
+Last updated: 2024-04-08 12:13:55
+Random Quote: Airport Security: "How did you get that through the X-Ray machine?"Barney: "No questions from the audience, please!" - Barney Stinson
