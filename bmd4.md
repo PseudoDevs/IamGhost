@@ -1,4 +1,2 @@
-Last updated: 2024-04-08 12:47:57
-Random Quote: Lorna Morello: "I need to start tightening up. You're making me feel like a cave."
-Nicky Nichols: "Baby, it's a c-nt, it stretches!"
-Lorna Morello: "Yeah, sometimes I feel like you're trying to climb inside my womb." - Lorna Morello
+Last updated: 2024-04-08 12:48:30
+Random Quote: When you hit rock bottom, you still have a way to go until the abyss. - Tokyo
