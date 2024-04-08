@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 13:48:27
-Random Quote: There are so many great things to do with the human mouth, why waste it on talking? - Barney Stinson
+Last updated: 2024-04-08 13:49:01
+Random Quote: The men of Westeros are ever rushing.  What good is this, I ask you?  He who hurries through life hurries to his grave.  -  Salladhor Saan
