@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 12:23:40
-Random Quote: Friends... they tell each other things. Things that parents don't know. - Mike Wheeler
+Last updated: 2024-04-08 12:25:59
+Random Quote: I dreamed of the man who came today, the one they call Reek.  You and your brother lay dead at his feet, and he was skinning off your faces with a long red blade.  -  Jojen Reed
