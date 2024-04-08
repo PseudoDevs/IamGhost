@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 14:55:53
-Random Quote: Lucas: "Do you think she's acting weird?"Dustin: "You're asking if the weirdo is acting weird?" - Dustin Henderson
+Last updated: 2024-04-08 14:56:26
+Random Quote: Death, he knew, but slow.  I still have time.  A year.  Two years.  Five.  Some stone men live for ten.  Time enough to cross the sea, to see Griffin's Roost again.  To end the Usurper's line for good and all, and put Rhaegar's son upon the Iron Throne.  Then Lord Jon Connington could die content.  -  Jon Connington
