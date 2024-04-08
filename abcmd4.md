@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 13:18:11
-Random Quote: You have to be as bad as them above in order to survive. - Polly Gray
+Last updated: 2024-04-08 13:18:44
+Random Quote: Maybe people are nostalgic about high school 'cause it's, like, the last time in their life that they get to dream. - Cassie Howard
