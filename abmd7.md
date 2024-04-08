@@ -1,9 +1,2 @@
-Last updated: 2024-04-08 11:40:28
-Random Quote: If my love were an ocean,
-there would be no more land.
-If my love were a desert,
-you would see only sand.
-If my love were a star-
-late at night, only light.
-And if my love could grow wings,
-I'd be soaring in flight. - Jay Asher
+Last updated: 2024-04-08 11:41:04
+Random Quote: Hey, ref, check your voicemail! I think you've missed a few calls! - Ted Mosby
