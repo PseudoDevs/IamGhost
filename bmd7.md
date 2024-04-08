@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 12:47:20
-Random Quote: Barney: "Before you know it, you'll be marrying a man who once ate a vanilla-scented candle!"Robin: "That was on me. I shouldn't have left it in the kitchen. Though, it was lit. Man, he dumb." - Robin Scherbatsky
+Last updated: 2024-04-08 12:47:54
+Random Quote: Talking to a woman that you have already had sex with, is like changing the oil on a rental car! - Barney Stinson
