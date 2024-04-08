@@ -1,4 +1,2 @@
-Last updated: 2024-04-08 13:39:52
-Random Quote: Joel: "You keep going for family."
-Ellie: "I'm not family?"
-Joel: "No. You're cargo." - Joel Miller
+Last updated: 2024-04-08 13:42:08
+Random Quote: The good thing about relationships is that you finally forget how they started. - Tokyo
