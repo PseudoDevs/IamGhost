@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 14:14:41
-Random Quote: I have a tender spot in my heart for cripples, bastards, and broken things.  -  Tyrion Lannister
+Last updated: 2024-04-08 14:15:15
+Random Quote: I thought you where vomit-free since nintythree... so that was a lie? - Marshall Eriksen
