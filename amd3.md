@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 12:07:01
-Random Quote: If you think this has a happy ending, you haven't been paying attention.  -  Ramsay Bolton
+Last updated: 2024-04-08 12:07:36
+Random Quote: I only have one rule. For every three 10's you bang, throw a bone to a 5. They're grateful and hard working and let's face it, sometimes you just want to lay there. - Barney Stinson
