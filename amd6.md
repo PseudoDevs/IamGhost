@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 11:32:34
-Random Quote: From experience, it often takes a new perspective before one is able to see the light. - Elia Kane
+Last updated: 2024-04-08 11:33:10
+Random Quote: The common people pray for rain, healthy children, and a summer that never ends.  It is no matter to them if the high lords play their game of thrones, so long as they are left in peace.  They never are.  -  Jorah Mormont
