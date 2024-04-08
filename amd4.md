@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 07:19:50
-Random Quote: It is R'hllor who brings you back, my lord.  The Lord of Light.  I am only his instrument.  -  Thoros of Myr
+Last updated: 2024-04-08 07:20:23
+Random Quote: Why is it always the innocents who suffer most, when you high lords play your game of thrones?  -  Varys
