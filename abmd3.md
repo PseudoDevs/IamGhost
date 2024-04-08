@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 13:21:11
-Random Quote: There are moments when we must understand that the decisions we make influence more than just our own fates. - Claudia
+Last updated: 2024-04-08 13:21:44
+Random Quote: The truth is always there, whether we see it or not - whether we choose to or not. The truth doesn't care about our needs or wants. It doesn't care about our governments, our ideologies, our religions. - Valery Legasov
