@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 15:14:47
-Random Quote: There is a time to fight and there is a time to be clever. - Pablo Escobar
+Last updated: 2024-04-08 15:15:21
+Random Quote: I only have one rule. For every three 10's you bang, throw a bone to a 5. They're grateful and hard working and let's face it, sometimes you just want to lay there. - Barney Stinson
