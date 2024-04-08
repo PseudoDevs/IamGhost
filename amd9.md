@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 11:18:44
-Random Quote: Aye, and from what I saw of Joffrey, you are as unfit a mother as you are a ruler.  -  Kevan Lannister
+Last updated: 2024-04-08 11:20:39
+Random Quote: Geniuses are always branded as crazy. - Pablo Escobar
