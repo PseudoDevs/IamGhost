@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 13:26:56
-Random Quote: Enjoy your mai-tai, because soon you will be wearing my tie! - Marshall Eriksen
+Last updated: 2024-04-08 13:27:29
+Random Quote: I asked him why he kept her close, if he thought her so grotesque.  He said that all his other knights wanted things of him, castles or honors or riches, but all that Brienne wanted was to die for him.  -  Loras Tyrell
