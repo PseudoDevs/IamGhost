@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 12:32:24
-Random Quote: They get in your head. People tell lies about you, and other people believe them. And it gets to the point where the lies might as well be the truth. - Tyler Down
+Last updated: 2024-04-08 12:32:59
+Random Quote: Ted: "I hate how you're always right."Lily: "It's my best, and most annoying, trait." - Lily Aldrin
