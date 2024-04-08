@@ -1,2 +1,3 @@
-Last updated: 2024-04-08 13:03:54
-Random Quote: Then odds are he'll be near a settlement, probably close to another city out there. Ain't too many of 'em in Wyoming. - Joel Miller
+Last updated: 2024-04-08 13:04:27
+Random Quote: Morty: "I don't deserve this. I was just having fun."
+Rick: "So was Jeffrey Dahmer." - Rick Sanchez
