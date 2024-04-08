@@ -1,3 +1,3 @@
-Last updated: 2024-04-08 13:51:16
-Random Quote: Lily: "I can't believe I unloaded like that on a high-school senior."
-Robin: "I can't believe a high-school senior unloaded like that on me." - Robin Scherbatsky
+Last updated: 2024-04-08 13:51:49
+Random Quote: Billy: "Halloween's a magical holiday. All about family, friends, and the thrill of getting to be someone else for a day."
+Tommy: "Wrong! Halloween's about candy. And scaring people, but mostly candy." - Tommy Maximoff
