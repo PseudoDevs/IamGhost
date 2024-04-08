@@ -1,5 +1,2 @@
-Last updated: 2024-04-08 13:59:39
-Random Quote: Morty: "Mom, I have a friend coming over. Is that cool?"
-Beth: "I told your sister no parties."
-Morty: "It's one friend."
-Beth: "That's a party to you." - Beth Smith
+Last updated: 2024-04-08 14:00:13
+Random Quote: Just keep your nose out of my business and up the teacher's butt where it usually is. - Devi Vishwakumar
