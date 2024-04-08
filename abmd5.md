@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 07:36:05
-Random Quote: The title was but a courtesy due him as a council member; Varys was lord of nothing but the spiderweb, the master of none but his whispers.  -  Catelyn Stark
+Last updated: 2024-04-08 07:36:38
+Random Quote: Best-available idea doesn't make something a good idea. - Kinsey Locke
