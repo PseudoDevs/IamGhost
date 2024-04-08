@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 11:23:46
-Random Quote: I prefer my history dead.  Dead history is writ in ink, the living sort in blood.  -  Rodrik Harlaw
+Last updated: 2024-04-08 11:24:58
+Random Quote: Young or old, a true knight is sworn to protect those who are weaker than himself, or die in the attempt.  -  Brienne of Tarth
