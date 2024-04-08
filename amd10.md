@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 14:54:41
-Random Quote: He would see this country burn if he could be king of the ashes.  -  Varys
+Last updated: 2024-04-08 14:55:15
+Random Quote: All men are fools, if truth be told, but the ones in motley are more amusing than the ones with crowns.  -  Olenna Tyrell
