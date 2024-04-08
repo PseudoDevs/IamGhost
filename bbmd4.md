@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 12:00:00
-Random Quote: Old stories are like old friends, Old Nan used to say.  You have to visit them from time to time.  -  Bran Stark
+Last updated: 2024-04-08 12:00:33
+Random Quote: I never met a real Mandalorian. Heard stories. I know you're good at killing. - Cobb Vanth
