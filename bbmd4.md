@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 15:08:48
-Random Quote: Sometimes a truce is the most important part of a war. - Professor
+Last updated: 2024-04-08 15:09:21
+Random Quote: She had seen Bronn fight on the high road; it was no accident that he had survived the journey while other men had died.  He moved like a panther, and that ugly sword of his seemed a part of his arm.  -  Catelyn Stark
