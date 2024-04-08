@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 12:22:29
-Random Quote: Nymeria was least dangerous when nearly naked.  Elsewise she was sure to have a dozen blades concealed about her person.  -  Areo Hotah
+Last updated: 2024-04-08 12:23:04
+Random Quote: Sex now, we'll do the foreplay after. - Lily Aldrin
