@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 12:17:16
-Random Quote: Mitchell: "we've decided we really wanted to have a baby so, we initially asked one of our lesbian friends to be a surrogate."Cameron: "Then we figured, they already mean enough, can you imagine one of them pregnant?" - Cameron Tucker
+Last updated: 2024-04-08 12:17:51
+Random Quote: I’m not saying it’s not bad. It’s bad. But it could be worse. - Saul Goodman
