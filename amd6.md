@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 14:53:37
-Random Quote: Did you think your dad was the only Mandalorian? - Bo-Katan
+Last updated: 2024-04-08 14:54:12
+Random Quote: At first, these keys were fun, but now we know they're more than that. They're important. They're part of our family and we need to protect them. - Bode Locke
