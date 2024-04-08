@@ -1,2 +1,3 @@
-Last updated: 2024-04-08 11:51:05
-Random Quote: Desperation Day has come and gone and you have neither gone nor come. - Robin Scherbatsky
+Last updated: 2024-04-08 11:51:40
+Random Quote: Weems: "No doubt you'll find something that tickles your fancy."
+Wednesday: "The last person who tickled me lost a finger." - Wednesday Addams
