@@ -1,2 +1,4 @@
-Last updated: 2024-04-08 11:13:31
-Random Quote: I put up a good fight but I lost. For the first time, but not the last. - Rue Bennett
+Last updated: 2024-04-08 11:14:04
+Random Quote: Ellie: "Can I have a gun?"
+Joel: "Absolutely not."
+Ellie: "Okay, Jesus. Fine. I'll have to throw a f-ckin' sandwich at them." - Ellie Williams
