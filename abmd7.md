@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 14:24:14
-Random Quote: Frustration and boredom are great motivators to seek out other pleasures. Human behavior is quite predictable. - Virginia Wilson
+Last updated: 2024-04-08 14:24:48
+Random Quote: If you had to fall into a woman's arms, my son, why couldn't they have been Margaery Tyrell's?  -  Catelyn Stark
