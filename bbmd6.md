@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 11:27:09
-Random Quote: Robert could piss in a cup and men would call it wine, but I offer them cold clear water and they squint in suspicion and mutter to each other about how queer it tastes.  -  Stannis Baratheon
+Last updated: 2024-04-08 11:27:42
+Random Quote: You're my free pass... bitch! - Jesse Pinkman
