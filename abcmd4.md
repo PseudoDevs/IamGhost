@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 11:51:40
-Random Quote: What is dead may never die, but rises again, harder and stronger  -  Words of the Drowned God
+Last updated: 2024-04-08 11:52:15
+Random Quote: The stone is strong... the roots of the trees grow deep, and under the ground the Kings of Winter sit their thrones.  So long as those remained, Winterfell remained.  It was not dead, just broken.  Like me... I'm not dead either.  -  Bran Stark
