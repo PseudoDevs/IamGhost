@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 15:07:35
-Random Quote: Larry Bloom: "Are we at least gonna talk about other options?"Piper Chapman: "You mean..."Larry Bloom: "It's not Voldemort, you can say it. Abortion." - Larry Bloom
+Last updated: 2024-04-08 15:08:09
+Random Quote: Since when do vegans eat fried chicken? - Hank Schrader
