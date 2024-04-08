@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 11:30:27
-Random Quote: The men of always aren't interested in the children of never. - Pablo Escobar
+Last updated: 2024-04-08 11:31:00
+Random Quote: Birds are lost, messages stolen or sold... there are things I might tell you of that eunuch that would chill your blood...  -  Grand Maester Pycelle
