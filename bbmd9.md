@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 11:30:50
-Random Quote: Our power comes from the perception of our power. - Mikhail Gorbachev
+Last updated: 2024-04-08 11:32:00
+Random Quote: There are worse ways to die than warm and drunk.  I knew a brother drowned himself in wine once.  It was a poor vintage, though, and his corpse did not improve it.  -  Dolorous Edd Tollett
