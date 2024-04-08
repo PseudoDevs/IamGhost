@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 13:43:52
-Random Quote: Young or old, a true knight is sworn to protect those who are weaker than himself, or die in the attempt.  -  Brienne of Tarth
+Last updated: 2024-04-08 13:44:25
+Random Quote: A true man does what he will, not what he must.  -  Cersei Lannister
