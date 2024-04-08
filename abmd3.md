@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 07:52:59
-Random Quote: You have to be as bad as them above in order to survive. - Polly Gray
+Last updated: 2024-04-08 07:53:36
+Random Quote: I have worked at the downfall of Tywin Lannister since the day they told me of Elia and her children.  -  Doran Martell
