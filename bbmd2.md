@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 12:41:42
-Random Quote: I'm from Minnesota, where there's plenty hot-dogs for everyone. Perhaps even too many... - Marshall Eriksen
+Last updated: 2024-04-08 12:42:16
+Random Quote: If you die before you say her name, Set, I will hunt you through the seven hells.  -  Oberyn Martell
