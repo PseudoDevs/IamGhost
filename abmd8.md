@@ -1,2 +1,3 @@
-Last updated: 2024-04-08 12:08:46
-Random Quote: I like her. She makes you try new things, it's good for you. I'm serious - you seem less afraid when you're with her. I like it and it also makes me kind of sad. - Hannah Baker
+Last updated: 2024-04-08 12:10:29
+Random Quote: Weems: "No doubt you'll find something that tickles your fancy."
+Wednesday: "The last person who tickled me lost a finger." - Wednesday Addams
