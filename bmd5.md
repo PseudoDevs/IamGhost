@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 13:12:54
-Random Quote: I'd say hump her brain out, but somebody obviously already has. - Ted Mosby
+Last updated: 2024-04-08 13:13:28
+Random Quote: I will not be remembered as Set Arys the Unworthy.  I will not soil my cloak.  -  Arys Oakheart
