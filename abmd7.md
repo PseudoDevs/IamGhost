@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 07:44:17
-Random Quote: I'm not in the meth business. I'm in the empire business. - Walter White
+Last updated: 2024-04-08 07:44:54
+Random Quote: I was weaned on venom, Dalt.  Any viper takes a bite of me will rue it.  -  Gerold Dayne
