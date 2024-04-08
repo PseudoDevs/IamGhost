@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 14:55:55
-Random Quote: Oh, boy, so you actually learned something today? What is this, Full House? - Rick Sanchez
+Last updated: 2024-04-08 14:57:01
+Random Quote: When a maester donned his collar, he put aside the hope of children, yet Cressen had oft felt a father nonetheless.  Robert, Stannis, Renly: three sons he had raised after the angry sea claimed Lord Steffon.  -  Maester Cressen
