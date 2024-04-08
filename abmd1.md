@@ -1,3 +1,2 @@
-Last updated: 2024-04-08 07:48:02
-Random Quote: Woman: "You know this isn't Vegas, right?"
-Robin: "Well sure, in Vegas the casinos pump in oxygen, in Atlantic City it looks like everyone brought their own." - Robin Scherbatsky
+Last updated: 2024-04-08 07:48:38
+Random Quote: Do you know how much I make a year? I mean, even if I told you, you wouldn't believe it. - Walter White
