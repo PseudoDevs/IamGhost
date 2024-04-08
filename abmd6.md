@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 11:57:19
-Random Quote: If ever a man deserved to die screaming, it was Gregor Clegane.  -  Doran Martell
+Last updated: 2024-04-08 11:57:52
+Random Quote: The children are gone from the world, and their wisdom with them.  It had to do with the faces in the trees, we think.  The First Men believed that the greenseers could see through the eyes of the weirwoods.  That was why they cut down the trees whenever they warred upon the children.  Supposedly the greenseers also had the power over the beasts of the wood and the birds in the trees.  Even fish.  -  Maester Luwin
