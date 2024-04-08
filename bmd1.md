@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 13:45:36
-Random Quote: Larry: "Where would you like me to put it then, Piper?"Piper: "Up your ass."Larry: "There's no room. Apparently, my head's already up there." - Larry Bloom
+Last updated: 2024-04-08 13:46:10
+Random Quote: There's something that I need to ask you and I want you to be honest with me. Why do white people like Carrot Top? - Barney Stinson
