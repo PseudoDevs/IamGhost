@@ -1,5 +1,2 @@
-Last updated: 2024-04-08 12:30:12
-Random Quote: Dina: "You're infuriating."
-Ellie: "Have you met you?"
-Dina: "You make me want to go back outside into that blizzard."
-Ellie: "No one is stopping you." - Joel Miller
+Last updated: 2024-04-08 12:31:18
+Random Quote: I was pretending to be someone I am not which I should only be doing on stage. - Devi Vishwakumar
