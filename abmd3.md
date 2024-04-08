@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 13:18:25
-Random Quote: Kids, sometimes the universe sends exactly what you ask for. Other times... it sends Lily's dad. - Ted Mosby
+Last updated: 2024-04-08 13:18:58
+Random Quote: Ted, your throwing your life away. This girl is blinding you with her shiny hair and her boob-shaped boobs! - Barney Stinson
