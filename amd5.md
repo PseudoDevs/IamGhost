@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 14:38:11
-Random Quote: Lily: "We'll all have a wedding dress camp-out. It'll be fun!"Barney: "I can't go. I've got this thing."Lily: "What thing?"Barney: "A penis!" - Barney Stinson
+Last updated: 2024-04-08 14:38:44
+Random Quote: Rule Number One: Don't ever fall in love with a straight girl. - Alex Vause
