@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 12:08:46
-Random Quote: Spare me your empty little compliments, girl... and your ser's.  I am no knight.  I spit on them and their vows.  My brother is a knight.  -  Sandor Clegane
+Last updated: 2024-04-08 12:09:20
+Random Quote: Damn it, Ted! I was about to drop some sweet word play about logarithms and getting into a rhythm with my log. - Barney Stinson
