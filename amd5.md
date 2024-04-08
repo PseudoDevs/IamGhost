@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 14:49:44
-Random Quote: I don't remember much between the ages of eight and twelve. Just that the world moved fast and my brain moved slow. And every now and then, if I focused too closely on the way I breathed, I'd die. Until every second of every day, you find yourself trying to outrun your anxiety. - Rue Bennett
+Last updated: 2024-04-08 14:50:50
+Random Quote: I mean she just walked out. At least when I walk out on a girl I have the common courtesy to sleep with her first. It's called manners! - Barney Stinson
