@@ -1,6 +1,2 @@
-Last updated: 2024-04-08 12:52:01
-Random Quote: Polly: "Six."
-John: "Six what?"
-Polly: "Six questions since you walked through that door. Soon you'll have to start being the man with the answers."
-John: "Why?"
-Polly: "Seven." - Polly Gray
+Last updated: 2024-04-08 12:52:34
+Random Quote: Just remember who your friends and who your enemies are. - Billy Butcher
