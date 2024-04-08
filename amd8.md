@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 13:03:43
-Random Quote: It is for my prince to command, for Hotah to obey.  -  Areo Hotah
+Last updated: 2024-04-08 13:04:16
+Random Quote: The Scarlet Witch is not born, she is forged. She has no coven, no need for incantation. - Agatha Harkness
