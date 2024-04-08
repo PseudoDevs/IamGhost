@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 15:00:27
-Random Quote: I am the Greyjoy, Lord Reaper of Pyke, King of Salt and Rock, Son of the Sea Wind, and no man gives me a crown.  I pay the iron price.  I will take my crown, as Urron Redhand did five thousand years ago.  -  Balon Greyjoy
+Last updated: 2024-04-08 15:01:00
+Random Quote: Family members help each other, no questions asked. Because it makes you happy and your life depends on it. You have your plan, I know. Well, I have one, too. You’ve taught me that we help each other. That’s who we are. - Nairobi
