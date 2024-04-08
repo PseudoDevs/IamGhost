@@ -1,3 +1,2 @@
-Last updated: 2024-04-08 12:16:16
-Random Quote: Ellie: "Everybody I've cared for, either died or left me."
-Joel: "You have no idea what loss is." - Joel Miller
+Last updated: 2024-04-08 12:16:49
+Random Quote: I'd say hump her brain out, but somebody obviously already has. - Ted Mosby
