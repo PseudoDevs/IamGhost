@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 13:09:05
-Random Quote: I learned form Set Arthur Dayne, the Sword of the Morning, who could have slain all five of you with his left hand while he was taking a piss with the right.  -  Jaime Lannister
+Last updated: 2024-04-08 13:09:38
+Random Quote: Is it your fault that Bronn's an insolent black - hearted rogue?  He's always been an insolent black
