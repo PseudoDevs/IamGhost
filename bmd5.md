@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 11:11:27
-Random Quote: It is so nice to be out in the fresh air. You smell that? That's the smell of urine that isn't Marvin's. - Marshall Eriksen
+Last updated: 2024-04-08 11:12:01
+Random Quote: There is entirely too much tut - tutting in this realm, if you ask me.  All these kings would do a deal better if they put down their swords and listended to their mothers. 
