@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 11:46:23
-Random Quote: You have to be as bad as them above in order to survive. - Polly Gray
+Last updated: 2024-04-08 11:46:58
+Random Quote: Speak into the mic, bitch. - Jesse Pinkman
