@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 13:50:30
-Random Quote: When the sun rises in the west and sets in the east.  When the seas go dry and mountains blow in the wind like leaves.  When your womb quickens again, and you bear a living child.  Then he will return, and not before.  -  Mirri Maz Duur
+Last updated: 2024-04-08 13:51:03
+Random Quote: Ted: "She was 15?!"Barney: "No. A 15. Like in blackjack."Ted: "As in.. not sure whether you'd hit it?"Barney: "Exactly!" - Barney Stinson
