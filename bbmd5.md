@@ -1,2 +1,3 @@
-Last updated: 2024-04-08 12:25:05
-Random Quote: Ted: "No, seriously Robin, you should get the slap. I mean, you're a great slapper. In fact, I want to study slapping under your tutelage. I want to be your slap-prentice."Robin: "Don't sell yourself short there, Teddy. You're a slapping rock star. Your name should be Eric Slapton." - Robin Scherbatsky
+Last updated: 2024-04-08 12:25:38
+Random Quote: Grace Burgess: "You think I am a wh-re?"
+Tommy Shelby: "Everyone's a wh-re, Grace. We just sell different parts of ourselves." - Thomas Shelby
