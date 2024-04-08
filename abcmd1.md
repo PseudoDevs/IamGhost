@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 11:58:44
-Random Quote: Someone has to protect this family from the man who protects this family. - Skyler White
+Last updated: 2024-04-08 11:59:19
+Random Quote: They say the king loved to hunt.  The things we love destroy us every time, lad.  Remember that.  -  Jeor Mormont
