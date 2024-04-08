@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 13:03:15
-Random Quote: Power tastes best when sweetened by courtesy; you had best learn that if you ever hope to rule.  -  Roose Bolton
+Last updated: 2024-04-08 13:03:49
+Random Quote: She hated her life, not because it was bad, but because when you hate your brain and your body, it's hard to enjoy the rest. - Rue Bennett
