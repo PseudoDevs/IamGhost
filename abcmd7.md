@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 07:44:42
-Random Quote: I like firsts. Good or bad, they're always memorable. - Ahsoka Tano
+Last updated: 2024-04-08 07:45:15
+Random Quote: You want to rule?  This is what ruling is; lying on a bed of weeds, ripping them out by the root, one by one, before they strangle you in your sleep.  -  Cersei Lannister
