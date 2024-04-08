@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 12:58:25
-Random Quote: Need found it hard to imagine what could frighten Stannis Baratheon, who had once held Storm's End through a year of siege, surviving on rats and boot leather while the Lords Tyrell and Redwyne sat outside with their hosts, banqueting in sight of his walls.  -  Eddard Stark
+Last updated: 2024-04-08 12:59:31
+Random Quote: Every hookup at a weekend wedding is decided at Friday Night Drinks. Get stuck with the wrong girl tonight, the only action you'll be getting all weekend is a self five and I don't mean the cool kind. Self-five! That's the cool kind. - Barney Stinson
