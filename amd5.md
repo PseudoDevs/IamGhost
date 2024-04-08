@@ -1,3 +1,2 @@
-Last updated: 2024-04-08 14:55:14
-Random Quote: Tommy: "I'll have some men watch her house 'til the danger passes."
-Polly: "'Til the danger passes. That'll be the bloody day." - Polly Gray
+Last updated: 2024-04-08 14:55:48
+Random Quote: I'm a simple man making his way through the galaxy. Like my father before me. - Boba Fett
