@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 11:30:14
-Random Quote: What if God doesn’t know what he’s doing? If the plan is wrong? If God is wrong? - 
+Last updated: 2024-04-08 11:30:49
+Random Quote: Lord Balon's eldest brother had never given up the Old Way, even for a day.  His Silence, with its black sails and dark red hull, was infamous in every port from Ibben to Asshai, it was said.  -  Theon Greyjoy
