@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 07:21:59
-Random Quote: Come on, we gotta rally. Make some memories. - Piper Chapman
+Last updated: 2024-04-08 07:22:32
+Random Quote: Drugs are kind of cool. I mean, they're cool before they wreck your skin. And your life. And your family. That's when they get uncool. It's actually a very narrow window of cool. - Rue Bennett
