@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 14:06:20
-Random Quote: Be proud of your penis and your heritage. 'Cause neither are going anywhere. You should work with what you've got. - Otis Milburn
+Last updated: 2024-04-08 14:06:53
+Random Quote: You're like Hitler! But even Hitler cared about Germany or something. - Morty Smith
