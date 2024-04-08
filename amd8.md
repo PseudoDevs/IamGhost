@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 12:55:57
-Random Quote: I did it for me. I liked it. I was good at it. And... I was really... I was alive. - Walter White
+Last updated: 2024-04-08 12:57:38
+Random Quote: I will not be remembered as Set Arys the Unworthy.  I will not soil my cloak.  -  Arys Oakheart
