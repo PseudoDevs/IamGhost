@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 15:01:34
-Random Quote: My uncle Kevan would make a passably good regent if someone pressed the duty on him, but he will never reach for it.  The gods shaped him to be a follower, not a leader.  -  Tyrion Lannister
+Last updated: 2024-04-08 15:03:13
+Random Quote: Men call me Darkstar, and I am of the night.  -  Gerold Dayne
