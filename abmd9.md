@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 14:38:20
-Random Quote: I have let you come wash my dishes. I said my oven needed cleaning, I invited you to a p-rno! - Victoria
+Last updated: 2024-04-08 14:39:28
+Random Quote: Gustavo. When I looked into your eyes... hate. A little bit's okay. As long as you never forget who's boss. - Don Eladio
