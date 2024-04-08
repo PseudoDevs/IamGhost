@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 13:45:34
-Random Quote: I am afraid of panic. Turns out it's bad for business. - Miguel Angel Felix Gallardo
+Last updated: 2024-04-08 13:46:08
+Random Quote: Will you explain to me how that was offside? No, I'm asking you, seriously. Explain offside to me! It makes no sense. - Rebecca Welton
