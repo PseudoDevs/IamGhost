@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 12:58:11
-Random Quote: Did Need Stark dress you like that?  Was it his pleasure to garb you in velvets and silks and make you his own sweet daughter?  -  Balon Greyjoy
+Last updated: 2024-04-08 12:59:52
+Random Quote: I am IRONBORN!  I laugh at death.  -  Victarion Greyjoy
