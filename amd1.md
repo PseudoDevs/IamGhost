@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 07:18:02
-Random Quote: Very nice, Lily. You know, she is a guest in this country. So while you may choose to turn your back on her, I choose... to turn my front on her. What up! - Barney Stinson
+Last updated: 2024-04-08 07:18:35
+Random Quote: He would have killed me but for Howland Reed.  -  Eddard Stark
