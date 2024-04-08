@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 14:30:52
-Random Quote: Pennsatucky: "It weren't my fault. I was just doing as the Spirit commanded."Pussey: "Fuck are you? Joan of Arc?"Pennsatucky: "No, I'm from Waynesboro, my name is Tiffany..." - Tiffany 'Pennsatucky' Doggett
+Last updated: 2024-04-08 14:31:25
+Random Quote: Only a fool humbles himself when the world is so full of men eager to do that job for him.  -  Theon Greyjoy
