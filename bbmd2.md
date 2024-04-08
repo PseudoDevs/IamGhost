@@ -1,4 +1,2 @@
-Last updated: 2024-04-08 12:22:33
-Random Quote: Morty: "Mom told me she wanted me to stay here to make sure you didn't die."
-Jerry: "Well, you tell your mother that I'm gonna be fine."
-Rick: "Don't train your child to lie, Jerry." - Rick Sanchez
+Last updated: 2024-04-08 12:23:06
+Random Quote: You have to be as bad as them above in order to survive. - Polly Gray
