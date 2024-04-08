@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 12:04:38
-Random Quote: A guy opens his door and gets shot and you think that of me? No. I am the one who knocks! - Walter White
+Last updated: 2024-04-08 12:05:13
+Random Quote: Free folk don't follow names, or little cloth animals sewn on a tunic.  They won't dance for coins, they don't care how you style yourself or what that chain of office means or who your grandsire was.  They follow strength.  They follow the man.  -  Mance Rayder
