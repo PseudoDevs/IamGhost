@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 11:52:42
-Random Quote: Ramsay.  Snow, my wife called me before she ate her fingers, but I say Bolton.  -  Ramsay Bolton
+Last updated: 2024-04-08 11:53:15
+Random Quote: It was the white cloak that soiled me, not the other way around.  -  Jaime Lannister
