@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 11:48:08
-Random Quote: A sorcerer is a wizard without a hat. - Sam Wilson
+Last updated: 2024-04-08 11:48:44
+Random Quote: I'll have to take a page from Robert's book, not that he ever read one.  -  Stannis Baratheon
