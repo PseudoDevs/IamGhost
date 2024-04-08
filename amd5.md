@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 11:11:53
-Random Quote: Robin, I'm his best friend, that's a commitment. Girlfriend, that's like a bad flu. Out of your system after a couple of weeks in bed. - Barney Stinson
+Last updated: 2024-04-08 11:12:26
+Random Quote: The World is going to come to an end tonight. Yes think about it. End of the World, Nostradamus, Notre Dame, Fighting Irish, Irish, St. Patrick's Day. This is it Bro. Bro-calypse Now... Bro-Mageddon. - Barney Stinson
