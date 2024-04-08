@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 12:11:03
-Random Quote: Fine I'll fill her in and I am so angry I am not even goin' to make a joke about "filling her in"... which I did three times last night. Self-five! - Barney Stinson
+Last updated: 2024-04-08 12:11:38
+Random Quote: I never wanted the throne, I only ever wanted to be your equal. - Thor
