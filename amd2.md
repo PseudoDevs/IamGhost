@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 07:17:28
-Random Quote: Always keep your foes confused.  If they are never certain who you are or what you want, they cannot know what you are like to do next.  Sometimes the best way to baffle them is to make moves that have no purpose, or even seem to work against you.  Remember that, Sansa, when you come to play the game.  -  Petyr Baelish
+Last updated: 2024-04-08 07:18:01
+Random Quote: Robb, if that sword could bring him back, I should never let you sheathe it until Need stood at my side once more... but he is gone, and a hundred Whispering Woods will not change that.  -  Catelyn Stark
