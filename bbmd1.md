@@ -1,3 +1,2 @@
-Last updated: 2024-04-08 15:02:36
-Random Quote: Grace Burgess: "You think I am a wh-re?"
-Tommy Shelby: "Everyone's a wh-re, Grace. We just sell different parts of ourselves." - Thomas Shelby
+Last updated: 2024-04-08 15:03:10
+Random Quote: I did it for me. I liked it. I was good at it. And... I was really... I was alive. - Walter White
