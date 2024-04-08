@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 13:47:53
-Random Quote: I like dogs better than knights... A hound will die for you, but never lie to you.  And he'll look you straight in the face.  -  Sandor Clegane
+Last updated: 2024-04-08 13:49:37
+Random Quote: My father won all the battles.  He killed Prince Rhaegar and took the crown, while your father was hiding under Casterly Rock.  A strong king acts boldly, he doesn't just talk.  -  Joffrey Baratheon
