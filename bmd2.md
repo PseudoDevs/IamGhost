@@ -1,2 +1,3 @@
-Last updated: 2024-04-08 07:16:08
-Random Quote: I'm supposed to be this hero, idol symbol, but I don't know what the hell I'm doing. - Starlight
+Last updated: 2024-04-08 07:16:43
+Random Quote: Lily: "Swear on the lifes of your unborn boy and girl!"
+Ted: "I swear... on Luke and Leia!" - Ted Mosby
