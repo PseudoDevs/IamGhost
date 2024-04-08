@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 11:54:39
-Random Quote: Would the five of us always live within a few minutes of that booth? No, that's life, kids, but here's what I discovered: Our booth was wherever the five of us were together. - Ted Mosby
+Last updated: 2024-04-08 11:55:49
+Random Quote: You need to stop focusing on the darkness behind you. The past is the past. Nothing can change what we’ve done. - Walter White
