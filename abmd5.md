@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 13:13:12
-Random Quote: Barney: "Canada sucks."Robin: "Okay, well, you're one-quarter Canadian, so by that logic you one-quarter suck!"Barney: "I'm 100% awesome and you know it!"Robin: "Yeah, I do." - Robin Scherbatsky
+Last updated: 2024-04-08 13:13:45
+Random Quote: She had a nice face, her booty was in place, but Barney don't chase. - Barney Stinson

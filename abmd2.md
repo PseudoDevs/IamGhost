@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 13:13:12
-Random Quote: We can only die.  Why else do we don these black cloaks, but to die in defense of the realm?  -  Qhorin Halfhand
+Last updated: 2024-04-08 13:13:45
+Random Quote: There have always been men who found it easier to speak vows than to keep them.  -  Arys Oakheart
