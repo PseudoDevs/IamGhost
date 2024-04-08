@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 11:32:36
-Random Quote: Despite the stupidity, the lies, you're compelled. The problem has been assigned and you'll stop at nothing until you find an answer. Because that is who you are. - Valery Legasov
+Last updated: 2024-04-08 11:33:12
+Random Quote: I have my voice, and the god is with me.  Mine is the strength of the sea, a strength the Crow's Eye cannot hope to withstand.  The waves may break upon the mountain, yet still they come, wave upon wave, and in the end only pebbles remain where once the mountain stood.  And soon even the pebbles are swept away, to be ground beneath the sea for all eternity.  -  Aeron Greyjoy
