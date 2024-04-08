@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 07:31:48
-Random Quote: Tick Tack. Tick Tack. - 
+Last updated: 2024-04-08 07:32:26
+Random Quote: My father won all the battles.  He killed Prince Rhaegar and took the crown, while your father was hiding under Casterly Rock.  A strong king acts boldly, he doesn't just talk.  -  Joffrey Baratheon
