@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 07:13:07
-Random Quote: Maybe people are nostalgic about high school 'cause it's, like, the last time in their life that they get to dream. - Cassie Howard
+Last updated: 2024-04-08 07:13:43
+Random Quote: War. Such a fascinating concept. A temporary salve for a permanent human flaw. - The Handler
