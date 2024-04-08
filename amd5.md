@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 15:05:15
-Random Quote: It's just, I know I can be a jerk like him sometimes, and I do not want to be like him. Ever. - Max Mayfield
+Last updated: 2024-04-08 15:05:48
+Random Quote: Lily: "Anytime a single guy hangs out with a married woman there are rules that must be followed: Rule number one..."Barney: "Don't use the husband's condoms, that's just rude!" - Barney Stinson
