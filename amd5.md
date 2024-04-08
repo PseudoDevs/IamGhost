@@ -1,3 +1,2 @@
-Last updated: 2024-04-08 13:28:30
-Random Quote: Lily: "We don't wanna burden our little angel with all kinds of gender-specific expectations. Boys can do ballet, girls can play football."
-Marshall: "Hell, the Green Bay Packers have been proving that for years." - Marshall Eriksen
+Last updated: 2024-04-08 13:29:03
+Random Quote: I'm just saying, love is a million things. - Maddy Perez
