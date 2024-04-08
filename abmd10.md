@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 12:58:44
-Random Quote: I will not be remembered as Set Arys the Unworthy.  I will not soil my cloak.  -  Arys Oakheart
+Last updated: 2024-04-08 12:59:18
+Random Quote: The "no more surprises"-thing is the best part of being married. - Lily Aldrin
