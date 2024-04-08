@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 07:56:28
-Random Quote: It doesn't matter how tough you are, you're not going to win in this place. Not on your own. - Jang Deok-su
+Last updated: 2024-04-08 07:57:05
+Random Quote: The years pass in their hundreds and their thousands, and what does any man see of life but a few summers, a few winters?  -  Maester Luwin
