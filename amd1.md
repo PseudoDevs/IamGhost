@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 12:39:07
-Random Quote: It's not Aerys I rue, it's Robert... Why is it no one names Robert oathbreaker?  He tore the realm apart, yet I am the one with shit for honor.  -  Jaime Lannister
+Last updated: 2024-04-08 12:39:40
+Random Quote: You know what the happiest animal in the world is? It's a goldfish. It's got a 10 second memory. Be a goldfish! - Rebecca Welton
