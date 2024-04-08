@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 12:23:34
-Random Quote: I'm not sure whose twisted idea it was to put hundreds of adolescents in underfunded schools run by people whose dreams were crushed years ago... but I admire the sadism. - Wednesday Addams
+Last updated: 2024-04-08 12:24:07
+Random Quote: It's not just football. It's life. - Cal Jacobs
