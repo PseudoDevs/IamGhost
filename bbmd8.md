@@ -1,4 +1,2 @@
-Last updated: 2024-04-08 11:28:28
-Random Quote: Joel: "I need you to tell us where we are."
-Man: "If you got a map, why you lost?"
-Ellie: "Must've missed all the street signs in the enormous f-cking forest." - Ellie Williams
+Last updated: 2024-04-08 11:29:02
+Random Quote: If you love something, set it free. Unless it's a tiger. - Phil Dunphy
