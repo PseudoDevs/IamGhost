@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 13:51:18
-Random Quote: Robin: "What? I am not keeping Mike on a hook!"Ted: "You are Captain Hook!"Robin: "Dude, I'm a girl, ok? Our girl parts are like a spider webs; sometimes you are gonna catch stuff you don't want." - Robin Scherbatsky
+Last updated: 2024-04-08 13:51:51
+Random Quote: The longer Cersei waits, the angrier she'll become, and anger makes her stupid.  I much prefer angry and stupid to composed and cunning.  -  Tyrion Lannister
