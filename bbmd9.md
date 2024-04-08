@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 14:43:24
-Random Quote: Lily, I think we made a mistake moving out to the suburbs. I miss our home. I miss our booth with our friends. And I'm pretty sure I have a drumstick... somewhere bad. - Marshall Eriksen
+Last updated: 2024-04-08 14:43:58
+Random Quote: There have always been men who found it easier to speak vows than to keep them.  -  Arys Oakheart
