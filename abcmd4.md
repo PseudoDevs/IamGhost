@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 13:45:35
-Random Quote: Ramsay.  Snow, my wife called me before she ate her fingers, but I say Bolton.  -  Ramsay Bolton
+Last updated: 2024-04-08 13:46:43
+Random Quote: You poor stupid blind crippled fool.  Must I spell out every little thing for you?  Very well.  Cersei is a lying whore, she's been fucking Lancel and Osmund  Kettleblack and probably Moon Boy for all I know.  And I am the monster they all say I am.  Yes, I killed your vile son.  -  Tyrion Lannister

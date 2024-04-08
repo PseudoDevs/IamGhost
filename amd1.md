@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 13:46:08
-Random Quote: People are oblivious to reality. They only see what they want to see, when all they have to do is shift their perspective to see the full scope of things. - Yuk Je
+Last updated: 2024-04-08 13:46:43
+Random Quote: Some people wander around their whole lives looking for a way out, but there’s only one path and it leads you ever deeper. - 
