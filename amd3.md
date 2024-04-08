@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 11:13:42
-Random Quote: Ted: "All my friends from high-school, they're here with their wifes or kids. My date for the night is a sticky magazine..."Robin: "Sounds like high-school all over again!" - Robin Scherbatsky
+Last updated: 2024-04-08 11:14:15
+Random Quote: When your enemies defy you, you must serve them steel and fire.  When they go to their knees, however, you must help them back to their feet.  Elsewise no man will ever bend the knee to you.  And any man who must say "I am the king" is no true king at all.  Aerys never understood that, but you will.  When I've won your war for you, we will restore the king's peace and the king's justice.  -  Tywin Lannister
