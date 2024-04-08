@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 13:26:28
-Random Quote: Ted, no! You never break up a girl fight! Never! - Barney Stinson
+Last updated: 2024-04-08 13:27:01
+Random Quote: Love is poison.  A sweet poison, yes, but it will kill you all the same.  -  Cersei Lannister
