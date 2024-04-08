@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 14:00:10
-Random Quote: All three of you were being a buch of little a-sholes. I was the only reasonable one. - Dustin Henderson
+Last updated: 2024-04-08 14:00:43
+Random Quote: Among all the games that kids played back then, it was the most physical and violent. - Seong Gi-hun
