@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 12:00:31
-Random Quote: Robin: "You mean the whiny, bottomless pit of neediness? He was bugging me so I spiked his echinacea tea with codeine."Ted: "You would be a great mom." - Ted Mosby
+Last updated: 2024-04-08 12:01:04
+Random Quote: You know nothing, Jon Snow.  -  Ygritte
