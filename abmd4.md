@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 12:15:57
-Random Quote: Life is a long journey where maps were drawn by a fool. - Juan Nepomuceno Guerra
+Last updated: 2024-04-08 12:16:30
+Random Quote: Jon, did you ever wonder why the men of the Night's Watch take no wives and father no children?  So they will not love, for love is the bane of honor, the death of duty.  -  Maester Aemon
