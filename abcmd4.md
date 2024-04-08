@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 12:09:09
-Random Quote: You know, I always thought that tea was going to taste like hot brown water, and you know what? I was right. It's horrible. - Rebecca Welton
+Last updated: 2024-04-08 12:09:42
+Random Quote: I will see, and hear, and learn, and when I have I will carry the word back to the Wall.  The wildlings had taken him for an oathbreaker, but in his heart he was still a man of the Night's Watch, doing the last duty that Qhorin Halfhand had laid on him.  Before I killed him.  -  Jon Snow
