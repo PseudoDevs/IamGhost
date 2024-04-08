@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 12:59:05
-Random Quote: You want to be a bounty hunter? Make the best deal for yourself and survive! - Fennec Shand
+Last updated: 2024-04-08 12:59:38
+Random Quote: I'll have to take a page from Robert's book, not that he ever read one.  -  Stannis Baratheon
