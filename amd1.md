@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 14:49:10
-Random Quote: Young or old, a true knight is sworn to protect those who are weaker than himself, or die in the attempt.  -  Brienne of Tarth
+Last updated: 2024-04-08 14:49:44
+Random Quote: When Barney overhears that Ted and Robin have a secret to reveal at the wedding reception, he begins to guess what it might be. - Lily Aldrin
