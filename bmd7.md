@@ -1,2 +1,6 @@
-Last updated: 2024-04-08 14:54:51
-Random Quote: His blood ran black.  Made him my brother as much as yours.  -  Yoren of the Night's Watch
+Last updated: 2024-04-08 14:55:24
+Random Quote: Polly: "Six."
+John: "Six what?"
+Polly: "Six questions since you walked through that door. Soon you'll have to start being the man with the answers."
+John: "Why?"
+Polly: "Seven." - Polly Gray
