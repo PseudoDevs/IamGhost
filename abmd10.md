@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 13:43:50
-Random Quote: Marshall: "Yes, i want a ball-room and I want a band and I want shoes. I've been dreaming about this day since I was... like...Lily: "...a little girl?" - Lily Aldrin
+Last updated: 2024-04-08 13:44:23
+Random Quote: Stop crying. Remember? Crying makes you ugly and weak. - Dayanara Diaz
