@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 11:46:28
-Random Quote: Did the boy charm you?  He has that gift.  He got it from his father, with the blood.  He knows he is a king's son, but chooses to forget that he is bastard - born. 
+Last updated: 2024-04-08 11:47:01
+Random Quote: Just 'cause you fall on your *ss doesn't mean you have to stay there. - Hughie Campbell
