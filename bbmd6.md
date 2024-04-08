@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 07:19:44
-Random Quote: You think you're the only one he whispers secrets to?  He gives each of us just enough to convince us that we'd be helpless without him.  -  Cersei Lannister
+Last updated: 2024-04-08 07:20:19
+Random Quote: All living things, from complex mammals to single-celled organisms, instinctively respond to danger. Expose a bacterium to a toxic chemical and it will flee, or deploy some other defense mechanism. We're very much the same. When we encounter danger, our hearts start pounding. Our palms start to sweat. These are the signs of the physical and emotional state we call 'fear.' - Scott Clarke
