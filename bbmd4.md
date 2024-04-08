@@ -1,3 +1,2 @@
-Last updated: 2024-04-08 14:53:02
-Random Quote: Morty: "So, time moves faster in there? Is it like a Narnia thing?"
-Rick: "I'm not a beaver who believes in Jesus Christ, Morty. But yeah, it's pretty much a Narnia thing." - Rick Sanchez
+Last updated: 2024-04-08 14:53:37
+Random Quote: If you don't like where you're heading, there's no shame in going back and changing your path. - Chuck McGill
