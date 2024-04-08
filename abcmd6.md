@@ -1,5 +1,2 @@
-Last updated: 2024-04-08 14:18:37
-Random Quote: Dina: "You're infuriating."
-Ellie: "Have you met you?"
-Dina: "You make me want to go back outside into that blizzard."
-Ellie: "No one is stopping you." - Joel Miller
+Last updated: 2024-04-08 14:19:11
+Random Quote: And at some point you make a choice about who you are and what you want. - Rue Bennett
