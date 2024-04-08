@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 13:30:42
-Random Quote: When life gives you lemonade, make lemons. Life will be all like, "What?!" - Phil Dunphy
+Last updated: 2024-04-08 13:31:15
+Random Quote: His blood is bad.  He needs to be leeched.  The leeches suck away the bad blood, all the rage and pain.  No man can think so full of anger.  Ramsay, though... his tainted blood would poison even leeches, I fear.  -  Roose Bolton
