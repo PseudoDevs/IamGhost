@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 11:55:15
-Random Quote: Serve, Obey, Protect.  Simple vows for a simple man.  -  Areo Hotah
+Last updated: 2024-04-08 11:56:25
+Random Quote: It wasn't the violence that scared her. It was the fact that she knew no matter what he did, she'd still love him. - Rue Bennett
