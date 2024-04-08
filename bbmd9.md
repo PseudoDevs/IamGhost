@@ -1,2 +1,5 @@
-Last updated: 2024-04-08 13:24:38
-Random Quote: But every now and then it’s good to question those who question things. - Noah
+Last updated: 2024-04-08 13:25:11
+Random Quote: Morty: "I'm dying, Rick!"
+Rick: "People who are really dying don't keep bringing it up."
+Morty: "Is that true?"
+Rick: "I don't know. I'm just usually around people that die faster." - Rick Sanchez
