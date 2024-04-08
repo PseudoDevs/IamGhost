@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 12:28:56
-Random Quote: Ted: "Trying to get them interested in architecture as a career."Barney: "Why? Are we running out of buildings?"Robin: "Are we running out of boring people?" - Robin Scherbatsky
+Last updated: 2024-04-08 12:29:30
+Random Quote: Barney: "Canada sucks."Robin: "Okay, well, you're one-quarter Canadian, so by that logic you one-quarter suck!"Barney: "I'm 100% awesome and you know it!"Robin: "Yeah, I do." - Robin Scherbatsky
