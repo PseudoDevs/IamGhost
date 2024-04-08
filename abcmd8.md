@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 11:59:19
-Random Quote: Do it. If you ever want to see these boobs again, crawl, you son of a me. - Lily Aldrin
+Last updated: 2024-04-08 12:03:26
+Random Quote: Is it your fault that Bronn's an insolent black - hearted rogue?  He's always been an insolent black
