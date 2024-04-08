@@ -1,2 +1,3 @@
-Last updated: 2024-04-08 13:54:06
-Random Quote: When I'm king in my own right, I'm going to outlaw beets.  -  Tommen Baratheon
+Last updated: 2024-04-08 13:54:40
+Random Quote: Ellie: "There's not gonna be anything bad in here?"
+Joel: "Just you." - Joel Miller
