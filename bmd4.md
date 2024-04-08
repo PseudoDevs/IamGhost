@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 13:58:45
-Random Quote: Winter will never come for the likes of us.  Should we die in battle, they will surely sing of us, and it's always summer in the songs.  In the songs all knights are gallant, all maids are beautiful, and the sun is always shining.  -  Brienne of Tarth
+Last updated: 2024-04-08 13:59:18
+Random Quote: The longer Cersei waits, the angrier she'll become, and anger makes her stupid.  I much prefer angry and stupid to composed and cunning.  -  Tyrion Lannister
