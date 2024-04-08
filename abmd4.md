@@ -1,5 +1,2 @@
-Last updated: 2024-04-08 11:07:24
-Random Quote: Morty: "I'm dying, Rick!"
-Rick: "People who are really dying don't keep bringing it up."
-Morty: "Is that true?"
-Rick: "I don't know. I'm just usually around people that die faster." - Rick Sanchez
+Last updated: 2024-04-08 11:07:59
+Random Quote: Red Rahloo means nothing here  You will only make the old gods angry.  They are watching from their island.  -  Hugo Wull
