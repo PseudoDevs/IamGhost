@@ -1,4 +1,2 @@
-Last updated: 2024-04-08 14:58:40
-Random Quote: Ellie: "Can I have a gun?"
-Joel: "Absolutely not."
-Ellie: "Okay, Jesus. Fine. I'll have to throw a f-ckin' sandwich at them." - Ellie Williams
+Last updated: 2024-04-08 14:59:47
+Random Quote: New Mexico. It's another state. I mean, it's like California, just less traffic. - Lalo Salamanca
