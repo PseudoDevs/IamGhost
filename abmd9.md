@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 14:16:55
-Random Quote: I feel like I've framed my entire womanhood around men. - Jules Vaughn
+Last updated: 2024-04-08 14:17:29
+Random Quote: I asked him why he kept her close, if he thought her so grotesque.  He said that all his other knights wanted things of him, castles or honors or riches, but all that Brienne wanted was to die for him.  -  Loras Tyrell
