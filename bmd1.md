@@ -1,3 +1,2 @@
-Last updated: 2024-04-08 13:25:45
-Random Quote: Neither one of us are gonna say, "Hey, how's it going?" or "Good to see you!"
-Because it really will be good to see you. - Barney Stinson
+Last updated: 2024-04-08 13:26:18
+Random Quote: I've lost a hand, a father, a son, a sister, and a lover, and soon enough I will lose a brother.  And yet they keep telling me House Lannister has won this war.  -  Jaime Lannister
