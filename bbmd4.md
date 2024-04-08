@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 12:59:52
-Random Quote: Sometimes distance is the only way to find peace. So you can heal your wound. - Berlin
+Last updated: 2024-04-08 13:00:26
+Random Quote: Rickard Karstark killed more than a Frey and a Lannister.  He killed my honor.  -  Robb Stark

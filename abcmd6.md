@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 12:59:52
-Random Quote: Lily, I think we made a mistake moving out to the suburbs. I miss our home. I miss our booth with our friends. And I'm pretty sure I have a drumstick... somewhere bad. - Marshall Eriksen
+Last updated: 2024-04-08 13:00:26
+Random Quote: There is no creature on earth half so terrifying as a truly just man.  -  Varys
