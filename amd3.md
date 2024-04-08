@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 14:49:44
-Random Quote: Aye, and from what I saw of Joffrey, you are as unfit a mother as you are a ruler.  -  Kevan Lannister
+Last updated: 2024-04-08 14:50:17
+Random Quote: You know what else is scary? Walking home alone at night. But us women keep doing it. Take fear by the hand and keep living. Because you have to live, gentlemen! You have to live until the end! - Nairobi
