@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 07:23:27
-Random Quote: There's only one thing that could blind a man as smart as you, Tommy. Love. - Polly Gray
+Last updated: 2024-04-08 07:24:05
+Random Quote: When the sun rises in the west and sets in the east.  When the seas go dry and mountains blow in the wind like leaves.  When your womb quickens again, and you bear a living child.  Then he will return, and not before.  -  Mirri Maz Duur
