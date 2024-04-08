@@ -1,2 +1,3 @@
-Last updated: 2024-04-08 12:52:34
-Random Quote: The bad guys need to get lucky every time. The good guys just need to get lucky once. - Steve Murphy
+Last updated: 2024-04-08 12:53:08
+Random Quote: Morticia: "That boy's family was going to file attempted murder charges. How would that have looked on your record?"
+Wednesday: "Terrible. Everyone would know I failed to get the job done." - Wednesday Addams
