@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 11:48:15
-Random Quote: In his chainmail shirt with a sword in his hand, Gendry looked almost a man grown, and dangerous.  Hot Pie looked like Hot Pie.  -  Arya Stark
+Last updated: 2024-04-08 11:48:48
+Random Quote: Yes! Tonight is gonna be Legen... wait, are we sure it's a good idea to go to a strip club? Shut up, Lily! I'm in charge now... Dary! - Barney Stinson
