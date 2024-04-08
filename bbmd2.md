@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 13:05:32
-Random Quote: A ruler who hides behind paid executioners soon forgets what death is.  -  Eddard Stark
+Last updated: 2024-04-08 13:06:41
+Random Quote: Every Halloween I bring a spare costume. In case I strike out with the hottest girl at the party. That way I have a second chance to make a first impression. - Barney Stinson
