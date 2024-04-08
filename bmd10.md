@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 14:52:27
-Random Quote: Did the boy charm you?  He has that gift.  He got it from his father, with the blood.  He knows he is a king's son, but chooses to forget that he is bastard - born. 
+Last updated: 2024-04-08 14:53:00
+Random Quote: It is R'hllor who brings you back, my lord.  The Lord of Light.  I am only his instrument.  -  Thoros of Myr
