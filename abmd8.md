@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 15:09:12
-Random Quote: Jon, did you ever wonder why the men of the Night's Watch take no wives and father no children?  So they will not love, for love is the bane of honor, the death of duty.  -  Maester Aemon
+Last updated: 2024-04-08 15:09:48
+Random Quote: Lily Aldrin: "Guys, The Captain just made me a very interesting offer."Barney Stinson: "Finally we get around to the real reason he hired you. Just promise you film it, and please use a tripod. There's nothing artistic about shaky-cam, it just looks sloppy." - Barney Stinson
