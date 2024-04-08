@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 15:09:56
-Random Quote: There is a time to fight and there is a time to be clever. - Pablo Escobar
+Last updated: 2024-04-08 15:11:17
+Random Quote: You have courage.  Not battle courage perhaps but... I don't know... a kind of woman's courage.  -  Brienne of Tarth
