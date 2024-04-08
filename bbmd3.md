@@ -1,2 +1,3 @@
-Last updated: 2024-04-08 07:47:25
-Random Quote: Richard, you have desecrated the sacred treaty betwixt land and sea. Now face the wrath of your once and eternal foe - Mr. Nimbus! - Mr. Nimbus
+Last updated: 2024-04-08 07:49:18
+Random Quote: Grace: "I had the phone put in. It's in the back."
+Tommy: "If we knew someone else who had a phone, we could call them." - Thomas Shelby
