@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 15:05:51
-Random Quote: Maybe the Big Bang is nothing more than God’s act of creation. - 
+Last updated: 2024-04-08 15:06:25
+Random Quote: Robert wanted smiles and cheers, always, so he went where he found them, to his friends and his whores.  Robert wanted to be loved.  My brother Tyrion has the same disease.  -  Cersei Lannister
