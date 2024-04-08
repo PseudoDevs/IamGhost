@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 13:12:52
-Random Quote: More beast than boy, that one, puffed up with pride and bloodlust... Robb Stark betrayed us all.  He abandoned the north to the cruel mercies of the ironmen to carve out a fairer kingdom for himself along the Trident.  Then he abandoned the riverlords who had risked much and more for him, breaking his marriage pact with my grandfather to wed the first western wench who caught his eye.  The Young Wolf?  He was a vile dog and died like one.  -  Rhaegar Frey
+Last updated: 2024-04-08 13:13:25
+Random Quote: Marshall: "Neither of you guys has any game, right? Or else you'd be married. Like me. If dating is the game, then marriage is winning the game."Ted: "Yeah, if you're playing in the women's league!" - Ted Mosby
