@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 11:28:58
-Random Quote: That was the night I was born. I rose like a phoenix from her mentholated bosom and strode into the world, Armani-clad and fully awesome. - Barney Stinson
+Last updated: 2024-04-08 11:29:31
+Random Quote: A reader lives a thousand lives before he dies.  The man who never reads lives only one.  -  Jojen Reed
