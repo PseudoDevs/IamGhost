@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 14:59:42
-Random Quote: Nuncle always had a fondness for freaks and fools.  My father used to fight with him about it.  Let the wizards call upon their gods.  The Damphair will call on ours, and drown them.  -  Asha Greyjoy
+Last updated: 2024-04-08 15:00:15
+Random Quote: Robin: "I don't know if we should keep seeing each other."Nick: "You want to start turning off the lights during sex?"Robin: "No. God, no. No! I am just worried that, as a couple, we're not working out."Nick: "You want to start going to the gym together?" - Nick
