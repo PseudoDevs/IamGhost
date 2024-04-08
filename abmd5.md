@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 11:32:06
-Random Quote: What's a bigger feeling than love? - Elliot
+Last updated: 2024-04-08 11:33:13
+Random Quote: Strip off their skins.  Lord Bolton, he used to say a naked man has few secrets, but a flayed man's got none.  -  Ramsay Bolton
