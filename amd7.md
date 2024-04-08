@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 11:59:54
-Random Quote: Camping is just being homeless... without the change. - Summer Smith
+Last updated: 2024-04-08 12:00:29
+Random Quote: People are oblivious to reality. They only see what they want to see, when all they have to do is shift their perspective to see the full scope of things. - Yuk Je
