@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 11:33:50
-Random Quote: So you're mining stuff to craft with and crafting stuff to mine with? Did your dad write this game? - Rick Sanchez
+Last updated: 2024-04-08 11:34:24
+Random Quote: Balon was mad, Aeron is madder, and Euron is maddest of them all.  -  Baelor Blacktyde
