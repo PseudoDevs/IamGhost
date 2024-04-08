@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 15:08:43
-Random Quote: You shouldn't like things because people tell you you're supposed to. - Jonathan Byers
+Last updated: 2024-04-08 15:09:17
+Random Quote: The wolf will prove the boy is who we say he is, should the Dreadfort attempt to deny him.  That is my price, Lord Davos.  Smuggle me back my liege lord, and I will take Stannis Baratheon as my king.  -  Wyman Manderly
