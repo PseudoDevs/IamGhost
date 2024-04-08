@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 14:09:32
-Random Quote: I knew Brienne when she was no more than a girl playing at her father's feet in Evenfall Hall, and I knew her still better when the Evenstar sent her here to Storm's End.  She loved Renly Baratheon from the first moment she laid eyes on him, a blind man could see it.  -  Cortnay Penrose
+Last updated: 2024-04-08 14:10:05
+Random Quote: You are not the guy. You're not capable of being the guy. I had a guy but now I don't. You are not the guy. - Mike Ehrmantraut
