@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 15:05:49
-Random Quote: Ted: "Robin! I just had a great idea!"Robin: "Oh, do whatever you want to me, just don't wake me up." - Robin Scherbatsky
+Last updated: 2024-04-08 15:06:22
+Random Quote: Death, he knew, but slow.  I still have time.  A year.  Two years.  Five.  Some stone men live for ten.  Time enough to cross the sea, to see Griffin's Roost again.  To end the Usurper's line for good and all, and put Rhaegar's son upon the Iron Throne.  Then Lord Jon Connington could die content.  -  Jon Connington
