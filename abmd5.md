@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 13:07:42
-Random Quote: You were supposed to be my wife, to bear me children with silver hair and purple eyes, to keep the blood of the dragon pure.  I took care of you.  I taught you who you were.  I fed you.  I sold our mother's crown to keep you fed.  -  Viserys Targaryen
+Last updated: 2024-04-08 13:08:15
+Random Quote: Jerry: "You don't, by any chance, have some sort of crazy science thing you could wrap up, that might help make this dog a little smarter?"Rick: "I thought the whole point of having a dog was to feel superior, Jerry. If I were you, I wouldn't pull that thread." - Rick Sanchez
