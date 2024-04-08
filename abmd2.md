@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 15:08:03
-Random Quote: Marshall: "The last time I lived this far from him, was my semester abroad."Lily: "You never did a semester abroad?"Marshall: "That's what I called it, when we lived on opposite sides of the campus." - Marshall Eriksen
+Last updated: 2024-04-08 15:08:36
+Random Quote: Larry: "She's guilty she's leaving. It's a guilt pig roasting box."Pete: "At least you get something. I'm not getting laid for a year too. But what do I get?"Larry: "A baby?"Pete: "You can't eat it." - Pete Harper
