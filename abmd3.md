@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 12:31:23
-Random Quote: Whatever happens next, it's not gonna go down the way you think it is. - Mike Ehrmantraut
+Last updated: 2024-04-08 12:31:56
+Random Quote: I am Bo-Katan of Clan Kryze. I was born on Mandalore and fought in the Purge. I am the last of my line. - Bo-Katan
