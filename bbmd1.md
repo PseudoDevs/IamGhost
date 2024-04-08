@@ -1,4 +1,2 @@
-Last updated: 2024-04-08 14:20:18
-Random Quote: Rebecca: "So, I spoke to the owner of The Sun."
-Ted: "You spoke to God?!"
-Rebecca: "No, the newspaper." - Rebecca Welton
+Last updated: 2024-04-08 14:20:52
+Random Quote: It's like, I think about sex 24/7, but I don't really know how to do it. In the movies, you always see the girl kiss her way down the guy's body, but then, she moves off-screen. Is she stopping at the penis or kissing all the way to the foot? - Devi Vishwakumar
