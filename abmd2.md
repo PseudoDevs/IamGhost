@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 13:46:09
-Random Quote: Women aren't soldiers, and they sure as hell don't fight on the front lines. They might break a nail. - John Flynn
+Last updated: 2024-04-08 13:49:03
+Random Quote: Now don't be a p-ssy, laser my f-cking t-ts! - Stormfront
