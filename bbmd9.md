@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 12:31:13
-Random Quote: It's like...It's like I'm a fucked-up-shit magnet. - Maria Ruiz
+Last updated: 2024-04-08 12:31:49
+Random Quote: Lily, I think we made a mistake moving out to the suburbs. I miss our home. I miss our booth with our friends. And I'm pretty sure I have a drumstick... somewhere bad. - Marshall Eriksen

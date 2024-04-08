@@ -1,9 +1,2 @@
-Last updated: 2024-04-08 12:31:14
-Random Quote: If my love were an ocean,
-there would be no more land.
-If my love were a desert,
-you would see only sand.
-If my love were a star-
-late at night, only light.
-And if my love could grow wings,
-I'd be soaring in flight. - Jay Asher
+Last updated: 2024-04-08 12:31:49
+Random Quote: Once, at the Citadel, I came into an empty room and saw an empty chair.  Yet I knew a woman had been there, only a moment before.  The cushion was dented where she'd sat, the cloth was still warm, and her scent lingered in the air.  If we leave our smells behind us when we leave a room, surely something of our souls must remain when we leave this life?  The archmaesters did not like my thinking, though.  Well, Marwyn did, but he was the only one.  -  Qyburn
