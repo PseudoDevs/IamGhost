@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 14:51:20
-Random Quote: Elia of Dorne.  I killed her screaming whelp.  Then I raped her.  Then I smashed her fucking head in like this.  -  Gregor Clegane
+Last updated: 2024-04-08 14:53:02
+Random Quote: I will put you under the jail. - Hank Schrader
