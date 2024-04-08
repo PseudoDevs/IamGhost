@@ -1,3 +1,2 @@
-Last updated: 2024-04-08 07:42:49
-Random Quote: Mi-nyeo: "Deok-su. You betray me... I'll kill you. Okay?"
-Deok-su: "You're the reason that I think I might die tonight." - Jang Deok-su
+Last updated: 2024-04-08 07:43:22
+Random Quote: We've always been a trio! We're right up there with Batman and Robin and Alfred. Romeo and Juliet and the apothecary. Salt and pepper and cumin. - Ted Mosby
