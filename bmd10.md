@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 15:09:17
-Random Quote: Bitch! - Jesse Pinkman
+Last updated: 2024-04-08 15:09:56
+Random Quote: My real father died in King's Landing.  I made a choice, and I chose wrong.  -  Theon Greyjoy
