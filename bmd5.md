@@ -1,6 +1,2 @@
-Last updated: 2024-04-08 15:11:17
-Random Quote: Sam: "They might be a part of the big three."
-Bucky: "What big three?"
-Sam: "Androids, aliens and wizards."
-Bucky: "That's not a thing."
-Sam: "That's definitely a thing." - Sam Wilson
+Last updated: 2024-04-08 15:12:07
+Random Quote: There's no shame in fear, my father told me, what matters is how we face it.  -  Jon Snow
