@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 14:13:00
-Random Quote: Ted: "Do not pretend you're not the kind of guy, who keeps a list of all the girls he slept with."Marshall: "I have one. It's called my marriage-license." - Marshall Eriksen
+Last updated: 2024-04-08 14:14:07
+Random Quote: Yes Barney, your submissions were recieved and no, we will not be attending any parties in your pants. - Ted Mosby
