@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 13:29:10
-Random Quote: You wanna know what line doesn't work on a harp player? "Hey baby, wanna pluck?" - Barney Stinson
+Last updated: 2024-04-08 13:29:43
+Random Quote: There have always been men who found it easier to speak vows than to keep them.  -  Arys Oakheart
