@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 12:54:49
-Random Quote: Never bring a knife to a sword fight. Unless it's concealed. - Wednesday Addams
+Last updated: 2024-04-08 12:56:30
+Random Quote: Penrose chose to die rather than give him up.  It still angers me.  How could he think I would hurt the boy?  I chose Robert, did I not?  When that hard day came, I chose blood over honor.  -  Stannis Baratheon
