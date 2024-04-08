@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 15:11:17
-Random Quote: The end of a rope has been this man's destiny since the night he was born. - Chester Campbell
+Last updated: 2024-04-08 15:14:15
+Random Quote: If you had to fall into a woman's arms, my son, why couldn't they have been Margaery Tyrell's?  -  Catelyn Stark
