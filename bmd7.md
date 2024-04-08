@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 12:37:42
-Random Quote: You want to rule?  This is what ruling is; lying on a bed of weeds, ripping them out by the root, one by one, before they strangle you in your sleep.  -  Cersei Lannister
+Last updated: 2024-04-08 12:38:17
+Random Quote: I only have one rule. For every three 10's you bang, throw a bone to a 5. They're grateful and hard working and let's face it, sometimes you just want to lay there. - Barney Stinson
