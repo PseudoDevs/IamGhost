@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 07:12:05
-Random Quote: Underneath all of those lies is one true thing. One true thing that can support the weight of all the lies in the world, and that's the fact that I love you. - Barney Stinson
+Last updated: 2024-04-08 07:12:39
+Random Quote: New York! Home of the Mets, the Chrysler Building, those ladies from Sex and the City and now, the zombie apocalypse. If you can make it here, you can make it anywhere - but first, you have to not get eaten. - Spider-Man
