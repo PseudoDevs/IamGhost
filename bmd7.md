@@ -1,5 +1,2 @@
-Last updated: 2024-04-08 14:03:33
-Random Quote: Dina: "You're infuriating."
-Ellie: "Have you met you?"
-Dina: "You make me want to go back outside into that blizzard."
-Ellie: "No one is stopping you." - Joel Miller
+Last updated: 2024-04-08 14:04:07
+Random Quote: In this fall - this is tough. In this fall I'm going to take my talents to Mouth Beach. - Barney Stinson
