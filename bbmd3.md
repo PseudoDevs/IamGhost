@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 11:10:22
-Random Quote: Here's what's gonna happen. One day you're gonna wake up, eat your breakfast, brush your teeth, go about your business. And sooner or later, you're gonna realize you haven't thought about it. None of it. And that's the moment you realize you can forget. When you know that's possible, it all gets easier. - Mike Ehrmantraut
+Last updated: 2024-04-08 11:10:55
+Random Quote: I guess we all have things we try to hide. But they can't stay hidden forever. - Hannah Baker
