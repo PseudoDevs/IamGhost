@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 15:03:38
-Random Quote: Ran: "We were all young, tryin' to make a name for ourselves. But runnin' with a Mandalorian, that brought us some reputation."Mayfeld: "Oh, yeah? What did he get out of it?"Ran: "I asked him that one time. You remember what you said, Mando? Target Practice." - Din Djarin
+Last updated: 2024-04-08 15:04:11
+Random Quote: Hey, takin' on a challenge is a lot like ridin' a horse. If you're comfortable while you're doin' it, you're probably doin' it wrong. - Jim Hopper
