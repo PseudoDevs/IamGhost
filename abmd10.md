@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 12:19:36
-Random Quote: This is Hawkins, okay? You wanna know the worst thing that's ever happened here in the four years I've been working here? It was when an owl attacked Eleanor Gillespie's head because it though that her hair was a nest. - Jim Hopper
+Last updated: 2024-04-08 12:20:10
+Random Quote: There are things out there that our little minds will never comprehend - 
