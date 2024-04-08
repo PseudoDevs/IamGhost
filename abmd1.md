@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 12:06:24
-Random Quote: Why is it always the innocents who suffer most, when you high lords play your game of thrones?  -  Varys
+Last updated: 2024-04-08 12:06:59
+Random Quote: Remember. Once they find out who you are, you die. - Jang Deok-su
