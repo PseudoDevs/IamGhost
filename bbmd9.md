@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 12:09:25
-Random Quote: Fear cuts deeper than swords.  -  Syrio Forel
+Last updated: 2024-04-08 12:09:58
+Random Quote: I know the poison that my father used, and there is none slower or more agonizing.  Soon we may hear the Mountain screaming, even here in Sunspear.  -  Tyene Sand
