@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 12:34:54
-Random Quote: In his chainmail shirt with a sword in his hand, Gendry looked almost a man grown, and dangerous.  Hot Pie looked like Hot Pie.  -  Arya Stark
+Last updated: 2024-04-08 12:35:27
+Random Quote: You have your mother's common sense, but your father's devilment. I see them fighting. Let your mother win! - Polly Gray
