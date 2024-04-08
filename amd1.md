@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 13:58:24
-Random Quote: I'd invite you to stay as well, Gustavo, but I don't want my breakfast ruined by all the "ding, ding ding." - Don Eladio
+Last updated: 2024-04-08 13:59:30
+Random Quote: The Red God has his due, sweet girl, and only death may pay for life.  This girl took three that were his.  This girl must give three in their places.  Speak the names, and a man will do the rest.  -  Jaqen H'ghar
