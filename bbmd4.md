@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 14:24:59
-Random Quote: No tales were ever told of me.  Do you think I would be sitting here if it were otherwise?  Your amusements are your own, I will not chide you on that count, but you must be more discreet.  A peaceful land, a quiet people.  That has always been my rule.  Make it yours.  -  Roose Bolton
+Last updated: 2024-04-08 14:26:05
+Random Quote: People deserve a second chance, just like businesses. - Marty Byrde
