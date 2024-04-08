@@ -1,2 +1,3 @@
-Last updated: 2024-04-08 13:15:24
-Random Quote: What's a bigger feeling than love? - Elliot
+Last updated: 2024-04-08 13:15:57
+Random Quote: Lily: "Swear on the lifes of your unborn boy and girl!"
+Ted: "I swear... on Luke and Leia!" - Ted Mosby
