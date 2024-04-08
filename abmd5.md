@@ -1,2 +1,3 @@
-Last updated: 2024-04-08 12:04:53
-Random Quote: Never forget what you are, for surely the world will not.  Make it your strength.  Then it can never be your weakness.  Armor yourself in it, and it will never be used to hurt you.  -  Tyrion Lannister
+Last updated: 2024-04-08 12:05:26
+Random Quote: George: "I love what you done with the place. Did you do it yourself, or did you get some pouf to help ya?"
+Rebecca: "I could ask the same of your hair." - Rebecca Welton
