@@ -1,2 +1,3 @@
-Last updated: 2024-04-08 11:45:32
-Random Quote: Ted, honey, I want you to go outside and bite the curb. I'll be out in a minute. - Lily Aldrin
+Last updated: 2024-04-08 11:46:04
+Random Quote: Give it a week, you'll get her back. And her front.
+Oh! Did you feel that? I think we just had a "what up?"-quake! - Barney Stinson
