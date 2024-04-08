@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 12:00:29
-Random Quote: Until the Mountain crushed my brother's skull, no Dornishmen had died in this War of the Five Kings.  Tell me, Captain, is that my shame or my glory?  -  Doran Martell
+Last updated: 2024-04-08 12:01:38
+Random Quote: When life gives you lemonade, make lemons. Life will be all like, "What?!" - Phil Dunphy
