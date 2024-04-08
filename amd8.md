@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 11:07:23
-Random Quote: I did it for me. I liked it. I was good at it. And I was really... I was alive. - Walter White
+Last updated: 2024-04-08 11:07:58
+Random Quote: Why is it always the innocents who suffer most, when you high lords play your game of thrones?  -  Varys
