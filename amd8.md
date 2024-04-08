@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 14:55:48
-Random Quote: Ted: "What could she possibly have to say me, that she couldn't write in an email?"Robin: "I've cut out all my fingers?" - Robin Scherbatsky
+Last updated: 2024-04-08 14:56:21
+Random Quote: You want to know the horrible truth?  I can't even remember what she looked like.  I only know she was the one thing I ever wanted, and seven kingdoms couldn't fill the hole she left behind.  -  Robert Baratheon
