@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 12:18:59
-Random Quote: I don't know anything about norse gods, but I do know how to bring the thunder. - Thor
+Last updated: 2024-04-08 12:19:34
+Random Quote: My real father died in King's Landing.  I made a choice, and I chose wrong.  -  Theon Greyjoy
