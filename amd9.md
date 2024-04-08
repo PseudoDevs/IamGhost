@@ -1,2 +1,3 @@
-Last updated: 2024-04-08 15:15:48
-Random Quote: Well, maybe this isn't a breakup. Maybe this is two friends getting back together. - Robin Scherbatsky
+Last updated: 2024-04-08 15:17:13
+Random Quote: Jessica: "I miss you."
+Morty: "You miss the old me. You miss someone that loved you so much, you never had to love him back." - Morty Smith
