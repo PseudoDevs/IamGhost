@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 07:12:00
-Random Quote: Kids, sometimes the universe sends exactly what you ask for. Other times... it sends Lily's dad. - Ted Mosby
+Last updated: 2024-04-08 07:12:35
+Random Quote: You have a passing clever father, Devan.  He makes me wish I had more smugglers in my service.  And fewer lords.  -  Stannis Baratheon
