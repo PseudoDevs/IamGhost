@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 11:08:45
-Random Quote: Ted, I believe you and I met for a reason. It's like the universe was saying: "Hey Barney, there's this dude, he's pretty cool, but it's your job to make him awesome." - Barney Stinson
+Last updated: 2024-04-08 11:09:17
+Random Quote: Saul Goodman is the last line of defense for the little guy. Are you getting sold down the river? He's a life raft. You getting stepped on? He's a sharp stick. You got Goliath on your back - Saul's the guy with the slingshot. He's the righter of wrongs. He's friend to the friendless. - Saul Goodman
