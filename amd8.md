@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 14:31:34
-Random Quote: Barney: "Our wedding is gonna be legendary."Robin: "No wait for it?"Barney: "I've got you, I don't have to wait for it anymore." - Barney Stinson
+Last updated: 2024-04-08 14:32:08
+Random Quote: I will go to my grave thinking of my brother's peach.  -  Stannis Baratheon
