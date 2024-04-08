@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 15:06:47
-Random Quote: Have you ever been told you're different, odd, or simply don't belong? In a world full of normies, do you feel like an outcast? Me too. But I'm pleased to tell you there's a very special place for people like us. Nevermore Academy. - Wednesday Addams
+Last updated: 2024-04-08 15:07:21
+Random Quote: So you're half cold, unfeeling reptile, half also cold, equally unfeeling machine? Wow, so your origin is what? You fell into a vat of redundancy? - Rick Sanchez
