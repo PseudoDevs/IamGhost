@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 14:54:42
-Random Quote: Baby, can we grow sandwiches behind the garage? - Marshall Eriksen
+Last updated: 2024-04-08 14:55:16
+Random Quote: Why the oldest son, and not the best - fitted?  The crown will suit me, as it never suited Robert and would not suit Stannis. 
