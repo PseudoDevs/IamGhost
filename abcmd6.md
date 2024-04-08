@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 13:02:42
-Random Quote: The only person who gets to torture my brother is me. - Wednesday Addams
+Last updated: 2024-04-08 13:03:15
+Random Quote: Power tastes best when sweetened by courtesy; you had best learn that if you ever hope to rule.  -  Roose Bolton

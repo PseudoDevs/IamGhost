@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 13:01:34
-Random Quote: We all face the same end. Those above have long forgotten us. They do not judge us. In death, I am all alone, and my only judge… is me. - Martha
+Last updated: 2024-04-08 13:03:15
+Random Quote: I could keep you safe.  They're all afraid of me.  No one would hurt you again, or I'd kill them.  -  Sandor Clegane
