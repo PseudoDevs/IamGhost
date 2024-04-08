@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 12:15:24
-Random Quote: You ought to have no trouble catching our uncles.  One is drunk on seawater, after all, and the other is a great grey bullock so dim he'll probably get lost.  -  Asha Greyjoy
+Last updated: 2024-04-08 12:15:57
+Random Quote: The day is won, and yet you do not smile, boy.  The living should smile, for the dead cannot.  -  Dagmer Cleftjaw
