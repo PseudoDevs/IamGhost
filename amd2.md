@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 07:22:33
-Random Quote: I prefer my history dead.  Dead history is writ in ink, the living sort in blood.  -  Rodrik Harlaw
+Last updated: 2024-04-08 07:23:06
+Random Quote: Some of you cared. None of you cared enough. - Hannah Baker
