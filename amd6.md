@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 14:04:07
-Random Quote: Elia of Dorne.  I killed her screaming whelp.  Then I raped her.  Then I smashed her fucking head in like this.  -  Gregor Clegane
+Last updated: 2024-04-08 14:05:13
+Random Quote: Now if you'll excuse me, I've got a quick solo adventure to go on - and this one will not be directed by Ron Howard. - Rick Sanchez
