@@ -1,5 +1,2 @@
-Last updated: 2024-04-08 07:38:51
-Random Quote: Bo-Katan: "I haven't seen battle droids since the Clone Wars."
-Din: "I have."
-Bo-Katan: "Any of 'em look suspicious?"
-Din: "They all look suspicious." - Din Djarin
+Last updated: 2024-04-08 07:39:24
+Random Quote: Good and evil are a question of perspective - Mikkel
