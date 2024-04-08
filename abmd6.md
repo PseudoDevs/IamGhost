@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 11:08:33
-Random Quote: Master Mott said Thoros could outdrink even King Robert.  They were pease in a pod, he told me, both gluttons and sots.  -  Gendry
+Last updated: 2024-04-08 11:10:13
+Random Quote: There is a 83% correlation between times when men are wearing a boutonniere and when they are getting laid... proms, weddings, funerals... thanks for the redhead, grandma! By the way, did you know that "boutonniere" is french for "booty is near"? - Barney Stinson
