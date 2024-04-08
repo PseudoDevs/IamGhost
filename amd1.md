@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 12:31:48
-Random Quote: I will see, and hear, and learn, and when I have I will carry the word back to the Wall.  The wildlings had taken him for an oathbreaker, but in his heart he was still a man of the Night's Watch, doing the last duty that Qhorin Halfhand had laid on him.  Before I killed him.  -  Jon Snow
+Last updated: 2024-04-08 12:32:24
+Random Quote: The most amazing things that can happen to a human being will happen to you, if you just lower your expectations. - Phil Dunphy
