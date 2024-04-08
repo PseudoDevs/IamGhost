@@ -1,3 +1,2 @@
-Last updated: 2024-04-08 13:01:23
-Random Quote: Jay: "I got you a little gift to celebrate. I know it’s not much...-"
-Gloria: "It’s practically nothing!" - Gloria Pritchett
+Last updated: 2024-04-08 13:01:56
+Random Quote: The "no more surprises"-thing is the best part of being married. - Lily Aldrin
