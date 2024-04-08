@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 13:17:03
-Random Quote: We all know what my brother would do.  Robert would gallop up to the gates of Winterfell alone, break them with his warhammer, and ride through the rubble to slay Roose Bolton with his left hand and the Bastard with his right.  I am no Robert.  But we will march, and we will free Winterfell... or die in the attempt.  -  Stannis Baratheon
+Last updated: 2024-04-08 13:17:36
+Random Quote: Have you seen Mace Tyrell's boy?  The Knight of Flowers, they call him.  Now there's a son any man would be proud to own to.  Last tourney, he dumped the Kingslayer on his golden rump, you ought to have seen the look on Cersei's face.  I laughed till my sides hurt.  -  Robert Baratheon
