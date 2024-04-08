@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 14:58:32
-Random Quote: Place was overrun with rats when we moved in.  The spearwives killed the nasty buggers.  Now the place is overrun with spearwives.  There's days I want the rats back.  -  Dolorous Edd Tollett
+Last updated: 2024-04-08 14:59:38
+Random Quote: Oh, we're busting apple bags? I can bust apple bags. - Robin Scherbatsky
