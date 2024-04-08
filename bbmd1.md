@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 12:53:08
-Random Quote: There is one problem with success. Not everyone can handle it. - Walt Breslin
+Last updated: 2024-04-08 12:54:15
+Random Quote: You are slow to learn, Lord Eddard.  Distrusting me was the wisest thing you've don since you climbed down off your horse.  -  Petyr Baelish
