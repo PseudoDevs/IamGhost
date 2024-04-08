@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 11:22:31
-Random Quote: Barney: "Or it's a chance to mess with her head by showing up with someone hotter. Even better. Triple-threat: hotter and bigger boobs."Ted: "That's only two?"Barney: "Count again!" - Barney Stinson
+Last updated: 2024-04-08 11:23:45
+Random Quote: Barney: "I only smoke in certain situations. Postcoital, when I'm with Germans, sometimes those two overlap, coital, birthdays, to annoy my mom, precoital, on a sailboat, the day the Mets are mathematically eliminated every year and pregnancy scares."Ted: "Why are you smoking right now?"Barney: "I'm always precoital, Ted." - Barney Stinson
