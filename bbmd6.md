@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 11:36:40
-Random Quote: It's the greatest samurai, who lets his sword rust in its scabbard. - Barney Stinson
+Last updated: 2024-04-08 11:37:12
+Random Quote: Qhorin was my enemy.  But also my brother, once.  So... shall I thank you for killing him, Jon Snow?  Or curse you?  -  Mance Rayder
