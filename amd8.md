@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 14:16:00
-Random Quote: Rick: "Hey Morty, quick favor."Morty: "What, cover me in gasoline and spiders? Fine, yeah, I'm in."Rick: "Wasn't my first pitch but hey, not gonna waste this opportunity." - Rick Sanchez
+Last updated: 2024-04-08 14:17:06
+Random Quote: Bronn was no knight, that was true.  Bronn was a battle - hardened killer. 
