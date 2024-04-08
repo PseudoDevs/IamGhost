@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 11:29:05
-Random Quote: Don’t take it so personally, okay? I don’t like most people. He’s in the vast majority. - Jonathan Byers
+Last updated: 2024-04-08 11:29:40
+Random Quote: There are moments when we must understand that the decisions we make influence more than just our own fates. - 
