@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 13:26:42
-Random Quote: One does not speak unless one knows. - Din Djarin
+Last updated: 2024-04-08 13:27:15
+Random Quote: The Night's Watch is a sworn brotherhood.  We have no families.  None of us will ever father sons.  Our wife is duty.  Our mistress is honor.  -  Benjen Stark
