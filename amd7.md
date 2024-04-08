@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 13:47:10
-Random Quote: I never wanted the throne, I only ever wanted to be your equal. - Thor
+Last updated: 2024-04-08 13:47:43
+Random Quote: Drugs are kind of cool. I mean, they're cool before they wreck your skin. And your life. And your family. That's when they get uncool. It's actually a very narrow window of cool. - Rue Bennett
