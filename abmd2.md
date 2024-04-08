@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 13:21:59
-Random Quote: She studied Theon Greyjoy's sly smile, wondering what it meant.  That young man had a way of looking as though he knew some secret jest that only he was privy to; Catelyn had never liked it.  -  Catelyn Stark
+Last updated: 2024-04-08 13:22:32
+Random Quote: You'd have been the last lawyer I'd have gone to. - Walter White
