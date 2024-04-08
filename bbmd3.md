@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 12:01:03
-Random Quote: 'You leaving already, Chief?"Jim Hopper: "Oh, come on, you think I actually wanted to come to this thing? I was just hungry."'Oh, yeah, that's the spirit."Jim Hopper: "Well, your wife doesn't have time to cook for me, you know what I'm saying." - Jim Hopper
+Last updated: 2024-04-08 12:01:39
+Random Quote: Adam: "Three viagras."Maeve: "Jesus Christ."Adam: "You said there was gonna be no judgement. Is three viagras bad? Her reaction made it seem like it was bad. I feel lightheaded and I can taste scampi."Maeve: "No wonder. You could besiege a castle with that thing."Adam: "I said stop staring at it!"Maeve: "Sorry, it's like a third leg." - Maeve Wiley
