@@ -1,3 +1,2 @@
-Last updated: 2024-04-08 14:32:07
-Random Quote: Morty: "I have English homework."
-Rick: "You're still learning English? It's the language you speak. How dumb are you?" - Rick Sanchez
+Last updated: 2024-04-08 14:32:41
+Random Quote: Discouraging premarital sex is against my religion. - Barney Stinson
