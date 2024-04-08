@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 11:24:50
-Random Quote: Marshall: "The last time I lived this far from him, was my semester abroad."Lily: "You never did a semester abroad?"Marshall: "That's what I called it, when we lived on opposite sides of the campus." - Marshall Eriksen
+Last updated: 2024-04-08 11:25:23
+Random Quote: Oh, come on. If you don't laugh, it just seems mean. - Barney Stinson
