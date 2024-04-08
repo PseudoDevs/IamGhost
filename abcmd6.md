@@ -1,2 +1,3 @@
-Last updated: 2024-04-08 13:38:58
-Random Quote: Ted: "Want to know what I looked like at age 15? There it is."Robin: "I don't get it, that guy wasn't masturbating."Barney: "Yeah, and the waistband of his undies wasn't pulled up to his Cub Scouts neckerchief." - Robin Scherbatsky
+Last updated: 2024-04-08 13:39:31
+Random Quote: Bro, bro, bro your broat, gently to the bar
+Hit on sluts, then do ten shots and... - Barney Stinson
