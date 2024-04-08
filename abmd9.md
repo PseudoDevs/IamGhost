@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 15:03:36
-Random Quote: What a man wants does not define him. What a man needs is what defines him. - Juan Nepomuceno Guerra
+Last updated: 2024-04-08 15:04:09
+Random Quote: I dream of a tree sometimes.  A weirwood, like the one in the godswood.  It calls to me.  The wolf dreams are better.  I smell things, and sometimes I can taste the blood.  -  Bran Stark
