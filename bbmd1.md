@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 07:39:09
-Random Quote: I've had shits that I've liked better than Walder Frey.  -  Brynden Tully
+Last updated: 2024-04-08 07:39:42
+Random Quote: If the cancer doesn't get him, it'll be the cops or a bullet to the head. - Mike Ehrmantraut
