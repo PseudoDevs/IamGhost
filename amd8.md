@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 12:07:25
-Random Quote: Talk about being a few sardines short of a can. - Bucky Barnes
+Last updated: 2024-04-08 12:08:32
+Random Quote: I have served six kings, but here before us lies the greatest man I ever knew.  Lord Tywin wore no crown, yet he was all a king should be.  -  Grand Maester Pycelle
