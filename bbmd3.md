@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 11:33:54
-Random Quote: She don't speak.  You bloody bastards cut her throat too deep for that.  But she remembers.  -  Lem Lemoncloack
+Last updated: 2024-04-08 11:34:27
+Random Quote: 'Damn, you look like hell, Chief."Jim Hopper: "Oh yeah? Well, I looked better than your wife when I left her this morning." - Jim Hopper
