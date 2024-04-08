@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 11:46:12
-Random Quote: Godless?  Why, Aeron, I am the godliest man ever to raise sail!  You serve one god, Damphair, but I have served ten thousand.  From Ib to Asshai, when men see my sails, they pray.  -  Euron Greyjoy
+Last updated: 2024-04-08 11:46:45
+Random Quote: If you don't like where you're heading, there's no shame in going back and changing your path. - Chuck McGill
