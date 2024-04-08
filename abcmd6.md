@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 14:43:06
-Random Quote: This is the one that you saved? You are as its father. A clan of two. But you have removed your helmet. Then you are a Mandalorian no more. - The Armorer
+Last updated: 2024-04-08 14:43:39
+Random Quote: Well, if there is something wrong with him, it ain't constipation. - Meemaw
