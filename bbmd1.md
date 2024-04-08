@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 14:13:33
-Random Quote: Sometimes distance is the only way to find peace. So you can heal your wound. - Berlin
+Last updated: 2024-04-08 14:14:06
+Random Quote: My father never bellowed like the Greatjon, but he was no less dangerous in his wroth.  -  Alys Karstark
