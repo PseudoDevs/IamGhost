@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 07:40:40
-Random Quote: Until the Mountain crushed my brother's skull, no Dornishmen had died in this War of the Five Kings.  Tell me, Captain, is that my shame or my glory?  -  Doran Martell
+Last updated: 2024-04-08 07:41:14
+Random Quote: You're like Hitler! But even Hitler cared about Germany or something. - Morty Smith
