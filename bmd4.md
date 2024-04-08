@@ -1,3 +1,2 @@
-Last updated: 2024-04-08 12:12:07
-Random Quote: Man: "Hello, sir. Can I talk to you?"
-Gi-hun: "I don't believe in Jesus." - Seong Gi-hun
+Last updated: 2024-04-08 12:12:39
+Random Quote: Piper: "Not every Hispanic person wants the same thing."Lorna: "Oh, sure they do. They all want to come to America."Nicky: "Jesus, your entire world view is based on 'West Side Story', isn't it?" - Nicky Nichols
