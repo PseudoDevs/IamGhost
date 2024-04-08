@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 13:25:54
-Random Quote: Jesus! Just grow some fucking balls! - Walter White
+Last updated: 2024-04-08 13:26:28
+Random Quote: Oh man, I am so excited that you're here! It has been forever since I have been around anyone even remotely fun![to Lily, Robin, Ted and Marshall] Huh... yes, offense! - Barney Stinson
