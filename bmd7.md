@@ -1,2 +1,7 @@
-Last updated: 2024-04-08 13:04:58
-Random Quote: What is dead may never die, but rises again, harder and stronger  -  Words of the Drowned God
+Last updated: 2024-04-08 13:05:32
+Random Quote: Bo-Katan: "You are a disgrace to your armor."
+Boba Fett: "This armor belonged to my father."
+Bo-Katan: "Don't you mean your donor?"
+Boba Fett: "Careful, princess."
+Bo-Katan: "You are a clone. I've heard your voice thousands of times."
+Boba Fett: "Mine might be the last one you hear." - Boba Fett
