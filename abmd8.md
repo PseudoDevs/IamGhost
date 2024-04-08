@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 07:43:22
-Random Quote: I don't wanna be choosing between two girls, I wanna be a complete head over heels idiot for one! - Ted Mosby
+Last updated: 2024-04-08 07:43:56
+Random Quote: Sometimes people make decisions, shit happens, and we gotta act accordingly. - Marty Byrde
