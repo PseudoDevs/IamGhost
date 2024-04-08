@@ -1,3 +1,2 @@
-Last updated: 2024-04-08 14:31:00
-Random Quote: Ellie: "Everybody I've cared for, either died or left me."
-Joel: "You have no idea what loss is." - Joel Miller
+Last updated: 2024-04-08 14:32:08
+Random Quote: Shoot me and tomorrow those names are released. But save a bullet for yourself. Cause the system doesn't like heroes. - Miguel Angel Felix Gallardo
