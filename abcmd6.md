@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 12:25:25
-Random Quote: The more you give a king, the more he wants.  We are walking on a bridge of ice with an abyss on either side.  Pleasing one king is difficult enough.  Pleasing two is hardly possible.  -  Jon Snow
+Last updated: 2024-04-08 12:26:35
+Random Quote: Because they are the knights of summer, and winter is coming.  -  Catelyn Stark
