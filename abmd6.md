@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 11:21:14
-Random Quote: Larry Bloom: "Are we at least gonna talk about other options?"Piper Chapman: "You mean..."Larry Bloom: "It's not Voldemort, you can say it. Abortion." - Larry Bloom
+Last updated: 2024-04-08 11:21:50
+Random Quote: When you spend years thinking about something obsessively, that something is your whole world, your perfect world. - Tokyo
