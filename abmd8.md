@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 11:08:33
-Random Quote: Might be you fooled these others, crow, but don't think you'll be fooling Mance.  He'll take one look a' you and know you're false.  And when he does, I'll make a cloak o' your wolf there, and open your soft boy's belly and sew a weasel up inside.  -  the Lord of Bones
+Last updated: 2024-04-08 11:09:06
+Random Quote: People are making apocalypse jokes like there's no tomorrow. - Will Livingston
