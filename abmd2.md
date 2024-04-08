@@ -1,3 +1,2 @@
-Last updated: 2024-04-08 14:01:15
-Random Quote: Lily: "We don't wanna burden our little angel with all kinds of gender-specific expectations. Boys can do ballet, girls can play football."
-Marshall: "Hell, the Green Bay Packers have been proving that for years." - Marshall Eriksen
+Last updated: 2024-04-08 14:01:48
+Random Quote: Every journey has a beginning. But change one step along the way, and you could end up at a very different destination. - The Watcher
