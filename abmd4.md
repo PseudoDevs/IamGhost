@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 07:46:10
-Random Quote: Barney: "This is one of those things you have to do before you turn 30."Ted: "Sleep with a prostitute?!"Barney: "No, lose your virginity!... What up?" - Barney Stinson
+Last updated: 2024-04-08 07:46:47
+Random Quote: Sometimes it just feels better not to talk. At All. About Anything. To Anyone. - Walter White
