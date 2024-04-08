@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 11:57:20
-Random Quote: Your innocence may be as plain as the scar on your face, but it will not save you.  No more than your father will.  But I might.  Not as your judge.  As your champion.  -  Oberyn Martell
+Last updated: 2024-04-08 11:57:53
+Random Quote: When I get sad, I stop being sad and be awesome instead. True Story. - Barney Stinson
