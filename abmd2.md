@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 14:40:35
-Random Quote: Barney: "On your tombstone, it will be, 'Lily Aldrin. Caring wife. Loving friend. Slapbet-Commissioner.'"Marshall: "And your tombstone will read, 'Got slapped by Marhsall so hard he died.'" - Marshall Eriksen
+Last updated: 2024-04-08 14:41:09
+Random Quote: I never met a real Mandalorian. Heard stories. I know you're good at killing. - Cobb Vanth
