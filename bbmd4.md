@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 12:10:27
-Random Quote: Marshall: "Baby, you're like 20 slutty chicks all rolled into one."Lily: "Sweet-talk is not gonna change my mind!" - Lily Aldrin
+Last updated: 2024-04-08 12:11:00
+Random Quote: In all the world, violent men are the easiest to deal with. - Irene O'Donnell
