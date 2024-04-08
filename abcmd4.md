@@ -1,4 +1,2 @@
-Last updated: 2024-04-08 14:30:27
-Random Quote: Jimmy: "I can't believe Wanda and Vision are having a baby."
-Darcy Lewis: "You want any?"
-Jimmy: "Heck, I thought about it for sure. A little Jimmy Woo. Get him a tiny little FBI badge... oh, you... chip? Sure." - Jimmy Woo
+Last updated: 2024-04-08 14:31:00
+Random Quote: They threw him off the goddamn railing. There's no way someone survives that. And yet, here he is. How is that possible? - Eyk Larsen
