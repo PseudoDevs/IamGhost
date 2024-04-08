@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 07:29:44
-Random Quote: You are her perfect prince, agreed, bright and bold and comely as any maid could wish.  Daenerys Targaryen is no maid, however.  She is the widow of a Dothraki Khal, a mother of dragons and sacker of cities, Aegon the Conquereror with teats.  She may not prove as willing as you wish.  -  Tyrion Lannister
+Last updated: 2024-04-08 07:30:17
+Random Quote: Shelly, remember when you thought you had leprosy, and it was just a patch of dry skin? - Mary
