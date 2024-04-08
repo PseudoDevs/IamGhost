@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 11:54:35
-Random Quote: Where has it gotten me? Nowhere. I can't talk to the person I love. People still don't take me seriously. I wanna be numb again. - Klaus Hargreeves
+Last updated: 2024-04-08 11:55:08
+Random Quote: Robert was never the same after he put on that crown.  Some men are like swords, made for fighting.  Hang them up and they go to rust.  -  Donal Noye
