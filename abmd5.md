@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 07:36:38
-Random Quote: Best-available idea doesn't make something a good idea. - Kinsey Locke
+Last updated: 2024-04-08 07:37:45
+Random Quote: We all must choose.  Man or woman, young or old, lord or peasant, our choices are the same.  We choose light or we choose darkness.  -  Melisandre
