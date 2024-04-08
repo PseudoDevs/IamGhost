@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 13:49:37
-Random Quote: You see, ladies? When you're out with a Blinder, you don't have to queue. - Arthur Shelby
+Last updated: 2024-04-08 13:50:45
+Random Quote: Mando: "I was not born on Mandalore."Greef Karga: "But you're Mandalorian?"Cara Dune: "Mandalorian isn't a race."Mando: "It's a Creed." - Din Djarin

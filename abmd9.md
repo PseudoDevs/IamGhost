@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 13:50:11
-Random Quote: I know the poison that my father used, and there is none slower or more agonizing.  Soon we may hear the Mountain screaming, even here in Sunspear.  -  Tyene Sand
+Last updated: 2024-04-08 13:50:46
+Random Quote: The stone is strong... the roots of the trees grow deep, and under the ground the Kings of Winter sit their thrones.  So long as those remained, Winterfell remained.  It was not dead, just broken.  Like me... I'm not dead either.  -  Bran Stark

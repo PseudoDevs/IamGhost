@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 13:49:02
-Random Quote: A man will tell you poison is dishonorable, but a woman's honor is different.  The Mother shaped us to protect our children, and our only dishonor is failure.  -  Lysa Arryn
+Last updated: 2024-04-08 13:50:45
+Random Quote: Bulls are strong.  Bears.  I have seen my bastard fight.  He is not entirely to blame.  Reek was his tutor, the first Reek, and Reek was never trained at arms.  Ramsay is ferocious, I will grant you, but he swings that sword like a butcher hacking meat.  -  Roose Bolton

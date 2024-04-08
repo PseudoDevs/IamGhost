@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 13:49:37
-Random Quote: My father won all the battles.  He killed Prince Rhaegar and took the crown, while your father was hiding under Casterly Rock.  A strong king acts boldly, he doesn't just talk.  -  Joffrey Baratheon
+Last updated: 2024-04-08 13:50:46
+Random Quote: 'You leaving already, Chief?"Jim Hopper: "Oh, come on, you think I actually wanted to come to this thing? I was just hungry."'Oh, yeah, that's the spirit."Jim Hopper: "Well, your wife doesn't have time to cook for me, you know what I'm saying." - Jim Hopper
