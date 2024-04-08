@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 12:50:10
-Random Quote: Clearly, his taste in women is the same as his taste in lawyers. - Saul Goodman
+Last updated: 2024-04-08 12:50:43
+Random Quote: Just in case either of us can actually make it out of this hellhole somehow, we'll look after each other's loved ones, okay? - Oh Il-nam
