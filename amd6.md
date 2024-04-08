@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 13:00:11
-Random Quote: We're going to Buffalo... and I've seen women from there; the city's aptly named. - Barney Stinson
+Last updated: 2024-04-08 13:00:44
+Random Quote: Minds are like swords, I do fear.  The old ones go to rust.  -  Grand Maester Pycelle
