@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 11:57:33
-Random Quote: Crazy? I'll tell you what's crazy. 50-year-old high school chemistry teacher comes into my office. The guy is so broke, he can't pay his own mortgage. One year later, he's got a pile of cash as big as a Volkswagen. - Saul Goodman
+Last updated: 2024-04-08 11:58:06
+Random Quote: I guess, if we're splitting hairs, then technically... there was a plurality to the times I've lied to women for sex-having-purposes. - Barney Stinson
