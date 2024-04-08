@@ -1,6 +1,2 @@
-Last updated: 2024-04-08 14:59:11
-Random Quote: Polly: "Six."
-John: "Six what?"
-Polly: "Six questions since you walked through that door. Soon you'll have to start being the man with the answers."
-John: "Why?"
-Polly: "Seven." - Polly Gray
+Last updated: 2024-04-08 15:00:18
+Random Quote: Smoking marijuana, eating cheetos, and masturbating do not constitute plans in my book. - Walter White
