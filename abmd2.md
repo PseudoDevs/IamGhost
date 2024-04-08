@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 13:35:54
-Random Quote: Marshall: "I don't care if the dishes aren't done, okay? If you care, you do it."Lily: "Great, then I don't care if you have an orgasm. If you care, you do it." - Lily Aldrin
+Last updated: 2024-04-08 13:36:28
+Random Quote: You've been a hell of a wingman. And even though I think it's kind of gross when you pleasure yourself orally, don't ever think that means I'm not impressed. - Barney Stinson
