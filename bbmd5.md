@@ -1,2 +1,4 @@
-Last updated: 2024-04-08 12:16:07
-Random Quote: It seems to me that a queen who trusts no one is as foolish as a queen who trusts everyone.  -  Daenerys Targaryen
+Last updated: 2024-04-08 12:16:41
+Random Quote: Bo-Katan: "I've scugged off a lot of Imperial warlords."
+Din: "They tend to get mad when you hijack their ships."
+Bo-Katan: "Now you tell me." - Bo-Katan
