@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 07:33:04
-Random Quote: Friendships are the foundation that we stand on. - Nina Locke
+Last updated: 2024-04-08 07:33:41
+Random Quote: Tell the Crow's Eye he's afraid of kinslaying and he'll murder one of his own sons just to prove you wrong.  -  Asha Greyjoy

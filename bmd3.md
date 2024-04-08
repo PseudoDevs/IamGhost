@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 07:31:08
-Random Quote: Pardon my French, f-ck those f-ckers! - Billy Butcher
+Last updated: 2024-04-08 07:33:42
+Random Quote: New York! Home of the Mets, the Chrysler Building, those ladies from Sex and the City and now, the zombie apocalypse. If you can make it here, you can make it anywhere - but first, you have to not get eaten. - Spider-Man
