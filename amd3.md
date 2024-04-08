@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 11:32:53
-Random Quote: When the truth offends me, we lie and we lie until we can no longer remember it is even there. Every lie we tell incurs a debt to the truth. Sooner or later, that debt is paid. - Valery Legasov
+Last updated: 2024-04-08 11:33:26
+Random Quote: I can bring you in warm, or I can bring you in cold. - Din Djarin
