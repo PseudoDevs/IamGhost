@@ -1,2 +1,6 @@
-Last updated: 2024-04-08 13:17:29
-Random Quote: Early drinkin’ means quick drunken. - Jim Hopper
+Last updated: 2024-04-08 13:18:02
+Random Quote: Polly: "Six."
+John: "Six what?"
+Polly: "Six questions since you walked through that door. Soon you'll have to start being the man with the answers."
+John: "Why?"
+Polly: "Seven." - Polly Gray
