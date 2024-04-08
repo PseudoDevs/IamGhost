@@ -1,3 +1,2 @@
-Last updated: 2024-04-08 14:47:22
-Random Quote: Men and their d-cks never cease to amaze me. John, Lizzie Stark never did a day's work vertical.
-Brave is going where no man has gone before. And with Lizzie Stark, John, that's not what you'll be doing. - Polly Gray
+Last updated: 2024-04-08 14:48:31
+Random Quote: We’re not free in what we do because we’re not free in what we want. We can’t overcome what’s deep within us - The Stranger
