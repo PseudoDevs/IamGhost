@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 11:40:25
-Random Quote: I think it passing odd that I am loved by one for a kindness I never did, and reviled by so many for my finest act.  -  Jaime Lannister
+Last updated: 2024-04-08 11:41:00
+Random Quote: I understand that if any more words come pouring out of your cunt mouth I'm going to have to eat every fucking chicken in this room.  -  Sandor Clegane
