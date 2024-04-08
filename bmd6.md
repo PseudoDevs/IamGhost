@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 11:21:55
-Random Quote: Oh my God, Larry, by the time I get out, there will've been like three new generations of iPhones! - Piper Chapman
+Last updated: 2024-04-08 11:24:59
+Random Quote: Serve, Obey, Protect.  Simple vows for a simple man.  -  Areo Hotah
