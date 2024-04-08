@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 13:36:27
-Random Quote: I'd ask what you're up to, Klaus, but then it occurred to me: I don't care. - Number Five
+Last updated: 2024-04-08 13:37:01
+Random Quote: Do you know what it is like to be sold, squire?  I do.  My brother sold me to Khal Drogo for the promise of a golden crown.  Well, Drogo crowned him in gold, though not as he had wished, and I... my sun - and
