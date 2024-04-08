@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 14:36:30
-Random Quote: I wish my mental problems made me look like you. - Kat Hernandez
+Last updated: 2024-04-08 14:37:03
+Random Quote: Here's what's gonna happen. One day you're gonna wake up, eat your breakfast, brush your teeth, go about your business. And sooner or later, you're gonna realize you haven't thought about it. None of it. And that's the moment you realize you can forget. When you know that's possible, it all gets easier. - Mike Ehrmantraut
