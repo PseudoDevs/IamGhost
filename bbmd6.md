@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 12:58:25
-Random Quote: A man will tell you poison is dishonorable, but a woman's honor is different.  The Mother shaped us to protect our children, and our only dishonor is failure.  -  Lysa Arryn
+Last updated: 2024-04-08 12:58:58
+Random Quote: The past is always with us, Tyler. Now, you can try and run away but it's always there. - Rendell Locke
