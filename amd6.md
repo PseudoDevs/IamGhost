@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 13:12:55
-Random Quote: I am IRONBORN!  I laugh at death.  -  Victarion Greyjoy
+Last updated: 2024-04-08 13:14:04
+Random Quote: I like dogs better than knights... A hound will die for you, but never lie to you.  And he'll look you straight in the face.  -  Sandor Clegane

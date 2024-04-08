@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 13:13:30
-Random Quote: Listen, Morty. I hate to break it to you, but what people call 'Love' is just a chemical reaction that compells animals to breed. It hits hard, Morty, then it slowly fades. - Rick Sanchez
+Last updated: 2024-04-08 13:14:04
+Random Quote: Dance, until your feet hurt. Sing, until your lungs hurt. Act, until you're William Hurt. - Phil Dunphy
