@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 14:03:54
-Random Quote: I understand that if any more words come pouring out of your cunt mouth I'm going to have to eat every fucking chicken in this room.  -  Sandor Clegane
+Last updated: 2024-04-08 14:04:27
+Random Quote: I did it for me. I liked it. I was good at it. And I was really... I was alive. - Walter White
