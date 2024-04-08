@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 12:20:10
-Random Quote: Italy doesn't need something that is wrinkled, red and leaky, and smells like booze and narcotics. They've already got former Prime Minister Silvio Berlusconi. - Marshall Eriksen
+Last updated: 2024-04-08 12:21:20
+Random Quote: I am the storm, my lord, the first storm, and the last.  -  Euron Greyjoy
