@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 12:23:39
-Random Quote: You don’t want a criminal lawyer. You want a criminal lawyer. - Jesse Pinkman
+Last updated: 2024-04-08 12:24:14
+Random Quote: Anyone who goes after him is gonna have to come through me. - Mike Ehrmantraut
