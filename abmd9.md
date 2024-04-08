@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 07:13:05
-Random Quote: In my body, where the shame gland should be, there is a second awesome gland. True story! - Barney Stinson
+Last updated: 2024-04-08 07:14:18
+Random Quote: Once, she had loved Prince Joffrey with all her heart, and admired and trusted his mother, the queen.  They had repaid that love and trust with her father's head.  Sansa would never make that mistake again.  -  Sansa Stark
