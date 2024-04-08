@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 11:59:18
-Random Quote: Come on Ted, it's 2012. What do you expect, to meet some cute travel agent when you're reading a newspaper at a bookstore? None of those things exist anymore! - Barney Stinson
+Last updated: 2024-04-08 11:59:52
+Random Quote: For the night is dark and full of terrors.  -  Words of R'hllor
