@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 12:32:24
-Random Quote: Talkin' to you was one of the best parts of my whole year. - Fezco
+Last updated: 2024-04-08 12:33:00
+Random Quote: Edric Storm, they call him.  He is said to be the very image of my brother.  If men were to see him, and then look again at Joffrey and Tommen, they could not help but wonder, I would think.  -  Stannis Baratheon
