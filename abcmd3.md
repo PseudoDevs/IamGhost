@@ -1,2 +1,3 @@
-Last updated: 2024-04-08 15:00:51
-Random Quote: Damn it, Ted! I was about to drop some sweet word play about logarithms and getting into a rhythm with my log. - Barney Stinson
+Last updated: 2024-04-08 15:01:25
+Random Quote: Jerry: "Well, traditionally, science faires are a father-son thing."
+Rick: "Well, scientifically, traditions are an idiot thing." - Rick Sanchez
