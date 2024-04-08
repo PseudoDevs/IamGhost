@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 14:56:34
-Random Quote: I'll never find that kind of love. There's just no darkness. It's just sweet. I don't know if that would ever be enough for me. - Maddy Perez
+Last updated: 2024-04-08 14:57:07
+Random Quote: You want to know if I was ever really in love with you? Every morning, I wake up wishing I wasn't. You are a constant reminder of what I can't have. A life. Love. You. - Lucien

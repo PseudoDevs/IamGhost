@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 14:56:34
-Random Quote: I only have one rule. For every three 10's you bang, throw a bone to a 5. They're grateful and hard working and let's face it, sometimes you just want to lay there. - Barney Stinson
+Last updated: 2024-04-08 14:57:07
+Random Quote: Hush, Alerie, don't take that tone with me.  And don't call me mother.  If I'd given birth to you, I'm sure I'd remember.  I'm only to blame for your husband, the lord oaf of Highgarden.  -  Olenna Tyrell
