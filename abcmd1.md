@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 15:03:05
-Random Quote: Love is poison.  A sweet poison, yes, but it will kill you all the same.  -  Cersei Lannister
+Last updated: 2024-04-08 15:04:45
+Random Quote: Because someday, something will go wrong. It could cost you your life or something worse. And on that day what you can’t be thinking is that you are to be blamed for something you couldn’t control. That’s life. Enjoy it, until the party is over. - Berlin
