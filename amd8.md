@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 11:17:00
-Random Quote: I have always wanted to have one mahogany desk, but crime and office don’t get along. - Berlin
+Last updated: 2024-04-08 11:17:32
+Random Quote: You want to rule?  This is what ruling is; lying on a bed of weeds, ripping them out by the root, one by one, before they strangle you in your sleep.  -  Cersei Lannister
