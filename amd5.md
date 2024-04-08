@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 13:24:05
-Random Quote: Strip off their skins.  Lord Bolton, he used to say a naked man has few secrets, but a flayed man's got none.  -  Ramsay Bolton
+Last updated: 2024-04-08 13:24:38
+Random Quote: When treating with liars, even an honest man must lie.  -  Wyman Manderly
