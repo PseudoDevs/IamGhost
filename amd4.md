@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 07:38:08
-Random Quote: A bag of dragons buys a man's silence for a while, but a well - placed quarrel buys it forever. 
+Last updated: 2024-04-08 07:38:44
+Random Quote: We have to control this fing world, or it will control you. And if you don't protect yourself, it makes a mess and breaks you. - Miguel Angel Felix Gallardo
