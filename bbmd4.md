@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 12:07:35
-Random Quote: Obara would make Oldtown our father's funeral pyre, but I am not so greedy.  Four lives will suffice for me.  Lord Tywin's golden twins, as payment for Elia's children.  The old lion, for Elia herself.  And last of all the little king, for my father... only royal blood can wash out my father's murder.  -  Nymeria Sand
+Last updated: 2024-04-08 12:08:10
+Random Quote: Kids, Robin and Barney had recently shared an awkward moment. After that, they did what any two mature adults would do: They pretended it never happened. - Ted Mosby
