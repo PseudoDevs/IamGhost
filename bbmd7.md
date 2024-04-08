@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 12:26:06
-Random Quote: That went surprisingly well. You came off like a naive idiot - and naive idiots are not a threat. - Viktor Bryukhanov
+Last updated: 2024-04-08 12:26:39
+Random Quote: I have my voice, and the god is with me.  Mine is the strength of the sea, a strength the Crow's Eye cannot hope to withstand.  The waves may break upon the mountain, yet still they come, wave upon wave, and in the end only pebbles remain where once the mountain stood.  And soon even the pebbles are swept away, to be ground beneath the sea for all eternity.  -  Aeron Greyjoy
