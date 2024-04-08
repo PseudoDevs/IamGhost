@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 11:37:24
-Random Quote: At night, I fall asleep to you, and in the morning, I wake up to you. I kind of feel closer to you than I do anyone in the world. - Nate Jacobs
+Last updated: 2024-04-08 11:38:36
+Random Quote: Do you remember that cave?  We should have stayed in that cave.  I told you so.  -  Ygritte
