@@ -1,4 +1,2 @@
-Last updated: 2024-04-08 13:09:29
-Random Quote: Rebecca: "So, I spoke to the owner of The Sun."
-Ted: "You spoke to God?!"
-Rebecca: "No, the newspaper." - Rebecca Welton
+Last updated: 2024-04-08 13:10:38
+Random Quote: The Mandalorian. His armor alone is worth more than my bounty. - Fennec Shand
