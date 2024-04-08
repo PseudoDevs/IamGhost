@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 12:34:46
-Random Quote: The Universe is Random. Not Inevitable. It's simple Chaos. - Walter White
+Last updated: 2024-04-08 12:35:22
+Random Quote: My father never bellowed like the Greatjon, but he was no less dangerous in his wroth.  -  Alys Karstark
