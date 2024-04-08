@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 14:48:28
-Random Quote: My lady, I have seen how you look at my brother.  Loras is valiant and handsome, and we all love him dearly... but your Imp will make a better husband.  He is a bigger man than he seems, I think.  -  Garlan Tyrell
+Last updated: 2024-04-08 14:49:01
+Random Quote: I count no day as lived unless I have loved a woman, slain a foeman, and eaten a fine meal.  -  Daario Naharis
