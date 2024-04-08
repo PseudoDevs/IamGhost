@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 12:44:32
-Random Quote: Dead people are notoriously bad at returning calls. - Wednesday Addams
+Last updated: 2024-04-08 12:45:05
+Random Quote: She don't speak.  You bloody bastards cut her throat too deep for that.  But she remembers.  -  Lem Lemoncloack
