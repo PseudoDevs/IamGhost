@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 13:25:44
-Random Quote: Science is neat, but I’m afraid it’s not very forgiving. - Scott Clarke
+Last updated: 2024-04-08 13:26:17
+Random Quote: Why should I go running to my aunt as if I were a beggar?  My claim is better than her own.  Let her come to me... in Westeros.  -  Aegon Targaryen
