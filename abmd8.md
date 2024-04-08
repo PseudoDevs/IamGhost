@@ -1,3 +1,2 @@
-Last updated: 2024-04-08 07:22:48
-Random Quote: May: "May Carleton. I breed racehorses and train them. What is it you do?"
-Thommy: "I rarely answer questions is what I do." - Thomas Shelby
+Last updated: 2024-04-08 07:23:25
+Random Quote: Pardon my French, f-ck those f-ckers! - Billy Butcher
