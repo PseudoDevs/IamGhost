@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 11:54:30
-Random Quote: I think my soul just threw up a little bit. - Lily Aldrin
+Last updated: 2024-04-08 11:55:03
+Random Quote: Don't believe everything you hear. Our enemies want to separate us. But Mandalorians are stronger together. - Bo-Katan
