@@ -1,2 +1,3 @@
-Last updated: 2024-04-08 07:51:12
-Random Quote: If ever a man deserved to die screaming, it was Gregor Clegane.  -  Doran Martell
+Last updated: 2024-04-08 07:51:47
+Random Quote: Grace: "I had the phone put in. It's in the back."
+Tommy: "If we knew someone else who had a phone, we could call them." - Thomas Shelby
