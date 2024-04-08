@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 07:47:18
-Random Quote: Marshall: "It's kind of a big, professional meeting. You might want to trade out that lollipop for a shirt."Ted: "Yeah. I'll just give it to one of these kids."Marshall: "Oh, buddy. You're half naked, you're not a parent to any of these children. Don't offer 'em candy!" - Marshall Eriksen
+Last updated: 2024-04-08 07:47:51
+Random Quote: Someone has to protect this family from the man who protects this family. - Skyler White
