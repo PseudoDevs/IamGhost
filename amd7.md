@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 12:06:20
-Random Quote: Client: "Please lower your blaster."Mando: "Tell them to lower theirs first."Stormtrooper: "We have you four to one."Mando: "I like those odds." - Din Djarin
+Last updated: 2024-04-08 12:06:53
+Random Quote: You have courage.  Not battle courage perhaps but... I don't know... a kind of woman's courage.  -  Brienne of Tarth
