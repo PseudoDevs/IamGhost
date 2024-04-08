@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 13:52:26
-Random Quote: What did the mermaid wear to her math class? An algae bra! - Will Livingston
+Last updated: 2024-04-08 13:52:59
+Random Quote: Get the keys and remove those chains from him, before you make me rue the day I raped your mother.  -  Roose Bolton
