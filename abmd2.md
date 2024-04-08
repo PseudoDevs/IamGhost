@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 13:08:15
-Random Quote: Some things are more important than doing math problems. - Bode Locke
+Last updated: 2024-04-08 13:08:48
+Random Quote: You have courage.  Not battle courage perhaps but... I don't know... a kind of woman's courage.  -  Brienne of Tarth
