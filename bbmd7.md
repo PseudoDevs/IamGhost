@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 12:20:06
-Random Quote: I hate kids. They don't drink, they haven't travelled... - Nicky Nichols
+Last updated: 2024-04-08 12:20:39
+Random Quote: It doesn't matter how tough you are, you're not going to win in this place. Not on your own. - Jang Deok-su
