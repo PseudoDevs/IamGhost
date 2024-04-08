@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 07:29:35
-Random Quote: You're mine.  Mine, as I'm yours.  And if we die, we die.  All men must die, Jon Snow.  But first, we'll live.  -  Ygritte
+Last updated: 2024-04-08 07:30:08
+Random Quote: Barney: "Tell me more. Tell me more. Like did he have a car?"Marshall: "So is he the guy who... how shall I say this like a gentleman? Robin, did he take your maple leaf?"Barney: "Sounds to me like he gave you your first 'O Canada' face!" - Barney Stinson
