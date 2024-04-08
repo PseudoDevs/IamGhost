@@ -1,2 +1,3 @@
-Last updated: 2024-04-08 11:08:39
-Random Quote: My only aim is to take many lives. The more the better I feel. - 
+Last updated: 2024-04-08 11:09:11
+Random Quote: Summer: "Someone out there is trying to kill us."
+Rick: "Someone's always trying to kill us." - Rick Sanchez
