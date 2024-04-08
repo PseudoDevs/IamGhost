@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 07:18:34
-Random Quote: There are things out there that our little minds will never comprehend - 
+Last updated: 2024-04-08 07:19:10
+Random Quote: The common people pray for rain, healthy children, and a summer that never ends.  It is no matter to them if the high lords play their game of thrones, so long as they are left in peace.  They never are.  -  Jorah Mormont
