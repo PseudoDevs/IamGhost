@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 11:17:27
-Random Quote: So you're mining stuff to craft with and crafting stuff to mine with? Did your dad write this game? - Rick Sanchez
+Last updated: 2024-04-08 11:18:03
+Random Quote: A family is like a small business. And with a small business, at times, there comes a bit of transition. - Marty Byrde
