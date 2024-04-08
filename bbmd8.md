@@ -1,4 +1,2 @@
-Last updated: 2024-04-08 11:31:46
-Random Quote: Ted: "Okay, time to get the horn back to the bistro."
-Robin: "Oh Ted, I don't know if I can go again, that tuckered me out."
-Ted: "No euphemism." - Robin Scherbatsky
+Last updated: 2024-04-08 11:32:19
+Random Quote: There are things out there that our little minds will never comprehend - 
