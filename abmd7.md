@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 12:37:07
-Random Quote: There is a time to fight and there is a time to be clever. - Pablo Escobar
+Last updated: 2024-04-08 12:37:43
+Random Quote: Larry Bloom: "Piper, you put a pee stick in my rinsing cup."Piper Chapman: "Well, you put your pee stick in my vagina. And that's why we're in this situation." - Piper Chapman
