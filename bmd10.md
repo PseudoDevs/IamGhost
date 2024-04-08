@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 14:59:50
-Random Quote: I have let you come wash my dishes. I said my oven needed cleaning, I invited you to a p-rno! - Victoria
+Last updated: 2024-04-08 15:00:56
+Random Quote: Why is it always the innocents who suffer most, when you high lords play your game of thrones?  -  Varys
