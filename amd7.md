@@ -1,3 +1,2 @@
-Last updated: 2024-04-08 13:48:16
-Random Quote: "Everybody else can see Ben, right?"
-"Yeah, and he's a complete d-ckhead." - Allison Hargreeves
+Last updated: 2024-04-08 13:48:49
+Random Quote: The Empire improves every system it touches. Judge by any metric: safety, prosperity, trade, opportunity, peace. Compare Imperial rule to what is happening right now. Is the world more peaceful since the revolution? I see nothing but death and chaos. - The Client
