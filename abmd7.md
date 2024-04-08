@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 13:44:25
-Random Quote: A true man does what he will, not what he must.  -  Cersei Lannister
+Last updated: 2024-04-08 13:45:35
+Random Quote: That was the night I was born. I rose like a phoenix from her mentholated bosom and strode into the world, Armani-clad and fully awesome. - Barney Stinson
