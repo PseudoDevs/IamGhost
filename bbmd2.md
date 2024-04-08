@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 13:39:57
-Random Quote: Let justice be done though the heavens fall. - Saul Goodman
+Last updated: 2024-04-08 13:40:30
+Random Quote: I was weaned on venom, Dalt.  Any viper takes a bite of me will rue it.  -  Gerold Dayne
