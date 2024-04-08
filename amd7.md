@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 11:13:08
-Random Quote: Hello heart... thought I'd lost ya. - Rue Bennett
+Last updated: 2024-04-08 11:13:42
+Random Quote: This is New York City, don't get close to the neighbours. You nod at them politely in the hall, you call the cops if you haven't seen them in a while and you smell something funny and that's it! - Ted Mosby
