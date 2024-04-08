@@ -1,2 +1,4 @@
-Last updated: 2024-04-08 13:09:56
-Random Quote: War. Such a fascinating concept. A temporary salve for a permanent human flaw. - The Handler
+Last updated: 2024-04-08 13:10:29
+Random Quote: Bro McDonald had a farm, E-I-E-I-bro
+And on that farm he had some chicks, E-I-E-I-bro
+With a hot chick here and a dumb chick there... - Barney Stinson
