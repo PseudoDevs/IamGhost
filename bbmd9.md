@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 12:02:47
-Random Quote: A dog who bites every owner he's had can only be disciplined with a firm hand. Or put down. - Gustavo Fring
+Last updated: 2024-04-08 12:03:23
+Random Quote: Because you're so broken you don't even trust yourself. And that's scary. - Nate Jacobs
