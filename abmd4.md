@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 07:22:13
-Random Quote: Ted: "Basketball, people don't realize, is all geometry, physics and engineering. If you think like an architect, you could win a thousand games without ever touching a ball."Barney: "What happened to your ball?"Ted: "Some kids from the Hebrew school next door took it and wouldn't give it back." - Ted Mosby
+Last updated: 2024-04-08 07:23:28
+Random Quote: Robin: "Our boy's back in the game."Lily: "Thank God, it's been a hundred years since Mosby scored a dame."Marshall: "The last time he saw boobies was the screen-test scene in 'Fame'."Robin: "The last girl he dated, I think 'Righty' was her name." - Robin Scherbatsky
