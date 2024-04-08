@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 11:20:26
-Random Quote: Screw the FCC! I'll go to the mat with those pencil-pushers! This is textbook freedom of speech. What could be more American than that? - Saul Goodman
+Last updated: 2024-04-08 11:20:59
+Random Quote: It's not even the lies that hurt, you know? It's the fact that you're never really emotionally prepared for someone to leave you. - Rue Bennett
