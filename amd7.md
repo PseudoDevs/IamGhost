@@ -1,2 +1,3 @@
-Last updated: 2024-04-08 13:58:43
-Random Quote: I am the Greyjoy, Lord Reaper of Pyke, King of Salt and Rock, Son of the Sea Wind, and no man gives me a crown.  I pay the iron price.  I will take my crown, as Urron Redhand did five thousand years ago.  -  Balon Greyjoy
+Last updated: 2024-04-08 13:59:16
+Random Quote: Jay: "I got you a little gift to celebrate. I know it’s not much...-"
+Gloria: "It’s practically nothing!" - Gloria Pritchett
