@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 07:55:48
-Random Quote: I have been called many things, my lord, byt kind is seldom one of them.  -  Maester Aemon
+Last updated: 2024-04-08 07:56:28
+Random Quote: It doesn't matter how tough you are, you're not going to win in this place. Not on your own. - Jang Deok-su
