@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 14:07:26
-Random Quote: The day is won, and yet you do not smile, boy.  The living should smile, for the dead cannot.  -  Dagmer Cleftjaw
+Last updated: 2024-04-08 14:08:33
+Random Quote: You don't get to blame your problems on anyone but yourself. - Allison Hargreeves
