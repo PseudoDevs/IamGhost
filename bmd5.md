@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 11:45:47
-Random Quote: This is the one that you saved? You are as its father. A clan of two. But you have removed your helmet. Then you are a Mandalorian no more. - The Armorer
+Last updated: 2024-04-08 11:46:22
+Random Quote: Just as long as you're lakeside cheering us to victory on race day... or you can just glare uncomfortably. Whatever works for you. - Enid Sinclair
