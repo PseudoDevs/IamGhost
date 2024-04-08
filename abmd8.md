@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 12:01:50
-Random Quote: The Freys slashed her throat from ear to ear.  When we found her by the river she was three days dead.  Harwin begged me to give her the kiss of life, but it had been too long.  I would not do it, so Lord Beric put his lips to hers instead, and the flame of life passed from him to her.  And... she rose.  May the Lord of Light protect us.  She rose.  -  Thoros of Myr
+Last updated: 2024-04-08 12:02:23
+Random Quote: Ted: "Robin, this show is so dirty, I don't know whether to hug you, or run a shower for you, so you can sit there alone, crying and clenching your knees."Robin: "It's just bad camera work, okay? Wayne, our camera guy - he wasn't that great."Marshall: "I don't know. I think he did a pretty good job, considering he was probably only using one hand." - Marshall Eriksen
