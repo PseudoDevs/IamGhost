@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 14:57:41
-Random Quote: So, what do you want to do tonight? Drink ourselves blind, set a car on fire? Oh, watch a movie that doesn't start with a desk lamp jumping on top of a capital "I"? - Lily Aldrin
+Last updated: 2024-04-08 14:58:14
+Random Quote: If you die before you say her name, Set, I will hunt you through the seven hells.  -  Oberyn Martell
