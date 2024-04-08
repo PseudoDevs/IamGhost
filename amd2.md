@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 15:00:43
-Random Quote: I hate it when you talk sometimes. No... all the time. - Nicky Nichols
+Last updated: 2024-04-08 15:01:16
+Random Quote: Barney: "Fine, we'll just have a nice, tasteful rehearsal dinner. Maybe at a French restaurant, I know just the place."Robin: "What's the name of the restaurant?"Barney: "La Sertag." - Barney Stinson
