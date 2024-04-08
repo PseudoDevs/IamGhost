@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 11:26:07
-Random Quote: Usually after a sandwich, I feel paranoid, but I'm not. WHY AM I NOT BEING PARANOID?? - Marshall Eriksen
+Last updated: 2024-04-08 11:26:43
+Random Quote: Marshall: "The broken windows?"Lily: "We had to make it look realistic."Marshall: "But why did you break two of them?"Robin: "It looked like fun when she did it, so I wanted to try."Marshall: "I can't believe this whole time it was you guys; I've been blaming Really Tan Dancing Leotard guy." - Marshall Eriksen
