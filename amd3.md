@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 13:33:38
-Random Quote: What do a bunch o' bloody peasants know about a lord's honor?  We know some about murder, though.  -  Lem Lemoncloak
+Last updated: 2024-04-08 13:34:46
+Random Quote: Old gods or new, it makes no matter, no man is so accursed as the kinslayer.  -  Rickard Karstark
