@@ -1,6 +1,2 @@
-Last updated: 2024-04-08 14:48:30
-Random Quote: You lie to your husband all the time...
-"That shirt looks great on you."
-"I love your mom."
-"I never fantasize about Barney when we're doing it."
-Sound familiar, Pinocchio? - Barney Stinson
+Last updated: 2024-04-08 14:49:03
+Random Quote: If I hadn't buried my feelings so deep I would totally be tearing up right now. - Maritza Ramos
