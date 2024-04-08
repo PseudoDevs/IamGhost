@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 13:12:41
-Random Quote: I didn't realize you were small potatoes. And to be clear, I am referring to your testicles. - Robin Scherbatsky
+Last updated: 2024-04-08 13:13:14
+Random Quote: The more you give a king, the more he wants.  We are walking on a bridge of ice with an abyss on either side.  Pleasing one king is difficult enough.  Pleasing two is hardly possible.  -  Jon Snow
