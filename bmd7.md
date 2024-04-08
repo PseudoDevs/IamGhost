@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 13:06:41
-Random Quote: He climbed onto his throne over the corpses of children, though I will grant you he was no Joffrey.  -  Arianne Martell
+Last updated: 2024-04-08 13:07:14
+Random Quote: The most beautiful woman in the world has urgent need of my axe.  -  Victarion Greyjoy.
