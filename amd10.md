@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 07:14:48
-Random Quote: When you date someone, it's like you're taking one long course in who that person is and then, when you break up, all that stuff becomes useless. It's the emotional equivalent of an English degree... - Ted Mosby
+Last updated: 2024-04-08 07:15:21
+Random Quote: I’m just a tiny section of a huge tumor that is much bigger than any of us can imagine. - 
