@@ -1,2 +1,3 @@
-Last updated: 2024-04-09 10:25:48
-Random Quote: I'll have to take a page from Robert's book, not that he ever read one.  -  Stannis Baratheon
+Last updated: 2024-04-09 10:26:24
+Random Quote: "Everybody else can see Ben, right?"
+"Yeah, and he's a complete d-ckhead." - Allison Hargreeves
