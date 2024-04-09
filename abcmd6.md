@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 10:07:23
-Random Quote: No, that you think you'll graduate High-School. - Meemaw
+Last updated: 2024-04-09 10:10:27
+Random Quote: Until the Mountain crushed my brother's skull, no Dornishmen had died in this War of the Five Kings.  Tell me, Captain, is that my shame or my glory?  -  Doran Martell
