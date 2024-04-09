@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 10:46:13
-Random Quote: I think maybe you're the only person who really knows who I am and still likes me anyway. - Allison Hargreeves
+Last updated: 2024-04-09 10:46:47
+Random Quote: The pain is his vessel, desire his compass. It is all that man is capable of. - 
