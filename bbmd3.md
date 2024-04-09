@@ -1,4 +1,2 @@
-Last updated: 2024-04-09 09:39:39
-Random Quote: Rick: "Guests are fans, Morty, which we are not. We'd like professional badges."
-"Do you have a crew?"
-Rick: "Yes. He's a getaway driver with Asperger's and my butt is a demolitions expert." - Rick Sanchez
+Last updated: 2024-04-09 09:40:18
+Random Quote: I am not crazy. I am unique. - Suzanne Warren
