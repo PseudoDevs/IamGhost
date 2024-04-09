@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 11:32:12
-Random Quote: When you date someone, it's like you're taking one long course in who that person is and then, when you break up, all that stuff becomes useless. It's the emotional equivalent of an English degree... - Ted Mosby
+Last updated: 2024-04-09 11:32:49
+Random Quote: Celtigar pronounced it admirable.  If I were to show him the contents of my privy he would pronounce that admirable as well.  -  Stannis Baratheon
