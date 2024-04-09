@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 11:14:14
-Random Quote: So you're pregnant? Huh, looks like nobody told your boobs. - Barney Stinson
+Last updated: 2024-04-09 11:14:47
+Random Quote: Young or old, a true knight is sworn to protect those who are weaker than himself, or die in the attempt.  -  Brienne of Tarth
