@@ -1,2 +1,5 @@
-Last updated: 2024-04-09 11:43:32
-Random Quote: Quinn: "In the event of divorce, Miss Garvey shall get full custody of Mr. Stinson's suits."Barney: "Why? What would you do with them?"Quinn: "Nothing. I'd just sit around and watch them go out of style." - Quinn Garvey
+Last updated: 2024-04-09 11:44:07
+Random Quote: Marshall: "What the hell happened?"
+Barney: "I said no questions asked."
+Marshall: "Star, clover, horseshoe... Barney, did you swallow real versions of all the Lucky Charms items?"
+Barney: "No questions asked! Now come on. Let's hit the bar. I'm buying. I just won 50 bucks from a little Irish guy on a dare." - Barney Stinson
