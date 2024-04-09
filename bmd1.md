@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 11:10:26
-Random Quote: We all must choose.  Man or woman, young or old, lord or peasant, our choices are the same.  We choose light or we choose darkness.  -  Melisandre
+Last updated: 2024-04-09 11:11:38
+Random Quote: Knowledge is power, power is status and status means popular. - Eric Effiong
