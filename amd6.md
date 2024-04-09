@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 10:56:20
-Random Quote: Lucas: "Mike's not gonna like it."Dustin: "Last time I checked our party is not a dictatorship, it's a democracy." - Dustin Henderson
+Last updated: 2024-04-09 10:56:58
+Random Quote: Colombians say, God made our land so beautiful it was unfair to the rest of the world. So to even the score, God populated the land with a race of evil men. - C� sar Gaviria
