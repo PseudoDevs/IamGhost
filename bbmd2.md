@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 09:25:14
-Random Quote: Catelyn would sooner Lord Umber had seen fit to stay sober, but telling the Greatjon not to drink was like telling him not to breathe for a few hours.  -  Catelyn Stark
+Last updated: 2024-04-09 09:25:48
+Random Quote: Nerds who aren't good at math?Life is going to be rough boys! - Robin Scherbatsky
