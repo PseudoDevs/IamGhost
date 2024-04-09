@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 17:34:12
-Random Quote: You need to stop focusing on the darkness behind you. The past is the past. Nothing can change what we’ve done. - Walter White
+Last updated: 2024-04-09 17:34:49
+Random Quote: The Night's Watch is a sworn brotherhood.  We have no families.  None of us will ever father sons.  Our wife is duty.  Our mistress is honor.  -  Benjen Stark
