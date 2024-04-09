@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 17:15:14
-Random Quote: All religion is a foolish answer to a foolish question. - Thomas Shelby
+Last updated: 2024-04-09 17:15:48
+Random Quote: Know the men who follow you and let them know you.  Don't ask your men to die for a stranger.  -  Eddard Stark
