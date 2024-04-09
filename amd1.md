@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 09:38:06
-Random Quote: I was a better smuggler than a knight, he had written to his wife, a better knight than a King's hand, a better King's hand than a husband.  I am so sorry Marya, I have loved you.  Please forgive the wrongs I did you.  -  Davos Seaworth
+Last updated: 2024-04-09 09:38:39
+Random Quote: I am not in danger, Skyler. I AM the danger! - Walter White
