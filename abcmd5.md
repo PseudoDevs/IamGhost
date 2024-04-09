@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 10:13:45
-Random Quote: Oh, Cersei is lovely to look at, truly, but cold... the way she guards her cunt, you'd think she had all the gold of Casterly Rock between her legs.  -  Robert Baratheon
+Last updated: 2024-04-09 10:14:51
+Random Quote: One of the 24 similarities between women and fish are they're both attracted to shiny objects. - Barney Stinson
