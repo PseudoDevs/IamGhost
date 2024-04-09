@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 17:38:41
-Random Quote: This is the one that you saved? You are as its father. A clan of two. But you have removed your helmet. Then you are a Mandalorian no more. - The Armorer
+Last updated: 2024-04-09 17:39:18
+Random Quote: Sometimes our best decisions are the ones that don't make any sense at all. - Ted Mosby
