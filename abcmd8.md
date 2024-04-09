@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 09:33:29
-Random Quote: There's only one thing that could blind a man as smart as you, Tommy. Love. - Polly Gray
+Last updated: 2024-04-09 09:34:03
+Random Quote: When you play the game of thrones, you win or you die.  There is no middle ground.  -  Cersei Lannister
