@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 12:06:00
-Random Quote: The last play you'll ever run. - Barney Stinson
+Last updated: 2024-04-09 12:06:33
+Random Quote: I know the poison that my father used, and there is none slower or more agonizing.  Soon we may hear the Mountain screaming, even here in Sunspear.  -  Tyene Sand
