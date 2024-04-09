@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 01:44:40
-Random Quote: It's like, I think about sex 24/7, but I don't really know how to do it. In the movies, you always see the girl kiss her way down the guy's body, but then, she moves off-screen. Is she stopping at the penis or kissing all the way to the foot? - Devi Vishwakumar
+Last updated: 2024-04-09 01:45:13
+Random Quote: Sheldon, can you hear me? It's your twin sister, MissyEverything's all right here, but I think Mom misses you real badAll right, I can't hear you, so I'm gonna hang up now. - Missy
