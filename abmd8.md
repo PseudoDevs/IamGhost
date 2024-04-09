@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 11:41:16
-Random Quote: If you had to fall into a woman's arms, my son, why couldn't they have been Margaery Tyrell's?  -  Catelyn Stark
+Last updated: 2024-04-09 11:41:49
+Random Quote: There is a time to fight and there is a time to be clever. - Pablo Escobar
