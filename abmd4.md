@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 11:08:32
-Random Quote: Past a certain point, all the dates grow hazy and confused, and the clarity of history becomes the fog of legend.  -  Hoster Blackwood
+Last updated: 2024-04-09 11:09:06
+Random Quote: I was wed three times and my wives gave me daughters.  Now only Beth remains to me.  My brother Martyn fathered four strong sons, yet only Jory lived to be a man.  When he was slain, Martyn's line died with him.  When we speak of the morrow nothing is ever certain.  -  Rodrik Cassel
