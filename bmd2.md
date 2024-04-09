@@ -1,2 +1,5 @@
-Last updated: 2024-04-09 17:53:49
-Random Quote: It's the greatest samurai, who lets his sword rust in its scabbard. - Barney Stinson
+Last updated: 2024-04-09 17:54:22
+Random Quote: Bo-Katan: "I haven't seen battle droids since the Clone Wars."
+Din: "I have."
+Bo-Katan: "Any of 'em look suspicious?"
+Din: "They all look suspicious." - Din Djarin
