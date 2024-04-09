@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 10:48:02
-Random Quote: What men want does not matter.  Winter is almost upon us, boy.  And winter is death.  I would sooner my men die fighting for the Ned's little girl than alone and hungry in the snow, weeping tears that freeze upon their cheeks.  No one sings songs of men who die like that.  As for me, I am old.  This will be my last winter.  Let me bathe in Bolton blood before I die.  I want to feel it splatter across my face when my axe bites deep into a Bolton skull.  I want to lick it off my lips and die with the taste of it on my tongue.  -  Hugo Wull
+Last updated: 2024-04-09 10:48:37
+Random Quote: You poor stupid blind crippled fool.  Must I spell out every little thing for you?  Very well.  Cersei is a lying whore, she's been fucking Lancel and Osmund  Kettleblack and probably Moon Boy for all I know.  And I am the monster they all say I am.  Yes, I killed your vile son.  -  Tyrion Lannister
