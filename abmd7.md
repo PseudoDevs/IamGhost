@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 11:36:58
-Random Quote: Oh man, I am so excited that you're here! It has been forever since I have been around anyone even remotely fun![to Lily, Robin, Ted and Marshall] Huh... yes, offense! - Barney Stinson
+Last updated: 2024-04-09 11:37:34
+Random Quote: I did it for me. I liked it. I was good at it. And... I was really... I was alive. - Walter White
