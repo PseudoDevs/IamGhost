@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 11:25:32
-Random Quote: Why didn't you say this to me when I was alive? - Hannah Baker
+Last updated: 2024-04-09 11:26:05
+Random Quote: This is New York City, don't get close to the neighbours. You nod at them politely in the hall, you call the cops if you haven't seen them in a while and you smell something funny and that's it! - Ted Mosby
