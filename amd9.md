@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 11:07:59
-Random Quote: You know nothing, Jon Snow.  -  Ygritte
+Last updated: 2024-04-09 11:08:36
+Random Quote: Barney: "Fine, we'll just have a nice, tasteful rehearsal dinner. Maybe at a French restaurant, I know just the place."Robin: "What's the name of the restaurant?"Barney: "La Sertag." - Barney Stinson
