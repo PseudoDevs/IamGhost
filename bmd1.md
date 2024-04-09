@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 01:49:52
-Random Quote: Barney: "I am so sorry, Cornelius. You deserve a better end than this."Lily: "You got ketchup on a red tie, you can't even see it!" - Lily Aldrin
+Last updated: 2024-04-09 04:53:29
+Random Quote: You have to be as bad as them above in order to survive. - Polly Gray
