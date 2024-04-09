@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 01:41:55
-Random Quote: None will be free until the old ways are gone forever. - Kuiil
+Last updated: 2024-04-09 01:42:28
+Random Quote: We can only die.  Why else do we don these black cloaks, but to die in defense of the realm?  -  Qhorin Halfhand
