@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 11:13:55
-Random Quote: Only a fool humbles himself when the world is so full of men eager to do that job for him.  -  Theon Greyjoy
+Last updated: 2024-04-09 11:14:28
+Random Quote: I learned form Set Arthur Dayne, the Sword of the Morning, who could have slain all five of you with his left hand while he was taking a piss with the right.  -  Jaime Lannister
