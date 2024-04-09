@@ -1,2 +1,3 @@
-Last updated: 2024-04-09 01:46:31
-Random Quote: Fool's blood, king's blood, blood on the maiden's thigh, but chains for the guests and chains for the bridegroom, aye aye aye.  -  Patchface
+Last updated: 2024-04-09 01:47:38
+Random Quote: Give it a week, you'll get her back. And her front.
+Oh! Did you feel that? I think we just had a "what up?"-quake! - Barney Stinson
