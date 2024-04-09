@@ -1,2 +1,3 @@
-Last updated: 2024-04-09 09:22:18
-Random Quote: Well, maybe this isn't a breakup. Maybe this is two friends getting back together. - Robin Scherbatsky
+Last updated: 2024-04-09 09:23:25
+Random Quote: The Deep: "What do we do? We can't just kill everyone."
+Billy Butcher: "That's exactly what we're gonna do!" - Billy Butcher
