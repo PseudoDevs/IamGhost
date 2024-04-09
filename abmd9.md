@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 01:41:57
-Random Quote: What I came to realise is that fear, that’s the worst of it. That’s the real enemy. So, get up, get out in the real world and you kick that bastard as hard you can right in the teeth. - Walter White
+Last updated: 2024-04-09 01:42:30
+Random Quote: I am the storm, my lord, the first storm, and the last.  -  Euron Greyjoy
