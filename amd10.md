@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 09:45:34
-Random Quote: There is entirely too much tut - tutting in this realm, if you ask me.  All these kings would do a deal better if they put down their swords and listended to their mothers. 
+Last updated: 2024-04-09 09:46:07
+Random Quote: You want to know if I was ever really in love with you? Every morning, I wake up wishing I wasn't. You are a constant reminder of what I can't have. A life. Love. You. - Lucien
