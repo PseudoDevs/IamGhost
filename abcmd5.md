@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 10:45:31
-Random Quote: I swear on my name. And the names of the Ancestors, that I shall walk the way of the Mand'alor and the words of the Creed shall be forever forged in my heart. - Din Djarin
+Last updated: 2024-04-09 10:46:04
+Random Quote: Rule Number One: Don't ever fall in love with a straight girl. - Alex Vause
