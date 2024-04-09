@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 17:25:23
-Random Quote: Fine, you guys can have a baby, but only under these conditions:1) You promise to always love me more than the baby.2) Once a month, I get to use the baby to pick up chicks.3) That may involve the baby falling from a two-story window and me heroically catching it.4) No breast-feeding in front of me.5) Forget about 4), you can whip 'em out whenever you want. - Barney Stinson
+Last updated: 2024-04-09 17:26:00
+Random Quote: This is Hawkins, okay? You wanna know the worst thing that's ever happened here in the four years I've been working here? It was when an owl attacked Eleanor Gillespie's head because it though that her hair was a nest. - Jim Hopper
