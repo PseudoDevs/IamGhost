@@ -1,2 +1,5 @@
-Last updated: 2024-04-09 11:40:53
-Random Quote: No matter how tough things get, children always turn out okay. - Berlin
+Last updated: 2024-04-09 11:41:27
+Random Quote: Morty: "Mom, I have a friend coming over. Is that cool?"
+Beth: "I told your sister no parties."
+Morty: "It's one friend."
+Beth: "That's a party to you." - Beth Smith
