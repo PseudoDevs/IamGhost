@@ -1,4 +1,2 @@
-Last updated: 2024-04-09 10:37:20
-Random Quote: Joel: "Long way or short way?"
-Tess: "I mean, it's the long way or the 'we're fuckin' dead' way."
-Ellie: "Well, I vote long way just based on that limited information." - Ellie Williams
+Last updated: 2024-04-09 10:37:55
+Random Quote: A dog who bites every owner he's had can only be disciplined with a firm hand. Or put down. - Gustavo Fring
