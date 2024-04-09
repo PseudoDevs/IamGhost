@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 17:07:03
-Random Quote: In Texas, the holy trinity is God, Football and barbecueNot necessarily in that order. - Sheldon
+Last updated: 2024-04-09 17:07:36
+Random Quote: You grew up with actors.  You learned their craft and you learned it well.  I grew up with soldiers.  I learned how to die a long time ago.  -  Eddard Stark
