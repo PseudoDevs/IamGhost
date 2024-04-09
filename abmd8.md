@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 10:40:14
-Random Quote: There must always be a Stark in Winterfell.  -  Catelyn Stark
+Last updated: 2024-04-09 10:40:47
+Random Quote: Because you're so broken you don't even trust yourself. And that's scary. - Nate Jacobs
