@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 17:46:07
-Random Quote: Need found it hard to imagine what could frighten Stannis Baratheon, who had once held Storm's End through a year of siege, surviving on rats and boot leather while the Lords Tyrell and Redwyne sat outside with their hosts, banqueting in sight of his walls.  -  Eddard Stark
+Last updated: 2024-04-09 17:46:41
+Random Quote: If that’s true, if you don’t know who I am, then maybe your best course… would be to tread lightly. - Walter White
