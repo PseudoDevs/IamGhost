@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 17:52:11
-Random Quote: Gloria: "It seemd like all what we did was fight and make love. One time, I'm not kidding you, we fell out of the window together."Jay: "Which one were you doing?" - Jay Pritchett
+Last updated: 2024-04-09 17:52:45
+Random Quote: A man lives three lives. The first one ends with the loss of naivety, the second, with the loss of innocence and the third… with the loss of life itself. It’s inevitable that we go through all three stages. - Adam
