@@ -1,2 +1,3 @@
-Last updated: 2024-04-09 11:54:37
-Random Quote: Just because I don't have fear, doesn't make me irrational. - Kinsey Locke
+Last updated: 2024-04-09 11:55:11
+Random Quote: Morticia: "That boy's family was going to file attempted murder charges. How would that have looked on your record?"
+Wednesday: "Terrible. Everyone would know I failed to get the job done." - Wednesday Addams
