@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 11:05:12
-Random Quote: Thank the Force! This little thing has had me worried sick. Come here, you little womp rat. Looks like it remembers me. How much do you want for it? Just kidding. But not really. - Peli Motto
+Last updated: 2024-04-09 11:05:45
+Random Quote: There is only one god, and his name is Death.  And there is only one thing we say to Death: not today.  -  Syrio Forel
