@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 10:08:50
-Random Quote: You're not gonna believe this because it usually never happens, but I made a mistake! - Rick Sanchez
+Last updated: 2024-04-09 10:09:23
+Random Quote: I've killed a lot more than him, I promise you.  You think that makes me some monster.  Well, maybe it does, but I saved your sister's life too.  The day the mob pulled her off her horse, I cut through them and brought her back to the castle, else she would have gotten what Lollys Stokeworth got.  And she sang for me.  You didn't know that, did you?  Your sister sang me a sweet little song.  -  Sandor Clegane
