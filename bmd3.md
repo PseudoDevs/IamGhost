@@ -1,2 +1,4 @@
-Last updated: 2024-04-09 09:27:32
-Random Quote: I can't see myself living in CaliforniaI don't trust their carefree lifestyle. - Sheldon
+Last updated: 2024-04-09 09:28:07
+Random Quote: Morticia: "Please excuse Wednesday. She's allergic to color."
+Enid: "Wow, what happens to you?"
+Wednesday: "I break out into hives, and then the flesh peels off my bones." - Wednesday Addams
