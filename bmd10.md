@@ -1,6 +1,2 @@
-Last updated: 2024-04-09 11:29:57
-Random Quote: You lie to your husband all the time...
-"That shirt looks great on you."
-"I love your mom."
-"I never fantasize about Barney when we're doing it."
-Sound familiar, Pinocchio? - Barney Stinson
+Last updated: 2024-04-09 11:30:30
+Random Quote: Someone has to protect this family from the man who protects this family. - Skyler White
