@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 10:23:59
-Random Quote: The gods be damned.  It was a hollow victory they gave me.  A crown... it was the girl I prayed them for.  Your sister, safe... and mine again, as she was meant to be.  I ask you, Need, what good is it to wear a crown?  The gods mock the prayers of kings and cowherds alike.  -  Robert Baratheon
+Last updated: 2024-04-09 10:24:33
+Random Quote: The Burned Men fear nothing.  Timett, son of Timett will ride with the lions.  -  Timett, son of Timett

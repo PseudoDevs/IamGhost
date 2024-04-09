@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 10:23:59
-Random Quote: It's okay to lose yourself in this, just as long as you can find yourself again. - Nina Locke
+Last updated: 2024-04-09 10:24:33
+Random Quote: You don’t love anyone? Of course you don’t, darling. You don’t have the balls for it. To love, you need courage. - Nairobi
