@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 10:41:54
-Random Quote: Oh, come on, ref! I haven't seen that much hooking go unpunished since my last trip to Vegas. - Robin Scherbatsky
+Last updated: 2024-04-09 10:42:27
+Random Quote: Quentyn had never felt so much a boy as when he'd stood before Daenerys Targaryen, pleading for her hand.  The thought of bedding her terrified him almost as much as her dragons had.  -  Quentyn Martell
