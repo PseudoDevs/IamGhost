@@ -1,2 +1,6 @@
-Last updated: 2024-04-09 11:44:06
-Random Quote: If you want my advice? Get out of your own goddamn drama for a minute. - Nicky Nichols
+Last updated: 2024-04-09 11:44:41
+Random Quote: Sam: "They might be a part of the big three."
+Bucky: "What big three?"
+Sam: "Androids, aliens and wizards."
+Bucky: "That's not a thing."
+Sam: "That's definitely a thing." - Sam Wilson
