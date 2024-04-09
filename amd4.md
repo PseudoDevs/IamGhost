@@ -1,6 +1,2 @@
-Last updated: 2024-04-09 17:51:38
-Random Quote: Sam: "They might be a part of the big three."
-Bucky: "What big three?"
-Sam: "Androids, aliens and wizards."
-Bucky: "That's not a thing."
-Sam: "That's definitely a thing." - Sam Wilson
+Last updated: 2024-04-09 17:52:49
+Random Quote: Kids, sometimes you realize, the journey you've been taking has reached its final stop. So, the question becomes: Where do you go next? - Ted Mosby
