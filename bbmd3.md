@@ -1,3 +1,2 @@
-Last updated: 2024-04-09 11:25:44
-Random Quote: Morty: "I don't like how meta this is getting, Rick."
-Rick: "Shut up, Morty, you're 14. You watch videos of people on YouTube reacting to fing YouTube. I'll be the judge of when we get too meta." - Rick Sanchez
+Last updated: 2024-04-09 11:26:17
+Random Quote: Sex now, we'll do the foreplay after. - Lily Aldrin
