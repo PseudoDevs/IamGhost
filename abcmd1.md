@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 17:41:42
-Random Quote: Ted: "Oh hey, where are you guys?"Barney: "We're in a fundraiser, helping young women raise money for community college."Ted: "Stripclub... nice!" - Barney Stinson
+Last updated: 2024-04-09 17:42:55
+Random Quote: What is the cost of lies? It's not that we mistake them for the truth. The real danger is that if we hear enough lies, then we no longer recognize the truth at all. - Valery Legasov

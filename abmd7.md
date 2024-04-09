@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 17:40:31
-Random Quote: I guess we all have things we try to hide. But they can't stay hidden forever. - Hannah Baker
+Last updated: 2024-04-09 17:42:55
+Random Quote: I've known good criminals and bad cops. Bad priests, honorable thieves. You can be on one side of the law or the other. But if you make a deal with somebody, you keep your word. You can go home today with your money and never do this again. But you took something that wasn't yours. And you sold it for a profit. You're now a criminal. Good one, bad one? That's up to you. - Mike Ehrmantraut

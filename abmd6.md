@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 17:42:18
-Random Quote: Ted: "Trying to get them interested in architecture as a career."Barney: "Why? Are we running out of buildings?"Robin: "Are we running out of boring people?" - Robin Scherbatsky
+Last updated: 2024-04-09 17:42:54
+Random Quote: Many good men have been bad kings, and some bad men have been good kings.  -  Maester Aemon
