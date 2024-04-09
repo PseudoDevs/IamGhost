@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 10:44:36
-Random Quote: Why should I go running to my aunt as if I were a beggar?  My claim is better than her own.  Let her come to me... in Westeros.  -  Aegon Targaryen
+Last updated: 2024-04-09 10:45:09
+Random Quote: If a song makes a maid want to slip off her clothes and feel the good warm sun kiss her skin, why is that the singer's fault?  -  Tom of Sevenstreams
