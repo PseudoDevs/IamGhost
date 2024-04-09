@@ -1,3 +1,2 @@
-Last updated: 2024-04-09 11:59:18
-Random Quote: Weems: "No doubt you'll find something that tickles your fancy."
-Wednesday: "The last person who tickled me lost a finger." - Wednesday Addams
+Last updated: 2024-04-09 11:59:53
+Random Quote: You have to be as bad as them above in order to survive. - Polly Gray
