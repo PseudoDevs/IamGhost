@@ -1,4 +1,3 @@
-Last updated: 2024-04-09 09:44:49
-Random Quote: Ted: "Okay, time to get the horn back to the bistro."
-Robin: "Oh Ted, I don't know if I can go again, that tuckered me out."
-Ted: "No euphemism." - Robin Scherbatsky
+Last updated: 2024-04-09 17:06:59
+Random Quote: "How do you take your tea?"
+Ted: "Well, normally right back to the counter because there's been a terrible mistake." - Jim Hopper
