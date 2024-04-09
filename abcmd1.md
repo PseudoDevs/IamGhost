@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 18:00:28
-Random Quote: Demons made of snow and ice and cold.  The ancient enemy.  The only enemy that matters.  -  Stannis Baratheon
+Last updated: 2024-04-09 18:01:02
+Random Quote: In King's Landing, there are two sorts of people.  The players and the pieces.  -  Petyr Baelish
