@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 17:17:18
-Random Quote: Whisky's good proofing water. Tells you who's real and who isn't. - Thomas Shelby
+Last updated: 2024-04-09 17:17:51
+Random Quote: I will kill your wife, I will kill your son, I will kill your infant daughter. - Gustavo Fring
