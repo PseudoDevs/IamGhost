@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 11:09:49
-Random Quote: Talk about being a few sardines short of a can. - Bucky Barnes
+Last updated: 2024-04-09 11:10:25
+Random Quote: If you had to fall into a woman's arms, my son, why couldn't they have been Margaery Tyrell's?  -  Catelyn Stark
