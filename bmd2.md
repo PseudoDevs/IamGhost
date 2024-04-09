@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 11:23:47
-Random Quote: You don't parley when you're on the back foot. We'll strike a blow back first. - Thomas Shelby
+Last updated: 2024-04-09 11:24:59
+Random Quote: I just want to stand on top of the Wall and piss off the edge of the world.  -  Tyrion Lannister
