@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 09:49:56
-Random Quote: When you spend years thinking about something obsessively, that something is your whole world, your perfect world. - Tokyo
+Last updated: 2024-04-09 09:50:30
+Random Quote: There is a 83% correlation between times when men are wearing a boutonniere and when they are getting laid... proms, weddings, funerals... thanks for the redhead, grandma! By the way, did you know that "boutonniere" is french for "booty is near"? - Barney Stinson
