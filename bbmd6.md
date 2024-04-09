@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 17:15:16
-Random Quote: Once, she had loved Prince Joffrey with all her heart, and admired and trusted his mother, the queen.  They had repaid that love and trust with her father's head.  Sansa would never make that mistake again.  -  Sansa Stark
+Last updated: 2024-04-09 17:16:28
+Random Quote: Long distance is a lie teenagers tell each other to get laid the summer before college. - Ted Mosby
