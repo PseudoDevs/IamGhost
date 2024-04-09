@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 10:46:44
-Random Quote: Robert was never the same after he put on that crown.  Some men are like swords, made for fighting.  Hang them up and they go to rust.  -  Donal Noye
+Last updated: 2024-04-09 10:47:17
+Random Quote: Science is neat, but I’m afraid it’s not very forgiving. - Scott Clarke
