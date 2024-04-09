@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 09:23:59
-Random Quote: A queen must listen to all.  The highborn and the low, the strong and the weak, the noble and the venal.  One voice may speak you false, but in many there is always truth to be found.  -  Daenerys Targaryen
+Last updated: 2024-04-09 09:25:08
+Random Quote: Archeology. One big mess of obsessive bookworms. - Arthur Harrow
