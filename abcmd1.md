@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 11:11:37
-Random Quote: Nick: "So, I went to this fortune teller today and she said there was a curse on me."Robin: "Did she sell you something to ward off the curse?"Nick: "It's like you're a fortune teller, too." - Nick
+Last updated: 2024-04-09 11:12:12
+Random Quote: If you want my advice? Get out of your own goddamn drama for a minute. - Nicky Nichols
