@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 10:02:37
-Random Quote: But every now and then it’s good to question those who question things. - Noah
+Last updated: 2024-04-09 10:03:10
+Random Quote: There are no true knights, no more than there are gods.  If you can't protect yourself, die and get out of the way of those who can.  Sharp steel and strong arms rule this world, don't ever believe any different.  -  Sandor Clegane
