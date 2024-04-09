@@ -1,3 +1,6 @@
-Last updated: 2024-04-09 17:50:25
-Random Quote: Mi-nyeo: "Deok-su. You betray me... I'll kill you. Okay?"
-Deok-su: "You're the reason that I think I might die tonight." - Jang Deok-su
+Last updated: 2024-04-09 17:51:38
+Random Quote: Sam: "They might be a part of the big three."
+Bucky: "What big three?"
+Sam: "Androids, aliens and wizards."
+Bucky: "That's not a thing."
+Sam: "That's definitely a thing." - Sam Wilson
