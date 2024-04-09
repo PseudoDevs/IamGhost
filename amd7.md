@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 10:45:44
-Random Quote: Talkin' to you was one of the best parts of my whole year. - Fezco
+Last updated: 2024-04-09 10:47:28
+Random Quote: They are children, Sansa thought.  They are silly little girls, even Elinor.  They've never seen a battle, they've never seen a man die, they know nothing.  Their dreams were full of songs and stories, the way hers had been before Joffrey cut her father's head off.  Sansa pitied them.  Sansa envied them.  -  Sansa Stark
