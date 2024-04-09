@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 10:31:05
-Random Quote: Because there's no way watching it can be more fun than playing it yourself. - Oh Il-nam
+Last updated: 2024-04-09 10:31:38
+Random Quote: Cara: "It's gonna break his little heart."Mando: "He'll get over it. We all do." - Din Djarin
