@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 17:31:03
-Random Quote: Lily: "Anytime a single guy hangs out with a married woman there are rules that must be followed: Rule number one..."Barney: "Don't use the husband's condoms, that's just rude!" - Barney Stinson
+Last updated: 2024-04-09 17:31:38
+Random Quote: Power resides where men believe it resides... It's a trick, a shadow on the wall.  -  Varys
