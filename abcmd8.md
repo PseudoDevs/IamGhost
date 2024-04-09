@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 09:38:54
-Random Quote: Being a Mandalorian is not just learning about how to fight. You also have to know how to navigate the Galaxy. That way you'll never be lost. - Din Djarin
+Last updated: 2024-04-09 09:39:27
+Random Quote: There must always be a Stark in Winterfell.  -  Catelyn Stark
