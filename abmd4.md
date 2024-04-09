@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 09:22:16
-Random Quote: I'm also pleased to announce The Bro Code is now available in select airlines across the country. And Lufthansa. 'Der Bro Code' is, like, huge in Germany. - Barney Stinson
+Last updated: 2024-04-09 09:22:49
+Random Quote: Marshall: "I don't care if the dishes aren't done, okay? If you care, you do it."Lily: "Great, then I don't care if you have an orgasm. If you care, you do it." - Lily Aldrin
