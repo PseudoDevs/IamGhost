@@ -1,2 +1,3 @@
-Last updated: 2024-04-09 09:47:57
-Random Quote: Marshall: "Yes, i want a ball-room and I want a band and I want shoes. I've been dreaming about this day since I was... like...Lily: "...a little girl?" - Lily Aldrin
+Last updated: 2024-04-09 09:49:49
+Random Quote: "How do you take your tea?"
+Ted: "Well, normally right back to the counter because there's been a terrible mistake." - Jim Hopper
