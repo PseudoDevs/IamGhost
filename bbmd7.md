@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 10:25:47
-Random Quote: God has a plan for every human being. - 
+Last updated: 2024-04-09 10:26:24
+Random Quote: All the tales agreed that the green men had strange magic powers.  Maybe they could help him walk again, even turn him into a knight.  They turned the little crannogman into a knight, even if it was only for a day, he thought.  A day would be enough.  -  Bran Stark
