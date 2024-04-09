@@ -1,2 +1,4 @@
-Last updated: 2024-04-09 04:54:09
-Random Quote: Look at us, riding around in a limo, eating hot dogs... It's like we're the president. - Marshall Eriksen
+Last updated: 2024-04-09 04:54:43
+Random Quote: Joel: "I need you to tell us where we are."
+Man: "If you got a map, why you lost?"
+Ellie: "Must've missed all the street signs in the enormous f-cking forest." - Ellie Williams
