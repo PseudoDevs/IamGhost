@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 10:21:34
-Random Quote: Knowledge is power, power is status and status means popular. - Eric Effiong
+Last updated: 2024-04-09 10:22:08
+Random Quote: The Empire improves every system it touches. Judge by any metric: safety, prosperity, trade, opportunity, peace. Compare Imperial rule to what is happening right now. Is the world more peaceful since the revolution? I see nothing but death and chaos. - The Client
