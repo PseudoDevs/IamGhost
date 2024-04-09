@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 11:43:51
-Random Quote: Aye, and from what I saw of Joffrey, you are as unfit a mother as you are a ruler.  -  Kevan Lannister
+Last updated: 2024-04-09 11:44:24
+Random Quote: The beauty of a moment, is that it's fleeting. - Ted Mosby
