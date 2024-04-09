@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 09:32:53
-Random Quote: Well, I'm just gonna go jerk off then. For the 500th time today. - Larry Bloom
+Last updated: 2024-04-09 09:34:03
+Random Quote: There have always been men who found it easier to speak vows than to keep them.  -  Arys Oakheart
