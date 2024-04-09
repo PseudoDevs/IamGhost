@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 10:57:55
-Random Quote: Because you're so broken you don't even trust yourself. And that's scary. - Nate Jacobs
+Last updated: 2024-04-09 10:58:28
+Random Quote: Some people wander around their whole lives looking for a way out, but there’s only one path and it leads you ever deeper. - 
