@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 10:43:08
-Random Quote: I'll have to take a page from Robert's book, not that he ever read one.  -  Stannis Baratheon
+Last updated: 2024-04-09 10:43:41
+Random Quote: When you play the game of thrones, you win or you die.  There is no middle ground.  -  Cersei Lannister
