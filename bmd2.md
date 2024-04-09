@@ -1,4 +1,2 @@
-Last updated: 2024-04-09 10:09:13
-Random Quote: Joel: "Where'd you get the money for this?"
-Sarah: "Drugs. I sell hardcore drugs."
-Joel: "It's better than what I do." - Joel Miller
+Last updated: 2024-04-09 10:09:49
+Random Quote: People say Hawkins is cursed. They're not way off. - Dustin Henderson
