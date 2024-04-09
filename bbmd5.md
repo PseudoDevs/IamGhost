@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 17:35:31
-Random Quote: Have you ever been told you're different, odd, or simply don't belong? In a world full of normies, do you feel like an outcast? Me too. But I'm pleased to tell you there's a very special place for people like us. Nevermore Academy. - Wednesday Addams
+Last updated: 2024-04-09 17:36:08
+Random Quote: I am the Watcher. I am your guide through these vast new realities. Follow me, and dare to face the unknown. And ponder the question, "What if...?" - The Watcher

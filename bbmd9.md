@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 17:35:29
-Random Quote: So you're half cold, unfeeling reptile, half also cold, equally unfeeling machine? Wow, so your origin is what? You fell into a vat of redundancy? - Rick Sanchez
+Last updated: 2024-04-09 17:36:08
+Random Quote: The Old Gods have no power in the south.  The weirwoods there were all cut down, thousands of years ago.  -  Osha

@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 17:34:52
-Random Quote: People come into our lives exactly when they should. - Nina Locke
+Last updated: 2024-04-09 17:36:08
+Random Quote: You think you're the only one he whispers secrets to?  He gives each of us just enough to convince us that we'd be helpless without him.  -  Cersei Lannister

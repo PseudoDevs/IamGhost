@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 17:34:15
-Random Quote: Love's not always wise, I've learned.  It can lead us to great folly, but we follow our hearts... wherever they take us.  -  Robb Stark
+Last updated: 2024-04-09 17:36:08
+Random Quote: How do you keep a girl from becoming your girlfriend?1. Never get them wet. In other words, don't let her take a shower at your place.2. Keep them away from sunlight - i. e. don't ever see them during the day.3. Never feed them after midnight. Meaning she doesn't sleep over and you don't have breakfast. - Barney Stinson
