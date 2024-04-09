@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 10:03:39
-Random Quote: There is one problem with success. Not everyone can handle it. - Walt Breslin
+Last updated: 2024-04-09 10:04:15
+Random Quote: Robb, who had been more a brother to Theon than any son born of Balon Greyjoy's loins.  Murdered at the Red Wedding, butchered by the Freys.  I should have been with him.  Where was I?  I should have died with him.  -  Theon Greyjoy
