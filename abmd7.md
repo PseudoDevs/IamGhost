@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 12:12:40
-Random Quote: No man has ever died from bending his knee.  He who kneels may rise again, blade in hand.  He who will not kneel stays dead, stiff legs and all.  -  Balon Greyjoy
+Last updated: 2024-04-09 17:06:27
+Random Quote: These days, even women go to war. I mean, when you finally get older, there's not gonna be that kind of discrimination like we got now. - Seong Gi-hun
