@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 10:57:34
-Random Quote: Most people are nothing but pawns on a chessboard led by an unknown hand - Noah
+Last updated: 2024-04-09 11:00:02
+Random Quote: The Night's Watch is a sworn brotherhood.  We have no families.  None of us will ever father sons.  Our wife is duty.  Our mistress is honor.  -  Benjen Stark
