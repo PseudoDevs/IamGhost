@@ -1,4 +1,2 @@
-Last updated: 2024-04-09 17:16:18
-Random Quote: Five: "Help me with this crossword puzzle. I need a five letter word for 'disappointment'."
-Diego: "Klaus."
-Five: "It fits." - Number Five
+Last updated: 2024-04-09 17:16:51
+Random Quote: The absolute worst part of depression is that even though you know you're depressed, You're unable to stop yourself from getting worse. - Rue Bennett
