@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 17:45:47
-Random Quote: Marshall: "Lily dream-banged someone we know."Barney: "Okay, you caught me vermilion-handed. The truth is, I've spent the last five years trying to inception your wife."Marshall: "That movie only came out two years ago."Barney: "What movie?" - Barney Stinson
+Last updated: 2024-04-09 17:46:19
+Random Quote: I did it for me. I liked it. I was good at it. And I was really... I was alive. - Walter White
