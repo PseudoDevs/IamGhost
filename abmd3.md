@@ -1,2 +1,3 @@
-Last updated: 2024-04-09 10:46:31
-Random Quote: Desperation Day has come and gone and you have neither gone nor come. - Robin Scherbatsky
+Last updated: 2024-04-09 10:47:04
+Random Quote: Ellie: "Everybody I've cared for, either died or left me."
+Joel: "You have no idea what loss is." - Joel Miller
