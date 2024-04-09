@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 11:04:39
-Random Quote: I am the Greyjoy, Lord Reaper of Pyke, King of Salt and Rock, Son of the Sea Wind, and no man gives me a crown.  I pay the iron price.  I will take my crown, as Urron Redhand did five thousand years ago.  -  Balon Greyjoy
+Last updated: 2024-04-09 11:05:13
+Random Quote: Stop crying. Remember? Crying makes you ugly and weak. - Dayanara Diaz
