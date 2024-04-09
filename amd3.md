@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 10:10:18
-Random Quote: You gotta move...The fuck...On! - Gloria Mendoza
+Last updated: 2024-04-09 10:10:51
+Random Quote: I know the poison that my father used, and there is none slower or more agonizing.  Soon we may hear the Mountain screaming, even here in Sunspear.  -  Tyene Sand
