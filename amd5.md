@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 09:41:35
-Random Quote: That right there, that's a scone. Tastes like a muffin except it sucks all the spit out of your mouth. - Jim Hopper
+Last updated: 2024-04-09 09:42:53
+Random Quote: I asked him why he kept her close, if he thought her so grotesque.  He said that all his other knights wanted things of him, castles or honors or riches, but all that Brienne wanted was to die for him.  -  Loras Tyrell
