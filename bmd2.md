@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 11:02:32
-Random Quote: Ted: "You're like Mary Poppins, if her magic purse was also filled with drugs."Robin: "If? Ted, the kids in that movie jumped into a painting and spent 15 minutes chasing a cartoon fox. Spoonful of sugar? Grow Up!" - Robin Scherbatsky
+Last updated: 2024-04-09 11:03:07
+Random Quote: I know you mean well. I know you wanna protect me. You have. And when we're done, we'll go wherever you want. Tommy's, sheep ranch, the moon... I'll follow you anywhere you go. But there's no halfway with this. We finish what we started. - Ellie Williams
