@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 11:50:52
-Random Quote: The Old Gods have no power in the south.  The weirwoods there were all cut down, thousands of years ago.  -  Osha
+Last updated: 2024-04-09 11:51:24
+Random Quote: I do have an angle, Craig. It's an angle called justice. - Saul Goodman
