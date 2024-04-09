@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 10:40:18
-Random Quote: The Night's Watch is a sworn brotherhood.  We have no families.  None of us will ever father sons.  Our wife is duty.  Our mistress is honor.  -  Benjen Stark
+Last updated: 2024-04-09 10:40:55
+Random Quote: When you're younger, everything feels so permanent. But as you get older, you begin to realize nothing is and everyone you love can drift away. - Rue Bennett
