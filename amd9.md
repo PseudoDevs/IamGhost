@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 17:12:04
-Random Quote: If you had to fall into a woman's arms, my son, why couldn't they have been Margaery Tyrell's?  -  Catelyn Stark
+Last updated: 2024-04-09 17:12:38
+Random Quote: The end of a rope has been this man's destiny since the night he was born. - Chester Campbell
