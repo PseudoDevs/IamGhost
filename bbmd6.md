@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 10:47:19
-Random Quote: Per the student dress and grooming code, this boy's hair is too longThis boy's wearing sports attire outside a designated areaAnd this girl's blouse is diaphanous, which means I can see her brassiere. - Sheldon
+Last updated: 2024-04-09 10:47:52
+Random Quote: In the game of thrones, even the humblest pieces have wills of their own.  Sometimes they refuse to make the moves you've planned for them.  Mark that well, Alayne.  It's a lesson that Cersei Lannister still has yet to learn.  -  Petyr Baelish
