@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 17:29:11
-Random Quote: Ted: "You're scared of the seven dwarves?"Robin: "Just of Doc. He's creepy... I mean, the guy went to medical school, what is he doing living with six coalminers." - Robin Scherbatsky
+Last updated: 2024-04-09 17:29:49
+Random Quote: He would have killed me but for Howland Reed.  -  Eddard Stark
