@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 10:23:32
-Random Quote: We are not husband and wife... anymore. We're just business partners. And our job is to raise those kids. - Marty Byrde
+Last updated: 2024-04-09 10:24:05
+Random Quote: Which meant for the first time in years, the world was wide open. Because kids, when a door closes... well, you know the rest. - Ted Mosby
