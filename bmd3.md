@@ -1,5 +1,2 @@
-Last updated: 2024-04-09 11:35:41
-Random Quote: Therapist: "You need to stop doing these weird things. Go out sometime."
-Klaus: "I went to the park today."
-Therapist: "There you go! I hope you got something from that."
-Klaus: "[Opens up coat] This duck." - Klaus Hargreeves
+Last updated: 2024-04-09 11:36:15
+Random Quote: Though I would treasure your friendship, I'm mainly interested in your facility with murder.  And if the day ever comes when you're tempted to sell me out, remember this; whatever their price, I'll beat it.  I like living.  -  Tyrion Lannister
