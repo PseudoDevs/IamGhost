@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 09:42:15
-Random Quote: Listen, Morty. I hate to break it to you, but what people call 'Love' is just a chemical reaction that compells animals to breed. It hits hard, Morty, then it slowly fades. - Rick Sanchez
+Last updated: 2024-04-09 09:42:53
+Random Quote: Lord Pea Pod.  If you were a man, I would kill you for that, but my sword is made of too fine a steel to besmirch with craven's blood.  Aye, men are dying.  More will die before we see Winterfell.  What of it?  This is war.  Men die in war.  That is as it should be.  As it has always been.  -  Hugo Wull
