@@ -1,2 +1,3 @@
-Last updated: 2024-04-09 10:59:53
-Random Quote: Alvarez has been paying me for years. But you know what? I would have done it for free, because I hate every last one of you psycho sacks of sh-t! I opened Lalo's gate and I would do it again. And I'm glad what they did to him. He's a soulless pig. I wish I'd killed him with my own hands. And you know what else, Hector? I put you in that chair. Your heart meds? I switched them for sugar pills. You were dead and buried, and I had to watch this as-hole bring you back. So when you are sitting in your sh-tty nursing home, and you're sucking down on your Jell-O night after night for the rest of your life, you think of me, you twisted f-ck! - Ignacio 'Nacho' Varga
+Last updated: 2024-04-09 11:00:26
+Random Quote: Sal: "Does Lily have any other plates? I don't let Sammy eat off this plastic."
+Pepper: "How does she breastfeed him if she doesn't let him near plastic?" - Pepper Saltzman
