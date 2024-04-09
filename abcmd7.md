@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 09:36:51
-Random Quote: A Mandalorian and a Jedi? They'll never see it coming. - Din Djarin
+Last updated: 2024-04-09 09:37:24
+Random Quote: You poor stupid blind crippled fool.  Must I spell out every little thing for you?  Very well.  Cersei is a lying whore, she's been fucking Lancel and Osmund  Kettleblack and probably Moon Boy for all I know.  And I am the monster they all say I am.  Yes, I killed your vile son.  -  Tyrion Lannister
