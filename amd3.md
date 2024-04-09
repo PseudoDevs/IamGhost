@@ -1,2 +1,3 @@
-Last updated: 2024-04-09 12:00:27
-Random Quote: Do you know what someone with no money has in common with someone with too much money? Living is no fun for them. If you have too much money, no matter what you buy, eat, or drink, everything gets boring in the end. - Oh Il-nam
+Last updated: 2024-04-09 12:01:01
+Random Quote: Marylin Thornhill: "I trust Enid has given you the old Nevermore welcome."
+Wednesday: "She's been smothering me with hospitality. I hope to return the favor... in her sleep." - Wednesday Addams
