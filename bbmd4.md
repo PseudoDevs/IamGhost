@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 17:36:47
-Random Quote: Barney: "I had a drinking game based on Robin. But it was actually ON Robin: I'd pour peach schnapps in her belly button..."Ted: "Dude, we agreed we wouldn't do this."Barney: "Sorry. You're right. She didn't like it anyway. Said it woke her up." - Barney Stinson
+Last updated: 2024-04-09 17:37:24
+Random Quote: Have you been arrested in a mall?Dumped in a mall?Turned out you're Canadian in a mall? - Ted Mosby

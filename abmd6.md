@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 17:36:47
-Random Quote: Brandon Stark was never shy about taking what he wanted.  I am old now, a dried - up thing, too long a widow, but I still remember the look of my maiden's blood on his cock the night he claimed me.  I think Brandon liked the sight as well.  A bloody sword is a beautiful thing, yes.  It hurt, but it was a sweet pain. 
+Last updated: 2024-04-09 17:37:24
+Random Quote: One of the 24 similarities between women and fish are they're both attracted to shiny objects. - Barney Stinson

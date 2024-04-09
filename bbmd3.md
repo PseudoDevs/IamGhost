@@ -1,2 +1,4 @@
-Last updated: 2024-04-09 17:36:08
-Random Quote: You think you're the only one he whispers secrets to?  He gives each of us just enough to convince us that we'd be helpless without him.  -  Cersei Lannister
+Last updated: 2024-04-09 17:37:24
+Random Quote: Joel: "You keep going for family."
+Ellie: "I'm not family?"
+Joel: "No. You're cargo." - Joel Miller
