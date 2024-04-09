@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 09:39:12
-Random Quote: Ted: "Grinch, Grinch, Grinch, Grinch!"[The lights turn out]Lily: "Happy? Now you pissed up the big guy upstairs!"Ted: "Yeah, I'm sure god cares if I..."Man: "You use that language again and I turn off your water!"Lily: "It's my super - he lives above me." - Lily Aldrin
+Last updated: 2024-04-09 09:39:45
+Random Quote: Whatever you do in this life, it's not legendary, unless your friends are there to see it. - Barney Stinson
