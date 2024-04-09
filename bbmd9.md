@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 17:36:08
-Random Quote: The Old Gods have no power in the south.  The weirwoods there were all cut down, thousands of years ago.  -  Osha
+Last updated: 2024-04-09 17:36:47
+Random Quote: Jon was not afraid of death, but he did not want to die like that, trussed and bound and beheaded like a common brigand.  If he must perish, let it be with a sword in his hand, fighting his father's killers.  He was no true Stark, had never been one... but he could die like one.  Let them say that Eddard Stark had fathered four sons, not three.  -  Jon Snow

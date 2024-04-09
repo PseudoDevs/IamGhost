@@ -1,3 +1,2 @@
-Last updated: 2024-04-09 17:36:08
-Random Quote: Jerry: "Well, traditionally, science faires are a father-son thing."
-Rick: "Well, scientifically, traditions are an idiot thing." - Rick Sanchez
+Last updated: 2024-04-09 17:36:47
+Random Quote: Brandon Stark was never shy about taking what he wanted.  I am old now, a dried - up thing, too long a widow, but I still remember the look of my maiden's blood on his cock the night he claimed me.  I think Brandon liked the sight as well.  A bloody sword is a beautiful thing, yes.  It hurt, but it was a sweet pain. 
