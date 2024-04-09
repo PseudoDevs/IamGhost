@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 11:16:03
-Random Quote: Barney: "Fine, we'll just have a nice, tasteful rehearsal dinner. Maybe at a French restaurant, I know just the place."Robin: "What's the name of the restaurant?"Barney: "La Sertag." - Barney Stinson
+Last updated: 2024-04-09 11:16:37
+Random Quote: From this day forth, you will not call yourself a craven.  You've faced more things this past year than most men face in a lifetime.  You can face the Citadel, but you'll face it as a Sworn Brother of the Night's Watch.  I can't command you to be brave, but I can command you to hide your fears.  -  Jon Snow

@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 11:15:31
-Random Quote: Marshall: "Are you sure this poo-poo didn't happen on your watch and you just ran out the clock until it was my problem?"Lily: "Oh, yeah. Yeah, yeah, right. What kind of mother lets her son sit in his own filth for an extra nine minutes and 42 seconds?" - Lily Aldrin
+Last updated: 2024-04-09 11:16:37
+Random Quote: I was a better smuggler than a knight, he had written to his wife, a better knight than a King's hand, a better King's hand than a husband.  I am so sorry Marya, I have loved you.  Please forgive the wrongs I did you.  -  Davos Seaworth
