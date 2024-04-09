@@ -1,2 +1,3 @@
-Last updated: 2024-04-09 11:54:37
-Random Quote: Might be you fooled these others, crow, but don't think you'll be fooling Mance.  He'll take one look a' you and know you're false.  And when he does, I'll make a cloak o' your wolf there, and open your soft boy's belly and sew a weasel up inside.  -  the Lord of Bones
+Last updated: 2024-04-09 11:55:13
+Random Quote: This woman has a hold on my heart that I could not break if I wanted to, and there have been times that I wanted to.
+It has been overwhelming and humbling and even painful at times, but I could not stop loving her any more than I could stop breathing. - Barney Stinson
