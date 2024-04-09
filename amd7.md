@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 11:51:45
-Random Quote: Lily: "We'll all have a wedding dress camp-out. It'll be fun!"Barney: "I can't go. I've got this thing."Lily: "What thing?"Barney: "A penis!" - Barney Stinson
+Last updated: 2024-04-09 11:52:52
+Random Quote: Early drinkin’ means quick drunken. - Jim Hopper
