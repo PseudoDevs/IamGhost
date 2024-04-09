@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 11:36:59
-Random Quote: Only a fool humbles himself when the world is so full of men eager to do that job for him.  -  Theon Greyjoy
+Last updated: 2024-04-09 11:38:11
+Random Quote: Pictures can be twisted and used against you and haunt you forever. - Hannah Baker
