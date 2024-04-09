@@ -1,4 +1,2 @@
-Last updated: 2024-04-09 17:41:30
-Random Quote: Stark: "Red, green, blue... who paints a button blue?"
-Carter: "Don't tell me the American playboy needs help pushing buttons."
-Stark: "Hedy Lamarr and I spent a weekend together, but she wasn't teaching me German." - Howard Stark
+Last updated: 2024-04-09 17:42:03
+Random Quote: Ted: "Those Robin's boobies?"Barney: "When new nubile hotties lean in to inspect your bundle of joy, you can inspect their bundles of joy. The Broller. God, I come up with a lot of good stuff!" - Barney Stinson
