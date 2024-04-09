@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 12:03:27
-Random Quote: Any man who steps between a father and his vengeance asks for death.  -  Rickard Karstark
+Last updated: 2024-04-09 12:04:00
+Random Quote: He climbed onto his throne over the corpses of children, though I will grant you he was no Joffrey.  -  Arianne Martell
