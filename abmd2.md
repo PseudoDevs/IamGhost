@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 10:06:07
-Random Quote: When one chooses to walk the way of the Mandalore, you are both hunter and prey. How can one be a coward if one chooses this way of life? - The Armorer
+Last updated: 2024-04-09 10:06:44
+Random Quote: You are slow to learn, Lord Eddard.  Distrusting me was the wisest thing you've don since you climbed down off your horse.  -  Petyr Baelish
