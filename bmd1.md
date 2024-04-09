@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 09:38:39
-Random Quote: Your pain defines who you are but it no longer holds power on you - Noah
+Last updated: 2024-04-09 09:39:12
+Random Quote: You need to figure out what the fuck you want. - Nicky Nichols
