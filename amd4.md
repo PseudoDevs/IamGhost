@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 17:08:41
-Random Quote: If I could be a different person, I promise you, I would. Not 'cause I want it, but 'cause they do. - Rue Bennett
+Last updated: 2024-04-09 17:09:15
+Random Quote: Fine, you guys can have a baby, but only under these conditions:1) You promise to always love me more than the baby.2) Once a month, I get to use the baby to pick up chicks.3) That may involve the baby falling from a two-story window and me heroically catching it.4) No breast-feeding in front of me.5) Forget about 4), you can whip 'em out whenever you want. - Barney Stinson
