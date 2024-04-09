@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 17:24:09
-Random Quote: Missy Cooper: I don't want to die, I've only kissed one boy so far. - Missy Cooper
+Last updated: 2024-04-09 17:24:47
+Random Quote: There is no creature on earth half so terrifying as a truly just man.  -  Varys
