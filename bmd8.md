@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 17:27:19
-Random Quote: Jesus was a fag! He said: 'This is my body. Eat me.' - Big Boo
+Last updated: 2024-04-09 17:28:32
+Random Quote: It's not Aerys I rue, it's Robert... Why is it no one names Robert oathbreaker?  He tore the realm apart, yet I am the one with shit for honor.  -  Jaime Lannister
