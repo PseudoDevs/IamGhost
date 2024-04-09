@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 11:38:45
-Random Quote: I'm also pleased to announce The Bro Code is now available in select airlines across the country. And Lufthansa. 'Der Bro Code' is, like, huge in Germany. - Barney Stinson
+Last updated: 2024-04-09 11:39:19
+Random Quote: You grew up with actors.  You learned their craft and you learned it well.  I grew up with soldiers.  I learned how to die a long time ago.  -  Eddard Stark
