@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 01:40:17
-Random Quote: Sounds like you guys need to 'Clear Everything,' 'Subtract' the negativity and 'Add' some perspective. - How I Met Your Mother
+Last updated: 2024-04-09 01:40:51
+Random Quote: Ted: "You're not gonna do it at your wedding?"Lily: "Hell, yeah! I'm gonna take that flower-grenade and chuck it to the crowd and scream, 'Crawl for it, bitches!'" - Lily Aldrin
