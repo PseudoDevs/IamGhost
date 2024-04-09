@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 12:16:47
-Random Quote: A grievous wound, aye, but Thoros healed it.  There's never been no better healer.  -  Lem Lemoncloak
+Last updated: 2024-04-09 12:17:24
+Random Quote: Power resides where men believe it resides... It's a trick, a shadow on the wall.  -  Varys
