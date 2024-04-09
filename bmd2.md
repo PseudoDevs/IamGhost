@@ -1,2 +1,3 @@
-Last updated: 2024-04-09 04:53:29
-Random Quote: Barney: "You avoiding the family too?"James: "I'm gay, I'm black and I'm getting a divorce. Those walking skeletons are gonna have more questions for me than their pharmacists." - James Stinson
+Last updated: 2024-04-09 04:54:05
+Random Quote: Grace: "I had the phone put in. It's in the back."
+Tommy: "If we knew someone else who had a phone, we could call them." - Thomas Shelby
