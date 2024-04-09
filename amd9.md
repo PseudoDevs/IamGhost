@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 09:50:25
-Random Quote: Kids, sometimes you realize, the journey you've been taking has reached its final stop. So, the question becomes: Where do you go next? - Ted Mosby
+Last updated: 2024-04-09 09:51:02
+Random Quote: I will see, and hear, and learn, and when I have I will carry the word back to the Wall.  The wildlings had taken him for an oathbreaker, but in his heart he was still a man of the Night's Watch, doing the last duty that Qhorin Halfhand had laid on him.  Before I killed him.  -  Jon Snow
