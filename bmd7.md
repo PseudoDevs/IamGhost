@@ -1,4 +1,2 @@
-Last updated: 2024-04-09 01:44:15
-Random Quote: Ellie: "Can I have a gun?"
-Joel: "Absolutely not."
-Ellie: "Okay, Jesus. Fine. I'll have to throw a f-ckin' sandwich at them." - Ellie Williams
+Last updated: 2024-04-09 01:45:57
+Random Quote: I am on a curiosity voyage and I need my paddles to travel. These books - these books are my paddles. I need my paddles. - Dustin Henderson
