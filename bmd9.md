@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 01:39:51
-Random Quote: No one had expected the broken boy to live.  The gods could not kill Bran, no more than I could.  It was a strange thought, and stranger still to remember that Bran might still be alive.  -  Theon Greyjoy
+Last updated: 2024-04-09 01:40:25
+Random Quote: I think it passing odd that I am loved by one for a kindness I never did, and reviled by so many for my finest act.  -  Jaime Lannister
