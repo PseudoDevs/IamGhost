@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 17:54:03
-Random Quote: If you wish to give up on playing, the 25.5 billion won will be sent to the bereaved families of the late players. - Jang Deok-su
+Last updated: 2024-04-09 17:55:15
+Random Quote: When I have kids, and I tell them how I met their mother, I'm gonna tell them everything. The whole damn story. - Ted Mosby

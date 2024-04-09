@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 17:54:40
-Random Quote: Make it easier for those whose vote you can count on. Make it harder for those you can't. That's how you rig an election without leaving a lick of evidence. - Walt Breslin
+Last updated: 2024-04-09 17:55:15
+Random Quote: By "entertainment" they mean "table-shuffle-board", Makramee classes and other non-stimulating activities which are only used in Manhatten to calm down drug-addicts and the criminaly insane. - Robin Scherbatsky

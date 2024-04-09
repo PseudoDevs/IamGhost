@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 17:53:27
-Random Quote: Aye, and from what I saw of Joffrey, you are as unfit a mother as you are a ruler.  -  Kevan Lannister
+Last updated: 2024-04-09 17:55:15
+Random Quote: Zoey: "Don't worry Ted, she's cute."Barney: "'Cute' means 'fat'!"Zoey: "She's not fat."Barney: "'Not fat' means 'ugly'." - Barney Stinson
