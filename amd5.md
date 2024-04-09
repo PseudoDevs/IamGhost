@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 11:33:34
-Random Quote: Rattleshirt, we called him.  Treacherous and bloodthirsty.  If there's honor in him, he hides it down beneath his suit of bones.  -  Jon Snow
+Last updated: 2024-04-09 11:34:07
+Random Quote: Sometimes we have to let things go because we can't keep them forever. - Maura Franklin
