@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 17:41:42
-Random Quote: My uncle Kevan would make a passably good regent if someone pressed the duty on him, but he will never reach for it.  The gods shaped him to be a follower, not a leader.  -  Tyrion Lannister
+Last updated: 2024-04-09 17:42:17
+Random Quote: Robin, I'm his best friend, that's a commitment. Girlfriend, that's like a bad flu. Out of your system after a couple of weeks in bed. - Barney Stinson
