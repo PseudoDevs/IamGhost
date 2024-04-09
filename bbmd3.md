@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 09:33:45
-Random Quote: Silver or lead. You decide. - Pablo Escobar
+Last updated: 2024-04-09 09:34:18
+Random Quote: Reality is more than neurons firing around in your brain. Reality is not what's on the inside. It's what's happening on the outside. - Daniel Solace
