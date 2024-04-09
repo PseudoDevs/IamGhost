@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 10:18:26
-Random Quote: We have watched how one moment, one choice, can ripple across space and time, giving birth to new stories, heroes, whole universes. But what if it's the wrong choice? What if the best of intentions has very strange consequences? - The Watcher
+Last updated: 2024-04-09 10:19:03
+Random Quote: In King's Landing, there are two sorts of people.  The players and the pieces.  -  Petyr Baelish
