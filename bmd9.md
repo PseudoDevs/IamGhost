@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 11:45:30
-Random Quote: Have you ever lost someone? It's like you're dying with them. They can move on. And you're stuck. - Eyk Larsen
+Last updated: 2024-04-09 11:46:03
+Random Quote: What I came to realise is that fear, that’s the worst of it. That’s the real enemy. So, get up, get out in the real world and you kick that bastard as hard you can right in the teeth. - Walter White
