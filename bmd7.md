@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 17:17:39
-Random Quote: I'm just saying, love is a million things. - Maddy Perez
+Last updated: 2024-04-09 17:18:12
+Random Quote: It's not even the lies that hurt, you know? It's the fact that you're never really emotionally prepared for someone to leave you. - Rue Bennett
