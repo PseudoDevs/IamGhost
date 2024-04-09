@@ -1,2 +1,3 @@
-Last updated: 2024-04-09 09:22:48
-Random Quote: New York! Home of the Mets, the Chrysler Building, those ladies from Sex and the City and now, the zombie apocalypse. If you can make it here, you can make it anywhere - but first, you have to not get eaten. - Spider-Man
+Last updated: 2024-04-09 09:23:22
+Random Quote: "Everybody else can see Ben, right?"
+"Yeah, and he's a complete d-ckhead." - Allison Hargreeves
