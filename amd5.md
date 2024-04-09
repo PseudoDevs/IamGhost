@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 17:42:34
-Random Quote: We all wanted to be loved by a man incapable of giving love. - Number Five
+Last updated: 2024-04-09 17:43:07
+Random Quote: Until the Mountain crushed my brother's skull, no Dornishmen had died in this War of the Five Kings.  Tell me, Captain, is that my shame or my glory?  -  Doran Martell
