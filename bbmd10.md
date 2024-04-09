@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 01:43:45
-Random Quote: Nobody takes an intro class to get on any other path, but the path to not being hungover anymore. I learned that in my intro to something-ology class. - Marshall Eriksen
+Last updated: 2024-04-09 01:44:18
+Random Quote: If you think this has a happy ending, you haven't been paying attention.  -  Ramsay Bolton
