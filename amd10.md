@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 11:15:34
-Random Quote: I'm growing a child in my belly, a child that just developed ears, and it's a very thin sweater. So, please, if you must tell your story, just make it cheerful. - Lily Aldrin
+Last updated: 2024-04-09 11:16:06
+Random Quote: One does not speak unless one knows. - Din Djarin
