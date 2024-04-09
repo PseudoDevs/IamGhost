@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 17:23:32
-Random Quote: I like her. She makes you try new things, it's good for you. I'm serious - you seem less afraid when you're with her. I like it and it also makes me kind of sad. - Hannah Baker
+Last updated: 2024-04-09 17:25:26
+Random Quote: You could turn King's Landing upside down and not find a single man with a mockingbird sewn over his heart but that does not mean I am friendless.  -  Petyr Baelish
