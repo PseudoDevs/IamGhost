@@ -1,3 +1,2 @@
-Last updated: 2024-04-09 11:13:26
-Random Quote: Bro, bro, bro your broat, gently to the bar
-Hit on sluts, then do ten shots and... - Barney Stinson
+Last updated: 2024-04-09 11:14:37
+Random Quote: Robb, if that sword could bring him back, I should never let you sheathe it until Need stood at my side once more... but he is gone, and a hundred Whispering Woods will not change that.  -  Catelyn Stark

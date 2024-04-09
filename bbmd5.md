@@ -1,2 +1,3 @@
-Last updated: 2024-04-09 11:14:02
-Random Quote: If we miss Hawaii because of this, guess who's not doing "The Disappearing Salami" anytime soon? - Quinn Garvey
+Last updated: 2024-04-09 11:14:37
+Random Quote: Lily: "Swear on the lifes of your unborn boy and girl!"
+Ted: "I swear... on Luke and Leia!" - Ted Mosby
