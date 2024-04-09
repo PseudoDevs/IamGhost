@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 11:09:13
-Random Quote: Money is not peace of mind. Money is not happiness. Money is, at its essence, that measure of a man's choices. - Marty Byrde
+Last updated: 2024-04-09 11:09:50
+Random Quote: Your innocence may be as plain as the scar on your face, but it will not save you.  No more than your father will.  But I might.  Not as your judge.  As your champion.  -  Oberyn Martell
