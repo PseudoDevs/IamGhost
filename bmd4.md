@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 11:58:43
-Random Quote: This is the one that you saved? You are as its father. A clan of two. But you have removed your helmet. Then you are a Mandalorian no more. - The Armorer
+Last updated: 2024-04-09 11:59:17
+Random Quote: You know nothing, Jon Snow.  -  Ygritte
