@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 17:06:33
-Random Quote: Birds are lost, messages stolen or sold... there are things I might tell you of that eunuch that would chill your blood...  -  Grand Maester Pycelle
+Last updated: 2024-04-09 17:07:07
+Random Quote: Many good men have been bad kings, and some bad men have been good kings.  -  Maester Aemon
