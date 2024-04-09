@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 11:00:40
-Random Quote: Master Mott said Thoros could outdrink even King Robert.  They were pease in a pod, he told me, both gluttons and sots.  -  Gendry
+Last updated: 2024-04-09 11:01:17
+Random Quote: My skin has gone from porcelain, to ivory, to steel.  -  Sansa Stark
