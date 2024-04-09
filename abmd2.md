@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 17:45:20
-Random Quote: Pennsatucky: "It weren't my fault. I was just doing as the Spirit commanded."Pussey: "Fuck are you? Joan of Arc?"Pennsatucky: "No, I'm from Waynesboro, my name is Tiffany..." - Tiffany 'Pennsatucky' Doggett
+Last updated: 2024-04-09 17:46:29
+Random Quote: Either get out early, or you get out too late. - Pacho Herrera
