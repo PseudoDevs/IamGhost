@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 01:44:11
-Random Quote: The more you give a king, the more he wants.  We are walking on a bridge of ice with an abyss on either side.  Pleasing one king is difficult enough.  Pleasing two is hardly possible.  -  Jon Snow
+Last updated: 2024-04-09 01:44:45
+Random Quote: I've had shits that I've liked better than Walder Frey.  -  Brynden Tully
