@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 04:54:28
-Random Quote: You know, I hear you say things like that, and I wonder if maybe I did have a few too many whiskey sours when you were in my belly. - Meemaw
+Last updated: 2024-04-09 09:19:59
+Random Quote: We all have things we keep hidden. Sometimes, keeping secrets is how you survive. Because in High School, one rumor, one picture, one incident, can define you forever. - Hannah Baker
