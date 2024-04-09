@@ -1,2 +1,3 @@
-Last updated: 2024-04-09 09:43:31
-Random Quote: We were king's men, knights, and heroes... but some knights are dark and full of terror, my lady.  War makes monsters of us all.  -  Thoros of Myr
+Last updated: 2024-04-09 09:44:09
+Random Quote: Float like a butterfly, sting like a bee,
+my name is Steven with a V. - Arthur Harrow

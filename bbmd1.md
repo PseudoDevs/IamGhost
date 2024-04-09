@@ -1,3 +1,2 @@
-Last updated: 2024-04-09 09:43:31
-Random Quote: Layla: "Summon the suit!"
-Steven: "Summon the soup? What are you saying?" - Arthur Harrow
+Last updated: 2024-04-09 09:44:10
+Random Quote: I dreamed of the man who came today, the one they call Reek.  You and your brother lay dead at his feet, and he was skinning off your faces with a long red blade.  -  Jojen Reed
