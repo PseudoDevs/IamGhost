@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 10:01:38
-Random Quote: No, that you think you'll graduate High-School. - Meemaw
+Last updated: 2024-04-09 10:02:11
+Random Quote: I feel like her sobriety is completely dependent on how available I am to her. - Jules Vaughn
