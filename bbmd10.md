@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 10:52:12
-Random Quote: Whisky's good proofing water. Tells you who's real and who isn't. - Thomas Shelby
+Last updated: 2024-04-09 10:52:45
+Random Quote: Young or old, a true knight is sworn to protect those who are weaker than himself, or die in the attempt.  -  Brienne of Tarth
