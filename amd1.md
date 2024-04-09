@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 12:14:59
-Random Quote: For the night is dark and full of terrors.  -  Words of R'hllor
+Last updated: 2024-04-09 12:15:35
+Random Quote: Pennsatucky: "It weren't my fault. I was just doing as the Spirit commanded."Pussey: "Fuck are you? Joan of Arc?"Pennsatucky: "No, I'm from Waynesboro, my name is Tiffany..." - Tiffany 'Pennsatucky' Doggett
