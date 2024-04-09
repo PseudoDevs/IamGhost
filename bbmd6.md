@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 09:40:54
-Random Quote: Family members help each other, no questions asked. Because it makes you happy and your life depends on it. You have your plan, I know. Well, I have one, too. You’ve taught me that we help each other. That’s who we are. - Nairobi
+Last updated: 2024-04-09 09:41:30
+Random Quote: Oberyn was ever the viper.  Deadly, dangerous, unpredictable.  No man dared tread on him.  I was the grass.  Pleasant, complaisant, sweet - smelling, swaying with every breeze.  Who fears to walk upon the grass?  But it is the grass that hides the viper from his enemies and shelters him until he strikes. 
