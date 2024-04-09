@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 11:10:45
-Random Quote: In King's Landing, there are two sorts of people.  The players and the pieces.  -  Petyr Baelish
+Last updated: 2024-04-09 11:11:18
+Random Quote: I was in the desert. But if visiting the sands were a crime, the line of sinners would be longer than the Nile. - Arthur Harrow
