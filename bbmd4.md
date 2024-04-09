@@ -1,2 +1,3 @@
-Last updated: 2024-04-09 10:19:04
-Random Quote: Camping is just being homeless... without the change. - Summer Smith
+Last updated: 2024-04-09 10:20:55
+Random Quote: Weems: "No doubt you'll find something that tickles your fancy."
+Wednesday: "The last person who tickled me lost a finger." - Wednesday Addams
