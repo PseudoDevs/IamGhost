@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 10:49:10
-Random Quote: Because someday, something will go wrong. It could cost you your life or something worse. And on that day what you can’t be thinking is that you are to be blamed for something you couldn’t control. That’s life. Enjoy it, until the party is over. - Berlin
+Last updated: 2024-04-09 10:49:44
+Random Quote: Money is not peace of mind. Money is not happiness. Money is, at its essence, that measure of a man's choices. - Marty Byrde
