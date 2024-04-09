@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 09:54:08
-Random Quote: This is New York City, don't get close to the neighbours. You nod at them politely in the hall, you call the cops if you haven't seen them in a while and you smell something funny and that's it! - Ted Mosby
+Last updated: 2024-04-09 09:55:25
+Random Quote: Did you just bring a bomb into a hospital? - Jesse Pinkman
