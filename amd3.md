@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 09:27:46
-Random Quote: When someone is in love, they look through rose-tinted glasses. Everything’s wonderful. They transform into a soft teddy bear that’s smiling all the time. - Professor
+Last updated: 2024-04-09 09:28:19
+Random Quote: They know.  The gods know.  They saw what I did.  And for one strange moment it seemed as if it were Bran's face carved into the pale trunk of the weirwood, staring down at him with eyes red and wise and sad.  Bran's ghost, he thought, but that was madness.  Why should Bran want to haunt him?  He had been fond of the boy, had never done him any harm.  It was not Bran we killed.  It was not Rickon.  They were only miller's sons, from the mill by the Acorn Water.  -  Theon Greyjoy
