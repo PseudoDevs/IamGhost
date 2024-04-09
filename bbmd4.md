@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 01:41:33
-Random Quote: You could turn King's Landing upside down and not find a single man with a mockingbird sewn over his heart but that does not mean I am friendless.  -  Petyr Baelish
+Last updated: 2024-04-09 01:42:05
+Random Quote: In the end, a gentle heart may be worth more than pride or valor.  -  Doran Martell
