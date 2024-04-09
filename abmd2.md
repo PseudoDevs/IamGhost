@@ -1,6 +1,2 @@
-Last updated: 2024-04-09 11:48:13
-Random Quote: Beth: "Do you want homeless people to have homes?"
-Jerry: "Yes."
-Beth: "Are you gonna build them?"
-Jerry: "No."
-Beth: "Then what good was the 'yes'?" - Beth Smith
+Last updated: 2024-04-09 11:49:22
+Random Quote: There must always be a Stark in Winterfell.  -  Catelyn Stark
