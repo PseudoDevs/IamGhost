@@ -1,3 +1,2 @@
-Last updated: 2024-04-09 09:59:09
-Random Quote: What did the frustrated cannibal do?
-He threw up his hands. - Will Livingston
+Last updated: 2024-04-09 09:59:45
+Random Quote: Dance, until your feet hurt. Sing, until your lungs hurt. Act, until you're William Hurt. - Phil Dunphy
