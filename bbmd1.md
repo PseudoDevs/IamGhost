@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 09:54:44
-Random Quote: So you're the therapist. You know it's one thing to pretend to be a shrink and bang your patients, that's normal. But to do it for real? Little creepy bro. - Barney Stinson
+Last updated: 2024-04-09 09:55:22
+Random Quote: Is it your fault that Bronn's an insolent black - hearted rogue?  He's always been an insolent black
