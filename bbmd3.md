@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 12:04:11
-Random Quote: There's nothing more powerful than a fat girl who doesn't give a f. - Kat Hernandez
+Last updated: 2024-04-09 12:04:44
+Random Quote: Bronn was no knight, that was true.  Bronn was a battle - hardened killer. 
