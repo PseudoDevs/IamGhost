@@ -1,2 +1,4 @@
-Last updated: 2024-04-09 01:43:00
-Random Quote: I've killed a lot more than him, I promise you.  You think that makes me some monster.  Well, maybe it does, but I saved your sister's life too.  The day the mob pulled her off her horse, I cut through them and brought her back to the castle, else she would have gotten what Lollys Stokeworth got.  And she sang for me.  You didn't know that, did you?  Your sister sang me a sweet little song.  -  Sandor Clegane
+Last updated: 2024-04-09 01:43:33
+Random Quote: Stark: "Red, green, blue... who paints a button blue?"
+Carter: "Don't tell me the American playboy needs help pushing buttons."
+Stark: "Hedy Lamarr and I spent a weekend together, but she wasn't teaching me German." - Howard Stark
