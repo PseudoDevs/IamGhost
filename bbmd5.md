@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 12:01:37
-Random Quote: Marshall: "The last time I lived this far from him, was my semester abroad."Lily: "You never did a semester abroad?"Marshall: "That's what I called it, when we lived on opposite sides of the campus." - Marshall Eriksen
+Last updated: 2024-04-09 12:02:12
+Random Quote: Lord Seaworth is a man of humble birth, but he reminded me of my duty, when all I could think of was my rights.  I had the cart before the horse, Davos said.  I was trying to win the throne to save the kingdom, when I should have been trying to save the kingdom to win the throne.  -  Stannis Baratheon
