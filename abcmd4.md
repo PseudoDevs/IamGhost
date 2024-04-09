@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 10:08:10
-Random Quote: Science fact: Sisters are the worst. - Sheldon Cooper
+Last updated: 2024-04-09 10:08:43
+Random Quote: You Westerosi are all the same.  You sew some beast upon a scrap of silk, and suddenly you are all lions or dragons or eagles.  -  Illyrio Mopatis
