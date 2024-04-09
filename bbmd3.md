@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 11:15:50
-Random Quote: My real father died in King's Landing.  I made a choice, and I chose wrong.  -  Theon Greyjoy
+Last updated: 2024-04-09 11:17:02
+Random Quote: Real love is when you can't exist without someone, when you'd rather die than be apart. And the whole world goes dark and nothing else matters but the person standing in front of you. - Rue Bennett

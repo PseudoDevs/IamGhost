@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 11:16:26
-Random Quote: You know how sometimes you'll meet a girl and there'll be that one bewitching little detail that'll make you fall in love with her instantly? You know, a little freckle on the nose, the lilt of her laugh, the way she pronounces a certain word or phrase... - Ted Mosby
+Last updated: 2024-04-09 11:17:02
+Random Quote: The baby slide right out, huh? It's like a 'whoosh', like a waterslide. [Lily screaming] Slightly painful waterslide. - Dr. Sonya
