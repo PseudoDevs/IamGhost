@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 01:40:24
-Random Quote: Ted: "You know, as your best friend, if called upon, I'd be honored to raise Marvin."Robin: "If you want him to be raised by his underwear on a flagpole, Ted's your guy. If you want him pulling the chord on some other nerd's panties, I'm your guy."Barney: "I'll teach that kid how to be awesome in ways you and Lily never could. It's going to be legend- wait for it... no, I won't wait for it and neither should little baby Marvin, so maybe it's better if you two just die right now... -dary!" - Barney Stinson
+Last updated: 2024-04-09 01:40:58
+Random Quote: Hey, it's me again. Look, who are we kidding? You and I are both attracted to each other. We're young, we're drunk, half of us anyway. And we only get one life, so why don't you come over to my apartment and we'll think of something stupid to do together? - Ted Mosby
