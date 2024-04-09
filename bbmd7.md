@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 17:17:35
-Random Quote: All men are fools, if truth be told, but the ones in motley are more amusing than the ones with crowns.  -  Olenna Tyrell
+Last updated: 2024-04-09 17:18:08
+Random Quote: Zoey: "Don't worry Ted, she's cute."Barney: "'Cute' means 'fat'!"Zoey: "She's not fat."Barney: "'Not fat' means 'ugly'." - Barney Stinson
