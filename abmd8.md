@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 12:02:45
-Random Quote: I'm the Homelander. And I can do whatever the f-ck I want. - Homelander
+Last updated: 2024-04-09 12:03:18
+Random Quote: Yes, Lord Umber, leave me to the king.  He means to give me a scolding before he forgives me.  That's how he deals with treason, our King in the North.  Or should I call you the King Who Lost the North, your Grace?  -  Rickard Karstark
