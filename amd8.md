@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 10:12:16
-Random Quote: Whoever the hell that is. But the Crystal Ship definitely travels. - Jesse Pinkman
+Last updated: 2024-04-09 10:12:53
+Random Quote: This is Hawkins, okay? You wanna know the worst thing that's ever happened here in the four years I've been working here? It was when an owl attacked Eleanor Gillespie's head because it though that her hair was a nest. - Jim Hopper
