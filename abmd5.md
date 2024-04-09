@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 10:53:54
-Random Quote: It doesn't matter how tough you are, you're not going to win in this place. Not on your own. - Jang Deok-su
+Last updated: 2024-04-09 10:54:30
+Random Quote: You know, I hear you say things like that, and I wonder if maybe I did have a few too many whiskey sours when you were in my belly. - Meemaw
