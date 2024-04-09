@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 09:29:52
-Random Quote: Listen, you have a choice, okay? You can pay up now or bleed to death in court. - Saul Goodman
+Last updated: 2024-04-09 09:32:47
+Random Quote: Some people wander around their whole lives looking for a way out, but there’s only one path and it leads you ever deeper. - 

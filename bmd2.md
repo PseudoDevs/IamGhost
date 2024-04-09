@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 09:32:12
-Random Quote: Marshall: "Can we borrow your air mattress? My mom's coming into town for a few days."Ted: "Absolutely not!"Lily: "Bummer, I guess she can't stay with us. Hey, look what I just found! A list of hotels and other creative housing options."Marshall: "Baby, my mom is not staying at a hotel. Or our storage unit." - Lily Aldrin
+Last updated: 2024-04-09 09:32:48
+Random Quote: I wasn't there when the meth was cooked. I wasn't there when it was sold. I didn't witness any of the murders, but I damn well knew what was happening. I was more than a willing participant. I was indispensable. I kept Walter White out of Jail. I laundered his money. I lied for him. I conspired with him and I made millions. - Saul Goodman
