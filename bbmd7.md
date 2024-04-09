@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 09:45:26
-Random Quote: Kids, I'm going to tell you an incredible story, the story of how I met your mother. - Ted Mosby
+Last updated: 2024-04-09 09:46:04
+Random Quote: Perhaps magic was once a mighty force in the world, but no longer.  What little remains is no more than the wisp of smoke that lingers in the air after a great fire has burned out, and even that is fading.  Valyria was the last ember, and Valyria is gone.  -  Maester Luwin
