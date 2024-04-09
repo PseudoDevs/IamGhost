@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 01:41:54
-Random Quote: Ted: "All my friends from high-school, they're here with their wifes or kids. My date for the night is a sticky magazine..."Robin: "Sounds like high-school all over again!" - Robin Scherbatsky
+Last updated: 2024-04-09 01:42:27
+Random Quote: Ted: "Oh hey, where are you guys?"Barney: "We're in a fundraiser, helping young women raise money for community college."Ted: "Stripclub... nice!" - Barney Stinson
