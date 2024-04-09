@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 11:23:12
-Random Quote: I did the world a favor. People like Dalton shouldn't be allowed to procreate. Getting expelled was just a bonus. - Wednesday Addams
+Last updated: 2024-04-09 11:23:47
+Random Quote: You don't parley when you're on the back foot. We'll strike a blow back first. - Thomas Shelby
