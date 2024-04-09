@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 09:40:19
-Random Quote: Larry Bloom: "Piper, you put a pee stick in my rinsing cup."Piper Chapman: "Well, you put your pee stick in my vagina. And that's why we're in this situation." - Piper Chapman
+Last updated: 2024-04-09 09:40:57
+Random Quote: There are so many great things to do with the human mouth, why waste it on talking? - Barney Stinson
