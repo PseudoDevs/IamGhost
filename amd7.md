@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 11:37:03
-Random Quote: Robin: "Our boy's back in the game."Lily: "Thank God, it's been a hundred years since Mosby scored a dame."Marshall: "The last time he saw boobies was the screen-test scene in 'Fame'."Robin: "The last girl he dated, I think 'Righty' was her name." - Robin Scherbatsky
+Last updated: 2024-04-09 11:37:38
+Random Quote: When someone is in love, they look through rose-tinted glasses. Everything’s wonderful. They transform into a soft teddy bear that’s smiling all the time. - Professor

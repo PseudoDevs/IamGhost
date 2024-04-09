@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 11:37:04
-Random Quote: Lord Varys, sometimes I feel as though you are the best friend I have in King's Landing and sometimes I feel you are my worst enemy.  -  Tyrion Lannister
+Last updated: 2024-04-09 11:37:38
+Random Quote: Sometimes, even when you know something's a mistake, you gotta make it anyway. - Ted Mosby

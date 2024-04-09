@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 11:37:03
-Random Quote: Phil: "What a beautiful dress."Gloria: "Thank you, Phil."Phil: "Oh, okay."Claire: "Phil! She said Phil, not feel!" - Claire Dunphy
+Last updated: 2024-04-09 11:37:38
+Random Quote: Some dogs crawled atop me during the night.  My cloak was almost dry when one of them pissed in it.  Have you noticed that the rain stopped the instant I had a roof above me?  It will start again now that I'm back out.  Gods and dogs alike delight to piss on me.  -  Dolorous Edd Tollett
