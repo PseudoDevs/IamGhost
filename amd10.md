@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 17:10:57
-Random Quote: I buried an axe so deep into Willem's skull, they had to bury him with it.  -  Yoren of the Knight's Watch
+Last updated: 2024-04-09 17:11:31
+Random Quote: The more you move up in the world, the more enemies you make. - Rue Bennett
