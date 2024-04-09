@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 17:10:55
-Random Quote: Please.  A sword, that's all I ask.  Let me die as Theon, not as Reek.  -  Theon Greyjoy
+Last updated: 2024-04-09 17:12:00
+Random Quote: What if Einstein's parents had held him back? We wouldn't even have the... - I was gonna say atomic bomb, but there's probably a better example. - Meemaw

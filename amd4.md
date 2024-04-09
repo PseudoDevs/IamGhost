@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 17:11:27
-Random Quote: Be careful who you put your faith in. The only people who can betray us, are the ones we trust. - Maria Miller
+Last updated: 2024-04-09 17:12:00
+Random Quote: You need to figure out what the fuck you want. - Nicky Nichols
