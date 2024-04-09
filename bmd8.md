@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 17:12:55
-Random Quote: I fear the only sorcerer strong enough to stop Dr. Strange is you, Dr. Strange. - Ancient One
+Last updated: 2024-04-09 17:13:30
+Random Quote: Rickard Karstark killed more than a Frey and a Lannister.  He killed my honor.  -  Robb Stark
