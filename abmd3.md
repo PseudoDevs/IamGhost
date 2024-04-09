@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 10:11:45
-Random Quote: When you start moving furniture around, people stub their toes and get upset. - Don Neto
+Last updated: 2024-04-09 10:12:18
+Random Quote: Some battles are won with swords and spears, others with quills and ravens.  -  Tywin Lannister
