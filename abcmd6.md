@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 10:03:00
-Random Quote: Piper: "Not every Hispanic person wants the same thing."Lorna: "Oh, sure they do. They all want to come to America."Nicky: "Jesus, your entire world view is based on 'West Side Story', isn't it?" - Nicky Nichols
+Last updated: 2024-04-09 10:07:23
+Random Quote: No, that you think you'll graduate High-School. - Meemaw
