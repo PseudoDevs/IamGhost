@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 10:11:04
-Random Quote: What about the reality where Hitler cured cancer, Morty? The answer is: don't think about it. - Rick Sanchez
+Last updated: 2024-04-09 10:11:41
+Random Quote: Bulls are strong.  Bears.  I have seen my bastard fight.  He is not entirely to blame.  Reek was his tutor, the first Reek, and Reek was never trained at arms.  Ramsay is ferocious, I will grant you, but he swings that sword like a butcher hacking meat.  -  Roose Bolton
