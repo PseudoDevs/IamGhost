@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 01:43:40
-Random Quote: I did it for me. I liked it. I was good at it. And... I was really... I was alive. - Walter White
+Last updated: 2024-04-09 01:44:15
+Random Quote: There is a savage beast in every man, and it stirs when you put a sword in his hand.  -  Jorah Mormont
