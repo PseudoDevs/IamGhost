@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 10:59:47
-Random Quote: Ted: "You're not gonna do it at your wedding?"Lily: "Hell, yeah! I'm gonna take that flower-grenade and chuck it to the crowd and scream, 'Crawl for it, bitches!'" - Lily Aldrin
+Last updated: 2024-04-09 11:00:20
+Random Quote: Take care of this little one or maybe, it'll take care of you. - Greef Karga
