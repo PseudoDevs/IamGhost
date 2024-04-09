@@ -1,2 +1,3 @@
-Last updated: 2024-04-09 10:54:27
-Random Quote: There is only one god, and his name is Death.  And there is only one thing we say to Death: not today.  -  Syrio Forel
+Last updated: 2024-04-09 10:55:00
+Random Quote: "Crutch down and bend over a little bit."
+Barney: "Wow, It took five shots of tequila to have you in that position." - Barney Stinson
