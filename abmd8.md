@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 11:42:57
-Random Quote: Robin: "We're like sisters."Ted: "You've never gotten through even one exchange without screaming at her."Robin: "Sisters fight, Ted!" - Robin Scherbatsky
+Last updated: 2024-04-09 11:43:33
+Random Quote: Wylla.  Did you see how brave she was.  Even when I threatened to have her tongue out, she reminded me of the debt White Harbor owes to the Starks of Winterfell, a debt that can never be repaid.  Wylla spoke from the heart... not every woman can be as brave as my Wylla.  -  Wyman Manderly
