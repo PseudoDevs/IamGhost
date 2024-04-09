@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 10:07:30
-Random Quote: Would the five of us always live within a few minutes of that booth? No, that's life, kids, but here's what I discovered: Our booth was wherever the five of us were together. - Ted Mosby
+Last updated: 2024-04-09 10:08:03
+Random Quote: There are worse ways to die than warm and drunk.  I knew a brother drowned himself in wine once.  It was a poor vintage, though, and his corpse did not improve it.  -  Dolorous Edd Tollett
