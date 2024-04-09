@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 11:32:08
-Random Quote: I drank when I was pregnant with you, you turned out fine. There's everybody saying 'don't drink, don't smoke'. I swear - Texas is turning into California. - Meemaw
+Last updated: 2024-04-09 11:32:41
+Random Quote: Never bring a knife to a sword fight. Unless it's concealed. - Wednesday Addams
