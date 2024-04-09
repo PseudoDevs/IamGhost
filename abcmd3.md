@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 09:36:30
-Random Quote: I'm sorry. I've been told before that my light tread is too elegant to be detected by the human ear. - Kamala
+Last updated: 2024-04-09 09:37:07
+Random Quote: Winter will never come for the likes of us.  Should we die in battle, they will surely sing of us, and it's always summer in the songs.  In the songs all knights are gallant, all maids are beautiful, and the sun is always shining.  -  Brienne of Tarth
