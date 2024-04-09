@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 09:40:18
-Random Quote: Thank the Force! This little thing has had me worried sick. Come here, you little womp rat. Looks like it remembers me. How much do you want for it? Just kidding. But not really. - Peli Motto
+Last updated: 2024-04-09 09:42:13
+Random Quote: You are slow to learn, Lord Eddard.  Distrusting me was the wisest thing you've don since you climbed down off your horse.  -  Petyr Baelish
