@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 01:49:49
-Random Quote: Until the Mountain crushed my brother's skull, no Dornishmen had died in this War of the Five Kings.  Tell me, Captain, is that my shame or my glory?  -  Doran Martell
+Last updated: 2024-04-09 04:53:21
+Random Quote: The star sounds great. Good with me. Besides, nobody really sees many stars these days. - Oh Il-nam
