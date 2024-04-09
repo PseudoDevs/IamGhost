@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 10:17:13
-Random Quote: Marshall: "Lily, you snooped through her stuff?"Lily: "No, it's like the first thing you see when you jimmy open her desk-drawer with the letter opener her grandfather left her, according to her diary." - Lily Aldrin
+Last updated: 2024-04-09 10:17:47
+Random Quote: I swear to you, I was never so alive as when I was winning this throne, or so dead as now that I've won it.  -  Robert Baratheon
