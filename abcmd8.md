@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 17:30:52
-Random Quote: Ted: "You're not gonna do it at your wedding?"Lily: "Hell, yeah! I'm gonna take that flower-grenade and chuck it to the crowd and scream, 'Crawl for it, bitches!'" - Lily Aldrin
+Last updated: 2024-04-09 17:31:25
+Random Quote: Put me on your magical boat, man, and sail me down your chocolaty river of meth! - Badger
