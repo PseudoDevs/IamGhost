@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 01:42:39
-Random Quote: Sorry buddy, wish I could help you, but my hands are tied. Oh no wait, that was last night! - Barney Stinson
+Last updated: 2024-04-09 01:43:12
+Random Quote: People are oblivious to reality. They only see what they want to see, when all they have to do is shift their perspective to see the full scope of things. - Yuk Je
