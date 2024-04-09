@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 11:26:58
-Random Quote: They're all weighing the beskar in their minds, but not me. No. I for one, I celebrate your success, because it is my success as well. Hell, even I'm rich. - Greef Karga
+Last updated: 2024-04-09 11:27:31
+Random Quote: The Lion does not concern itself with the opinions of sheep.  -  Tywin Lannister
