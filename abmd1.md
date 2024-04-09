@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 10:13:10
-Random Quote: Do you remember that cave?  We should have stayed in that cave.  I told you so.  -  Ygritte
+Last updated: 2024-04-09 10:13:43
+Random Quote: Real love is when you can't exist without someone, when you'd rather die than be apart. And the whole world goes dark and nothing else matters but the person standing in front of you. - Rue Bennett
