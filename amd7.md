@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 10:39:41
-Random Quote: There are worse ways to die than warm and drunk.  I knew a brother drowned himself in wine once.  It was a poor vintage, though, and his corpse did not improve it.  -  Dolorous Edd Tollett
+Last updated: 2024-04-09 10:40:16
+Random Quote: Balon was mad, Aeron is madder, and Euron is maddest of them all.  -  Baelor Blacktyde
