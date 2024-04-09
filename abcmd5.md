@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 12:12:03
-Random Quote: I'd ask what you're up to, Klaus, but then it occurred to me: I don't care. - Number Five
+Last updated: 2024-04-09 12:12:38
+Random Quote: Treason is a noxious weed.  It must be torn up, root and stem and seed, lest new traitors sprout from every roadside.  -  Grand Maester Pycelle
