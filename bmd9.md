@@ -1,3 +1,3 @@
-Last updated: 2024-04-09 10:14:49
-Random Quote: Morty: "I don't like how meta this is getting, Rick."
-Rick: "Shut up, Morty, you're 14. You watch videos of people on YouTube reacting to fing YouTube. I'll be the judge of when we get too meta." - Rick Sanchez
+Last updated: 2024-04-09 10:15:23
+Random Quote: Aimee: "Did you know you need, like, sugar and flour and an oven to bake? And you don't shove it all in, you have to follow alle these rules."
+Maeve: "Yeah, it's called a recipe." - Maeve Wiley
