@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 09:20:37
-Random Quote: When you meet someone special, suddenly life is full of firsts: The first kiss, the first night together, the first weekend together. - Ted Mosby
+Last updated: 2024-04-09 09:21:11
+Random Quote: If you die before you say her name, Set, I will hunt you through the seven hells.  -  Oberyn Martell
