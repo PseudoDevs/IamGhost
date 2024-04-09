@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 10:37:43
-Random Quote: That was the night I was born. I rose like a phoenix from her mentholated bosom and strode into the world, Armani-clad and fully awesome. - Barney Stinson
+Last updated: 2024-04-09 10:38:16
+Random Quote: It is for my prince to command, for Hotah to obey.  -  Areo Hotah
