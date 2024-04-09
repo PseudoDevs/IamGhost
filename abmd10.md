@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 11:03:47
-Random Quote: When you do one good deed, it creates a ripple effect. One good deed leads to another and another. - Marshall Eriksen
+Last updated: 2024-04-09 11:04:56
+Random Quote: No sword is strong until it's been tempered.  The Stark boy is a child.  No doubt he likes the sound of warhorns well enough, and the sight of his banners fluttering in the wind, but in the end it comes down to butcher's work.  I doubt he has the stomach for it.  -  Tywin Lannister
