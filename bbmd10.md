@@ -1,2 +1,4 @@
-Last updated: 2024-04-09 17:16:28
-Random Quote: We can only die.  Why else do we don these black cloaks, but to die in defense of the realm?  -  Qhorin Halfhand
+Last updated: 2024-04-09 17:17:05
+Random Quote: It could be for a brother or maybe her sick dad.
+[reads] "And then I want you to do me on the couch."
+Okay, maybe not a sick dad. Or a very sick dad, am I right? - Robin Scherbatsky
