@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 01:41:20
-Random Quote: Might be you fooled these others, crow, but don't think you'll be fooling Mance.  He'll take one look a' you and know you're false.  And when he does, I'll make a cloak o' your wolf there, and open your soft boy's belly and sew a weasel up inside.  -  the Lord of Bones
+Last updated: 2024-04-09 01:42:27
+Random Quote: We're going to Buffalo... and I've seen women from there; the city's aptly named. - Barney Stinson
