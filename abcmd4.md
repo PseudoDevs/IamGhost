@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 17:26:09
-Random Quote: The less talk, the better. - Mike Ehrmantraut
+Last updated: 2024-04-09 17:26:43
+Random Quote: Grief never gets any smaller, so you have to make yourself bigger around it. The best way to do that is to open up. Let people in. - Rendell Locke
