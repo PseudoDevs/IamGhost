@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 10:52:50
-Random Quote: This story is about to take a dark turn. Usually, I love dark turns. Like when the carousel brakes myteriously failed at my eighth birthdays party. - Wednesday Addams
+Last updated: 2024-04-09 10:53:24
+Random Quote: Sheldon, can you hear me? It's your twin sister, MissyEverything's all right here, but I think Mom misses you real badAll right, I can't hear you, so I'm gonna hang up now. - Missy
