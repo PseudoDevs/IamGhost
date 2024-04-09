@@ -1,2 +1,3 @@
-Last updated: 2024-04-09 10:24:41
-Random Quote: A good act does not wash out the bad, nor a bad act the good.  Each should have its own reward.  -  Stannis Baratheon
+Last updated: 2024-04-09 10:25:14
+Random Quote: Lily: "Swear on the lifes of your unborn boy and girl!"
+Ted: "I swear... on Luke and Leia!" - Ted Mosby

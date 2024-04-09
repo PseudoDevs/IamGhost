@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 10:24:41
-Random Quote: Right down here, the ocean has a depth of almost 4,000 meters. Man has mapped out every corner of this world. Been to the farthest deserts, the top of the highest mountains. But what's down there is still a mystery. A hidden world in the shadows. - Eyk Larsen
+Last updated: 2024-04-09 10:25:14
+Random Quote: Lord Varys, sometimes I feel as though you are the best friend I have in King's Landing and sometimes I feel you are my worst enemy.  -  Tyrion Lannister
