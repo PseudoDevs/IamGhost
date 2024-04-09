@@ -1,2 +1,4 @@
-Last updated: 2024-04-09 10:28:50
-Random Quote: Marshall: "Jelly beans, fluffernutter, Gummi Bears, ginger snap... this is a grocery list!"Robin: "For who? A witch building a house in the forest?"Marshall: "Sugar helps me study."Barney: "This is like the shopping a ten-year-old does when his parents leave him alone for the weekend."Lily: "What parent leaves a ten-year-old alone for the weekend?"Barney: "And your mom was perfect." - Barney Stinson
+Last updated: 2024-04-09 10:29:27
+Random Quote: Joel: "Where'd you get the money for this?"
+Sarah: "Drugs. I sell hardcore drugs."
+Joel: "It's better than what I do." - Joel Miller
