@@ -1,2 +1,3 @@
-Last updated: 2024-04-09 11:30:20
-Random Quote: Nuncle always had a fondness for freaks and fools.  My father used to fight with him about it.  Let the wizards call upon their gods.  The Damphair will call on ours, and drown them.  -  Asha Greyjoy
+Last updated: 2024-04-09 11:30:56
+Random Quote: Dragon: "My name is Balthromaw. Breaker of skies, slayer of mountain."
+Rick: "Rule 1: You're now scooper of your own poops, or I will take you down like the black-light poster you are." - Rick Sanchez
