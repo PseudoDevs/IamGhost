@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 10:55:50
-Random Quote: Kids, you may think your only choices are to swallow your anger or throw it in someone's face, but there's a third option: You can just let it go, and only when you do that is it really gone and you can move forward. - Ted Mosby
+Last updated: 2024-04-09 10:57:34
+Random Quote: In all the world, violent men are the easiest to deal with. - Irene O'Donnell
