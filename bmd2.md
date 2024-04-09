@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 12:03:05
-Random Quote: Where some choose to look at this bra half-empty, I choose to look at this bra half-full. - Barney Stinson
+Last updated: 2024-04-09 12:03:38
+Random Quote: It's not Aerys I rue, it's Robert... Why is it no one names Robert oathbreaker?  He tore the realm apart, yet I am the one with shit for honor.  -  Jaime Lannister
