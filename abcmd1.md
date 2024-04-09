@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 01:45:53
-Random Quote: There is no creature on earth half so terrifying as a truly just man.  -  Varys
+Last updated: 2024-04-09 01:47:01
+Random Quote: A hall to die in, and men to bury me.  I thank you, my lords... but I spit on your pity... I am a knight... I shall die a knight.  -  Barristan Selmy
