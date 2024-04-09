@@ -1,4 +1,3 @@
-Last updated: 2024-04-09 10:29:27
-Random Quote: Joel: "Where'd you get the money for this?"
-Sarah: "Drugs. I sell hardcore drugs."
-Joel: "It's better than what I do." - Joel Miller
+Last updated: 2024-04-09 10:30:01
+Random Quote: The Deep: "What do we do? We can't just kill everyone."
+Billy Butcher: "That's exactly what we're gonna do!" - Billy Butcher
