@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 01:46:25
-Random Quote: He made me kill a rabbit. I guess he thought it would make me into more of a man or something. I cried for a week. - Jonathan Byers
+Last updated: 2024-04-09 01:46:59
+Random Quote: Rick: "Hey Morty, quick favor."Morty: "What, cover me in gasoline and spiders? Fine, yeah, I'm in."Rick: "Wasn't my first pitch but hey, not gonna waste this opportunity." - Rick Sanchez
