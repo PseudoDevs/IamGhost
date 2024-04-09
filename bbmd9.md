@@ -1,3 +1,2 @@
-Last updated: 2024-04-09 10:52:09
-Random Quote: Jerry: "Rick! Beth! You love me after all!"
-Rick: "Eh, I love her, she loves you. Those credits don't transfer." - Rick Sanchez
+Last updated: 2024-04-09 10:52:43
+Random Quote: Geniuses are always branded as crazy. - Pablo Escobar
