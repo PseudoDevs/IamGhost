@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 11:43:18
-Random Quote: She's a trailblazing Indian diva who marches to the beat of her own drummer. - Devi Vishwakumar
+Last updated: 2024-04-09 11:43:51
+Random Quote: Aye, and from what I saw of Joffrey, you are as unfit a mother as you are a ruler.  -  Kevan Lannister
