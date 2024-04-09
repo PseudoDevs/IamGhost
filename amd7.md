@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 17:42:43
-Random Quote: You can never tell with men. They go for whoever their dcks point at and there's no changing their minds. - Polly Gray
+Last updated: 2024-04-09 17:43:16
+Random Quote: When treating with liars, even an honest man must lie.  -  Wyman Manderly
