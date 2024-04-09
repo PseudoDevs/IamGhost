@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 10:20:53
-Random Quote: Only a fool humbles himself when the world is so full of men eager to do that job for him.  -  Theon Greyjoy
+Last updated: 2024-04-09 10:21:29
+Random Quote: When you spend years thinking about something obsessively, that something is your whole world, your perfect world. - Tokyo
