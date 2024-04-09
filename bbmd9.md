@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 09:48:37
-Random Quote: I have been a voice with no body. A body, but not human. And now, a memory made real. Who knows what I might be next? - Vision
+Last updated: 2024-04-09 09:49:49
+Random Quote: They are knights now, all three, and your sister has promised them further advancement.  And the eldest, Set Osmund of the Kingsguard, dreams of certain other... favors... as well.  You can match the queen coin for coin, I have no doubt, but she has a second purse that is quite inexhaustible.  -  Varys
