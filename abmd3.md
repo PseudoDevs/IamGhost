@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 09:19:59
-Random Quote: Knowledge is a weapon, Jon.  Arm yourself well before you ride forth to battle.  -  Maester Aemon
+Last updated: 2024-04-09 09:20:35
+Random Quote: Frustration and boredom are great motivators to seek out other pleasures. Human behavior is quite predictable. - Virginia Wilson
