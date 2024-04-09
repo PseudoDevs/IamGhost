@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 09:32:17
-Random Quote: Demons made of snow and ice and cold.  The ancient enemy.  The only enemy that matters.  -  Stannis Baratheon
+Last updated: 2024-04-09 09:32:51
+Random Quote: War. Such a fascinating concept. A temporary salve for a permanent human flaw. - The Handler
