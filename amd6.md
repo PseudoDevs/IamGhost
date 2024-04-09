@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 09:57:29
-Random Quote: My order serves the realm, not the ruler.  Once I counseled King Aerys as loyally as I council King Robert now, so I bear this girl child of his no ill will.  Yet I ask you this, should war come again, how many soldiers will die?  How many towns will burn?  How many children will be ripped from their mothers to perish on the end of a spear?  Is it not wiser, even kinder, that Daenerys Targaryen should die now so that tens of thousands might live?  -  Grand Maester Pycelle
+Last updated: 2024-04-09 09:58:35
+Random Quote: The World is going to come to an end tonight. Yes think about it. End of the World, Nostradamus, Notre Dame, Fighting Irish, Irish, St. Patrick's Day. This is it Bro. Bro-calypse Now... Bro-Mageddon. - Barney Stinson
