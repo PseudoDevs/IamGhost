@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 17:14:06
-Random Quote: Whisky's good proofing water. Tells you who's real and who isn't. - Thomas Shelby
+Last updated: 2024-04-09 17:14:41
+Random Quote: Gustavo. When I looked into your eyes... hate. A little bit's okay. As long as you never forget who's boss. - Don Eladio
