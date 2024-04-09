@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 10:33:07
-Random Quote: Some people wander around their whole lives looking for a way out, but there’s only one path and it leads you ever deeper. - 
+Last updated: 2024-04-09 10:33:42
+Random Quote: A good lord comforts and protects the weak and helpless.  -  Maester Luwin
