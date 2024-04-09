@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 12:03:38
-Random Quote: Only when we’ve freed ourselves of emotion can we be truly free. Only when you’re willing to sacrifice what you hold dearest. - Adam
+Last updated: 2024-04-09 12:04:11
+Random Quote: I have a tender spot in my heart for cripples, bastards, and broken things.  -  Tyrion Lannister
