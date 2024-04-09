@@ -1,6 +1,2 @@
-Last updated: 2024-04-09 11:18:56
-Random Quote: You lie to your husband all the time...
-"That shirt looks great on you."
-"I love your mom."
-"I never fantasize about Barney when we're doing it."
-Sound familiar, Pinocchio? - Barney Stinson
+Last updated: 2024-04-09 11:19:33
+Random Quote: His blood ran black.  Made him my brother as much as yours.  -  Yoren of the Night's Watch
