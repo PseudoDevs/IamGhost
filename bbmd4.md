@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 10:44:52
-Random Quote: The more you give a king, the more he wants.  We are walking on a bridge of ice with an abyss on either side.  Pleasing one king is difficult enough.  Pleasing two is hardly possible.  -  Jon Snow
+Last updated: 2024-04-09 10:45:25
+Random Quote: There have always been men who found it easier to speak vows than to keep them.  -  Arys Oakheart
