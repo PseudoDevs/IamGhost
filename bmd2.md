@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 11:58:06
-Random Quote: I'd say hump her brain out, but somebody obviously already has. - Ted Mosby
+Last updated: 2024-04-09 11:58:41
+Random Quote: Marshall: "Are you sure this poo-poo didn't happen on your watch and you just ran out the clock until it was my problem?"Lily: "Oh, yeah. Yeah, yeah, right. What kind of mother lets her son sit in his own filth for an extra nine minutes and 42 seconds?" - Lily Aldrin
