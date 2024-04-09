@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 15:16:57
-Random Quote: Mike: "A friend is someone that you'd do anything for."Dustin: "You lend them your cool stuff, like comic books and trading cards."Mike: "And they never break a promise." - Mike Wheeler
+Last updated: 2024-04-09 01:39:38
+Random Quote: The Freys slashed her throat from ear to ear.  When we found her by the river she was three days dead.  Harwin begged me to give her the kiss of life, but it had been too long.  I would not do it, so Lord Beric put his lips to hers instead, and the flame of life passed from him to her.  And... she rose.  May the Lord of Light protect us.  She rose.  -  Thoros of Myr
