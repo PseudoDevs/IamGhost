@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 01:39:50
-Random Quote: Barney: "I cannot stop staring at that girl's face."Ted: "Face, huh? That's your weirdest nickname for boobs yet." - Ted Mosby
+Last updated: 2024-04-09 01:40:24
+Random Quote: Barney: "Fine, we'll just have a nice, tasteful rehearsal dinner. Maybe at a French restaurant, I know just the place."Robin: "What's the name of the restaurant?"Barney: "La Sertag." - Barney Stinson
