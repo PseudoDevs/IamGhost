@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 01:49:26
-Random Quote: I never wanted any of it to change, but that's not how life works. - Ted Mosby
+Last updated: 2024-04-09 01:49:59
+Random Quote: I can teach you history, healing, herblore.  I can teach you the speech of ravens, and how to build a castle, and the way a sailor steers his ship by the stars I can teach you to measure the days and marks the seasons, and at the Citadel in Oldtown they can teach you a thousand things more.  But, Bran, no man can teach you magic.  -  Maester Luwin
