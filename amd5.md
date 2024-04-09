@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 17:50:16
-Random Quote: Fool's blood, king's blood, blood on the maiden's thigh, but chains for the guests and chains for the bridegroom, aye aye aye.  -  Patchface
+Last updated: 2024-04-09 17:50:48
+Random Quote: You wear your honor like a suit of armor, Stark.  You think it keeps you safe, but all it does is weigh you down and make it hard for you to move.  -  Petyr Baelish
