@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 11:44:08
-Random Quote: We've always been a trio! We're right up there with Batman and Robin and Alfred. Romeo and Juliet and the apothecary. Salt and pepper and cumin. - Ted Mosby
+Last updated: 2024-04-09 11:45:18
+Random Quote: His size, Gregor is a very large man.  Also a very stupid one.  Too stupid to know when he should die, it seems.  -  Cersei Lannister
