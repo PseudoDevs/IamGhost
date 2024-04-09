@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 11:06:45
-Random Quote: Shagg, son of Dolf will chop off their manhoods and feed them to the crows.  -  Shagga, son of Dolf
+Last updated: 2024-04-09 11:07:21
+Random Quote: Well, I think that... when you have a connection with someone, it never really goes away, you know? - Alex Vause
