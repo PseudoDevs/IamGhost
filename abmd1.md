@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 17:35:57
-Random Quote: If somehow the Lord gave me a second chance at that moment... I would do it all over again. - Joel Miller
+Last updated: 2024-04-09 17:36:31
+Random Quote: I will not be remembered as Set Arys the Unworthy.  I will not soil my cloak.  -  Arys Oakheart
