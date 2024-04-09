@@ -1,2 +1,4 @@
-Last updated: 2024-04-09 09:40:16
-Random Quote: If you had to fall into a woman's arms, my son, why couldn't they have been Margaery Tyrell's?  -  Catelyn Stark
+Last updated: 2024-04-09 09:40:52
+Random Quote: Joel: "You keep going for family."
+Ellie: "I'm not family?"
+Joel: "No. You're cargo." - Joel Miller
