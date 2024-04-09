@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 11:19:35
-Random Quote: Ted: "What could she possibly have to say me, that she couldn't write in an email?"Robin: "I've cut out all my fingers?" - Robin Scherbatsky
+Last updated: 2024-04-09 11:21:22
+Random Quote: Barney: "The Disappearing Salami... Mr. Flanagan's wife shot him before he could ever tell me what the trick was."Quinn: "Yeah, that guy was banging your mom!" - Quinn Garvey
