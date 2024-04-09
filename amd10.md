@@ -1,2 +1,4 @@
-Last updated: 2024-04-09 17:47:58
-Random Quote: We all wanted to be loved by a man incapable of giving love. - Number Five
+Last updated: 2024-04-09 17:49:11
+Random Quote: Joel: "Long way or short way?"
+Tess: "I mean, it's the long way or the 'we're fuckin' dead' way."
+Ellie: "Well, I vote long way just based on that limited information." - Ellie Williams
