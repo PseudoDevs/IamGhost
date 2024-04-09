@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 01:44:39
-Random Quote: Kids, sometimes the universe sends exactly what you ask for. Other times... it sends Lily's dad. - Ted Mosby
+Last updated: 2024-04-09 01:45:12
+Random Quote: Hush, Alerie, don't take that tone with me.  And don't call me mother.  If I'd given birth to you, I'm sure I'd remember.  I'm only to blame for your husband, the lord oaf of Highgarden.  -  Olenna Tyrell
