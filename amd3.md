@@ -1,4 +1,2 @@
-Last updated: 2024-04-09 01:43:33
-Random Quote: Stark: "Red, green, blue... who paints a button blue?"
-Carter: "Don't tell me the American playboy needs help pushing buttons."
-Stark: "Hedy Lamarr and I spent a weekend together, but she wasn't teaching me German." - Howard Stark
+Last updated: 2024-04-09 01:44:06
+Random Quote: Because you're so broken you don't even trust yourself. And that's scary. - Nate Jacobs
