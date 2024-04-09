@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 11:26:35
-Random Quote: You're wrong.  Need Stark was my gaoler, but my blood is still salt and iron.  -  Theon Greyjoy
+Last updated: 2024-04-09 11:27:08
+Random Quote: The common people pray for rain, healthy children, and a summer that never ends.  It is no matter to them if the high lords play their game of thrones, so long as they are left in peace.  They never are.  -  Jorah Mormont
