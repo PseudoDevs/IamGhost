@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 17:48:35
-Random Quote: Gustavo. When I looked into your eyes... hate. A little bit's okay. As long as you never forget who's boss. - Don Eladio
+Last updated: 2024-04-09 17:49:11
+Random Quote: Give me back my spear, Uncle.  Cersei sent us a head.  We should send her back a bag of them.  -  Obara Sand
