@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 01:49:37
-Random Quote: Ted: "So, you are mad about me and Robin holding hands."Barney: "Of course I'm mad Ted. Holding hands is like the fourth grade equivalent of banging. Well in your case, twelfth grade. Self-five!" - Barney Stinson
+Last updated: 2024-04-09 01:50:10
+Random Quote: Gloria: "It seemd like all what we did was fight and make love. One time, I'm not kidding you, we fell out of the window together."Jay: "Which one were you doing?" - Jay Pritchett
