@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 10:15:08
-Random Quote: Edric Storm, they call him.  He is said to be the very image of my brother.  If men were to see him, and then look again at Joffrey and Tommen, they could not help but wonder, I would think.  -  Stannis Baratheon
+Last updated: 2024-04-09 10:15:41
+Random Quote: If I now change my past, I will change who I am right now - The Stranger
