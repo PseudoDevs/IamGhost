@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 10:03:17
-Random Quote: Put me on your magical boat, man, and sail me down your chocolaty river of meth! - Badger
+Last updated: 2024-04-09 10:03:50
+Random Quote: I feel like her sobriety is completely dependent on how available I am to her. - Jules Vaughn
