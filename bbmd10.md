@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 10:17:12
-Random Quote: The gods be damned.  It was a hollow victory they gave me.  A crown... it was the girl I prayed them for.  Your sister, safe... and mine again, as she was meant to be.  I ask you, Need, what good is it to wear a crown?  The gods mock the prayers of kings and cowherds alike.  -  Robert Baratheon
+Last updated: 2024-04-09 10:19:40
+Random Quote: Turns out, when you projectile vomit on skates, you roll right into the spray. - Ted Mosby
