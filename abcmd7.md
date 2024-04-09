@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 17:34:50
-Random Quote: Fear cuts deeper than swords.  -  Syrio Forel
+Last updated: 2024-04-09 17:35:29
+Random Quote: Why should I go running to my aunt as if I were a beggar?  My claim is better than her own.  Let her come to me... in Westeros.  -  Aegon Targaryen
