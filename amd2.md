@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 11:27:21
-Random Quote: Lord Varys, sometimes I feel as though you are the best friend I have in King's Landing and sometimes I feel you are my worst enemy.  -  Tyrion Lannister
+Last updated: 2024-04-09 11:29:09
+Random Quote: Hey, want to come to my house and play telephone? I got the string, you got the cans. - Barney Stinson
