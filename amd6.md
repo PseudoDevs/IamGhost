@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 09:29:25
-Random Quote: Strip off their skins.  Lord Bolton, he used to say a naked man has few secrets, but a flayed man's got none.  -  Ramsay Bolton
+Last updated: 2024-04-09 09:29:57
+Random Quote: Sorry buddy, wish I could help you, but my hands are tied. Oh no wait, that was last night! - Barney Stinson
