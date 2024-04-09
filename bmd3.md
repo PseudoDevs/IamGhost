@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 09:28:40
-Random Quote: Ties and no playoffs? Why do you even do this? - Jim Hopper
+Last updated: 2024-04-09 09:29:15
+Random Quote: There have always been men who found it easier to speak vows than to keep them.  -  Arys Oakheart
