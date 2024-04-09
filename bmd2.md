@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 10:22:52
-Random Quote: Camping is just being homeless... without the change. - Summer Smith
+Last updated: 2024-04-09 10:23:25
+Random Quote: You want to know if I was ever really in love with you? Every morning, I wake up wishing I wasn't. You are a constant reminder of what I can't have. A life. Love. You. - Lucien
