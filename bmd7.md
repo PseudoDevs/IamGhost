@@ -1,2 +1,3 @@
-Last updated: 2024-04-09 17:06:36
-Random Quote: Marshall: "Lily, you snooped through her stuff?"Lily: "No, it's like the first thing you see when you jimmy open her desk-drawer with the letter opener her grandfather left her, according to her diary." - Lily Aldrin
+Last updated: 2024-04-09 17:07:10
+Random Quote: "How do you take your tea?"
+Ted: "Well, normally right back to the counter because there's been a terrible mistake." - Jim Hopper
