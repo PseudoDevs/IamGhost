@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 17:28:20
-Random Quote: I'm going to tell you something curious about prisons. You're never alone. But you always have the feeling that you are. - Don Neto
+Last updated: 2024-04-09 17:28:53
+Random Quote: Only Renly could vex me so with a piece of fruit.  He brought his doom on himself with his treason, but I did love him, Davos.  I know that now.  I swear, I will go to my grave thinking of my brother's peach.  -  Stannis Baratheon
