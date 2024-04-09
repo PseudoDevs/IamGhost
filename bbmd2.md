@@ -1,2 +1,3 @@
-Last updated: 2024-04-09 17:08:18
-Random Quote: All I know is, he's not in the same grade as me anymoreAnd I'm thrilled. - Missy
+Last updated: 2024-04-09 17:09:25
+Random Quote: Morty: "I have English homework."
+Rick: "You're still learning English? It's the language you speak. How dumb are you?" - Rick Sanchez
