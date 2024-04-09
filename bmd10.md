@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 12:10:52
-Random Quote: By what right does the wolf judge the lion?  -  Jaime Lannister
+Last updated: 2024-04-09 12:11:27
+Random Quote: You give me one hour of phone-free bro time, during which we, and by we I mean you, get magnificently, mythologically drunk. I'm talking needing-subtitles-when-you-speak drunk. - Barney Stinson
