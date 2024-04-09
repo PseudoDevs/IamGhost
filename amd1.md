@@ -1,3 +1,2 @@
-Last updated: 2024-04-09 12:01:36
-Random Quote: Grace Burgess: "You think I am a wh-re?"
-Tommy Shelby: "Everyone's a wh-re, Grace. We just sell different parts of ourselves." - Thomas Shelby
+Last updated: 2024-04-09 12:02:10
+Random Quote: Kids, you can't cling to the past. Because no matter how tight you hold on... it's already gone. - Ted Mosby
