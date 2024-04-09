@@ -1,6 +1,2 @@
-Last updated: 2024-04-09 17:59:29
-Random Quote: Polly: "Six."
-John: "Six what?"
-Polly: "Six questions since you walked through that door. Soon you'll have to start being the man with the answers."
-John: "Why?"
-Polly: "Seven." - Polly Gray
+Last updated: 2024-04-09 18:00:05
+Random Quote: One does not speak unless one knows. - Din Djarin

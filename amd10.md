@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 17:59:29
-Random Quote: Lord Seaworth is a man of humble birth, but he reminded me of my duty, when all I could think of was my rights.  I had the cart before the horse, Davos said.  I was trying to win the throne to save the kingdom, when I should have been trying to save the kingdom to win the throne.  -  Stannis Baratheon
+Last updated: 2024-04-09 18:00:05
+Random Quote: Marshall: "I was once with this chick, who liked to do hand stuff underneath a jacket, while we were all sitting around our favorite booth at MacLaren's."Ted: "Gross."Robin: "We share appetizers!" - Robin Scherbatsky
