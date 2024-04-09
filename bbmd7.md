@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 09:37:01
-Random Quote: Real love is when you can't exist without someone, when you'd rather die than be apart. And the whole world goes dark and nothing else matters but the person standing in front of you. - Rue Bennett
+Last updated: 2024-04-09 09:37:35
+Random Quote: Ladys and Gentlemen, I have in my hand a copy of tonight's top 10 list. The category: Top 10 things i would have called my truck...Number 10 - 'The Winne-Bango'.Number 9 - 'The Pick-Up Truck'.Number 8 - 'The Ford Explore Her'.Number 7 - 'The You Scream Truck'. You Scream.Number 6 - 'Feels on Wheels!'. Hello!Number 5 - 'The Ride Her Truck'.Number 4 - 'The 18-Squeeler'.Number 3 - 'The Esca-Laid'. Ih-ih-ih!Number 2 - 'The Slam-Boney'.Aaand the number 1 thing I would've called my truck if Ted hadn't been a jerk and given it back...'The '69 Chevy'! - Barney Stinson
