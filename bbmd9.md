@@ -1,2 +1,4 @@
-Last updated: 2024-04-09 10:11:53
-Random Quote: I understand that if any more words come pouring out of your cunt mouth I'm going to have to eat every fucking chicken in this room.  -  Sandor Clegane
+Last updated: 2024-04-09 10:12:26
+Random Quote: Joel: "Where'd you get the money for this?"
+Sarah: "Drugs. I sell hardcore drugs."
+Joel: "It's better than what I do." - Joel Miller
