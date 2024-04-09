@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 17:29:59
-Random Quote: Knights?  Dondarrion's a knight, but the rest of you are the sorriest lot of outlaws and broken men I've ever seen.  -  Sandor Clegane
+Last updated: 2024-04-09 17:30:32
+Random Quote: Barney: "Fine, we'll just have a nice, tasteful rehearsal dinner. Maybe at a French restaurant, I know just the place."Robin: "What's the name of the restaurant?"Barney: "La Sertag." - Barney Stinson
