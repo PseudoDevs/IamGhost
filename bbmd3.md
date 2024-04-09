@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 09:22:57
-Random Quote: Her one choice gave birth to a whole new history and gave the multiverse a new hero. As for me, these are my stories. I observe all that transpires here, but I do not, cannot, will not interfere. For I am the Watcher. - The Watcher
+Last updated: 2024-04-09 09:23:31
+Random Quote: When you play the game of thrones, you win or you die.  There is no middle ground.  -  Cersei Lannister
