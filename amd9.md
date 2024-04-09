@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 10:22:54
-Random Quote: Aye, and from what I saw of Joffrey, you are as unfit a mother as you are a ruler.  -  Kevan Lannister
+Last updated: 2024-04-09 10:23:26
+Random Quote: We're cosigning birthday cards, we got toothbrushes at each other's places, foreplay's out the window. I'm in, I'm out, I'm sleeping - it's great. - Ted Mosby
