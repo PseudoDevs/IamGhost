@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 11:48:12
-Random Quote: Ted: "My mother is not one-night-stand material!"Barney: "Yeah, you're right. It wasn't night and we weren't standing." - Barney Stinson
+Last updated: 2024-04-09 11:48:47
+Random Quote: If I'm always looking back, I'm never looking ahead. We are who we are because of consequences. You can't live without consequences. - Morty Smith
