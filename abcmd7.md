@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 04:54:38
-Random Quote: I feel like you ruined me forever. - Maddy Perez
+Last updated: 2024-04-09 09:20:07
+Random Quote: My father won all the battles.  He killed Prince Rhaegar and took the crown, while your father was hiding under Casterly Rock.  A strong king acts boldly, he doesn't just talk.  -  Joffrey Baratheon
