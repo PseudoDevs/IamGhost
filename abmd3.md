@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 10:33:30
-Random Quote: Aunties are older Indian women who have no blood-relation to you. But are allowed to have opinions about your life and all your shortcomings. And you have to be nice to them because you're Indian. - John McEnroe
+Last updated: 2024-04-09 10:34:03
+Random Quote: There must always be a Stark in Winterfell.  -  Catelyn Stark
