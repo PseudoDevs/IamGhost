@@ -1,2 +1,3 @@
-Last updated: 2024-04-09 11:56:57
-Random Quote: Marshall: "Excuse me, miss. When you get a chance, could you bring over a hundred shots of tequila please?"Barney: "I'll have the same." - Marshall Eriksen
+Last updated: 2024-04-09 11:57:31
+Random Quote: Neither one of us are gonna say, "Hey, how's it going?" or "Good to see you!"
+Because it really will be good to see you. - Barney Stinson
