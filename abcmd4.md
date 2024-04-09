@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 17:16:08
-Random Quote: We are all full of sin. No pure human being exists. But no matter what we do, we never fall any lower than into God’s hands. - Noah
+Last updated: 2024-04-09 17:16:40
+Random Quote: There is entirely too much tut - tutting in this realm, if you ask me.  All these kings would do a deal better if they put down their swords and listended to their mothers. 

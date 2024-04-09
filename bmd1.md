@@ -1,2 +1,3 @@
-Last updated: 2024-04-09 17:16:08
-Random Quote: I want you to allow yourself to aknowledge the pain that you so clearly feel. - Fabiola Torres
+Last updated: 2024-04-09 17:16:40
+Random Quote: Morty: "I don't like how meta this is getting, Rick."
+Rick: "Shut up, Morty, you're 14. You watch videos of people on YouTube reacting to fing YouTube. I'll be the judge of when we get too meta." - Rick Sanchez
