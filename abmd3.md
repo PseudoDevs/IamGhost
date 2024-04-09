@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 17:24:05
-Random Quote: Be careful who you put your faith in. The only people who can betray us, are the ones we trust. - Maria Miller
+Last updated: 2024-04-09 17:24:38
+Random Quote: I did it for me. I liked it. I was good at it. And... I was really... I was alive. - Walter White
