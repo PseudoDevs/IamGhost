@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 09:36:30
-Random Quote: If we're together long enough I hope that one day you see yourself like I do. - Kevin
+Last updated: 2024-04-09 09:37:06
+Random Quote: A family is like a small business. And with a small business, at times, there comes a bit of transition. - Marty Byrde
