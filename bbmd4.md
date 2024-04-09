@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 11:24:58
-Random Quote: I feel like I've framed my entire womanhood around men. - Jules Vaughn
+Last updated: 2024-04-09 11:25:32
+Random Quote: Why didn't you say this to me when I was alive? - Hannah Baker
