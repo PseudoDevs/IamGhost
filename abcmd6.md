@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 17:09:56
-Random Quote: I don't take nothin' a drug addict says personally. 'Cause I don't believe nothin' a drug addict say. - Fezco
+Last updated: 2024-04-09 17:10:33
+Random Quote: Best way to catch the smart ones? Get an idiot working for them. - Jaime Kuykendall

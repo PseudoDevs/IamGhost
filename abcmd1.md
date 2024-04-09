@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 17:09:56
-Random Quote: Quentyn had never felt so much a boy as when he'd stood before Daenerys Targaryen, pleading for her hand.  The thought of bedding her terrified him almost as much as her dragons had.  -  Quentyn Martell
+Last updated: 2024-04-09 17:10:33
+Random Quote: Robin: "That was not cool, Ted."Lily: "Contraction!"Robin: "That wasn't cool, Ted?" - Robin Scherbatsky
