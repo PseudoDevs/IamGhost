@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 12:01:26
-Random Quote: Reality is more than neurons firing around in your brain. Reality is not what's on the inside. It's what's happening on the outside. - Daniel Solace
+Last updated: 2024-04-09 12:01:59
+Random Quote: Robert could piss in a cup and men would call it wine, but I offer them cold clear water and they squint in suspicion and mutter to each other about how queer it tastes.  -  Stannis Baratheon
