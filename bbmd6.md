@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 10:22:01
-Random Quote: Freeways have exits, so do relationships. The first exit, my personal favourite, is six hours in: You meet, you talk, you have sex, you exit when she's in the shower. - Barney Stinson
+Last updated: 2024-04-09 10:22:34
+Random Quote: Robin, if you asked a hundred people: "Who's the worst person you could possibly date?" They'd all say "your therapist", except the ones saying "Barney". - Ted Mosby
