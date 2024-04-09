@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 09:40:55
-Random Quote: Send him to Belize? I'll send YOU to Belize. - Walter White
+Last updated: 2024-04-09 09:41:33
+Random Quote: Take the foundling to the city of Calodan on the forest planet Corvus. There, you will find Ahsoka Tano. Tell her you were sent by Bo-Katan. - Bo-Katan
