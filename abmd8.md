@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 09:22:15
-Random Quote: Airport Security: "How did you get that through the X-Ray machine?"Barney: "No questions from the audience, please!" - Barney Stinson
+Last updated: 2024-04-09 09:22:48
+Random Quote: New York! Home of the Mets, the Chrysler Building, those ladies from Sex and the City and now, the zombie apocalypse. If you can make it here, you can make it anywhere - but first, you have to not get eaten. - Spider-Man
