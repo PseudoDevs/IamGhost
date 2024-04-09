@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 12:05:31
-Random Quote: Marshall: "I was once with this chick, who liked to do hand stuff underneath a jacket, while we were all sitting around our favorite booth at MacLaren's."Ted: "Gross."Robin: "We share appetizers!" - Robin Scherbatsky
+Last updated: 2024-04-09 12:06:04
+Random Quote: War. Such a fascinating concept. A temporary salve for a permanent human flaw. - The Handler
