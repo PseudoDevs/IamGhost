@@ -1,3 +1,2 @@
-Last updated: 2024-04-09 10:14:05
-Random Quote: Robin: "I can't believe my great grandparents still do that."
-Barney: "And I never imagined a walker being used for anything other than walking." - Barney Stinson
+Last updated: 2024-04-09 10:14:39
+Random Quote: Marshall: "Let the dinnertainment begin!"Barney: "That reminds me there's this other restaurant we should try sometime. What they do is, they cook you a meal, in a little room called a 'kitchen'." - Barney Stinson
