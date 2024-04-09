@@ -1,3 +1,2 @@
-Last updated: 2024-04-09 10:19:39
-Random Quote: Jerry: "Space sperm? Sperm from... space?"
-Rick: "Very impressive verbal forensic work, Jerry." - Rick Sanchez
+Last updated: 2024-04-09 10:20:16
+Random Quote: There's only one thing that could blind a man as smart as you, Tommy. Love. - Polly Gray
