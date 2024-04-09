@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 12:16:42
-Random Quote: My old septon used to say that books are dead men talking.  Dead men should keep quiet, is what I say.  No one wants to hear a dead man's yabber.  -  Dolorous Edd Tollett
+Last updated: 2024-04-09 12:17:15
+Random Quote: What if God doesn’t know what he’s doing? If the plan is wrong? If God is wrong? - 
