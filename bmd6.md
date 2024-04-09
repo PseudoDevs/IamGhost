@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 17:12:56
-Random Quote: That everything’s repeating That this has all happened before Like a massive déjĂ  Vu - 
+Last updated: 2024-04-09 17:13:31
+Random Quote: Cara: "It's gonna break his little heart."Mando: "He'll get over it. We all do." - Din Djarin
