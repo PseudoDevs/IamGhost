@@ -1,3 +1,2 @@
-Last updated: 2024-04-09 11:11:02
-Random Quote: Alex: "What's Jagermeister?"
-Phil: "Well, you know how in a fairytale there's always a potion that makes the princess fall asleep and then the guys start kissing her? Well, this is like that, except you don't wake up in a castle, you wake up in a frat house with a bad reputation." - Phil Dunphy
+Last updated: 2024-04-09 11:11:38
+Random Quote: Ted: "I just thought he needed to listen to common sense and reasonable discourse."Robin: "Oh, God. Tell me those aren't the names of your fists."Ted: "They're my feet. I'm actually more of a kicker." - Ted Mosby
