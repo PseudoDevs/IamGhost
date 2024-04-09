@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 12:12:04
-Random Quote: You know, it's funny. Almost every woman I've ever met was wrong to give me a chance. You're the first woman who's wrong not to. - Barney Stinson
+Last updated: 2024-04-09 17:06:23
+Random Quote: Sometimes people make decisions, shit happens, and we gotta act accordingly. - Marty Byrde
