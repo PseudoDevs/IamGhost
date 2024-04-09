@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 17:17:29
-Random Quote: Quentyn had never felt so much a boy as when he'd stood before Daenerys Targaryen, pleading for her hand.  The thought of bedding her terrified him almost as much as her dragons had.  -  Quentyn Martell
+Last updated: 2024-04-09 17:18:02
+Random Quote: Death can be the greatest opportunity of your life. - Berlin
