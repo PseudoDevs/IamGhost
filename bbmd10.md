@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 11:47:38
-Random Quote: There's no shame in fear, my father told me, what matters is how we face it.  -  Jon Snow
+Last updated: 2024-04-09 11:48:12
+Random Quote: The World is going to come to an end tonight. Yes think about it. End of the World, Nostradamus, Notre Dame, Fighting Irish, Irish, St. Patrick's Day. This is it Bro. Bro-calypse Now... Bro-Mageddon. - Barney Stinson
