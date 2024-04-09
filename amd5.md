@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 09:23:20
-Random Quote: Sometimes I think everyone is just pretending to be brave, and none of us really are.  Maybe pretending is how you get brave, I don't know.  -  Grenn
+Last updated: 2024-04-09 09:23:53
+Random Quote: Harry and Meghan, move over! This is what fairy tales are made of. They'd been together for two whole weeks, which for teenagers is basically a lifetime of monogamy. Although between us, it had been a surprisingly PG-13 two weeks. - John McEnroe
