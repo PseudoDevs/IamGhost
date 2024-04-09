@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 10:05:31
-Random Quote: Because I say so. - Walter White
+Last updated: 2024-04-09 10:06:07
+Random Quote: She had seen Bronn fight on the high road; it was no accident that he had survived the journey while other men had died.  He moved like a panther, and that ugly sword of his seemed a part of his arm.  -  Catelyn Stark
