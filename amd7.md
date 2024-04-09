@@ -1,5 +1,2 @@
-Last updated: 2024-04-09 10:36:04
-Random Quote: Dina: "You're infuriating."
-Ellie: "Have you met you?"
-Dina: "You make me want to go back outside into that blizzard."
-Ellie: "No one is stopping you." - Joel Miller
+Last updated: 2024-04-09 10:37:52
+Random Quote: Why is it always the innocents who suffer most, when you high lords play your game of thrones?  -  Varys
