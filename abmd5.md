@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 11:02:29
-Random Quote: When Barney overhears that Ted and Robin have a secret to reveal at the wedding reception, he begins to guess what it might be. - Lily Aldrin
+Last updated: 2024-04-09 11:03:05
+Random Quote: And there's this other band, led by this woman Stoneheart... Lord Beric's lover, according to one tale.  Supposedly she was hanged by the Freys, but Dondarrion kissed her and brought her back to life, and now she cannot die, no more than he.  -  Set Hyle Hunt
