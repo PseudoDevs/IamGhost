@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 10:32:54
-Random Quote: But every now and then it’s good to question those who question things. - Noah
+Last updated: 2024-04-09 10:33:27
+Random Quote: Do you think I can't tell Lord Stannis from Lord Tywin?  They're both bungholes who think they're too noble to shit, but never mind about that, I know the difference.  -  Walder Frey
