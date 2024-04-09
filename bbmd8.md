@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 17:20:57
-Random Quote: Oh, come on. If you don't laugh, it just seems mean. - Barney Stinson
+Last updated: 2024-04-09 17:21:34
+Random Quote: I have my own ghosts, Bran.  A brother that I loved, a brother that I hated, a woman I desired.  Through the trees, I see them still, but no word of mine has ever reached them.  The past remains the past.  We can learn from it, but we cannot change it.  -  Bloodraven
