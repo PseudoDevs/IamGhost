@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 10:29:25
-Random Quote: You have to be as bad as them above in order to survive. - Polly Gray
+Last updated: 2024-04-09 10:30:31
+Random Quote: I didn't give up on my dream house, because that's the thing about stupid decisions - we all make them, but time is funny and sometimes a little magical. It can take a stupid decision, and turn it into something else entirely. - Ted Mosby
