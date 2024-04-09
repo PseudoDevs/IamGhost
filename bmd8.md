@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 12:15:00
-Random Quote: You know how sometimes you'll meet a girl and there'll be that one bewitching little detail that'll make you fall in love with her instantly? You know, a little freckle on the nose, the lilt of her laugh, the way she pronounces a certain word or phrase... - Ted Mosby
+Last updated: 2024-04-09 12:17:25
+Random Quote: The Wall can stop an army, but not a man alone.  -  Mance Rayder
