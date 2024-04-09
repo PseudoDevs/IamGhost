@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 12:09:05
-Random Quote: I feel like I've framed my entire womanhood around men. - Jules Vaughn
+Last updated: 2024-04-09 12:09:39
+Random Quote: Tell the Crow's Eye he's afraid of kinslaying and he'll murder one of his own sons just to prove you wrong.  -  Asha Greyjoy
