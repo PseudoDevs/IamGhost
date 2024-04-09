@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 09:23:22
-Random Quote: We are not husband and wife... anymore. We're just business partners. And our job is to raise those kids. - Marty Byrde
+Last updated: 2024-04-09 09:24:29
+Random Quote: You don’t want a criminal lawyer. You want a criminal lawyer. - Jesse Pinkman
