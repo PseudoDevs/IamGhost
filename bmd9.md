@@ -1,4 +1,2 @@
-Last updated: 2024-04-09 10:44:59
-Random Quote: Oh Il-nam: "As a kid, I'm willing to bet you got spanked a lot."
-Seong Gi-hun: "How did you know?"
-Oh Il-nam: "My son did too. He was just like you, friend." - Oh Il-nam
+Last updated: 2024-04-09 10:45:32
+Random Quote: Woman: "How can you not remember my name? it rhymes with your name?"Barney: "And I said my name was...?" - Barney Stinson
