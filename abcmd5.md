@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 01:45:22
-Random Quote: I was pretending to be someone I am not which I should only be doing on stage. - Devi Vishwakumar
+Last updated: 2024-04-09 01:45:55
+Random Quote: Have you seen Mace Tyrell's boy?  The Knight of Flowers, they call him.  Now there's a son any man would be proud to own to.  Last tourney, he dumped the Kingslayer on his golden rump, you ought to have seen the look on Cersei's face.  I laughed till my sides hurt.  -  Robert Baratheon
