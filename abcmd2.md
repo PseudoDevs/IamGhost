@@ -1,3 +1,2 @@
-Last updated: 2024-04-09 17:07:04
-Random Quote: Morty: "I don't deserve this. I was just having fun."
-Rick: "So was Jeffrey Dahmer." - Rick Sanchez
+Last updated: 2024-04-09 17:07:37
+Random Quote: Doctor: "Don't worry, it's totally safe. Unless part of your big date involves connecting yourself to a car battery."Barney: "Well, now it doesn't." - Barney Stinson
