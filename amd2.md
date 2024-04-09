@@ -1,3 +1,2 @@
-Last updated: 2024-04-09 01:44:11
-Random Quote: Tommy: "I'll have some men watch her house 'til the danger passes."
-Polly: "'Til the danger passes. That'll be the bloody day." - Polly Gray
+Last updated: 2024-04-09 01:44:44
+Random Quote: Because you're so broken you don't even trust yourself. And that's scary. - Nate Jacobs
