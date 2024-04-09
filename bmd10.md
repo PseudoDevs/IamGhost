@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 17:41:06
-Random Quote: If you had to fall into a woman's arms, my son, why couldn't they have been Margaery Tyrell's?  -  Catelyn Stark
+Last updated: 2024-04-09 17:41:41
+Random Quote: I told you once, there are old sellswords and there are bold sellswords, but there are no old bold sellswords.  -  Brown Ben Plumm
