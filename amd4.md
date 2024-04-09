@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 17:29:49
-Random Quote: If I'm always looking back, I'm never looking ahead. We are who we are because of consequences. You can't live without consequences. - Morty Smith
+Last updated: 2024-04-09 17:31:38
+Random Quote: Any man who steps between a father and his vengeance asks for death.  -  Rickard Karstark
