@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 10:44:25
-Random Quote: No, that you think you'll graduate High-School. - Meemaw
+Last updated: 2024-04-09 10:44:58
+Random Quote: Most of him has gone into the tree... he has lived beyond his mortal span, and yet he lingers.  For us, for you, for the realms of men.  Only a little strength remains in his flesh.  He has a thousand eyes and one, but there is much to watch.  One day you will know.  -  Leaf
