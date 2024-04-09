@@ -1,5 +1,2 @@
-Last updated: 2024-04-09 17:30:40
-Random Quote: John Flynn: "Rogers, get in there!"
-Peggy Carter: "He can't."
-John Flynn: "Stark, you go in!"
-Howard Stark: "What? Are you crazy? I push the buttons. I'm the buttons guy." - Howard Stark
+Last updated: 2024-04-09 17:31:46
+Random Quote: A family is like a small business. And with a small business, at times, there comes a bit of transition. - Marty Byrde
