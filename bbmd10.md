@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 11:15:31
-Random Quote: None will be free until the old ways are gone forever. - Kuiil
+Last updated: 2024-04-09 11:16:03
+Random Quote: Barney: "Fine, we'll just have a nice, tasteful rehearsal dinner. Maybe at a French restaurant, I know just the place."Robin: "What's the name of the restaurant?"Barney: "La Sertag." - Barney Stinson
