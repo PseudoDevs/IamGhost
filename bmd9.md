@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 17:41:07
-Random Quote: Oh, come on. If you don't laugh, it just seems mean. - Barney Stinson
+Last updated: 2024-04-09 17:41:42
+Random Quote: My uncle Kevan would make a passably good regent if someone pressed the duty on him, but he will never reach for it.  The gods shaped him to be a follower, not a leader.  -  Tyrion Lannister
