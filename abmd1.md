@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 09:31:10
-Random Quote: There are moments when we must understand that the decisions we make influence more than just our own fates. - 
+Last updated: 2024-04-09 09:31:43
+Random Quote: That's where The Boys come in: Spank the bastards when they get out of line. - Billy Butcher
