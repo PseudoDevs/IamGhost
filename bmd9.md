@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 11:47:42
-Random Quote: I feel like love is super dark and no one ever talks about it. - Cassie Howard
+Last updated: 2024-04-09 11:48:15
+Random Quote: My real father died in King's Landing.  I made a choice, and I chose wrong.  -  Theon Greyjoy
