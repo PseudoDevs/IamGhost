@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 11:49:22
-Random Quote: For a joke to work, it has to have part of truth and part of pain. - Berlin
+Last updated: 2024-04-09 11:50:32
+Random Quote: In his chainmail shirt with a sword in his hand, Gendry looked almost a man grown, and dangerous.  Hot Pie looked like Hot Pie.  -  Arya Stark
