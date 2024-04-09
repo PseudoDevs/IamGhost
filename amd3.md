@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 11:43:06
-Random Quote: Ted: "You're not gonna do it at your wedding?"Lily: "Hell, yeah! I'm gonna take that flower-grenade and chuck it to the crowd and scream, 'Crawl for it, bitches!'" - Lily Aldrin
+Last updated: 2024-04-09 11:43:39
+Random Quote: Never bring a knife to a sword fight. Unless it's concealed. - Wednesday Addams
