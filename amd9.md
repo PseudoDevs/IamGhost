@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 01:45:52
-Random Quote: Roose Bolton's cold and cunning, aye, but a man can deal with Roose.  We've all known worse.  But this bastard son of his... they say he's mad and cruel, a monster.  -  Locke
+Last updated: 2024-04-09 01:46:26
+Random Quote: If you love something, set it free. Unless it's a tiger. - Phil Dunphy
