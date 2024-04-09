@@ -1,4 +1,2 @@
-Last updated: 2024-04-09 09:25:12
-Random Quote: Rebecca: "So, I spoke to the owner of The Sun."
-Ted: "You spoke to God?!"
-Rebecca: "No, the newspaper." - Rebecca Welton
+Last updated: 2024-04-09 09:25:47
+Random Quote: Breast-feeding... hot!When those things swell up to three times their normal size, so do I. - Barney Stinson
