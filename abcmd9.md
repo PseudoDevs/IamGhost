@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 17:27:15
-Random Quote: Kingthlayer... you are my captifth.  -  Vargo Hoat
+Last updated: 2024-04-09 17:27:51
+Random Quote: We have to control this fing world, or it will control you. And if you don't protect yourself, it makes a mess and breaks you. - Miguel Angel Felix Gallardo
