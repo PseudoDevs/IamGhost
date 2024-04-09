@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 09:23:23
-Random Quote: A Dothraki wedding without at least three deaths is considered a dull affair.  -  Illyrio Mopatis
+Last updated: 2024-04-09 09:24:30
+Random Quote: I will go to my grave thinking of my brother's peach.  -  Stannis Baratheon
