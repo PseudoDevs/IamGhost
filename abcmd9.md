@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 01:49:19
-Random Quote: Ted: "First it was too much eye-contact, then not enough - where do you look during sex?"Barney: "Into the hidden camera at future me, watching it." - Barney Stinson
+Last updated: 2024-04-09 01:49:52
+Random Quote: What you have to do is show these suckers what you’re capable of. Show them you’re not scared. - Nairobi
