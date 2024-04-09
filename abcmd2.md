@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 09:47:10
-Random Quote: You know, it's funny. Almost every woman I've ever met was wrong to give me a chance. You're the first woman who's wrong not to. - Barney Stinson
+Last updated: 2024-04-09 09:47:43
+Random Quote: Any man who steps between a father and his vengeance asks for death.  -  Rickard Karstark
