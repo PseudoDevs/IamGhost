@@ -1,3 +1,2 @@
-Last updated: 2024-04-09 11:31:49
-Random Quote: Hey look, it's the New York City skyline.
-We built Chip City... we built Chip City on all your dough! - Ted Mosby
+Last updated: 2024-04-09 11:32:22
+Random Quote: Mitchell: "we've decided we really wanted to have a baby so, we initially asked one of our lesbian friends to be a surrogate."Cameron: "Then we figured, they already mean enough, can you imagine one of them pregnant?" - Cameron Tucker
