@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 17:19:05
-Random Quote: Ted: "All my friends from high-school, they're here with their wifes or kids. My date for the night is a sticky magazine..."Robin: "Sounds like high-school all over again!" - Robin Scherbatsky
+Last updated: 2024-04-09 17:19:43
+Random Quote: Catelyn would sooner Lord Umber had seen fit to stay sober, but telling the Greatjon not to drink was like telling him not to breathe for a few hours.  -  Catelyn Stark
