@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 12:09:51
-Random Quote: No sword is strong until it's been tempered.  The Stark boy is a child.  No doubt he likes the sound of warhorns well enough, and the sight of his banners fluttering in the wind, but in the end it comes down to butcher's work.  I doubt he has the stomach for it.  -  Tywin Lannister
+Last updated: 2024-04-09 12:10:24
+Random Quote: Rickard Karstark killed more than a Frey and a Lannister.  He killed my honor.  -  Robb Stark
