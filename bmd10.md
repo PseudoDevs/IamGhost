@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 09:22:58
-Random Quote: I don't care if you're so scared you foul your breeches, and I don't care if a thousand wildlings are coming over the walls howling for your blood, you get those birds off, or I swear I'll hunt you through all seven hells and make you damn sorry that you didn't.  -  Jeor Mormont
+Last updated: 2024-04-09 09:23:31
+Random Quote: Stop crying. Remember? Crying makes you ugly and weak. - Dayanara Diaz
