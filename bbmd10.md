@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 01:48:48
-Random Quote: Barney: "I scoured the dating sites, using my own personal logarithms, factoring in a broad spectrum of variables, filtering out undesirable high-risk negatives, guaranteeing a success-rate of eighty-thr..."Ted: "...you picked the girls that showed the most boob." - Ted Mosby
+Last updated: 2024-04-09 01:49:23
+Random Quote: Barney: "Let me choose your child's middle name! Because I have thought up the most awesome name of all time."Marshall: "What's the middle name?"Barney: "Wait for it."Marshall: "I'm waiting."Barney: "Wait for it."Marshall: "I said I'm waiting."Barney: "Wait for it."Marshall: "What's the middle name?"Barney: "No, the middle name is 'Wait For It'. Let's say his first name is, oh, I don't know, 'Barney'. He'd be Barney 'Wait For It' Eriksen. How awesome is that?" - Barney Stinson
