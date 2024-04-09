@@ -1,2 +1,3 @@
-Last updated: 2024-04-09 10:14:10
-Random Quote: What the hell is the matter with you? You tryin' out for the retard Olympics? - George 'Pornstache' Mendez
+Last updated: 2024-04-09 10:16:34
+Random Quote: Morty: "You were a teenager when dad got you pregnant!"
+Beth: "I was 17. That's at least 26 in boy years." - Beth Smith
