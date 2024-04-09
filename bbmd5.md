@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 10:21:29
-Random Quote: When you spend years thinking about something obsessively, that something is your whole world, your perfect world. - Tokyo
+Last updated: 2024-04-09 10:22:05
+Random Quote: Gods help you, Theon Greyjoy.  Now you are truly lost.  -  Rodrik Cassel
