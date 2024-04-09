@@ -1,3 +1,2 @@
-Last updated: 2024-04-09 09:29:16
-Random Quote: Ted: "So this is what you guys do? You invite other couples over for dinner, to judge them and feel superior?"
-Lily: "Oh, grow up, Ted, that's why any couple invites anyone over ever!" - Lily Aldrin
+Last updated: 2024-04-09 09:29:51
+Random Quote: Breast-feeding... hot!When those things swell up to three times their normal size, so do I. - Barney Stinson
