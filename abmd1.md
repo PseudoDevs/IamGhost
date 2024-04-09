@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 17:54:02
-Random Quote: Balon was mad, Aeron is madder, and Euron is maddest of them all.  -  Baelor Blacktyde
+Last updated: 2024-04-09 17:54:38
+Random Quote: You grew up with actors.  You learned their craft and you learned it well.  I grew up with soldiers.  I learned how to die a long time ago.  -  Eddard Stark
