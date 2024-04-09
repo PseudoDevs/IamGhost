@@ -1,4 +1,2 @@
-Last updated: 2024-04-09 10:09:23
-Random Quote: Barney: "Ted, I'm gonna teach you how to live. Barney... we met at the urinal. Lesson 1: Loose the goatee it doesn't go with your suit!"
-Ted: "I'm not wearing a suit."
-Barney: "Lesson 2: Get a suit, suits are cool. Exhibit A. Lesson 3: "Don't even think about getting married until your 30." - Barney Stinson
+Last updated: 2024-04-09 10:09:56
+Random Quote: Ted: "Cleveland sports are still relevant! 'LeBron who?' Right, guys?"Barney: "Ted, neither you, nor Cleveland knows how to get over someone leaving them." - Barney Stinson
