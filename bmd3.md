@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 11:40:39
-Random Quote: Barney: "I only smoke in certain situations. Postcoital, when I'm with Germans, sometimes those two overlap, coital, birthdays, to annoy my mom, precoital, on a sailboat, the day the Mets are mathematically eliminated every year and pregnancy scares."Ted: "Why are you smoking right now?"Barney: "I'm always precoital, Ted." - Barney Stinson
+Last updated: 2024-04-09 11:42:22
+Random Quote: I want you to wanna kiss me so bad that you don't even ask. - Jules Vaughn
