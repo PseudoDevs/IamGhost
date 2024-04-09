@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 17:18:12
-Random Quote: It's not even the lies that hurt, you know? It's the fact that you're never really emotionally prepared for someone to leave you. - Rue Bennett
+Last updated: 2024-04-09 17:18:46
+Random Quote: There's only one thing that could blind a man as smart as you, Tommy. Love. - Polly Gray
