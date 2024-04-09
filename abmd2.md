@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 17:35:10
-Random Quote: From experience, it often takes a new perspective before one is able to see the light. - Elia Kane
+Last updated: 2024-04-09 17:35:43
+Random Quote: Power resides where men believe it resides... It's a trick, a shadow on the wall.  -  Varys
