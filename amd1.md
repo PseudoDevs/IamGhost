@@ -1,3 +1,2 @@
-Last updated: 2024-04-09 10:11:04
-Random Quote: "Everybody else can see Ben, right?"
-"Yeah, and he's a complete d-ckhead." - Allison Hargreeves
+Last updated: 2024-04-09 10:11:40
+Random Quote: Sometimes people make decisions, shit happens, and we gotta act accordingly. - Marty Byrde
