@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 10:51:34
-Random Quote: It's only once you've stopped, that you realize how hard it is to start again. So you force yourself not to want it. - Ted Mosby
+Last updated: 2024-04-09 10:52:08
+Random Quote: I have sinned and must atone, must parade my shame before the eyes of every beggar in the city.  They think that this will break my pride, that it will make an end to me, but they are wrong.  -  Cersei Lannister

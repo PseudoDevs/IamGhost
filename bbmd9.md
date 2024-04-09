@@ -1,2 +1,3 @@
-Last updated: 2024-04-09 10:49:49
-Random Quote: When Barney overhears that Ted and Robin have a secret to reveal at the wedding reception, he begins to guess what it might be. - Lily Aldrin
+Last updated: 2024-04-09 10:52:09
+Random Quote: Jerry: "Rick! Beth! You love me after all!"
+Rick: "Eh, I love her, she loves you. Those credits don't transfer." - Rick Sanchez
