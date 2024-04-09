@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 09:24:35
-Random Quote: I have sinned and must atone, must parade my shame before the eyes of every beggar in the city.  They think that this will break my pride, that it will make an end to me, but they are wrong.  -  Cersei Lannister
+Last updated: 2024-04-09 09:25:09
+Random Quote: No matter how tough things get, children always turn out okay. - Berlin
