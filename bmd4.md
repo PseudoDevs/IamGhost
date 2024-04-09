@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 10:01:45
-Random Quote: Secrets are worth more than silver or sapphires.  -  Varys
+Last updated: 2024-04-09 10:03:01
+Random Quote: My old septon used to say that books are dead men talking.  Dead men should keep quiet, is what I say.  No one wants to hear a dead man's yabber.  -  Dolorous Edd Tollett
