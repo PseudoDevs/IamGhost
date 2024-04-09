@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 11:54:02
-Random Quote: Weakness is not in us, it is what we have outside. - Professor
+Last updated: 2024-04-09 11:54:37
+Random Quote: Do you know what it is like to be sold, squire?  I do.  My brother sold me to Khal Drogo for the promise of a golden crown.  Well, Drogo crowned him in gold, though not as he had wished, and I... my sun - and
