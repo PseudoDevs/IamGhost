@@ -1,3 +1,2 @@
-Last updated: 2024-04-09 10:30:02
-Random Quote: Morty: "You're really this pissed about my mum making sure I'm okay with our adventures?"
-Rick: "What's next, Morty? What if I want you to jump off the Empire State Building? I have to ask?" - Rick Sanchez
+Last updated: 2024-04-09 10:30:36
+Random Quote: There is no creature on earth half so terrifying as a truly just man.  -  Varys
