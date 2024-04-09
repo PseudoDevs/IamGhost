@@ -1,3 +1,2 @@
-Last updated: 2024-04-09 11:45:18
-Random Quote: "Crutch down and bend over a little bit."
-Barney: "Wow, It took five shots of tequila to have you in that position." - Barney Stinson
+Last updated: 2024-04-09 11:45:52
+Random Quote: When things go well, people start thinking it's because they're so fing smart. - Walt Breslin

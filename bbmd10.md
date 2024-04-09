@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 11:45:17
-Random Quote: I just want to stand on top of the Wall and piss off the edge of the world.  -  Tyrion Lannister
+Last updated: 2024-04-09 11:45:52
+Random Quote: Penrose chose to die rather than give him up.  It still angers me.  How could he think I would hurt the boy?  I chose Robert, did I not?  When that hard day came, I chose blood over honor.  -  Stannis Baratheon

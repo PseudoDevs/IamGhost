@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 11:45:18
-Random Quote: His size, Gregor is a very large man.  Also a very stupid one.  Too stupid to know when he should die, it seems.  -  Cersei Lannister
+Last updated: 2024-04-09 11:45:52
+Random Quote: Silver or lead. You decide. - Pablo Escobar
