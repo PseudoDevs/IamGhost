@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 11:51:06
-Random Quote: Sam Healy: "It's popular fiction. It's like global warming or female ejaculation."Piper: "No! No. No, it's not. This is real."Sam Healy: "How is it real? Wait, which?"Piper: "The chicken. And the... the chicken." - Piper Chapman
+Last updated: 2024-04-09 11:52:17
+Random Quote: I mean she just walked out. At least when I walk out on a girl I have the common courtesy to sleep with her first. It's called manners! - Barney Stinson

@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 11:51:40
-Random Quote: Sometimes you gotta do bad things to catch bad people. - Javier Pe�a
+Last updated: 2024-04-09 11:52:16
+Random Quote: There's something that I need to ask you and I want you to be honest with me. Why do white people like Carrot Top? - Barney Stinson
