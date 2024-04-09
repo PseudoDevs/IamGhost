@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 17:40:47
-Random Quote: Lily: "Okay, stop! Every time he lands, that chair farts out ten-year-old Dorito dust."Marshall: "Yeah, it's the chair..." - Marshall Eriksen
+Last updated: 2024-04-09 17:41:20
+Random Quote: I never asked for this, no more than I asked to be king.  Yet dare I disregard her?  We do not choose our destinies.  Yet we must... we must do our duty, no?  Great or small, we must do our duty.  -  Stannis Baratheon
