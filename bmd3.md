@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 10:13:55
-Random Quote: I could keep you safe.  They're all afraid of me.  No one would hurt you again, or I'd kill them.  -  Sandor Clegane
+Last updated: 2024-04-09 10:14:28
+Random Quote: Sometimes a truce is the most important part of a war. - Professor
