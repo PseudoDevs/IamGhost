@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 17:21:37
-Random Quote: Breast-feeding... hot!When those things swell up to three times their normal size, so do I. - Barney Stinson
+Last updated: 2024-04-09 17:22:15
+Random Quote: If you mean when will Chernobyl be completly save - the half-life of Plutonium 239 is 24,000 years. Perhaps we should just say, 'not in our lifetimes'. - Valery Legasov
