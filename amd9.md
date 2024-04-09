@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 11:59:16
-Random Quote: All religion is a foolish answer to a foolish question. - Thomas Shelby
+Last updated: 2024-04-09 11:59:50
+Random Quote: It's easier when you're a kid anyway. You don't have anybody else relying on you. That's the hardest part. - Joel Miller
