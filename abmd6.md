@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 17:13:19
-Random Quote: When I have kids, and I tell them how I met their mother, I'm gonna tell them everything. The whole damn story. - Ted Mosby
+Last updated: 2024-04-09 17:13:51
+Random Quote: Look at us, riding around in a limo, eating hot dogs... It's like we're the president. - Marshall Eriksen
