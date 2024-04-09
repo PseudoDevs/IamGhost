@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 10:12:18
-Random Quote: Some battles are won with swords and spears, others with quills and ravens.  -  Tywin Lannister
+Last updated: 2024-04-09 10:13:32
+Random Quote: Maybe people are nostalgic about high school 'cause it's, like, the last time in their life that they get to dream. - Cassie Howard
