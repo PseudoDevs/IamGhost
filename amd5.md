@@ -1,2 +1,4 @@
-Last updated: 2024-04-09 10:36:02
-Random Quote: Lily: "Anytime a single guy hangs out with a married woman there are rules that must be followed: Rule number one..."Barney: "Don't use the husband's condoms, that's just rude!" - Barney Stinson
+Last updated: 2024-04-09 10:36:37
+Random Quote: It's going to be legen...
+wait for it - and I hope you're not lactose-intolerant cause the second half of that word is
+...dary! - Barney Stinson
