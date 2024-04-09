@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 09:52:17
-Random Quote: When will you guys realize, that the only difference between my real life and a p0rn0 is, my real life has better lighting? - Barney Stinson
+Last updated: 2024-04-09 09:52:53
+Random Quote: Don Eladio, look into Fring's eyes. There you will see the truth. The Chicken Man hates you. He is our enemy. He plots against us. I demand blood for blood. - Hector Salamanca
