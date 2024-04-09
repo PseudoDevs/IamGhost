@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 11:32:48
-Random Quote: This little bogwing is what all the fuss was about. What a precious little creature! I can see why you didn't want to harm a hair on its wrinkled little head. - Greef Karga
+Last updated: 2024-04-09 11:34:00
+Random Quote: Balon was mad, Aeron is madder, and Euron is maddest of them all.  -  Baelor Blacktyde
