@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 10:16:34
-Random Quote: They get in your head. People tell lies about you, and other people believe them. And it gets to the point where the lies might as well be the truth. - Tyler Down
+Last updated: 2024-04-09 10:17:10
+Random Quote: Doctor: "Don't worry, it's totally safe. Unless part of your big date involves connecting yourself to a car battery."Barney: "Well, now it doesn't." - Barney Stinson
