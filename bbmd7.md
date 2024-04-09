@@ -1,4 +1,2 @@
-Last updated: 2024-04-09 04:53:38
-Random Quote: Bo-Katan: "I've scugged off a lot of Imperial warlords."
-Din: "They tend to get mad when you hijack their ships."
-Bo-Katan: "Now you tell me." - Bo-Katan
+Last updated: 2024-04-09 04:54:14
+Random Quote: So a guy with cancer can't be an asshole?? Believe me, I speak from experience. - Saul Goodman
