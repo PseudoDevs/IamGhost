@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 09:59:46
-Random Quote: Do you know what it is like to be sold, squire?  I do.  My brother sold me to Khal Drogo for the promise of a golden crown.  Well, Drogo crowned him in gold, though not as he had wished, and I... my sun - and
+Last updated: 2024-04-09 10:03:39
+Random Quote: There is one problem with success. Not everyone can handle it. - Walt Breslin
