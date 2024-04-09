@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 17:27:44
-Random Quote: I'm a Mandalorian. Weapons are part of my religion. - Din Djarin
+Last updated: 2024-04-09 17:28:17
+Random Quote: Do you remember that cave?  We should have stayed in that cave.  I told you so.  -  Ygritte
