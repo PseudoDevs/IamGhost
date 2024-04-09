@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 09:20:36
-Random Quote: Fellas, I was enjoying the Laurel and Hardy vibe, but I'm not such a fan of the Bickersons. - Saul Goodman
+Last updated: 2024-04-09 09:21:10
+Random Quote: You must be blind as well as maimed, Set.  Lift your eyes, and you will see the direwolf still flies above our walls.  -  Brynden Tully
