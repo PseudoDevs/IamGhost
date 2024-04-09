@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 12:02:12
-Random Quote: The title was but a courtesy due him as a council member; Varys was lord of nothing but the spiderweb, the master of none but his whispers.  -  Catelyn Stark
+Last updated: 2024-04-09 12:03:20
+Random Quote: Things never work out the way you imagine they will. - Lucien
