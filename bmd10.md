@@ -1,4 +1,2 @@
-Last updated: 2024-04-09 11:32:49
-Random Quote: Five: "Help me with this crossword puzzle. I need a five letter word for 'disappointment'."
-Diego: "Klaus."
-Five: "It fits." - Number Five
+Last updated: 2024-04-09 11:33:25
+Random Quote: Every man's a piece to start with, and every maid as well.  Even some who think they are players.  Cersei, for one.  She thinks herself sly, but in truth she is utterly predictable.  Her strength rests on her beauty, birth, and riches.  Only the first of those is truly her own, and it will soon desert her.  I pity her then.  She wants power, but has no notion what to do with it when she gets it.  -  Petyr Baelish
