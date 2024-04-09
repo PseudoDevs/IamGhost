@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 10:41:09
-Random Quote: Ted: "You know what else is getting cleaned, along with that cup-cake tray? My conscience!"Victoria: "You got anything else to atone for? My oven needs cleaning." - Victoria
+Last updated: 2024-04-09 10:41:42
+Random Quote: Every man's a piece to start with, and every maid as well.  Even some who think they are players.  Cersei, for one.  She thinks herself sly, but in truth she is utterly predictable.  Her strength rests on her beauty, birth, and riches.  Only the first of those is truly her own, and it will soon desert her.  I pity her then.  She wants power, but has no notion what to do with it when she gets it.  -  Petyr Baelish
