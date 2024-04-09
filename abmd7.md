@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 10:34:52
-Random Quote: Rhaegar fought valiantly, Rhaegar fought nobly, and Rhaegar died.  -  Jorah Mormont
+Last updated: 2024-04-09 10:35:28
+Random Quote: The end of a rope has been this man's destiny since the night he was born. - Chester Campbell
