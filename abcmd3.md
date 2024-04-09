@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 09:30:06
-Random Quote: It's only once you've stopped, that you realize how hard it is to start again. So you force yourself not to want it. - Ted Mosby
+Last updated: 2024-04-09 09:30:39
+Random Quote: Because they are the knights of summer, and winter is coming.  -  Catelyn Stark
