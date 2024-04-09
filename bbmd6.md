@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 11:38:48
-Random Quote: Because they are the knights of summer, and winter is coming.  -  Catelyn Stark
+Last updated: 2024-04-09 11:39:23
+Random Quote: Penrose chose to die rather than give him up.  It still angers me.  How could he think I would hurt the boy?  I chose Robert, did I not?  When that hard day came, I chose blood over honor.  -  Stannis Baratheon
