@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 11:29:45
-Random Quote: There have always been men who found it easier to speak vows than to keep them.  -  Arys Oakheart
+Last updated: 2024-04-09 11:30:21
+Random Quote: A grievous wound, aye, but Thoros healed it.  There's never been no better healer.  -  Lem Lemoncloak
