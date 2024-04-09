@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 17:09:25
-Random Quote: Oh my God, Larry, by the time I get out, there will've been like three new generations of iPhones! - Piper Chapman
+Last updated: 2024-04-09 17:10:00
+Random Quote: You don't get to blame your problems on anyone but yourself. - Allison Hargreeves
