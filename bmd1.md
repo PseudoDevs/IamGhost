@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 09:39:12
-Random Quote: You need to figure out what the fuck you want. - Nicky Nichols
+Last updated: 2024-04-09 09:40:20
+Random Quote: Place was overrun with rats when we moved in.  The spearwives killed the nasty buggers.  Now the place is overrun with spearwives.  There's days I want the rats back.  -  Dolorous Edd Tollett
