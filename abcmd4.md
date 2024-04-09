@@ -1,3 +1,2 @@
-Last updated: 2024-04-09 09:20:04
-Random Quote: Miguel: "Would you have really fed me to those hippos?"
-Pablo: "No. Hippos don't like Mexicans either." - Pablo Escobar
+Last updated: 2024-04-09 09:21:12
+Random Quote: The Citadel took my chain, but they could not take my knowledge.  -  Qyburn
