@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 11:32:30
-Random Quote: His size, Gregor is a very large man.  Also a very stupid one.  Too stupid to know when he should die, it seems.  -  Cersei Lannister
+Last updated: 2024-04-09 11:33:03
+Random Quote: So you're pregnant? Huh, looks like nobody told your boobs. - Barney Stinson
