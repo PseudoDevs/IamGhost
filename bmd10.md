@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 09:56:47
-Random Quote: Camping is just being homeless... without the change. - Summer Smith
+Last updated: 2024-04-09 09:57:20
+Random Quote: Barney: "On your tombstone, it will be, 'Lily Aldrin. Caring wife. Loving friend. Slapbet-Commissioner.'"Marshall: "And your tombstone will read, 'Got slapped by Marhsall so hard he died.'" - Marshall Eriksen
