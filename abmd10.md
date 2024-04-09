@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 17:14:54
-Random Quote: If you don't trust your men with your money, you have bigger problems than if you trust Saul Goodman. - Kim Wexler
+Last updated: 2024-04-09 17:16:01
+Random Quote: The bad guys need to get lucky every time. The good guys just need to get lucky once. - Steve Murphy
