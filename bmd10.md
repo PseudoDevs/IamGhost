@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 11:18:07
-Random Quote: The Lord of Light cherishes the innocent.  There is no sacrifice more precious.  From his king's blood and his untainted fire, a dragon shall be born.  -  Melisandre
+Last updated: 2024-04-09 11:18:40
+Random Quote: Marshall: "When a woman puts on an engagement ring, it's like when Bilbo Baggins wears the One Ring in The Hobbit."Robin: "Okay, can you say that again, but not in nerd?"Marshall: "Sure. Uh, the ring is like the cloak that Harry Potter wears to sneak around Hogwarts."Robin: "Yeah, I don't speak virgin either." - Robin Scherbatsky
