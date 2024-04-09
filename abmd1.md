@@ -1,3 +1,2 @@
-Last updated: 2024-04-09 11:38:35
-Random Quote: Morty: "I don't like how meta this is getting, Rick."
-Rick: "Shut up, Morty, you're 14. You watch videos of people on YouTube reacting to fing YouTube. I'll be the judge of when we get too meta." - Rick Sanchez
+Last updated: 2024-04-09 11:39:08
+Random Quote: The only difference between us is, when I made bad decisions in life, I didn't get caught. - Susan Fischer
