@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 17:52:14
-Random Quote: I like my testicles attached to my body, rather than rolling around next to some eyeliner in Robin's purse. Stinson out! - Barney Stinson
+Last updated: 2024-04-09 17:54:03
+Random Quote: Is it your fault that Bronn's an insolent black - hearted rogue?  He's always been an insolent black
