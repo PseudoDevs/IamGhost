@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 10:16:09
-Random Quote: I have worked at the downfall of Tywin Lannister since the day they told me of Elia and her children.  -  Doran Martell
+Last updated: 2024-04-09 10:16:42
+Random Quote: Life hurts. The moment you think you've got it all, it smacks you in the face. - Lucien
