@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 17:28:35
-Random Quote: He climbed onto his throne over the corpses of children, though I will grant you he was no Joffrey.  -  Arianne Martell
+Last updated: 2024-04-09 17:30:24
+Random Quote: The frightened child who sheltered in my manse died on the Dothraki Sea, and was reborn in blood and fire.  This dragon queen who wears her name is a true Targaryen.  -  Illyrio Mopatis
