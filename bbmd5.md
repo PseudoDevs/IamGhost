@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 11:58:07
-Random Quote: Penrose chose to die rather than give him up.  It still angers me.  How could he think I would hurt the boy?  I chose Robert, did I not?  When that hard day came, I chose blood over honor.  -  Stannis Baratheon
+Last updated: 2024-04-09 11:58:43
+Random Quote: Power resides where men believe it resides... It's a trick, a shadow on the wall.  -  Varys
