@@ -1,5 +1,2 @@
-Last updated: 2024-04-09 11:47:38
-Random Quote: "What's love to you?"
-Flaca: "It's like getting into a bath, but the water is like warm chocolate pudding. And the Smiths are playing. There Is A Light That Never Goes Out.' There's mood lighting all over, and there's like five dudes massaging you."
-Maritza: "And you have a pizza!"
-Flaca: "She's right. You also have a pizza." - Marisol 'Flaca' Gonzales & Maritza Ramos
+Last updated: 2024-04-09 11:51:07
+Random Quote: By "entertainment" they mean "table-shuffle-board", Makramee classes and other non-stimulating activities which are only used in Manhatten to calm down drug-addicts and the criminaly insane. - Robin Scherbatsky
