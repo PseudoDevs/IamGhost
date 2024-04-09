@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 09:32:07
-Random Quote: No matter how much we fight it we are connected by our blood. We can feel estranged from our families and not understand what they do. And still, in the end, we will do anything for them. - Adam
+Last updated: 2024-04-09 09:32:39
+Random Quote: I'm a criminal, yo. - Jesse Pinkman
