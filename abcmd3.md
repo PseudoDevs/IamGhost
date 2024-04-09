@@ -1,2 +1,4 @@
-Last updated: 2024-04-09 10:12:53
-Random Quote: You're mine.  Mine, as I'm yours.  And if we die, we die.  All men must die, Jon Snow.  But first, we'll live.  -  Ygritte
+Last updated: 2024-04-09 10:13:29
+Random Quote: Joel: "I need you to tell us where we are."
+Man: "If you got a map, why you lost?"
+Ellie: "Must've missed all the street signs in the enormous f-cking forest." - Ellie Williams
