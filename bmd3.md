@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 11:00:41
-Random Quote: Someone has to protect this family from the man who protects this family. - Skyler White
+Last updated: 2024-04-09 11:01:54
+Random Quote: Mitchell: "we've decided we really wanted to have a baby so, we initially asked one of our lesbian friends to be a surrogate."Cameron: "Then we figured, they already mean enough, can you imagine one of them pregnant?" - Cameron Tucker

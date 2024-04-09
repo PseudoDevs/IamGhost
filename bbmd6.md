@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 11:00:39
-Random Quote: I buried an axe so deep into Willem's skull, they had to bury him with it.  -  Yoren of the Knight's Watch
+Last updated: 2024-04-09 11:01:53
+Random Quote: Lord Varys, sometimes I feel as though you are the best friend I have in King's Landing and sometimes I feel you are my worst enemy.  -  Tyrion Lannister
