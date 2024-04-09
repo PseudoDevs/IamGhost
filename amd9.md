@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 12:09:44
-Random Quote: I'm just saying, love is a million things. - Maddy Perez
+Last updated: 2024-04-09 12:10:17
+Random Quote: The Night's Watch is a sworn brotherhood.  We have no families.  None of us will ever father sons.  Our wife is duty.  Our mistress is honor.  -  Benjen Stark
