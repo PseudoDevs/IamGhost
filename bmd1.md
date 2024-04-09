@@ -1,2 +1,3 @@
-Last updated: 2024-04-09 10:11:04
-Random Quote: This sacred text was eventually brought to the New World in 1776 by none other than Christopher Brolumbus. And that's why he got to bang Pocahontas. - Barney Stinson
+Last updated: 2024-04-09 10:14:08
+Random Quote: This woman has a hold on my heart that I could not break if I wanted to, and there have been times that I wanted to.
+It has been overwhelming and humbling and even painful at times, but I could not stop loving her any more than I could stop breathing. - Barney Stinson
