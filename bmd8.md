@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 12:08:02
-Random Quote: They get in your head. People tell lies about you, and other people believe them. And it gets to the point where the lies might as well be the truth. - Tyler Down
+Last updated: 2024-04-09 12:08:35
+Random Quote: Tell the Crow's Eye he's afraid of kinslaying and he'll murder one of his own sons just to prove you wrong.  -  Asha Greyjoy
