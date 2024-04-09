@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 17:24:48
-Random Quote: Only a fool humbles himself when the world is so full of men eager to do that job for him.  -  Theon Greyjoy
+Last updated: 2024-04-09 17:25:26
+Random Quote: In short, the god mankind has prayed to for thousands of years the god that everything is bound with, this god exists as nothing other than time itself. - 
