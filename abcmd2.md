@@ -1,2 +1,5 @@
-Last updated: 2024-04-09 17:52:23
-Random Quote: Lily Aldrin: "Guys, The Captain just made me a very interesting offer."Barney Stinson: "Finally we get around to the real reason he hired you. Just promise you film it, and please use a tripod. There's nothing artistic about shaky-cam, it just looks sloppy." - Barney Stinson
+Last updated: 2024-04-09 17:52:56
+Random Quote: Therapist: "You need to stop doing these weird things. Go out sometime."
+Klaus: "I went to the park today."
+Therapist: "There you go! I hope you got something from that."
+Klaus: "[Opens up coat] This duck." - Klaus Hargreeves
