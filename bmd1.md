@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 12:10:52
-Random Quote: Women aren't soldiers, and they sure as hell don't fight on the front lines. They might break a nail. - John Flynn
+Last updated: 2024-04-09 12:12:03
+Random Quote: Pain is always there cause life is freaking painful, okay? - Tiffany 'Pennsatucky' Doggett
