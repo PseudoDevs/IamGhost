@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 10:59:24
-Random Quote: In this world, a man must learn to seize whatever gifts the gods chose to send him.  That was a lesson I learned at some cost.  -  The Tattered Prince
+Last updated: 2024-04-09 11:00:01
+Random Quote: What you have to do is show these suckers what you’re capable of. Show them you’re not scared. - Nairobi
