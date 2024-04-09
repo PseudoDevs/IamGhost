@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 11:01:14
-Random Quote: Believe me, I’ve had five divorces. Do you know what five divorces are? Five times I believed in love. - Berlin
+Last updated: 2024-04-09 11:01:49
+Random Quote: I let each man cut me once, before I kill him.  Count the cuts and you will know how many Strong Belwas has slain.  -  Strong Belwas
