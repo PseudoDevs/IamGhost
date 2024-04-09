@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 17:37:04
-Random Quote: Larry: "Where would you like me to put it then, Piper?"Piper: "Up your ass."Larry: "There's no room. Apparently, my head's already up there." - Larry Bloom
+Last updated: 2024-04-09 17:37:37
+Random Quote: This guy he's done everything right. He's been loving and devoted since he was 18 years old. There are only a few truly great people on this planet and he is one of them. - Barney Stinson
