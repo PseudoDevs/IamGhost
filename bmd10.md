@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 10:39:43
-Random Quote: There are worse ways to die than warm and drunk.  I knew a brother drowned himself in wine once.  It was a poor vintage, though, and his corpse did not improve it.  -  Dolorous Edd Tollett
+Last updated: 2024-04-09 10:40:18
+Random Quote: The Night's Watch is a sworn brotherhood.  We have no families.  None of us will ever father sons.  Our wife is duty.  Our mistress is honor.  -  Benjen Stark
