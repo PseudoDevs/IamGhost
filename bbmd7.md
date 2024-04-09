@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 17:49:47
-Random Quote: There is no such thing as magic, just illusion. Things only change when we change them. But you have to do it skillfully, in secret. Then it seems like magic. - Mikkel Nielsen
+Last updated: 2024-04-09 17:51:00
+Random Quote: That's not a law, just a sword.  Happens I got one too.  -  Yoren of the Night's Watch
