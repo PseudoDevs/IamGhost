@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 11:55:45
-Random Quote: If we say some prayers, do we all get to go to heaven? I should really pray too if that's how easy it is. Our God who art in Heaven, we worked as a team to send people to your side. And we sent a bunch of them today. And please help us with a whole lot more to be with you. - Oh Il-nam
+Last updated: 2024-04-09 11:56:18
+Random Quote: When a maester donned his collar, he put aside the hope of children, yet Cressen had oft felt a father nonetheless.  Robert, Stannis, Renly: three sons he had raised after the angry sea claimed Lord Steffon.  -  Maester Cressen
