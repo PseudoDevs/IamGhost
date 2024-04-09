@@ -1,3 +1,2 @@
-Last updated: 2024-04-09 09:49:11
-Random Quote: "I thought Mandalorians were honorable."
-Koska Reeves: "We are, kid. All it takes is a few credits." - Din Djarin
+Last updated: 2024-04-09 09:53:29
+Random Quote: Rhaegar fought valiantly, Rhaegar fought nobly, and Rhaegar died.  -  Jorah Mormont
