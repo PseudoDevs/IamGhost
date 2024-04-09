@@ -1,3 +1,2 @@
-Last updated: 2024-04-09 10:19:02
-Random Quote: Morty: "You were a teenager when dad got you pregnant!"
-Beth: "I was 17. That's at least 26 in boy years." - Beth Smith
+Last updated: 2024-04-09 10:19:38
+Random Quote: I have been called many things, my lord, byt kind is seldom one of them.  -  Maester Aemon
