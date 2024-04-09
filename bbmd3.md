@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 10:27:26
-Random Quote: Bad guys don't play by the rules. That's what makes them bad. - Steve Murphy
+Last updated: 2024-04-09 10:27:59
+Random Quote: My lady, I have seen how you look at my brother.  Loras is valiant and handsome, and we all love him dearly... but your Imp will make a better husband.  He is a bigger man than he seems, I think.  -  Garlan Tyrell
