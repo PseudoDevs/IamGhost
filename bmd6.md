@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 17:13:31
-Random Quote: Cara: "It's gonna break his little heart."Mando: "He'll get over it. We all do." - Din Djarin
+Last updated: 2024-04-09 17:14:06
+Random Quote: Whisky's good proofing water. Tells you who's real and who isn't. - Thomas Shelby
