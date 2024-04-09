@@ -1,3 +1,2 @@
-Last updated: 2024-04-09 11:21:13
-Random Quote: Kids, you can't talk yourself into falling in love. It doesn't take days of deliberation. When it's real, you know pretty quickly and with absolute certainty.
-I had forgotten that, but I was about to be reminded... - Ted Mosby
+Last updated: 2024-04-09 11:21:46
+Random Quote: Usually after a sandwich, I feel paranoid, but I'm not. WHY AM I NOT BEING PARANOID?? - Marshall Eriksen
