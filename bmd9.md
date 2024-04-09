@@ -1,2 +1,3 @@
-Last updated: 2024-04-09 11:26:44
-Random Quote: Life hurts. The moment you think you've got it all, it smacks you in the face. - Lucien
+Last updated: 2024-04-09 11:27:20
+Random Quote: Gor Koresh: "This is no place for a child."
+Mando: "Wherever I go, he goes. I've been quested to bring him to his kind." - Din Djarin
