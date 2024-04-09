@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 12:18:05
-Random Quote: Ted: "Robin and I already had our backslide. Last Thanksgiving, not even that long ago."Stella: "Did you place a large bet against yourself?" - Stella Zinman
+Last updated: 2024-04-09 17:06:27
+Random Quote: I don't wanna be choosing between two girls, I wanna be a complete head over heels idiot for one! - Ted Mosby
