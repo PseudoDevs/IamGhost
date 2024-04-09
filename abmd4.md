@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 09:51:52
-Random Quote: I was a better smuggler than a knight, he had written to his wife, a better knight than a King's hand, a better King's hand than a husband.  I am so sorry Marya, I have loved you.  Please forgive the wrongs I did you.  -  Davos Seaworth
+Last updated: 2024-04-09 09:52:58
+Random Quote: Pictures can be twisted and used against you and haunt you forever. - Hannah Baker
