@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 04:54:28
-Random Quote: When the sun rises in the west and sets in the east.  When the seas go dry and mountains blow in the wind like leaves.  When your womb quickens again, and you bear a living child.  Then he will return, and not before.  -  Mirri Maz Duur
+Last updated: 2024-04-09 09:20:02
+Random Quote: Power tastes best when sweetened by courtesy; you had best learn that if you ever hope to rule.  -  Roose Bolton
