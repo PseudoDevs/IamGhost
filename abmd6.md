@@ -1,3 +1,2 @@
-Last updated: 2024-04-09 10:03:44
-Random Quote: Gor Koresh: "This is no place for a child."
-Mando: "Wherever I go, he goes. I've been quested to bring him to his kind." - Din Djarin
+Last updated: 2024-04-09 10:04:17
+Random Quote: So you're half cold, unfeeling reptile, half also cold, equally unfeeling machine? Wow, so your origin is what? You fell into a vat of redundancy? - Rick Sanchez
