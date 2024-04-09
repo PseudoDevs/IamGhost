@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 10:25:08
-Random Quote: The men of always aren't interested in the children of never. - Pablo Escobar
+Last updated: 2024-04-09 10:25:46
+Random Quote: Serve, Obey, Protect.  Simple vows for a simple man.  -  Areo Hotah
