@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 09:35:33
-Random Quote: I'm the Homelander. And I can do whatever the f-ck I want. - Homelander
+Last updated: 2024-04-09 09:36:06
+Random Quote: When you play the game of thrones, you win or you die.  There is no middle ground.  -  Cersei Lannister
