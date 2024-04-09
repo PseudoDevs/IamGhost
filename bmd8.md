@@ -1,2 +1,4 @@
-Last updated: 2024-04-09 11:34:37
-Random Quote: A king's son, with the power of kingsblood in his veins.  Do you think you've saved this boy, Onion Knight?  When the long night falls, Edric Storm shall die with the rest, wherever he is hidden.  Your own sons as well.  Darkness and cold will cover the earth.  You meddle in matters you do not understand.  -  Melisandre
+Last updated: 2024-04-09 11:35:48
+Random Quote: Rick: "Wait a minute! Is that Mountain Dew in my quantum-transport-solution?"
+Morty: "I saw you were marking the level so I had to top it off."
+Rick: "Top it off? Do you know how dangerously toxic this stuff is? And you added it to my portal fluid?" - Rick Sanchez
