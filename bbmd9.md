@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 11:22:19
-Random Quote: I asked him why he kept her close, if he thought her so grotesque.  He said that all his other knights wanted things of him, castles or honors or riches, but all that Brienne wanted was to die for him.  -  Loras Tyrell
+Last updated: 2024-04-09 11:22:52
+Random Quote: My name is ASAC Schrader, and you can go f*ck yourself. - Hank Schrader
