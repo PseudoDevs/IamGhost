@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 11:45:51
-Random Quote: I never asked for this, no more than I asked to be king.  Yet dare I disregard her?  We do not choose our destinies.  Yet we must... we must do our duty, no?  Great or small, we must do our duty.  -  Stannis Baratheon
+Last updated: 2024-04-09 11:46:25
+Random Quote: Omera: "You haven't shown your face to anyone since you were a kid?"Mando: "No. I was happy that they took me in. My parents were killed and the Mandalorians took care of me. This is the way." - Din Djarin
