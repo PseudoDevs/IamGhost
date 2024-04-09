@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 10:49:48
-Random Quote: I am on a curiosity voyage and I need my paddles to travel. These books - these books are my paddles. I need my paddles. - Dustin Henderson
+Last updated: 2024-04-09 10:50:59
+Random Quote: Why the oldest son, and not the best - fitted?  The crown will suit me, as it never suited Robert and would not suit Stannis. 
