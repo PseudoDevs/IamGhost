@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 10:40:56
-Random Quote: Make it easier for those whose vote you can count on. Make it harder for those you can't. That's how you rig an election without leaving a lick of evidence. - Walt Breslin
+Last updated: 2024-04-09 10:41:32
+Random Quote: I can't believe I'm taking sexual advice from Ted Mosby.That's like taking fashion advice from... well, Ted Mosby. - Barney Stinson
