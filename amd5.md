@@ -1,3 +1,2 @@
-Last updated: 2024-04-09 10:23:53
-Random Quote: Morticia: "That boy's family was going to file attempted murder charges. How would that have looked on your record?"
-Wednesday: "Terrible. Everyone would know I failed to get the job done." - Wednesday Addams
+Last updated: 2024-04-09 10:24:28
+Random Quote: Master Mott said Thoros could outdrink even King Robert.  They were pease in a pod, he told me, both gluttons and sots.  -  Gendry
