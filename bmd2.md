@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 11:22:00
-Random Quote: Haley: "Dad, can you just please tell mom, that I can take a two hour break and go to a party?"Phil: "No Ma'am, I'm not stepping into that one. We're not playing 'good cop - mom'.'" - Phil Dunphy
+Last updated: 2024-04-09 11:23:12
+Random Quote: I did the world a favor. People like Dalton shouldn't be allowed to procreate. Getting expelled was just a bonus. - Wednesday Addams
