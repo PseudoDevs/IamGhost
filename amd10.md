@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 10:40:19
-Random Quote: Your pain defines who you are but it no longer holds power on you - Noah
+Last updated: 2024-04-09 10:40:56
+Random Quote: I think my soul just threw up a little bit. - Lily Aldrin
