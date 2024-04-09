@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 11:17:45
-Random Quote: Have you ever lost someone? It's like you're dying with them. They can move on. And you're stuck. - Eyk Larsen
+Last updated: 2024-04-09 11:18:19
+Random Quote: We were king's men, knights, and heroes... but some knights are dark and full of terror, my lady.  War makes monsters of us all.  -  Thoros of Myr
