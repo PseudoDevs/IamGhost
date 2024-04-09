@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 11:12:18
-Random Quote: Tell the Crow's Eye he's afraid of kinslaying and he'll murder one of his own sons just to prove you wrong.  -  Asha Greyjoy
+Last updated: 2024-04-09 11:12:51
+Random Quote: Get ready, Cleveland. The last man to screw you that hard and then disappear, was LeBron James! - Barney Stinson
