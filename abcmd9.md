@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 11:17:39
-Random Quote: Men of honor will do things for their children that they would never consider doing for themselves.  -  Petyr Baelish
+Last updated: 2024-04-09 11:18:17
+Random Quote: Winter will never come for the likes of us.  Should we die in battle, they will surely sing of us, and it's always summer in the songs.  In the songs all knights are gallant, all maids are beautiful, and the sun is always shining.  -  Brienne of Tarth
