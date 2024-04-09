@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 09:22:16
-Random Quote: Ted: "Every three years we sit down and Tril' it up big time, agreed?"Marshall: "Agreed-o!" - Marshall Eriksen
+Last updated: 2024-04-09 09:23:22
+Random Quote: We are not husband and wife... anymore. We're just business partners. And our job is to raise those kids. - Marty Byrde
