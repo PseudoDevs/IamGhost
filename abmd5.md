@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 11:54:01
-Random Quote: Make it easier for those whose vote you can count on. Make it harder for those you can't. That's how you rig an election without leaving a lick of evidence. - Walt Breslin
+Last updated: 2024-04-09 11:54:35
+Random Quote: I guess we all have things we try to hide. But they can't stay hidden forever. - Hannah Baker
