@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 09:33:36
-Random Quote: My only aim is to take many lives. The more the better I feel. - 
+Last updated: 2024-04-09 09:34:09
+Random Quote: Euron's gifts are poisoned.  -  Victarion Greyjoy
