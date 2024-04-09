@@ -1,2 +1,4 @@
-Last updated: 2024-04-09 11:39:22
-Random Quote: In the end, love is a good reason for everything to fall apart. - Tokyo
+Last updated: 2024-04-09 11:39:59
+Random Quote: Joel: "I need you to tell us where we are."
+Man: "If you got a map, why you lost?"
+Ellie: "Must've missed all the street signs in the enormous f-cking forest." - Ellie Williams
