@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 17:50:05
-Random Quote: Nymeria was least dangerous when nearly naked.  Elsewise she was sure to have a dozen blades concealed about her person.  -  Areo Hotah
+Last updated: 2024-04-09 17:50:38
+Random Quote: Sometimes science is more art than science. - Rick Sanchez
