@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 11:38:27
-Random Quote: Being a Mandalorian is not just learning about how to fight. You also have to know how to navigate the Galaxy. That way you'll never be lost. - Din Djarin
+Last updated: 2024-04-09 11:39:00
+Random Quote: I'm a simple man making his way through the galaxy. Like my father before me. - Boba Fett
