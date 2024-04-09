@@ -1,2 +1,4 @@
-Last updated: 2024-04-09 09:21:51
-Random Quote: You know how they say 'it's been a pleasure'? Well... it hasn't. - Mike Ehrmantraut
+Last updated: 2024-04-09 09:22:25
+Random Quote: Bo-Katan: "I've scugged off a lot of Imperial warlords."
+Din: "They tend to get mad when you hijack their ships."
+Bo-Katan: "Now you tell me." - Bo-Katan
