@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 11:05:40
-Random Quote: Thank the Force! This little thing has had me worried sick. Come here, you little womp rat. Looks like it remembers me. How much do you want for it? Just kidding. But not really. - Peli Motto
+Last updated: 2024-04-09 11:06:13
+Random Quote: Cara: "It's gonna break his little heart."Mando: "He'll get over it. We all do." - Din Djarin
