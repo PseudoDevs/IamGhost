@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 17:36:30
-Random Quote: A man lives three lives. The first one ends with the loss of naivety, the second, with the loss of innocence and the third… with the loss of life itself. It’s inevitable that we go through all three stages. - Adam
+Last updated: 2024-04-09 17:37:03
+Random Quote: Jon, did you ever wonder why the men of the Night's Watch take no wives and father no children?  So they will not love, for love is the bane of honor, the death of duty.  -  Maester Aemon
