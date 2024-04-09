@@ -1,2 +1,2 @@
-Last updated: 2024-04-08 15:16:50
-Random Quote: Marshall: "Jelly beans, fluffernutter, Gummi Bears, ginger snap... this is a grocery list!"Robin: "For who? A witch building a house in the forest?"Marshall: "Sugar helps me study."Barney: "This is like the shopping a ten-year-old does when his parents leave him alone for the weekend."Lily: "What parent leaves a ten-year-old alone for the weekend?"Barney: "And your mom was perfect." - Barney Stinson
+Last updated: 2024-04-09 01:39:49
+Random Quote: Treason is a noxious weed.  It must be torn up, root and stem and seed, lest new traitors sprout from every roadside.  -  Grand Maester Pycelle
