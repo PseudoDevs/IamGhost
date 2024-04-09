@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 12:13:51
-Random Quote: The Stranger: We’re not free in what we do, because we’re not free in what we want. We can’t overcome what’s deep within us. - 
+Last updated: 2024-04-09 12:14:26
+Random Quote: Pennsatucky: "It weren't my fault. I was just doing as the Spirit commanded."Pussey: "Fuck are you? Joan of Arc?"Pennsatucky: "No, I'm from Waynesboro, my name is Tiffany..." - Tiffany 'Pennsatucky' Doggett
