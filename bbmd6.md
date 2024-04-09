@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 10:03:00
-Random Quote: We are smart. And idiots are banging all the time. We can learn how to do it, too. - Fabiola Torres
+Last updated: 2024-04-09 10:06:45
+Random Quote: Need found it hard to imagine what could frighten Stannis Baratheon, who had once held Storm's End through a year of siege, surviving on rats and boot leather while the Lords Tyrell and Redwyne sat outside with their hosts, banqueting in sight of his walls.  -  Eddard Stark
