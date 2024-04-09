@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 17:20:25
-Random Quote: Or I look single, 34 and single, which must mean there's something wrong with me. Like, you keep large reptiles in tanks, or I have a very special relationship with my mother. - Larry Bloom
+Last updated: 2024-04-09 17:21:00
+Random Quote: Know the men who follow you and let them know you.  Don't ask your men to die for a stranger.  -  Eddard Stark
