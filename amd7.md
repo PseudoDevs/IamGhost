@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 17:47:50
-Random Quote: Ted, honey, I want you to go outside and bite the curb. I'll be out in a minute. - Lily Aldrin
+Last updated: 2024-04-09 17:48:23
+Random Quote: In the game of thrones, even the humblest pieces have wills of their own.  Sometimes they refuse to make the moves you've planned for them.  Mark that well, Alayne.  It's a lesson that Cersei Lannister still has yet to learn.  -  Petyr Baelish
