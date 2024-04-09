@@ -1,3 +1,2 @@
-Last updated: 2024-04-09 09:31:15
-Random Quote: Freddie: "If you want me out of Birmingham, it'll have to be in a wooden box."
-Polly: "You lay a hand on our Ada, I'll put you in a wooden box myself!" - Polly Gray
+Last updated: 2024-04-09 09:31:49
+Random Quote: It was the white cloak that soiled me, not the other way around.  -  Jaime Lannister
