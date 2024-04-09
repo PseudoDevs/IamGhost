@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 11:48:13
-Random Quote: My name is ASAC Schrader, and you can go f*ck yourself. - Hank Schrader
+Last updated: 2024-04-09 11:48:47
+Random Quote: I am the Greyjoy, Lord Reaper of Pyke, King of Salt and Rock, Son of the Sea Wind, and no man gives me a crown.  I pay the iron price.  I will take my crown, as Urron Redhand did five thousand years ago.  -  Balon Greyjoy

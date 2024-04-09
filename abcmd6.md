@@ -1,2 +1,3 @@
-Last updated: 2024-04-09 11:48:13
-Random Quote: The end of a rope has been this man's destiny since the night he was born. - Chester Campbell
+Last updated: 2024-04-09 11:48:47
+Random Quote: Wyatt Langmore: "This job's my old man's idea. Something about 'calluses and character'."
+Charlotte Byrde: "Yeah, well, you're blowing leaves, not hiding Anne Frank." - Charlotte Byrde
