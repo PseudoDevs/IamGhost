@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 09:32:11
-Random Quote: If that’s true, if you don’t know who I am, then maybe your best course… would be to tread lightly. - Walter White
+Last updated: 2024-04-09 09:32:47
+Random Quote: I guess we all have things we try to hide. But they can't stay hidden forever. - Hannah Baker
