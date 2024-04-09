@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 11:04:56
-Random Quote: No man has ever died from bending his knee.  He who kneels may rise again, blade in hand.  He who will not kneel stays dead, stiff legs and all.  -  Balon Greyjoy
+Last updated: 2024-04-09 11:06:45
+Random Quote: Ted: "Do not pretend you're not the kind of guy, who keeps a list of all the girls he slept with."Marshall: "I have one. It's called my marriage-license." - Marshall Eriksen
