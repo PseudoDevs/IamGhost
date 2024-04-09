@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 01:47:35
-Random Quote: We have to control this fing world, or it will control you. And if you don't protect yourself, it makes a mess and breaks you. - Miguel Angel Felix Gallardo
+Last updated: 2024-04-09 01:48:09
+Random Quote: That's the thing with guys like Nate. They don't actually want a person. They want something they can own and possess. - Rue Bennett
