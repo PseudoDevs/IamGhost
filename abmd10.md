@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 10:44:36
-Random Quote: Congratulations, you’ve just left your family a second-hand Subaru. - Saul Goodman
+Last updated: 2024-04-09 10:45:09
+Random Quote: No one had expected the broken boy to live.  The gods could not kill Bran, no more than I could.  It was a strange thought, and stranger still to remember that Bran might still be alive.  -  Theon Greyjoy
