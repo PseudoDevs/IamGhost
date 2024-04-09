@@ -1,2 +1,4 @@
-Last updated: 2024-04-09 11:01:53
-Random Quote: In Texas, the holy trinity is God, Football and barbecueNot necessarily in that order. - Sheldon
+Last updated: 2024-04-09 11:02:29
+Random Quote: Ellie: "Can I have a gun?"
+Joel: "Absolutely not."
+Ellie: "Okay, Jesus. Fine. I'll have to throw a f-ckin' sandwich at them." - Ellie Williams
