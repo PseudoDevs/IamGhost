@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 04:54:36
-Random Quote: Heroes are not born, they're forged in darkness. Shaped in battle. Defined by sacrifice. - The Watcher
+Last updated: 2024-04-09 09:20:05
+Random Quote: In his chainmail shirt with a sword in his hand, Gendry looked almost a man grown, and dangerous.  Hot Pie looked like Hot Pie.  -  Arya Stark
