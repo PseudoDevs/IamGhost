@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 17:09:54
-Random Quote: What the hell is the matter with you? You tryin' out for the retard Olympics? - George 'Pornstache' Mendez
+Last updated: 2024-04-09 17:10:31
+Random Quote: Why is it always the innocents who suffer most, when you high lords play your game of thrones?  -  Varys
