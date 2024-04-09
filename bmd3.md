@@ -1,6 +1,2 @@
-Last updated: 2024-04-09 11:22:12
-Random Quote: Morty: "Rick, when you say you made an exact replica of the house, did you mean, like, an exact replica?"
-Rick: "I know about the Yosemite T-Shirt, Morty."
-Morty: "Shit."
-Rick: "You know you can use tissues, right?"
-Morty: "I can't finish without it!" - Morty Smith
+Last updated: 2024-04-09 11:22:44
+Random Quote: The longer Cersei waits, the angrier she'll become, and anger makes her stupid.  I much prefer angry and stupid to composed and cunning.  -  Tyrion Lannister
