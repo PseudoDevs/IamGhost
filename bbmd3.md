@@ -1,3 +1,2 @@
-Last updated: 2024-04-09 10:16:14
-Random Quote: Woman: "You know this isn't Vegas, right?"
-Robin: "Well sure, in Vegas the casinos pump in oxygen, in Atlantic City it looks like everyone brought their own." - Robin Scherbatsky
+Last updated: 2024-04-09 10:16:47
+Random Quote: You are the love of my life. Everything I have and everything I am is yours. Forever. - Barney Stinson
