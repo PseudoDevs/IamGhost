@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 10:18:22
-Random Quote: This is Hawkins, okay? You wanna know the worst thing that's ever happened here in the four years I've been working here? It was when an owl attacked Eleanor Gillespie's head because it though that her hair was a nest. - Jim Hopper
+Last updated: 2024-04-09 10:19:00
+Random Quote: I wasn't there when the meth was cooked. I wasn't there when it was sold. I didn't witness any of the murders, but I damn well knew what was happening. I was more than a willing participant. I was indispensable. I kept Walter White out of Jail. I laundered his money. I lied for him. I conspired with him and I made millions. - Saul Goodman
