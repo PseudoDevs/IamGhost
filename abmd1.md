@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 17:14:48
-Random Quote: What I'm doing here... is building an empire. - Miguel Angel Felix Gallardo
+Last updated: 2024-04-09 17:15:21
+Random Quote: You must be blind as well as maimed, Set.  Lift your eyes, and you will see the direwolf still flies above our walls.  -  Brynden Tully
