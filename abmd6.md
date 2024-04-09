@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 09:22:49
-Random Quote: We all make our choices and those choices they put us on a road. And sometimes those choices seem small but they put you on the road. You think about getting off but eventually, you're back on it. - Mike Ehrmantraut
+Last updated: 2024-04-09 09:23:22
+Random Quote: Godless?  Why, Aeron, I am the godliest man ever to raise sail!  You serve one god, Damphair, but I have served ten thousand.  From Ib to Asshai, when men see my sails, they pray.  -  Euron Greyjoy
