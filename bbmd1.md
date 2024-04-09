@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 10:43:55
-Random Quote: The Lord of Light cherishes the innocent.  There is no sacrifice more precious.  From his king's blood and his untainted fire, a dragon shall be born.  -  Melisandre
+Last updated: 2024-04-09 10:44:31
+Random Quote: Financial adviser's not my dream job, but I am taking a fing bite out of the apple. - Bruce Liddell

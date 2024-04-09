@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 10:43:55
-Random Quote: You don’t love anyone? Of course you don’t, darling. You don’t have the balls for it. To love, you need courage. - Nairobi
+Last updated: 2024-04-09 10:44:31
+Random Quote: Reality is more than neurons firing around in your brain. Reality is not what's on the inside. It's what's happening on the outside. - Daniel Solace
