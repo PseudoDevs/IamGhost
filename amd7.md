@@ -1,2 +1,7 @@
-Last updated: 2024-04-09 11:17:03
-Random Quote: How do you keep a girl from becoming your girlfriend?1. Never get them wet. In other words, don't let her take a shower at your place.2. Keep them away from sunlight - i. e. don't ever see them during the day.3. Never feed them after midnight. Meaning she doesn't sleep over and you don't have breakfast. - Barney Stinson
+Last updated: 2024-04-09 11:18:19
+Random Quote: "Nevermore was founded over 200 years ago to educate outcasts."
+"Students from all walks of life."
+"And death."
+"Our mission is to help each student master their unique abilities. So we offer a full range of extracurricular activities. From painting... to archery."
+"For centuries, notable alumni have roamed these majestic halls, from the master of macabre, Edgar Allan Poe, to personal heroes like Ignatius Itt, and of course, Morticia and Gomez Addams."
+"Our highly trained faculty educate our young outcasts on a wide range of subjects. Everything from werewolf reproduction to Gorgon anatomy." - Larissa Weems
