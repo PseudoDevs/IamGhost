@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 11:09:01
-Random Quote: Marshall: "I don't care if the dishes aren't done, okay? If you care, you do it."Lily: "Great, then I don't care if you have an orgasm. If you care, you do it." - Lily Aldrin
+Last updated: 2024-04-09 11:09:34
+Random Quote: The baby slide right out, huh? It's like a 'whoosh', like a waterslide. [Lily screaming] Slightly painful waterslide. - Dr. Sonya
