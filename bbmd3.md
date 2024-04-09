@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 09:51:02
-Random Quote: I buried an axe so deep into Willem's skull, they had to bury him with it.  -  Yoren of the Knight's Watch
+Last updated: 2024-04-09 09:52:17
+Random Quote: You know, it's funny. Almost every woman I've ever met was wrong to give me a chance. You're the first woman who's wrong not to. - Barney Stinson
