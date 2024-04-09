@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 12:03:52
-Random Quote: Sheldon, can you hear me? It's your twin sister, MissyEverything's all right here, but I think Mom misses you real badAll right, I can't hear you, so I'm gonna hang up now. - Missy
+Last updated: 2024-04-09 12:04:25
+Random Quote: Robb Stark won the war on the battlefield and lost it in a bedchamber.  -  Jaime Lannister
