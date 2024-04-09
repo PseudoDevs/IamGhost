@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 10:05:29
-Random Quote: Ted: "Barney! I'm allowed to miss them, okay? They're my two best friends."Barney: "I'm your two best friends!" - Barney Stinson
+Last updated: 2024-04-09 10:06:05
+Random Quote: It is so nice to be out in the fresh air. You smell that? That's the smell of urine that isn't Marvin's. - Marshall Eriksen
