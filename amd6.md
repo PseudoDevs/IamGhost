@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 09:35:16
-Random Quote: There is a savage beast in every man, and it stirs when you put a sword in his hand.  -  Jorah Mormont
+Last updated: 2024-04-09 09:35:53
+Random Quote: She had a nice face, her booty was in place, but Barney don't chase. - Barney Stinson
