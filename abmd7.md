@@ -1,2 +1,5 @@
-Last updated: 2024-04-09 09:56:38
-Random Quote: Player play on - high V! - Ted Mosby
+Last updated: 2024-04-09 09:57:52
+Random Quote: Dina: "You're infuriating."
+Ellie: "Have you met you?"
+Dina: "You make me want to go back outside into that blizzard."
+Ellie: "No one is stopping you." - Joel Miller
