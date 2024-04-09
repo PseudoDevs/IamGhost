@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 10:43:32
-Random Quote: So that's it? A couple of white Urkels offer you sausages and you're gone? - Robin Scherbatsky
+Last updated: 2024-04-09 10:44:04
+Random Quote: Knowledge is a weapon, Jon.  Arm yourself well before you ride forth to battle.  -  Maester Aemon
