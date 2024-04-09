@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 10:27:39
-Random Quote: February 13th. A magical night, where a ten has the self esteem of a four and the depraved enthusiasm of a two. - Barney Stinson
+Last updated: 2024-04-09 10:28:16
+Random Quote: Did the boy charm you?  He has that gift.  He got it from his father, with the blood.  He knows he is a king's son, but chooses to forget that he is bastard - born. 
