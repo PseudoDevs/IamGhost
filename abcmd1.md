@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 11:44:46
-Random Quote: I think the word you're looking for is 'audacious'. - Kim Wexler
+Last updated: 2024-04-09 11:45:20
+Random Quote: Robert... he is in my dreams as well.  Laughing.  Drinking.  Boasting.  Those were the things he was best at.  Those, and fighting.  I never bested him at anything.  -  Stannis Baratheon

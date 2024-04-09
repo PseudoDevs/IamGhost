@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 11:44:46
-Random Quote: I am not crazy. I am unique. - Suzanne Warren
+Last updated: 2024-04-09 11:45:20
+Random Quote: Did the boy charm you?  He has that gift.  He got it from his father, with the blood.  He knows he is a king's son, but chooses to forget that he is bastard - born. 
