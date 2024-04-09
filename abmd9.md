@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 09:31:43
-Random Quote: I did it for me. I liked it. I was good at it. And I was really... I was alive. - Walter White
+Last updated: 2024-04-09 09:32:17
+Random Quote: Freeways have exits, so do relationships. The first exit, my personal favourite, is six hours in: You meet, you talk, you have sex, you exit when she's in the shower. - Barney Stinson
