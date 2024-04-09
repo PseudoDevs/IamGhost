@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 10:59:22
-Random Quote: Godless?  Why, Aeron, I am the godliest man ever to raise sail!  You serve one god, Damphair, but I have served ten thousand.  From Ib to Asshai, when men see my sails, they pray.  -  Euron Greyjoy
+Last updated: 2024-04-09 10:59:56
+Random Quote: Is it your fault that Bronn's an insolent black - hearted rogue?  He's always been an insolent black
