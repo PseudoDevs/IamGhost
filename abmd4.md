@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 17:59:32
-Random Quote: Barney: "Fine, we'll just have a nice, tasteful rehearsal dinner. Maybe at a French restaurant, I know just the place."Robin: "What's the name of the restaurant?"Barney: "La Sertag." - Barney Stinson
+Last updated: 2024-04-09 18:00:06
+Random Quote: I have let you come wash my dishes. I said my oven needed cleaning, I invited you to a p-rno! - Victoria
