@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 17:06:37
-Random Quote: I think sometimes we aren't keeping secrets to hide from other people. I think sometimes we're keeping them to protect those people. - Tony Padilla
+Last updated: 2024-04-09 17:07:11
+Random Quote: Some battles are won with swords and spears, others with quills and ravens.  -  Tywin Lannister
