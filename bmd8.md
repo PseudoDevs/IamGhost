@@ -1,2 +1,3 @@
-Last updated: 2024-04-09 09:20:10
-Random Quote: I find Social Media to be a soul-sucking void of meaningless affirmation. - Wednesday Addams
+Last updated: 2024-04-09 09:20:44
+Random Quote: Morty: "I don't like how meta this is getting, Rick."
+Rick: "Shut up, Morty, you're 14. You watch videos of people on YouTube reacting to fing YouTube. I'll be the judge of when we get too meta." - Rick Sanchez
