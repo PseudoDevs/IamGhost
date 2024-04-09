@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 11:30:17
-Random Quote: When a maester donned his collar, he put aside the hope of children, yet Cressen had oft felt a father nonetheless.  Robert, Stannis, Renly: three sons he had raised after the angry sea claimed Lord Steffon.  -  Maester Cressen
+Last updated: 2024-04-09 11:30:50
+Random Quote: Ted: "You're scared of the seven dwarves?"Robin: "Just of Doc. He's creepy... I mean, the guy went to medical school, what is he doing living with six coalminers." - Robin Scherbatsky
