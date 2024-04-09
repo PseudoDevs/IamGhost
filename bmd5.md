@@ -1,3 +1,2 @@
-Last updated: 2024-04-09 01:42:02
-Random Quote: Jang Deok-su: "Tell me what you're good at?"
-Han Mi-nyeo: "Everything, except the things I can't do." - Oh Il-nam
+Last updated: 2024-04-09 01:42:35
+Random Quote: Silver or lead. You decide. - Pablo Escobar
