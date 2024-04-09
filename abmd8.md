@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 10:15:56
-Random Quote: Oh man, I am so excited that you're here! It has been forever since I have been around anyone even remotely fun![to Lily, Robin, Ted and Marshall] Huh... yes, offense! - Barney Stinson
+Last updated: 2024-04-09 10:16:32
+Random Quote: We're going to Buffalo... and I've seen women from there; the city's aptly named. - Barney Stinson
