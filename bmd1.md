@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 12:07:55
-Random Quote: We're cosigning birthday cards, we got toothbrushes at each other's places, foreplay's out the window. I'm in, I'm out, I'm sleeping - it's great. - Ted Mosby
+Last updated: 2024-04-09 12:09:04
+Random Quote: God. It's me, Barney. What up? I know we don't talk much, but I know a lot of girls call out your name because of me. Awesome! - Barney Stinson
