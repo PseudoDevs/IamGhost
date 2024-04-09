@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 01:44:18
-Random Quote: If you think this has a happy ending, you haven't been paying attention.  -  Ramsay Bolton
+Last updated: 2024-04-09 01:45:26
+Random Quote: We are not husband and wife... anymore. We're just business partners. And our job is to raise those kids. - Marty Byrde
