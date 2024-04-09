@@ -1,2 +1,3 @@
-Last updated: 2024-04-09 17:40:31
-Random Quote: Now you may be asking yourself why is sports icon John McEnroe narrating this tale? It'll make sense later I promise. - John McEnroe
+Last updated: 2024-04-09 17:41:08
+Random Quote: Men and their d-cks never cease to amaze me. John, Lizzie Stark never did a day's work vertical.
+Brave is going where no man has gone before. And with Lizzie Stark, John, that's not what you'll be doing. - Polly Gray
