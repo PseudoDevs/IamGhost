@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 11:12:45
-Random Quote: Good and evil are a question of perspective - Mikkel
+Last updated: 2024-04-09 11:13:18
+Random Quote: Red: "Black girls hear about a chicken, of course this will happen."Piper: "Why, because all black people love chicken?"Red: "Don't be racist. Because they're all on heroin, and somebody's been telling them there's heroin in the chicken." - Galina 'Red' Reznikov
