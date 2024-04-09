@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 10:28:57
-Random Quote: If one of the Vancouver Canucks walked in here, my panties would drop so hard, there would be a hole in the floor halfway to China. - Robin Scherbatsky
+Last updated: 2024-04-09 10:29:31
+Random Quote: If you wish to give up on playing, the 25.5 billion won will be sent to the bereaved families of the late players. - Jang Deok-su
