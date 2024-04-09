@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 04:54:25
-Random Quote: Place was overrun with rats when we moved in.  The spearwives killed the nasty buggers.  Now the place is overrun with spearwives.  There's days I want the rats back.  -  Dolorous Edd Tollett
+Last updated: 2024-04-09 09:20:33
+Random Quote: Did you know that if gravity were slightly more powerful, the universe would collapse into a ball? - Sheldon
