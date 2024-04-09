@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 09:57:29
-Random Quote: Robin: "I'm such a mess. Why do you even like me?"Barney: "I guess cause you're almost as messed up as I am." - Barney Stinson
+Last updated: 2024-04-09 09:58:02
+Random Quote: Is it your fault that Bronn's an insolent black - hearted rogue?  He's always been an insolent black
