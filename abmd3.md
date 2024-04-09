@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 09:57:54
-Random Quote: Why the oldest son, and not the best - fitted?  The crown will suit me, as it never suited Robert and would not suit Stannis. 
+Last updated: 2024-04-09 09:59:10
+Random Quote: I already told you what you can do with your money. You seem like a guy who can take a hint, so what are we doing? - Mike Ehrmantraut

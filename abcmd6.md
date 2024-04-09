@@ -1,2 +1,3 @@
-Last updated: 2024-04-09 09:58:32
-Random Quote: I never asked for this, no more than I asked to be king.  Yet dare I disregard her?  We do not choose our destinies.  Yet we must... we must do our duty, no?  Great or small, we must do our duty.  -  Stannis Baratheon
+Last updated: 2024-04-09 09:59:10
+Random Quote: "How do you take your tea?"
+Ted: "Well, normally right back to the counter because there's been a terrible mistake." - Jim Hopper
