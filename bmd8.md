@@ -1,2 +1,3 @@
-Last updated: 2024-04-09 11:17:03
-Random Quote: Robin: "I'm such a mess. Why do you even like me?"Barney: "I guess cause you're almost as messed up as I am." - Barney Stinson
+Last updated: 2024-04-09 11:17:40
+Random Quote: Marylin Thornhill: "I trust Enid has given you the old Nevermore welcome."
+Wednesday: "She's been smothering me with hospitality. I hope to return the favor... in her sleep." - Wednesday Addams
