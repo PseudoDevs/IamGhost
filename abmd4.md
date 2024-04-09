@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 17:40:51
-Random Quote: What a man wants does not define him. What a man needs is what defines him. - Juan Nepomuceno Guerra
+Last updated: 2024-04-09 17:41:24
+Random Quote: I dreamed of the man who came today, the one they call Reek.  You and your brother lay dead at his feet, and he was skinning off your faces with a long red blade.  -  Jojen Reed
