@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 17:39:14
-Random Quote: I believe that in this universe, as in every other, hope never dies. As long as someone keeps their good eye on the bigger picture. - Nick Fury
+Last updated: 2024-04-09 17:39:48
+Random Quote: Being a Mandalorian is not just learning about how to fight. You also have to know how to navigate the Galaxy. That way you'll never be lost. - Din Djarin
