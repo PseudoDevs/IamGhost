@@ -1,2 +1,6 @@
-Last updated: 2024-04-09 10:06:09
-Random Quote: There was this sadness in his eyes. The kind you sometimes see in those who want to die, but life won’t let them - Noah
+Last updated: 2024-04-09 10:07:23
+Random Quote: Rick: "Just do a Die Hard!"
+Summer: "What does that mean?"
+Rick: "Sneak around! Use air vents! You've never seen Die Hard?"
+Summer: "I'm 17. No, I've never seen Die Hard."
+Rick: "Well, neither did the guy in Die Hard." - Rick Sanchez
