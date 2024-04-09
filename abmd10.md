@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 11:30:10
-Random Quote: So I will only ask you once, Lord Snow.  Are you a brother of the Night's Watch, or a bastard boy who wants to play at war?  -  Jeor Mormont
+Last updated: 2024-04-09 11:30:43
+Random Quote: (Love is) pain, horrible pain, that you want again and again. - Sophia Burset
