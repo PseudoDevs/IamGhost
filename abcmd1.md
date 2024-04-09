@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 11:04:34
-Random Quote: There's proving and there's knowing. -  Bill Oakley
+Last updated: 2024-04-09 11:05:07
+Random Quote: Fool's blood, king's blood, blood on the maiden's thigh, but chains for the guests and chains for the bridegroom, aye aye aye.  -  Patchface
