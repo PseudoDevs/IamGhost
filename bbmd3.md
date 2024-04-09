@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 10:35:26
-Random Quote: Bad guys don't play by the rules. That's what makes them bad. - Steve Murphy
+Last updated: 2024-04-09 10:36:01
+Random Quote: Who do you think killed all the dragons the last time around?  Gallant dragonslayers armed with swords?  The world the Citadel is building has no place in it for sorcery or prophecy or glass candles, much less for dragons.  Ask yourself why Aemon Targaryen was allowed to waste his life upon the Wall, when by rights he should have been raised to archmaester.  His blood was why.  He could not be trusted.  No more than I can.  -  Archmaester Marwyn
