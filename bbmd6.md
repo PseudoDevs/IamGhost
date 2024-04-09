@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 10:30:42
-Random Quote: Gods help you, Theon Greyjoy.  Now you are truly lost.  -  Rodrik Cassel
+Last updated: 2024-04-09 10:31:18
+Random Quote: What if God doesn’t know what he’s doing? If the plan is wrong? If God is wrong? - 
