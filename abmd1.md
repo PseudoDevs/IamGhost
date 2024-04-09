@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 10:21:53
-Random Quote: We were king's men, knights, and heroes... but some knights are dark and full of terror, my lady.  War makes monsters of us all.  -  Thoros of Myr
+Last updated: 2024-04-09 10:22:26
+Random Quote: Whatever you do in this life, it's not legendary, unless your friends are there to see it. - Barney Stinson
