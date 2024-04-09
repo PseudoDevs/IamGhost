@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 12:10:44
-Random Quote: When I was 13, my father caught me kissing a boy, so he sent me to our family's ranch for foaling season. Once you see a baby horse erupt through that birth canal, you stop even touching yourself! - Robin Scherbatsky
+Last updated: 2024-04-09 12:11:17
+Random Quote: What if God doesn’t know what he’s doing? If the plan is wrong? If God is wrong? - 
