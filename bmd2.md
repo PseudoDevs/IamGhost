@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 17:08:14
-Random Quote: Wherein I suggested that you take your head and store it within yourself, in a fashion that, while space-saving, might limit its exposure to sunshine. - Marshall Eriksen
+Last updated: 2024-04-09 17:08:47
+Random Quote: All the tales agreed that the green men had strange magic powers.  Maybe they could help him walk again, even turn him into a knight.  They turned the little crannogman into a knight, even if it was only for a day, he thought.  A day would be enough.  -  Bran Stark
