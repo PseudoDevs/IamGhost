@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 11:41:20
-Random Quote: Lily: "Your job is very simple. At the wedding, do not sleep with anyone even remotely related to me."Barney: "Yeah. Lily, you know I can't promise that" - Barney Stinson
+Last updated: 2024-04-09 11:41:53
+Random Quote: Robert wanted smiles and cheers, always, so he went where he found them, to his friends and his whores.  Robert wanted to be loved.  My brother Tyrion has the same disease.  -  Cersei Lannister
