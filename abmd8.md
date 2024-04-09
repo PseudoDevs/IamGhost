@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 10:24:32
-Random Quote: We all wanted to be loved by a man incapable of giving love. - Number Five
+Last updated: 2024-04-09 10:25:09
+Random Quote: I have served six kings, but here before us lies the greatest man I ever knew.  Lord Tywin wore no crown, yet he was all a king should be.  -  Grand Maester Pycelle

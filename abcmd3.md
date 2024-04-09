@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 10:24:33
-Random Quote: I guess, if we're splitting hairs, then technically... there was a plurality to the times I've lied to women for sex-having-purposes. - Barney Stinson
+Last updated: 2024-04-09 10:25:09
+Random Quote: Barney: "Canada sucks."Robin: "Okay, well, you're one-quarter Canadian, so by that logic you one-quarter suck!"Barney: "I'm 100% awesome and you know it!"Robin: "Yeah, I do." - Robin Scherbatsky

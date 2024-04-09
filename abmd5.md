@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 10:23:56
-Random Quote: You want to rule?  This is what ruling is; lying on a bed of weeds, ripping them out by the root, one by one, before they strangle you in your sleep.  -  Cersei Lannister
+Last updated: 2024-04-09 10:25:09
+Random Quote: What I find interesting, is how so many supervillains are scientistsIf the world doesn't respect me, I might change sides. - Sheldon

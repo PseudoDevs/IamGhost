@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 10:23:55
-Random Quote: That was the night I was born. I rose like a phoenix from her mentholated bosom and strode into the world, Armani-clad and fully awesome. - Barney Stinson
+Last updated: 2024-04-09 10:25:09
+Random Quote: You have to be as bad as them above in order to survive. - Polly Gray
