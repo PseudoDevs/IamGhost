@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 10:32:47
-Random Quote: If you waste time trying to get people to love you, you'll end up the most popular dead man in town.  -  Bronn
+Last updated: 2024-04-09 10:33:20
+Random Quote: We should have never gotten on this ship. It was a mistake. All of it, a huge mistake. - Yuk Je
