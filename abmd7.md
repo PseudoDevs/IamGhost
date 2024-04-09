@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 17:09:20
-Random Quote: Larry Bloom: "Piper, you put a pee stick in my rinsing cup."Piper Chapman: "Well, you put your pee stick in my vagina. And that's why we're in this situation." - Piper Chapman
+Last updated: 2024-04-09 17:09:54
+Random Quote: Morty, he's not gonna donate. You're pitching the police men's ball to a black teenager here. - Rick Sanchez
