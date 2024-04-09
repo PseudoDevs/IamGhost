@@ -1,2 +1,3 @@
-Last updated: 2024-04-09 11:49:20
-Random Quote: Ted, no! You never break up a girl fight! Never! - Barney Stinson
+Last updated: 2024-04-09 11:49:55
+Random Quote: Joel: "A deep breath in, slow breath out. You squeeze the trigger like you love it. Gentle, steady, nice and slow."
+Ellie: "You gonna shoot this thing or get it pregnant?" - Ellie Williams
