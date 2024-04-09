@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 11:04:19
-Random Quote: Sheldon, can you hear me? It's your twin sister, MissyEverything's all right here, but I think Mom misses you real badAll right, I can't hear you, so I'm gonna hang up now. - Missy
+Last updated: 2024-04-09 11:04:56
+Random Quote: You ought to have no trouble catching our uncles.  One is drunk on seawater, after all, and the other is a great grey bullock so dim he'll probably get lost.  -  Asha Greyjoy
