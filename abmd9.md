@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 09:21:10
-Random Quote: You must be blind as well as maimed, Set.  Lift your eyes, and you will see the direwolf still flies above our walls.  -  Brynden Tully
+Last updated: 2024-04-09 09:21:43
+Random Quote: I'm a good boyfriend in my sleep. I can rock a killer foot rub with one hand and brew a kick-ass pot of chamomile in the other, that would make you weep. Hell, I've forgotten more about microwaving fat-free popcorn and watching Sandra Bullock movies than you'll ever know, but: thanks for your concern, rook! - Marshall Eriksen
