@@ -1,2 +1,3 @@
-Last updated: 2024-04-09 11:51:06
-Random Quote: The best pie you have ever tasted, my lords.  Wash it down with Arbor gold and savor every bite.  I know I shall.  -  Wyman Manderly
+Last updated: 2024-04-09 11:52:16
+Random Quote: Morty: "I have English homework."
+Rick: "You're still learning English? It's the language you speak. How dumb are you?" - Rick Sanchez
