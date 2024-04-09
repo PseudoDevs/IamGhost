@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 09:27:20
-Random Quote: Let them keep believing I'm dead. So much the better. It was the chicken man. That coward sat up there in the north while his paramilitaries came into my home. - Lalo Salamanca
+Last updated: 2024-04-09 09:27:54
+Random Quote: Haley: "Dad, can you just please tell mom, that I can take a two hour break and go to a party?"Phil: "No Ma'am, I'm not stepping into that one. We're not playing 'good cop - mom'.'" - Phil Dunphy
