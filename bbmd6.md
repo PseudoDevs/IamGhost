@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 11:10:02
-Random Quote: I cost a girl her life because I was afraid to love her - Clay Jensen
+Last updated: 2024-04-09 11:10:36
+Random Quote: Lord Balon's eldest brother had never given up the Old Way, even for a day.  His Silence, with its black sails and dark red hull, was infamous in every port from Ibben to Asshai, it was said.  -  Theon Greyjoy
