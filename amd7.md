@@ -1,2 +1,3 @@
-Last updated: 2024-04-09 17:46:02
-Random Quote: I'll have to take a page from Robert's book, not that he ever read one.  -  Stannis Baratheon
+Last updated: 2024-04-09 17:46:39
+Random Quote: Grace Burgess: "You think I am a wh-re?"
+Tommy Shelby: "Everyone's a wh-re, Grace. We just sell different parts of ourselves." - Thomas Shelby
