@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 09:33:59
-Random Quote: Never give power to the big man. - Alfie Solomons
+Last updated: 2024-04-09 09:35:09
+Random Quote: If that’s true, if you don’t know who I am, then maybe your best course… would be to tread lightly. - Walter White
