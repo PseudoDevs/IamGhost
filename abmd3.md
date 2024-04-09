@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 01:44:45
-Random Quote: I've had shits that I've liked better than Walder Frey.  -  Brynden Tully
+Last updated: 2024-04-09 01:45:19
+Random Quote: The greatest fools are ofttimes more clever than the men who laugh at them.  -  Tywin Lannister
