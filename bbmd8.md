@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 17:57:34
-Random Quote: It's only once you've stopped, that you realize how hard it is to start again. So you force yourself not to want it. - Ted Mosby
+Last updated: 2024-04-09 17:58:07
+Random Quote: I'm a Mandalorian. Weapons are part of my religion. - Din Djarin
