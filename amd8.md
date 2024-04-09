@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 10:46:43
-Random Quote: What if God doesn’t know what he’s doing? If the plan is wrong? If God is wrong? - 
+Last updated: 2024-04-09 10:47:15
+Random Quote: Khaleesi, better a man should swallow scorpions than trust in the spawn of shadows, who dare not show their face beneath the sun.  It is known.  -  Rakharo
