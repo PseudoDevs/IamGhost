@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 09:33:12
-Random Quote: I'm a simple man making his way through the galaxy. Like my father before me. - Boba Fett
+Last updated: 2024-04-09 09:33:45
+Random Quote: Italy doesn't need something that is wrinkled, red and leaky, and smells like booze and narcotics. They've already got former Prime Minister Silvio Berlusconi. - Marshall Eriksen
