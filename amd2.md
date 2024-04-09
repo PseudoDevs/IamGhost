@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 10:34:21
-Random Quote: I actually enjoyed being alone, solitude allowed me to think about important things. - Sheldon
+Last updated: 2024-04-09 10:34:53
+Random Quote: She don't speak.  You bloody bastards cut her throat too deep for that.  But she remembers.  -  Lem Lemoncloack
