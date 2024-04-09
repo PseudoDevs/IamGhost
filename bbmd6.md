@@ -1,2 +1,3 @@
-Last updated: 2024-04-09 10:00:26
-Random Quote: Robin: "What? I am not keeping Mike on a hook!"Ted: "You are Captain Hook!"Robin: "Dude, I'm a girl, ok? Our girl parts are like a spider webs; sometimes you are gonna catch stuff you don't want." - Robin Scherbatsky
+Last updated: 2024-04-09 10:01:04
+Random Quote: What did the frustrated cannibal do?
+He threw up his hands. - Will Livingston
