@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 17:40:36
-Random Quote: I hate kids. They don't drink, they haven't travelled... - Nicky Nichols
+Last updated: 2024-04-09 17:41:10
+Random Quote: We are not husband and wife... anymore. We're just business partners. And our job is to raise those kids. - Marty Byrde
