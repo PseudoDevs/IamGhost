@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 17:11:08
-Random Quote: Smoking marijuana, eating cheetos, and masturbating do not constitute plans in my book. - Walter White
+Last updated: 2024-04-09 17:11:43
+Random Quote: You have to be as bad as them above in order to survive. - Polly Gray
