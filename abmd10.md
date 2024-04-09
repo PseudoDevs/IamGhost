@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 17:10:30
-Random Quote: From this day forth, you will not call yourself a craven.  You've faced more things this past year than most men face in a lifetime.  You can face the Citadel, but you'll face it as a Sworn Brother of the Night's Watch.  I can't command you to be brave, but I can command you to hide your fears.  -  Jon Snow
+Last updated: 2024-04-09 17:11:03
+Random Quote: Life hurts. The moment you think you've got it all, it smacks you in the face. - Lucien
