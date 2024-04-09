@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 09:28:27
-Random Quote: If you don’t know who I am, then maybe your best course would be to tread lightly. - Walter White
+Last updated: 2024-04-09 09:29:00
+Random Quote: Because they are the knights of summer, and winter is coming.  -  Catelyn Stark
