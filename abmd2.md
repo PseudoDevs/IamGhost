@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 17:55:15
-Random Quote: Robert was the true steel.  Stannis is pure iron, black and hard and strong, yes, but brittle, the way iron gets.  He'll break before he bends.  And Renly, that one, he's copper, bright and shiny, pretty to look at but not worth all that much at the end of the day.  -  Donal Noye
+Last updated: 2024-04-09 17:55:51
+Random Quote: Robin: "I don't know if we should keep seeing each other."Nick: "You want to start turning off the lights during sex?"Robin: "No. God, no. No! I am just worried that, as a couple, we're not working out."Nick: "You want to start going to the gym together?" - Nick
