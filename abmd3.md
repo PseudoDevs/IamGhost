@@ -1,3 +1,2 @@
-Last updated: 2024-04-09 11:01:17
-Random Quote: Joel: "A deep breath in, slow breath out. You squeeze the trigger like you love it. Gentle, steady, nice and slow."
-Ellie: "You gonna shoot this thing or get it pregnant?" - Ellie Williams
+Last updated: 2024-04-09 11:02:30
+Random Quote: You will never walk again... but you will fly.  -  Bloodraven
