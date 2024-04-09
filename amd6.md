@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 09:27:12
-Random Quote: A good act does not wash out the bad, nor a bad act the good.  Each should have its own reward.  -  Stannis Baratheon
+Last updated: 2024-04-09 09:27:45
+Random Quote: The farther you go, the sharper their blade. Just don't ever give them an opening. - Cal Jacobs
