@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 10:42:27
-Random Quote: Quentyn had never felt so much a boy as when he'd stood before Daenerys Targaryen, pleading for her hand.  The thought of bedding her terrified him almost as much as her dragons had.  -  Quentyn Martell
+Last updated: 2024-04-09 10:43:00
+Random Quote: Did you think your dad was the only Mandalorian? - Bo-Katan
