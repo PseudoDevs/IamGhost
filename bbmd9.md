@@ -1,2 +1,5 @@
-Last updated: 2024-04-09 12:12:04
-Random Quote: So you do have a plan? Yeah, Mr. White! Yeah, science! - Jesse Pinkman
+Last updated: 2024-04-09 12:12:39
+Random Quote: Dina: "You're infuriating."
+Ellie: "Have you met you?"
+Dina: "You make me want to go back outside into that blizzard."
+Ellie: "No one is stopping you." - Joel Miller
