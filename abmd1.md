@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 11:27:01
-Random Quote: You want to rule?  This is what ruling is; lying on a bed of weeds, ripping them out by the root, one by one, before they strangle you in your sleep.  -  Cersei Lannister
+Last updated: 2024-04-09 11:27:34
+Random Quote: I don't want to die, I've only kissed one boy so far. - Missy
