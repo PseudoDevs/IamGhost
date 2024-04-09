@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 17:30:40
-Random Quote: Seriously? "Hello Kitty"? - Jesse Pinkman
+Last updated: 2024-04-09 17:31:13
+Random Quote: Catelyn would sooner Lord Umber had seen fit to stay sober, but telling the Greatjon not to drink was like telling him not to breathe for a few hours.  -  Catelyn Stark
