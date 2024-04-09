@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 17:25:02
-Random Quote: I'd invite you to stay as well, Gustavo, but I don't want my breakfast ruined by all the "ding, ding ding." - Don Eladio
+Last updated: 2024-04-09 17:25:35
+Random Quote: He climbed onto his throne over the corpses of children, though I will grant you he was no Joffrey.  -  Arianne Martell
