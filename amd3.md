@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 12:07:39
-Random Quote: Don’t take it so personally, okay? I don’t like most people. He’s in the vast majority. - Jonathan Byers
+Last updated: 2024-04-09 12:08:45
+Random Quote: You can tell a lot about a person from his biography. - Phil Dunphy
