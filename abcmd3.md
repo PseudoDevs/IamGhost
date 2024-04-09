@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 10:25:46
-Random Quote: You two suck at peddling meth. - Saul Goodman
+Last updated: 2024-04-09 10:26:23
+Random Quote: Help was not promised, lovely girl.  Only death.  -  Jaqen H'ghar
