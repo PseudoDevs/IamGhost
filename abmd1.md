@@ -1,2 +1,4 @@
-Last updated: 2024-04-09 11:30:22
-Random Quote: Why have average when you can have extraordinary? - Madelyn Stillwell
+Last updated: 2024-04-09 11:31:34
+Random Quote: Joel: "I need you to tell us where we are."
+Man: "If you got a map, why you lost?"
+Ellie: "Must've missed all the street signs in the enormous f-cking forest." - Ellie Williams

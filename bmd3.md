@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 11:30:21
-Random Quote: You gonna ruin my life? I f'ing promise you I can do that a lot better than you can! - Rue Bennett
+Last updated: 2024-04-09 11:31:34
+Random Quote: He climbed onto his throne over the corpses of children, though I will grant you he was no Joffrey.  -  Arianne Martell
