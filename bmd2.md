@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 10:18:22
-Random Quote: I'm a genetic goldmine! No family history of diabetes or heart disease, everyone has non-porous teeth and perfect eyesight. I had one schizophrenic uncle, but even he had perfect vision. Which was unfortunate for the people around the bell tower he was in. - Robin Scherbatsky
+Last updated: 2024-04-09 10:19:00
+Random Quote: I have never liked you, Cersei, but you were my own sister, so I never did you harm.  You've ended that.  I will hurt you for this.  I don't know how yet, but give me time.  A day will come when you think yourself safe and happy, and suddenly your joy will turn to ashes in your mouth, and you'll know the debt is paid.  -  Tyrion Lannister
