@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 11:57:46
-Random Quote: The wolf will prove the boy is who we say he is, should the Dreadfort attempt to deny him.  That is my price, Lord Davos.  Smuggle me back my liege lord, and I will take Stannis Baratheon as my king.  -  Wyman Manderly
+Last updated: 2024-04-09 11:58:19
+Random Quote: Sometimes distance is the only way to find peace. So you can heal your wound. - Berlin
