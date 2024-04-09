@@ -1,2 +1,3 @@
-Last updated: 2024-04-09 09:32:55
-Random Quote: February 13th. A magical night, where a ten has the self esteem of a four and the depraved enthusiasm of a two. - Barney Stinson
+Last updated: 2024-04-09 09:34:40
+Random Quote: Ted: "So this is what you guys do? You invite other couples over for dinner, to judge them and feel superior?"
+Lily: "Oh, grow up, Ted, that's why any couple invites anyone over ever!" - Lily Aldrin
