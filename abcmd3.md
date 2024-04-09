@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 10:32:44
-Random Quote: Dragons old and young, true and false, bright and dark.  And you.  A small man with a big shadow, snarling in the midst of it all.  -  Moqorro
+Last updated: 2024-04-09 10:33:15
+Random Quote: When you hit rock bottom, you still have a way to go until the abyss. - Tokyo
