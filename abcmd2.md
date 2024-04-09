@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 17:19:42
-Random Quote: Whisky's good proofing water. Tells you who's real and who isn't. - Thomas Shelby
+Last updated: 2024-04-09 17:20:20
+Random Quote: Someone has to protect this family from the man who protects this family. - Skyler White
