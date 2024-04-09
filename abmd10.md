@@ -1,4 +1,2 @@
-Last updated: 2024-04-09 11:24:59
-Random Quote: It's going to be legen...
-wait for it - and I hope you're not lactose-intolerant cause the second half of that word is
-...dary! - Barney Stinson
+Last updated: 2024-04-09 11:25:33
+Random Quote: They are children, Sansa thought.  They are silly little girls, even Elinor.  They've never seen a battle, they've never seen a man die, they know nothing.  Their dreams were full of songs and stories, the way hers had been before Joffrey cut her father's head off.  Sansa pitied them.  Sansa envied them.  -  Sansa Stark
