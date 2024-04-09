@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 17:25:35
-Random Quote: He climbed onto his throne over the corpses of children, though I will grant you he was no Joffrey.  -  Arianne Martell
+Last updated: 2024-04-09 17:26:09
+Random Quote: The less talk, the better. - Mike Ehrmantraut
