@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 12:08:35
-Random Quote: Tell the Crow's Eye he's afraid of kinslaying and he'll murder one of his own sons just to prove you wrong.  -  Asha Greyjoy
+Last updated: 2024-04-09 12:09:08
+Random Quote: Power tastes best when sweetened by courtesy; you had best learn that if you ever hope to rule.  -  Roose Bolton
