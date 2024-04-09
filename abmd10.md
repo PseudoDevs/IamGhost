@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 01:49:15
-Random Quote: It's probably his... I've spent years, training my boys to swim the other way. - Barney Stinson
+Last updated: 2024-04-09 01:49:49
+Random Quote: Until the Mountain crushed my brother's skull, no Dornishmen had died in this War of the Five Kings.  Tell me, Captain, is that my shame or my glory?  -  Doran Martell
