@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 11:18:57
-Random Quote: Oberyn was ever the viper.  Deadly, dangerous, unpredictable.  No man dared tread on him.  I was the grass.  Pleasant, complaisant, sweet - smelling, swaying with every breeze.  Who fears to walk upon the grass?  But it is the grass that hides the viper from his enemies and shelters him until he strikes. 
+Last updated: 2024-04-09 11:19:35
+Random Quote: Silver or lead. You decide. - Pablo Escobar
