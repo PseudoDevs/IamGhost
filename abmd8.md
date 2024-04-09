@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 10:17:43
-Random Quote: I can't tell the difference between my waking life and dreams. - Arthur Harrow
+Last updated: 2024-04-09 10:18:16
+Random Quote: Marshall: "The last time I lived this far from him, was my semester abroad."Lily: "You never did a semester abroad?"Marshall: "That's what I called it, when we lived on opposite sides of the campus." - Marshall Eriksen
