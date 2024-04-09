@@ -1,3 +1,2 @@
-Last updated: 2024-04-09 09:46:01
-Random Quote: Morty: "I don't like how meta this is getting, Rick."
-Rick: "Shut up, Morty, you're 14. You watch videos of people on YouTube reacting to fing YouTube. I'll be the judge of when we get too meta." - Rick Sanchez
+Last updated: 2024-04-09 09:46:37
+Random Quote: Bear Island knows no king save the King in the North, whose name is Stark.  -  Lyanna Mormont
