@@ -1,3 +1,2 @@
-Last updated: 2024-04-09 12:01:26
-Random Quote: Jessica: "I miss you."
-Morty: "You miss the old me. You miss someone that loved you so much, you never had to love him back." - Morty Smith
+Last updated: 2024-04-09 12:01:59
+Random Quote: We're cosigning birthday cards, we got toothbrushes at each other's places, foreplay's out the window. I'm in, I'm out, I'm sleeping - it's great. - Ted Mosby
