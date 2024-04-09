@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 01:42:28
-Random Quote: We can only die.  Why else do we don these black cloaks, but to die in defense of the realm?  -  Qhorin Halfhand
+Last updated: 2024-04-09 01:43:02
+Random Quote: Tarly, when I was a lad half your age, my lady mother told me that if I stood about with my mouth open, a weasel was like to mistake it for his lair and run down my throat.  If you have something to say, say it.  Otherwise, beware of weasels.  -  Jeor Mormont
