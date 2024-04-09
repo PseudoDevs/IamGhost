@@ -1,6 +1,2 @@
-Last updated: 2024-04-09 09:57:49
-Random Quote: Beth: "Do you want homeless people to have homes?"
-Jerry: "Yes."
-Beth: "Are you gonna build them?"
-Jerry: "No."
-Beth: "Then what good was the 'yes'?" - Beth Smith
+Last updated: 2024-04-09 09:58:23
+Random Quote: I'm KFC baby - you don't mess with the Colonel's recipe! - Barney Stinson
