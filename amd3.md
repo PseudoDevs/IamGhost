@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 10:58:10
-Random Quote: Most people are nothing but pawns on a chessboard led by an unknown hand - Noah
+Last updated: 2024-04-09 10:59:25
+Random Quote: Get the keys and remove those chains from him, before you make me rue the day I raped your mother.  -  Roose Bolton
