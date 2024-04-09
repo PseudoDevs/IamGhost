@@ -1,2 +1,4 @@
-Last updated: 2024-04-09 01:43:08
-Random Quote: Don't believe everything you hear. Our enemies want to separate us. But Mandalorians are stronger together. - Bo-Katan
+Last updated: 2024-04-09 01:44:15
+Random Quote: Ellie: "Can I have a gun?"
+Joel: "Absolutely not."
+Ellie: "Okay, Jesus. Fine. I'll have to throw a f-ckin' sandwich at them." - Ellie Williams
