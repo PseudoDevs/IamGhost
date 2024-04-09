@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 10:36:56
-Random Quote: And that, kids, is the kind of stupid thing you say, before you've met the person who hits the reset button on the world. Who makes everything new again. Who makes it seem ridiculous that you ever considered settling. - Ted Mosby
+Last updated: 2024-04-09 10:38:02
+Random Quote: War. Such a fascinating concept. A temporary salve for a permanent human flaw. - The Handler
