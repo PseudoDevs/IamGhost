@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 10:40:10
-Random Quote: Sometimes we have to let things go because we can't keep them forever. - Maura Franklin
+Last updated: 2024-04-09 10:40:43
+Random Quote: No one had expected the broken boy to live.  The gods could not kill Bran, no more than I could.  It was a strange thought, and stranger still to remember that Bran might still be alive.  -  Theon Greyjoy
