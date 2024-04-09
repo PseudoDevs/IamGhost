@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 11:56:23
-Random Quote: We're going to Buffalo... and I've seen women from there; the city's aptly named. - Barney Stinson
+Last updated: 2024-04-09 11:57:33
+Random Quote: They pray to trees and golden idols and goat - headed abominations.  False gods... just so, and for that sin I kill them all.  I spill their blood upon the sea and sow their screaming women with my seed.  Their little gods cannot stop me, so plainly they are false gods.  I am more devout than even you, Aeron.  Perhaps it should be you who kneels to me for blessing. 

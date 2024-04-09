@@ -1,2 +1,4 @@
-Last updated: 2024-04-09 11:56:23
-Random Quote: It all goes back and back.  To our mothers and fathers and theirs before them.  We are puppets dancing on the strings of those who came before us, and one day our own children will take up our strings and dance in our steads.  -  Tyrion Lannister
+Last updated: 2024-04-09 11:57:33
+Random Quote: Joel: "Long way or short way?"
+Tess: "I mean, it's the long way or the 'we're fuckin' dead' way."
+Ellie: "Well, I vote long way just based on that limited information." - Ellie Williams

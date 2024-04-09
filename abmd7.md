@@ -1,7 +1,2 @@
-Last updated: 2024-04-09 11:56:57
-Random Quote: "Nevermore was founded over 200 years ago to educate outcasts."
-"Students from all walks of life."
-"And death."
-"Our mission is to help each student master their unique abilities. So we offer a full range of extracurricular activities. From painting... to archery."
-"For centuries, notable alumni have roamed these majestic halls, from the master of macabre, Edgar Allan Poe, to personal heroes like Ignatius Itt, and of course, Morticia and Gomez Addams."
-"Our highly trained faculty educate our young outcasts on a wide range of subjects. Everything from werewolf reproduction to Gorgon anatomy." - Larissa Weems
+Last updated: 2024-04-09 11:57:33
+Random Quote: Ted: "Oh, screw 'The One'!"Barney: "What?"Ted: "Every date I've been on lately has been brutal. Last week, I went out with a girl whose favorite band was Glee. Plus, it's almost Valentine's Day and I'm alone without anything close to a girlfriend. So... all aboard!"Barney: "I have never been more proud of you." - Barney Stinson
