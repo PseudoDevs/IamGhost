@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 09:21:14
-Random Quote: Haley: "Dad, can you just please tell mom, that I can take a two hour break and go to a party?"Phil: "No Ma'am, I'm not stepping into that one. We're not playing 'good cop - mom'.'" - Phil Dunphy
+Last updated: 2024-04-09 09:21:46
+Random Quote: Robert wanted smiles and cheers, always, so he went where he found them, to his friends and his whores.  Robert wanted to be loved.  My brother Tyrion has the same disease.  -  Cersei Lannister
