@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 17:11:08
-Random Quote: What the hell is the matter with you? You tryin' out for the retard Olympics? - George 'Pornstache' Mendez
+Last updated: 2024-04-09 17:11:43
+Random Quote: I want you to allow yourself to aknowledge the pain that you so clearly feel. - Fabiola Torres
