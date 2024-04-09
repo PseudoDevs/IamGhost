@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 10:50:05
-Random Quote: My only aim is to take many lives. The more the better I feel. - 
+Last updated: 2024-04-09 10:50:38
+Random Quote: Will you explain to me how that was offside? No, I'm asking you, seriously. Explain offside to me! It makes no sense. - Rebecca Welton
