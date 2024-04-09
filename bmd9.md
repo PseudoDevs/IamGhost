@@ -1,2 +1,4 @@
-Last updated: 2024-04-09 17:35:24
-Random Quote: I hate kids. They don't drink, they haven't travelled... - Nicky Nichols
+Last updated: 2024-04-09 17:35:57
+Random Quote: Stark: "Red, green, blue... who paints a button blue?"
+Carter: "Don't tell me the American playboy needs help pushing buttons."
+Stark: "Hedy Lamarr and I spent a weekend together, but she wasn't teaching me German." - Howard Stark
