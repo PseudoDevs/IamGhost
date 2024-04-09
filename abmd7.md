@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 17:12:43
-Random Quote: Marshall: "Excuse me, miss. When you get a chance, could you bring over a hundred shots of tequila please?"Barney: "I'll have the same." - Marshall Eriksen
+Last updated: 2024-04-09 17:13:16
+Random Quote: Grief never gets any smaller, so you have to make yourself bigger around it. The best way to do that is to open up. Let people in. - Rendell Locke
