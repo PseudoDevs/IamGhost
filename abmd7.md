@@ -1,3 +1,2 @@
-Last updated: 2024-04-09 17:56:12
-Random Quote: Jerry: "Why Florida?"
-Cat: "Because they don't ask questions. They play Volleyball, they party and they have fun." - Rick and Morty
+Last updated: 2024-04-09 17:56:45
+Random Quote: There's kids playing hockey in the back. It's like you want us to make fun of you! - Barney Stinson
