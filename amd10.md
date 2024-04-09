@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 17:36:08
-Random Quote: The truth is always there, whether we see it or not - whether we choose to or not. The truth doesn't care about our needs or wants. It doesn't care about our governments, our ideologies, our religions. - Valery Legasov
+Last updated: 2024-04-09 17:37:25
+Random Quote: There is a tool for every task, and a task for every tool.  -  Tywin Lannister
