@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 11:24:24
-Random Quote: Time without purpose is a prison. - Jessica
+Last updated: 2024-04-09 11:25:35
+Random Quote: The men of Westeros are ever rushing.  What good is this, I ask you?  He who hurries through life hurries to his grave.  -  Salladhor Saan
