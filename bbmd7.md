@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 09:29:52
-Random Quote: I'm not him, I'm not the turncloak, he died at Winterfell.  My name is Reek.  It rhymes with freak.  -  Reek
+Last updated: 2024-04-09 09:30:26
+Random Quote: Even brave men blind themselves sometimes, when they are afraid to see.  -  Beric Dondarrian
