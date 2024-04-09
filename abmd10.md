@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 17:12:42
-Random Quote: If you had to fall into a woman's arms, my son, why couldn't they have been Margaery Tyrell's?  -  Catelyn Stark
+Last updated: 2024-04-09 17:13:15
+Random Quote: I know you mean well. I know you wanna protect me. You have. And when we're done, we'll go wherever you want. Tommy's, sheep ranch, the moon... I'll follow you anywhere you go. But there's no halfway with this. We finish what we started. - Ellie Williams
