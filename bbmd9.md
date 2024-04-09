@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 11:30:50
-Random Quote: Why the oldest son, and not the best - fitted?  The crown will suit me, as it never suited Robert and would not suit Stannis. 
+Last updated: 2024-04-09 11:31:23
+Random Quote: I act as if I don't care if people dislike me. Deep down, I actually enjoy it. - Wednesday Addams
