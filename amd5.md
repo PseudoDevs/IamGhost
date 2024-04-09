@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 10:12:50
-Random Quote: Crazy? I'll tell you what's crazy. 50-year-old high school chemistry teacher comes into my office. The guy is so broke, he can't pay his own mortgage. One year later, he's got a pile of cash as big as a Volkswagen. - Saul Goodman
+Last updated: 2024-04-09 10:13:24
+Random Quote: When the truth offends me, we lie and we lie until we can no longer remember it is even there. Every lie we tell incurs a debt to the truth. Sooner or later, that debt is paid. - Valery Legasov
