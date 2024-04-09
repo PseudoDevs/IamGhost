@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 11:17:40
-Random Quote: To have power does not mean that one can abuse the poor. - Pablo Escobar
+Last updated: 2024-04-09 11:18:57
+Random Quote: No one had expected the broken boy to live.  The gods could not kill Bran, no more than I could.  It was a strange thought, and stranger still to remember that Bran might still be alive.  -  Theon Greyjoy
