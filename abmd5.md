@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 17:59:28
-Random Quote: You don't parley when you're on the back foot. We'll strike a blow back first. - Thomas Shelby
+Last updated: 2024-04-09 18:00:41
+Random Quote: People are oblivious to reality. They only see what they want to see, when all they have to do is shift their perspective to see the full scope of things. - Yuk Je
