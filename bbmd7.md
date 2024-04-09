@@ -1,4 +1,2 @@
-Last updated: 2024-04-09 10:35:43
-Random Quote: Rick: "Guests are fans, Morty, which we are not. We'd like professional badges."
-"Do you have a crew?"
-Rick: "Yes. He's a getaway driver with Asperger's and my butt is a demolitions expert." - Rick Sanchez
+Last updated: 2024-04-09 10:36:16
+Random Quote: It is not a question of wanting.  The throne is mine, as Robert's heir.  That is law.  After me, it must pass to my daughter, unless Selyse should finally give me a son.  I am king.  Wants do not enter into it.  I have a duty to my daughter.  To the realm.  Even to Robert.  He loved me but little, I know, yet he was my brother.  The Lannister woman gave him horns and made a motley fool of him.  She may have murdered him as well, as she murdered Jon Arryn and Need Stark.  For such crimes there must be justice.  Starting with Cersei and her abominations.  But only starting.  I mean to scour that court clean.  As Robert should have done after the Trident.  -  Stannis Baratheon
