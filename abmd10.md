@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 10:09:56
-Random Quote: Robb Stark has won more battles in a year than the Lord of Highgarden had in twenty.  -  Tyrion Lannister
+Last updated: 2024-04-09 10:10:30
+Random Quote: The Lord of Light cherishes the innocent.  There is no sacrifice more precious.  From his king's blood and his untainted fire, a dragon shall be born.  -  Melisandre
