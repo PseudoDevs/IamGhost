@@ -1,6 +1,3 @@
-Last updated: 2024-04-09 10:11:40
-Random Quote: You lie to your husband all the time...
-"That shirt looks great on you."
-"I love your mom."
-"I never fantasize about Barney when we're doing it."
-Sound familiar, Pinocchio? - Barney Stinson
+Last updated: 2024-04-09 10:12:15
+Random Quote: Jerry: "Rick! Beth! You love me after all!"
+Rick: "Eh, I love her, she loves you. Those credits don't transfer." - Rick Sanchez
