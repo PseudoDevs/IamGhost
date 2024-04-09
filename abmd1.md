@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 11:26:28
-Random Quote: You can have all the intelligence in the world, but if nobody's there to act on it, what's it worth? Nothing. - Steve Murphy
+Last updated: 2024-04-09 11:27:01
+Random Quote: You want to rule?  This is what ruling is; lying on a bed of weeds, ripping them out by the root, one by one, before they strangle you in your sleep.  -  Cersei Lannister
