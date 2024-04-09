@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 12:03:54
-Random Quote: Lord Varys, sometimes I feel as though you are the best friend I have in King's Landing and sometimes I feel you are my worst enemy.  -  Tyrion Lannister
+Last updated: 2024-04-09 12:04:28
+Random Quote: Beware, Thor, for thy brother shall free himself from our father's wrath And then shall you know the vengeance of Loki! - Thor
