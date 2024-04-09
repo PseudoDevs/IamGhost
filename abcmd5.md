@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 12:13:15
-Random Quote: Usually after a sandwich, I feel paranoid, but I'm not. WHY AM I NOT BEING PARANOID?? - Marshall Eriksen
+Last updated: 2024-04-09 12:15:01
+Random Quote: A true man does what he will, not what he must.  -  Cersei Lannister
