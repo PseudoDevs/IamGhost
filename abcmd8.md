@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 17:53:42
-Random Quote: New Mexico. It's another state. I mean, it's like California, just less traffic. - Lalo Salamanca
+Last updated: 2024-04-09 17:54:15
+Random Quote: You grew up with actors.  You learned their craft and you learned it well.  I grew up with soldiers.  I learned how to die a long time ago.  -  Eddard Stark
