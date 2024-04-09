@@ -1,3 +1,2 @@
-Last updated: 2024-04-09 17:44:45
-Random Quote: Doctor: "Hypothetically speaking, every new father-to-be get nervous."
-Vision: "Well, I have nerves of steel, so there goes your theory, Mr. Doctor." - Vision
+Last updated: 2024-04-09 17:45:23
+Random Quote: When one chooses to walk the way of the Mandalore, you are both hunter and prey. How can one be a coward if one chooses this way of life? - The Armorer
