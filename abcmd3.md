@@ -1,3 +1,2 @@
-Last updated: 2024-04-09 10:45:42
-Random Quote: Jerry: "Space sperm? Sperm from... space?"
-Rick: "Very impressive verbal forensic work, Jerry." - Rick Sanchez
+Last updated: 2024-04-09 10:46:17
+Random Quote: This is Stannis Baratheon.  The man will fight to the bitter end and then some.  -  Tywin Lannister
