@@ -1,2 +1,5 @@
-Last updated: 2024-04-09 11:18:14
-Random Quote: Right down here, the ocean has a depth of almost 4,000 meters. Man has mapped out every corner of this world. Been to the farthest deserts, the top of the highest mountains. But what's down there is still a mystery. A hidden world in the shadows. - Eyk Larsen
+Last updated: 2024-04-09 11:18:47
+Random Quote: John Flynn: "Rogers, get in there!"
+Peggy Carter: "He can't."
+John Flynn: "Stark, you go in!"
+Howard Stark: "What? Are you crazy? I push the buttons. I'm the buttons guy." - Howard Stark
