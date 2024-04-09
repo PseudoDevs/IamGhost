@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 17:15:52
-Random Quote: There's no such thing as a bad idea, Morty. It's about execution. - Rick Sanchez
+Last updated: 2024-04-09 17:16:28
+Random Quote: Edric Storm, they call him.  He is said to be the very image of my brother.  If men were to see him, and then look again at Joffrey and Tommen, they could not help but wonder, I would think.  -  Stannis Baratheon
