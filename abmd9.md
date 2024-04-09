@@ -1,5 +1,2 @@
-Last updated: 2024-04-09 17:38:24
-Random Quote: Marshall: "What the hell happened?"
-Barney: "I said no questions asked."
-Marshall: "Star, clover, horseshoe... Barney, did you swallow real versions of all the Lucky Charms items?"
-Barney: "No questions asked! Now come on. Let's hit the bar. I'm buying. I just won 50 bucks from a little Irish guy on a dare." - Barney Stinson
+Last updated: 2024-04-09 17:38:57
+Random Quote: Ted: "I just thought he needed to listen to common sense and reasonable discourse."Robin: "Oh, God. Tell me those aren't the names of your fists."Ted: "They're my feet. I'm actually more of a kicker." - Ted Mosby
