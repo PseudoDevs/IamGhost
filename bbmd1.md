@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 12:04:28
-Random Quote: It is for my prince to command, for Hotah to obey.  -  Areo Hotah
+Last updated: 2024-04-09 12:05:03
+Random Quote: You give me one hour of phone-free bro time, during which we, and by we I mean you, get magnificently, mythologically drunk. I'm talking needing-subtitles-when-you-speak drunk. - Barney Stinson
