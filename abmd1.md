@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 17:18:58
-Random Quote: Treason is a noxious weed.  It must be torn up, root and stem and seed, lest new traitors sprout from every roadside.  -  Grand Maester Pycelle
+Last updated: 2024-04-09 17:19:32
+Random Quote: Bear Island knows no king save the King in the North, whose name is Stark.  -  Lyanna Mormont
