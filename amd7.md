@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 12:09:05
-Random Quote: All I know is, he's not in the same grade as me anymoreAnd I'm thrilled. - Missy
+Last updated: 2024-04-09 12:10:16
+Random Quote: New York! Home of the Mets, the Chrysler Building, those ladies from Sex and the City and now, the zombie apocalypse. If you can make it here, you can make it anywhere - but first, you have to not get eaten. - Spider-Man
