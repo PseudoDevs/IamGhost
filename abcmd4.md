@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 01:40:19
-Random Quote: It's not Aerys I rue, it's Robert... Why is it no one names Robert oathbreaker?  He tore the realm apart, yet I am the one with shit for honor.  -  Jaime Lannister
+Last updated: 2024-04-09 01:40:53
+Random Quote: Have you ever lost someone? It's like you're dying with them. They can move on. And you're stuck. - Eyk Larsen
