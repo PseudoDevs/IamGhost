@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 04:54:32
-Random Quote: You wanna know what line doesn't work on a harp player? "Hey baby, wanna pluck?" - Barney Stinson
+Last updated: 2024-04-09 09:20:03
+Random Quote: I prefer my history dead.  Dead history is writ in ink, the living sort in blood.  -  Rodrik Harlaw
