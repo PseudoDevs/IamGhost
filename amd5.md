@@ -1,3 +1,2 @@
-Last updated: 2024-04-09 12:16:26
-Random Quote: Aimee: "Did you know you need, like, sugar and flour and an oven to bake? And you don't shove it all in, you have to follow alle these rules."
-Maeve: "Yeah, it's called a recipe." - Maeve Wiley
+Last updated: 2024-04-09 12:16:59
+Random Quote: Talking to a woman that you have already had sex with, is like changing the oil on a rental car! - Barney Stinson
