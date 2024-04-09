@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 10:23:56
-Random Quote: Folly and desperation are ofttimes hard to tell apart.  -  Maester Luwin
+Last updated: 2024-04-09 10:25:47
+Random Quote: You think you're the only one he whispers secrets to?  He gives each of us just enough to convince us that we'd be helpless without him.  -  Cersei Lannister
