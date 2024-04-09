@@ -1,3 +1,2 @@
-Last updated: 2024-04-09 17:41:43
-Random Quote: What's in the box? What's in the box? WHAT'S IN THE BOX?
-Right? Brad pitt? Seven? - Robin Scherbatsky
+Last updated: 2024-04-09 17:42:55
+Random Quote: I dream of a tree sometimes.  A weirwood, like the one in the godswood.  It calls to me.  The wolf dreams are better.  I smell things, and sometimes I can taste the blood.  -  Bran Stark
