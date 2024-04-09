@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 17:35:26
-Random Quote: Why should I go running to my aunt as if I were a beggar?  My claim is better than her own.  Let her come to me... in Westeros.  -  Aegon Targaryen
+Last updated: 2024-04-09 17:36:02
+Random Quote: In my body, where the shame gland should be, there is a second awesome gland. True story! - Barney Stinson
