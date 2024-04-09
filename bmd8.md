@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 17:41:57
-Random Quote: I guess we all have things we try to hide. But they can't stay hidden forever. - Hannah Baker
+Last updated: 2024-04-09 17:43:04
+Random Quote: The Boltons have always been as cruel as they are cunning, but this one seems a beast in human skin.  -  Robett Glover
