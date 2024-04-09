@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 11:07:58
-Random Quote: You need to figure out what the fuck you want. - Nicky Nichols
+Last updated: 2024-04-09 11:08:34
+Random Quote: Wherein I suggested that you take your head and store it within yourself, in a fashion that, while space-saving, might limit its exposure to sunshine. - Marshall Eriksen
