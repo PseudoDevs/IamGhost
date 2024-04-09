@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 01:47:00
-Random Quote: This is New York City, don't get close to the neighbours. You nod at them politely in the hall, you call the cops if you haven't seen them in a while and you smell something funny and that's it! - Ted Mosby
+Last updated: 2024-04-09 01:47:34
+Random Quote: This is Stannis Baratheon.  The man will fight to the bitter end and then some.  -  Tywin Lannister
