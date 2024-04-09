@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 10:23:40
-Random Quote: A face took shape within the hearth.  Stannis?  she thought, for just a moment... but no, these were not his features.  A wooden face, corpse white.  Was this the enemy?  A thousand red eyes floated in the rising flames.  He sees me.  Beside him, a boy with a wolf's face threw back his head and howled.  -  Melisandre
+Last updated: 2024-04-09 10:24:13
+Random Quote: Ted, every little boy wants to grow up to nail the doctor, or the lawyer. Somebody's gotta nail the receptionist. - Barney Stinson
