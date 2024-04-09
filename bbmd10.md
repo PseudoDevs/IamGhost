@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 10:37:55
-Random Quote: Folly and desperation are ofttimes hard to tell apart.  -  Maester Luwin
+Last updated: 2024-04-09 10:39:43
+Random Quote: A craven's knife can slay a queen as easily as a hero's.  -  Xaro Xhoan Daxos
