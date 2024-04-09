@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 17:22:54
-Random Quote: Kids, Robin and Barney had recently shared an awkward moment. After that, they did what any two mature adults would do: They pretended it never happened. - Ted Mosby
+Last updated: 2024-04-09 17:24:09
+Random Quote: Why is it always the innocents who suffer most, when you high lords play your game of thrones?  -  Varys

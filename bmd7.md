@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 17:22:55
-Random Quote: If I now change my past, I will change who I am right now - The Stranger
+Last updated: 2024-04-09 17:24:09
+Random Quote: Make it easier for those whose vote you can count on. Make it harder for those you can't. That's how you rig an election without leaving a lick of evidence. - Walt Breslin
