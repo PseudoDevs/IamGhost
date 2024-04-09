@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 17:54:38
-Random Quote: People are making apocalypse jokes like there's no tomorrow. - Will Livingston
+Last updated: 2024-04-09 17:55:14
+Random Quote: When the truth offends me, we lie and we lie until we can no longer remember it is even there. Every lie we tell incurs a debt to the truth. Sooner or later, that debt is paid. - Valery Legasov
