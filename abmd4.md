@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 04:53:16
-Random Quote: The pain is his vessel, desire his compass. It is all that man is capable of. - 
+Last updated: 2024-04-09 04:53:54
+Random Quote: Silver or lead. You decide. - Pablo Escobar
