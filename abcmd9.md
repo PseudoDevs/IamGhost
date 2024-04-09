@@ -1,6 +1,2 @@
-Last updated: 2024-04-09 17:43:31
-Random Quote: You lie to your husband all the time...
-"That shirt looks great on you."
-"I love your mom."
-"I never fantasize about Barney when we're doing it."
-Sound familiar, Pinocchio? - Barney Stinson
+Last updated: 2024-04-09 17:44:44
+Random Quote: You're not gonna believe this because it usually never happens, but I made a mistake! - Rick Sanchez
