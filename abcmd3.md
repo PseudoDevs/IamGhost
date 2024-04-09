@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 17:57:03
-Random Quote: We've discussed this, mornings are for coffee and contemplation. - Jim Hopper
+Last updated: 2024-04-09 17:58:17
+Random Quote: His blood is bad.  He needs to be leeched.  The leeches suck away the bad blood, all the rage and pain.  No man can think so full of anger.  Ramsay, though... his tainted blood would poison even leeches, I fear.  -  Roose Bolton
