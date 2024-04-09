@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 17:52:28
-Random Quote: I like dogs better than knights... A hound will die for you, but never lie to you.  And he'll look you straight in the face.  -  Sandor Clegane
+Last updated: 2024-04-09 17:53:01
+Random Quote: Real love is when you can't exist without someone, when you'd rather die than be apart. And the whole world goes dark and nothing else matters but the person standing in front of you. - Rue Bennett
