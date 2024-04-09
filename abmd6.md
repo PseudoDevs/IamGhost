@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 09:31:09
-Random Quote: I can't see myself living in CaliforniaI don't trust their carefree lifestyle. - Sheldon
+Last updated: 2024-04-09 09:31:43
+Random Quote: It all goes back and back.  To our mothers and fathers and theirs before them.  We are puppets dancing on the strings of those who came before us, and one day our own children will take up our strings and dance in our steads.  -  Tyrion Lannister
