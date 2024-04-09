@@ -1,3 +1,2 @@
-Last updated: 2024-04-09 17:47:56
-Random Quote: Tommy: "I'll have some men watch her house 'til the danger passes."
-Polly: "'Til the danger passes. That'll be the bloody day." - Polly Gray
+Last updated: 2024-04-09 17:48:33
+Random Quote: You don't get to tell me what to look at, I've seen your Pornhub account! Also, who makes a Pornhub account? - Rick Sanchez
