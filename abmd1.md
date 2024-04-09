@@ -1,2 +1,3 @@
-Last updated: 2024-04-09 11:38:02
-Random Quote: So, what do you want to do tonight? Drink ourselves blind, set a car on fire? Oh, watch a movie that doesn't start with a desk lamp jumping on top of a capital "I"? - Lily Aldrin
+Last updated: 2024-04-09 11:38:35
+Random Quote: Morty: "I don't like how meta this is getting, Rick."
+Rick: "Shut up, Morty, you're 14. You watch videos of people on YouTube reacting to fing YouTube. I'll be the judge of when we get too meta." - Rick Sanchez
