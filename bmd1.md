@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 17:07:39
-Random Quote: I don't know anything about norse gods, but I do know how to bring the thunder. - Thor
+Last updated: 2024-04-09 17:08:13
+Random Quote: That's not a law, just a sword.  Happens I got one too.  -  Yoren of the Night's Watch
