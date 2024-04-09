@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 11:05:32
-Random Quote: Whenever I feel good I think it will last forever. But it's not like that. - Rue Bennett
+Last updated: 2024-04-09 11:06:08
+Random Quote: Lily: "A swordfight? On Monday I'm gonna have to tell my kindergarten class, who I teach not to run with scissors, that my fiancé ran me through with a freakin' broadsword."Marshall: "Well... just to be fair, it didn't go all the way through."Lily: "I'm sorry, is this a discussion of the degree to which you stabbed me?" - Lily Aldrin
