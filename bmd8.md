@@ -1,3 +1,2 @@
-Last updated: 2024-04-09 09:29:17
-Random Quote: Wyatt Langmore: "This job's my old man's idea. Something about 'calluses and character'."
-Charlotte Byrde: "Yeah, well, you're blowing leaves, not hiding Anne Frank." - Charlotte Byrde
+Last updated: 2024-04-09 09:29:52
+Random Quote: Listen, you have a choice, okay? You can pay up now or bleed to death in court. - Saul Goodman
