@@ -1,2 +1,5 @@
-Last updated: 2024-04-09 11:31:36
-Random Quote: Edd, fetch me a block.  -  Jon Snow
+Last updated: 2024-04-09 11:32:12
+Random Quote: Barney: "You can't spell 'game' without 'me' and 'me' has the best game."
+Ted: "Yeah well, I got so much game, I'm Cornish game hen."
+Barney: "Oh, yeah? I'm the New York State gaming commissioner."
+Ted: "Well, I'm The Game. Well-crafted, keep-you-guessing thriller starring Michael Douglas and Sean Penn." - Ted Mosby
