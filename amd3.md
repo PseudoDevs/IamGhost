@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 10:12:30
-Random Quote: Some of you cared. None of you cared enough. - Hannah Baker
+Last updated: 2024-04-09 10:13:03
+Random Quote: All living things, from complex mammals to single-celled organisms, instinctively respond to danger. Expose a bacterium to a toxic chemical and it will flee, or deploy some other defense mechanism. We're very much the same. When we encounter danger, our hearts start pounding. Our palms start to sweat. These are the signs of the physical and emotional state we call 'fear.' - Scott Clarke
