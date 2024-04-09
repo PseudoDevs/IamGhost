@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 17:38:53
-Random Quote: Free folk don't follow names, or little cloth animals sewn on a tunic.  They won't dance for coins, they don't care how you style yourself or what that chain of office means or who your grandsire was.  They follow strength.  They follow the man.  -  Mance Rayder
+Last updated: 2024-04-09 17:39:26
+Random Quote: Stella hated Star Wars! She lied to you. Search your feelings, Ted. You know it to be true! - Marshall Eriksen
