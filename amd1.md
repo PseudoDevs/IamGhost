@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 09:27:45
-Random Quote: Never fear the darkness, Bran.  The strongest trees are rooted in the dark places of the earth.  Darkness will be your cloak, your shield, your mother's milk.  Darkness will make you strong.  -  Bloodraven
+Last updated: 2024-04-09 09:28:18
+Random Quote: I am not in danger, Skyler. I AM the danger! - Walter White
