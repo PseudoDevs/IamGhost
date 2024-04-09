@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 17:18:25
-Random Quote: You want to rule?  This is what ruling is; lying on a bed of weeds, ripping them out by the root, one by one, before they strangle you in your sleep.  -  Cersei Lannister
+Last updated: 2024-04-09 17:19:03
+Random Quote: There are so many great things to do with the human mouth, why waste it on talking? - Barney Stinson
