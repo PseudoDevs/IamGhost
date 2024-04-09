@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 17:43:33
-Random Quote: People make fun of the guy who stays at home every night doing nothing, but the truth is that guy is a genius. - Ted Mosby
+Last updated: 2024-04-09 17:44:45
+Random Quote: Among all the games that kids played back then, it was the most physical and violent. - Seong Gi-hun

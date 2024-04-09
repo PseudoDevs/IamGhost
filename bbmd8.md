@@ -1,3 +1,2 @@
-Last updated: 2024-04-09 17:42:55
-Random Quote: "Crutch down and bend over a little bit."
-Barney: "Wow, It took five shots of tequila to have you in that position." - Barney Stinson
+Last updated: 2024-04-09 17:44:45
+Random Quote: There are things out there that our little minds will never comprehend - 
