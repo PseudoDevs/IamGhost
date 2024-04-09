@@ -1,3 +1,3 @@
-Last updated: 2024-04-09 11:58:45
-Random Quote: Enid Sinclair: "Want to take a stab at being social?"
-Wednesday: "I do like stabbing. The social part, not so much." - Wednesday Addams
+Last updated: 2024-04-09 11:59:18
+Random Quote: Weems: "No doubt you'll find something that tickles your fancy."
+Wednesday: "The last person who tickled me lost a finger." - Wednesday Addams
