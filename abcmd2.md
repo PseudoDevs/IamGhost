@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 17:46:40
-Random Quote: I'm the Homelander. And I can do whatever the f-ck I want. - Homelander
+Last updated: 2024-04-09 17:47:55
+Random Quote: If you die before you say her name, Set, I will hunt you through the seven hells.  -  Oberyn Martell
