@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 17:46:40
-Random Quote: Yeah, bitch! Magnets! - Jesse Pinkman
+Last updated: 2024-04-09 17:47:18
+Random Quote: Birds are lost, messages stolen or sold... there are things I might tell you of that eunuch that would chill your blood...  -  Grand Maester Pycelle
