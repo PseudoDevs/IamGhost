@@ -1,2 +1,3 @@
-Last updated: 2024-04-09 10:53:54
-Random Quote: I know the poison that my father used, and there is none slower or more agonizing.  Soon we may hear the Mountain screaming, even here in Sunspear.  -  Tyene Sand
+Last updated: 2024-04-09 10:54:30
+Random Quote: Layla: "Summon the suit!"
+Steven: "Summon the soup? What are you saying?" - Arthur Harrow
