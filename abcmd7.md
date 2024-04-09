@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 17:16:39
-Random Quote: When you get too close to the sun, your dreams may melt away. - Steve Murphy
+Last updated: 2024-04-09 17:17:12
+Random Quote: Death, he knew, but slow.  I still have time.  A year.  Two years.  Five.  Some stone men live for ten.  Time enough to cross the sea, to see Griffin's Roost again.  To end the Usurper's line for good and all, and put Rhaegar's son upon the Iron Throne.  Then Lord Jon Connington could die content.  -  Jon Connington
