@@ -1,2 +1,3 @@
-Last updated: 2024-04-09 11:24:56
-Random Quote: Because were baseball, strippers and guns can't help, the only thing that can really heal a broken heart, is time. - Ted Mosby
+Last updated: 2024-04-09 11:25:29
+Random Quote: Sal: "Does Lily have any other plates? I don't let Sammy eat off this plastic."
+Pepper: "How does she breastfeed him if she doesn't let him near plastic?" - Pepper Saltzman
