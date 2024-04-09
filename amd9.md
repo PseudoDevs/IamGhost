@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 09:29:30
-Random Quote: .OkaySomebody's got to teach this kid to swear, it's embarrassing. - Meemaw
+Last updated: 2024-04-09 09:30:03
+Random Quote: I am not in danger, Skyler. I AM the danger! - Walter White
