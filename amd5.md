@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 11:41:07
-Random Quote: A guy opens his door and gets shot and you think that of me? No. I am the one who knocks! - Walter White
+Last updated: 2024-04-09 11:41:39
+Random Quote: That's not a law, just a sword.  Happens I got one too.  -  Yoren of the Night's Watch
