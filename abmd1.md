@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 10:46:10
-Random Quote: It is R'hllor who brings you back, my lord.  The Lord of Light.  I am only his instrument.  -  Thoros of Myr
+Last updated: 2024-04-09 10:46:43
+Random Quote: The only difference between us is, when I made bad decisions in life, I didn't get caught. - Susan Fischer
