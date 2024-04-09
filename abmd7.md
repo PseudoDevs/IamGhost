@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 11:13:25
-Random Quote: Marshall: "You're really telling me, that when you watch 'The Karate Kid', you don't root for Daniel-san?"Barney: "Nope."Ted: "Who do you root for in 'Die Hard'?"Barney: "Hans Gruber. Charming international bandit. At the end, he died hard. He's the title character."Lily: "Okay, 'The Breakfast Club'?"Barney: "The teacher running detention. He's the only guy in the whole movie wearing a suit."Robin: "I got one. 'Terminator'."Barney: "What's the name of the movie, Robin? Who among us didn't shed a tear when his little red eye went out at the end, and he didn't get to kill these people?" - Barney Stinson
+Last updated: 2024-04-09 11:14:00
+Random Quote: Ted: "I made a bid online, I won the auction the next day and I got approval. I just finalized the paperwork."Barney: "And was the Blair Witch easy to deal with, or did she haggle over the closing costs?" - Barney Stinson

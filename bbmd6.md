@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 11:12:16
-Random Quote: You don't get to blame your problems on anyone but yourself. - Allison Hargreeves
+Last updated: 2024-04-09 11:14:01
+Random Quote: Here's what's gonna happen. One day you're gonna wake up, eat your breakfast, brush your teeth, go about your business. And sooner or later, you're gonna realize you haven't thought about it. None of it. And that's the moment you realize you can forget. When you know that's possible, it all gets easier. - Mike Ehrmantraut
