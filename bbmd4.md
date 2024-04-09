@@ -1,3 +1,2 @@
-Last updated: 2024-04-09 11:40:58
-Random Quote: "I thought Mandalorians were honorable."
-Koska Reeves: "We are, kid. All it takes is a few credits." - Din Djarin
+Last updated: 2024-04-09 11:41:31
+Random Quote: Sometimes two people in the universe who aren't meant for each other find each other. - Cal Jacobs
