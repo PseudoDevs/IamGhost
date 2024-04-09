@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 04:54:32
-Random Quote: The truth is, our weakness is the same as anyone’s. It’s people. The people we care about. So I say, cut them loose. For your good and for theirs. That way you’re really bulletproof. - Maeve
+Last updated: 2024-04-09 09:20:02
+Random Quote: He would have killed me but for Howland Reed.  -  Eddard Stark
