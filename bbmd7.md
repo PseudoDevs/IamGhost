@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 17:18:41
-Random Quote: Barney: "How's the single life?"Ted: "I wouldn't know. After this whole Robin thing, I'm laying low."Barney: "Laying low as in sleeping with a really short chick? You guys doing thirty-nine?" - Barney Stinson
+Last updated: 2024-04-09 17:19:14
+Random Quote: In the end, we will all get just what we deserve. - 
