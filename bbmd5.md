@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 17:48:45
-Random Quote: The end of a rope has been this man's destiny since the night he was born. - Chester Campbell
+Last updated: 2024-04-09 17:49:18
+Random Quote: You're wrong.  Need Stark was my gaoler, but my blood is still salt and iron.  -  Theon Greyjoy
