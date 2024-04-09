@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 10:03:01
-Random Quote: Robin: "This locket was my grandma's, she kept it hidden in her butt all through world war II."Lily: "What? Where was she?"Robin: "Winnipeg. Come on, Lily, that is a joke." - Robin Scherbatsky
+Last updated: 2024-04-09 10:03:39
+Random Quote: How do you keep a girl from becoming your girlfriend?1. Never get them wet. In other words, don't let her take a shower at your place.2. Keep them away from sunlight - i. e. don't ever see them during the day.3. Never feed them after midnight. Meaning she doesn't sleep over and you don't have breakfast. - Barney Stinson
