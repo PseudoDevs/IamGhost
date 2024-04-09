@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 10:39:15
-Random Quote: Lily: "I'm not paying for room service the hooker ordered."Barney: "I've been there." - Barney Stinson
+Last updated: 2024-04-09 10:39:48
+Random Quote: I feel like her sobriety is completely dependent on how available I am to her. - Jules Vaughn
