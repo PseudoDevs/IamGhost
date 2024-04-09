@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 10:49:47
-Random Quote: Ted: "Oh, screw 'The One'!"Barney: "What?"Ted: "Every date I've been on lately has been brutal. Last week, I went out with a girl whose favorite band was Glee. Plus, it's almost Valentine's Day and I'm alone without anything close to a girlfriend. So... all aboard!"Barney: "I have never been more proud of you." - Barney Stinson
+Last updated: 2024-04-09 10:50:22
+Random Quote: Lily Aldrin: "Guys, The Captain just made me a very interesting offer."Barney Stinson: "Finally we get around to the real reason he hired you. Just promise you film it, and please use a tripod. There's nothing artistic about shaky-cam, it just looks sloppy." - Barney Stinson
