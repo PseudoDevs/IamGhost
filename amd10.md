@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 17:06:25
-Random Quote: Death, he knew, but slow.  I still have time.  A year.  Two years.  Five.  Some stone men live for ten.  Time enough to cross the sea, to see Griffin's Roost again.  To end the Usurper's line for good and all, and put Rhaegar's son upon the Iron Throne.  Then Lord Jon Connington could die content.  -  Jon Connington
+Last updated: 2024-04-09 17:07:01
+Random Quote: Family members help each other, no questions asked. Because it makes you happy and your life depends on it. You have your plan, I know. Well, I have one, too. You’ve taught me that we help each other. That’s who we are. - Nairobi
