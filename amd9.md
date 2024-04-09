@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 17:13:44
-Random Quote: Grief never gets any smaller, so you have to make yourself bigger around it. The best way to do that is to open up. Let people in. - Rendell Locke
+Last updated: 2024-04-09 17:14:51
+Random Quote: There are no men like me.  There's only me.  -  Jaime Lannister
