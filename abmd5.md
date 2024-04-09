@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 18:00:41
-Random Quote: People are oblivious to reality. They only see what they want to see, when all they have to do is shift their perspective to see the full scope of things. - Yuk Je
+Last updated: 2024-04-09 18:01:17
+Random Quote: You will never walk again... but you will fly.  -  Bloodraven
