@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 17:14:06
-Random Quote: I'm not in the meth business. I'm in the empire business. - Walter White
+Last updated: 2024-04-09 17:15:16
+Random Quote: If there was any shame in a dude getting a pedicure I don't think there would've been a feature about it in Details magazine. - Barney Stinson
