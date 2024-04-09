@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 01:47:58
-Random Quote: Did the boy charm you?  He has that gift.  He got it from his father, with the blood.  He knows he is a king's son, but chooses to forget that he is bastard - born. 
+Last updated: 2024-04-09 01:49:04
+Random Quote: That everything’s repeating That this has all happened before Like a massive déjĂ  Vu - 
