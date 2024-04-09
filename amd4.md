@@ -1,5 +1,2 @@
-Last updated: 2024-04-09 04:54:26
-Random Quote: Dina: "You're infuriating."
-Ellie: "Have you met you?"
-Dina: "You make me want to go back outside into that blizzard."
-Ellie: "No one is stopping you." - Joel Miller
+Last updated: 2024-04-09 09:19:57
+Random Quote: When I get sad, I stop being sad and be awesome instead. True Story. - Barney Stinson
