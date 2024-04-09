@@ -1,2 +1,3 @@
-Last updated: 2024-04-09 09:48:41
-Random Quote: It's "The Little Engine with Wood", "The Whore-ient Express", "The Long Island Tail Road"! - Barney Stinson
+Last updated: 2024-04-09 09:49:14
+Random Quote: "Everybody else can see Ben, right?"
+"Yeah, and he's a complete d-ckhead." - Allison Hargreeves
