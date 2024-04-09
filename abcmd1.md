@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 11:09:50
-Random Quote: Your innocence may be as plain as the scar on your face, but it will not save you.  No more than your father will.  But I might.  Not as your judge.  As your champion.  -  Oberyn Martell
+Last updated: 2024-04-09 11:11:02
+Random Quote: Fear cuts deeper than swords.  -  Syrio Forel
