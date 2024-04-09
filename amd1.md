@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 11:55:13
-Random Quote: Camping is just being homeless... without the change. - Summer Smith
+Last updated: 2024-04-09 11:56:23
+Random Quote: Spare me your empty little compliments, girl... and your ser's.  I am no knight.  I spit on them and their vows.  My brother is a knight.  -  Sandor Clegane
