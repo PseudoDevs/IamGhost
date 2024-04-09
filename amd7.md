@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 01:49:07
-Random Quote: Marshall: "Lily, you snooped through her stuff?"Lily: "No, it's like the first thing you see when you jimmy open her desk-drawer with the letter opener her grandfather left her, according to her diary." - Lily Aldrin
+Last updated: 2024-04-09 01:49:40
+Random Quote: Because they are the knights of summer, and winter is coming.  -  Catelyn Stark
