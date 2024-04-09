@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 11:49:56
-Random Quote: I believe that in this universe, as in every other, hope never dies. As long as someone keeps their good eye on the bigger picture. - Nick Fury
+Last updated: 2024-04-09 11:50:31
+Random Quote: You think you're the only one he whispers secrets to?  He gives each of us just enough to convince us that we'd be helpless without him.  -  Cersei Lannister
