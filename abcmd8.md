@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 09:30:09
-Random Quote: Bear Island knows no king save the King in the North, whose name is Stark.  -  Lyanna Mormont
+Last updated: 2024-04-09 09:30:42
+Random Quote: Out there, I don't stand a chance. I do in here. - Jang Deok-su
