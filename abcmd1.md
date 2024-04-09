@@ -1,3 +1,2 @@
-Last updated: 2024-04-09 17:59:22
-Random Quote: Jang Deok-su: "Tell me what you're good at?"
-Han Mi-nyeo: "Everything, except the things I can't do." - Oh Il-nam
+Last updated: 2024-04-09 17:59:55
+Random Quote: Let them keep believing I'm dead. So much the better. It was the chicken man. That coward sat up there in the north while his paramilitaries came into my home. - Lalo Salamanca
