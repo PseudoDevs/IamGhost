@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 10:07:24
-Random Quote: When it comes to locker rooms, I like 'em just like my mother's bathing suits: I only wanna see 'em in one piece. - Jim Hopper
+Last updated: 2024-04-09 10:08:38
+Random Quote: The brain drives our thoughts, our behavior. It holds all of the secrets of the universe. There's a whole hidden world inside each of us which only needs to be deciphered. - Maura Franklin
