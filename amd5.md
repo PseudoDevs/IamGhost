@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 09:27:13
-Random Quote: In the end, one cares about many things, and we should not give so much importance to things. - Professor
+Last updated: 2024-04-09 09:27:46
+Random Quote: Bronn was no knight, that was true.  Bronn was a battle - hardened killer. 
