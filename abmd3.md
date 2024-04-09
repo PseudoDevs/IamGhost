@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 01:39:40
-Random Quote: We all have things we keep hidden. Sometimes, keeping secrets is how you survive. Because in High School, one rumor, one picture, one incident, can define you forever. - Hannah Baker
+Last updated: 2024-04-09 01:40:16
+Random Quote: You're like Hitler! But even Hitler cared about Germany or something. - Morty Smith
