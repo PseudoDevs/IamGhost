@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 17:49:11
-Random Quote: A craven's knife can slay a queen as easily as a hero's.  -  Xaro Xhoan Daxos
+Last updated: 2024-04-09 17:49:48
+Random Quote: A lie is just a great story that someone ruined with the truth. - Barney Stinson
