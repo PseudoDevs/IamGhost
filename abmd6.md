@@ -1,3 +1,2 @@
-Last updated: 2024-04-09 09:30:36
-Random Quote: Lily: "Swear on the lifes of your unborn boy and girl!"
-Ted: "I swear... on Luke and Leia!" - Ted Mosby
+Last updated: 2024-04-09 09:31:09
+Random Quote: I can't see myself living in CaliforniaI don't trust their carefree lifestyle. - Sheldon
