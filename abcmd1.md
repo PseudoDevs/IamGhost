@@ -1,2 +1,3 @@
-Last updated: 2024-04-09 09:51:18
-Random Quote: Did Need Stark dress you like that?  Was it his pleasure to garb you in velvets and silks and make you his own sweet daughter?  -  Balon Greyjoy
+Last updated: 2024-04-09 09:51:51
+Random Quote: Wednesday: "So you were guided by latent chivalry, the tool of the patriarchy, to extract my undying gratitude?"
+Xavier: "Most people just say 'thank you'." - Xavier Thorpe
