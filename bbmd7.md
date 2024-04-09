@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 17:22:15
-Random Quote: The sun is about to set, and we'll be leaving soon. When we return, we're coming in hot. - Din Djarin
+Last updated: 2024-04-09 17:22:53
+Random Quote: You think you're the only one he whispers secrets to?  He gives each of us just enough to convince us that we'd be helpless without him.  -  Cersei Lannister

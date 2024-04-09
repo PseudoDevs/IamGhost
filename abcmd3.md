@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 17:21:36
-Random Quote: Some people wander around their whole lives looking for a way out, but there’s only one path and it leads you ever deeper. - 
+Last updated: 2024-04-09 17:22:53
+Random Quote: Any man who steps between a father and his vengeance asks for death.  -  Rickard Karstark
