@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 10:48:38
-Random Quote: If I got serious with Nora, it would be like if Mother Teresa focused all her attention on one really hot orphan. With great penis comes great responsibility. - Barney Stinson
+Last updated: 2024-04-09 10:49:13
+Random Quote: A ruler who hides behind paid executioners soon forgets what death is.  -  Eddard Stark

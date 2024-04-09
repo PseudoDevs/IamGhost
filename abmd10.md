@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 10:48:03
-Random Quote: Pennsatucky: "It weren't my fault. I was just doing as the Spirit commanded."Pussey: "Fuck are you? Joan of Arc?"Pennsatucky: "No, I'm from Waynesboro, my name is Tiffany..." - Tiffany 'Pennsatucky' Doggett
+Last updated: 2024-04-09 10:49:14
+Random Quote: Eighty-six years. But with good behavior... who knows? - Saul Goodman
