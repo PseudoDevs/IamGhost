@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 10:06:28
-Random Quote: Don't go chasing waterfalls. Stick to the rivers and the lakes that you're used to. - Klaus Hargreeves
+Last updated: 2024-04-09 10:07:01
+Random Quote: People are oblivious to reality. They only see what they want to see, when all they have to do is shift their perspective to see the full scope of things. - Yuk Je
