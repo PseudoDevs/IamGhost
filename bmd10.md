@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 17:30:25
-Random Quote: No, only a boy who dreams.  The greenseers were more than that.  They were wargs as well, as you are, and the greatest of them could wear the skins of any beast that flies or swims or crawls, and could look through the eyes of the weirwoods as well, and see the truth that lies beneath the world.  -  Jojen Reed
+Last updated: 2024-04-09 17:31:01
+Random Quote: Space. Time. Reality. It's more than a linear path. It's a prism of endless possibility. - The Watcher
