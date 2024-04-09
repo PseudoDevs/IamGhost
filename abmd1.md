@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 17:19:32
-Random Quote: Bear Island knows no king save the King in the North, whose name is Stark.  -  Lyanna Mormont
+Last updated: 2024-04-09 17:20:05
+Random Quote: Did you think your dad was the only Mandalorian? - Bo-Katan
