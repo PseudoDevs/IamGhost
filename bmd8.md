@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 11:15:13
-Random Quote: Didn't you notice? Those jerks with masks came in and removed the beds of the people who died. Make on mistake out there, and yours is next. - Jang Deok-su
+Last updated: 2024-04-09 11:15:50
+Random Quote: Is she worth the pain? A man does not suffer like this for his own glory. There is a fine line between devotion and delusion. Love can break more than your heart. It can shatter your mind. - O-Bengh
