@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 10:59:22
-Random Quote: Marshall: "Excuse me, miss. When you get a chance, could you bring over a hundred shots of tequila please?"Barney: "I'll have the same." - Marshall Eriksen
+Last updated: 2024-04-09 10:59:57
+Random Quote: If you don’t know who I am, then maybe your best course would be to tread lightly. - Walter White
