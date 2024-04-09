@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 10:54:31
-Random Quote: Ties and no playoffs? Why do you even do this? - Jim Hopper
+Last updated: 2024-04-09 10:55:07
+Random Quote: In the game of thrones, even the humblest pieces have wills of their own.  Sometimes they refuse to make the moves you've planned for them.  Mark that well, Alayne.  It's a lesson that Cersei Lannister still has yet to learn.  -  Petyr Baelish
