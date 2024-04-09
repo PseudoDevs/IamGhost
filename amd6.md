@@ -1,2 +1,3 @@
-Last updated: 2024-04-09 17:45:28
-Random Quote: I love hospitals. If I could spend the rest of my life in a hospital, I would. Because when you're in a hospital, you have zero responsibilities. - Rue Bennett
+Last updated: 2024-04-09 17:46:02
+Random Quote: Summer: "I think it's in our best interest to work as a team."
+Morty: "Yeah, most people would call that 'family'." - Morty Smith
