@@ -1,2 +1,4 @@
-Last updated: 2024-04-09 01:48:11
-Random Quote: Mrs. Buckminster was a spoonful of sugar. But so far, everyone we can afford on this website HeyNannyNanny.com is "Scary Poppins". - Lily Aldrin
+Last updated: 2024-04-09 01:48:45
+Random Quote: Marshall: "Except the flames of Lucifer keep singein our back bumper as we drive through this hellish, cheese-infected wasteland."
+Lily: "Wisconsin?"
+Marshall: "Wisconsin!" - Marshall Eriksen

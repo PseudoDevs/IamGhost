@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 01:48:11
-Random Quote: You know how sometimes you'll meet a girl and there'll be that one bewitching little detail that'll make you fall in love with her instantly? You know, a little freckle on the nose, the lilt of her laugh, the way she pronounces a certain word or phrase... - Ted Mosby
+Last updated: 2024-04-09 01:48:45
+Random Quote: My only aim is to take many lives. The more the better I feel. - 
