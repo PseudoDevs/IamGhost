@@ -1,2 +1,4 @@
-Last updated: 2024-04-09 01:42:30
-Random Quote: Never fear the darkness, Bran.  The strongest trees are rooted in the dark places of the earth.  Darkness will be your cloak, your shield, your mother's milk.  Darkness will make you strong.  -  Bloodraven
+Last updated: 2024-04-09 01:43:04
+Random Quote: Marshall: "Except the flames of Lucifer keep singein our back bumper as we drive through this hellish, cheese-infected wasteland."
+Lily: "Wisconsin?"
+Marshall: "Wisconsin!" - Marshall Eriksen

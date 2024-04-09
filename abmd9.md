@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 01:42:30
-Random Quote: I am the storm, my lord, the first storm, and the last.  -  Euron Greyjoy
+Last updated: 2024-04-09 01:43:04
+Random Quote: I will kill your wife, I will kill your son, I will kill your infant daughter. - Gustavo Fring
