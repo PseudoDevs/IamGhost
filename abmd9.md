@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 09:30:37
-Random Quote: It's okay to lose yourself in this, just as long as you can find yourself again. - Nina Locke
+Last updated: 2024-04-09 09:31:10
+Random Quote: She hated her life, not because it was bad, but because when you hate your brain and your body, it's hard to enjoy the rest. - Rue Bennett
