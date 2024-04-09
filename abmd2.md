@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 11:06:44
-Random Quote: You ever touch me again, I will burn your eyes out! - Starlight
+Last updated: 2024-04-09 11:07:58
+Random Quote: Don Eladio, look into Fring's eyes. There you will see the truth. The Chicken Man hates you. He is our enemy. He plots against us. I demand blood for blood. - Hector Salamanca
