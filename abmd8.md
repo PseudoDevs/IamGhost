@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 17:58:16
-Random Quote: When someone is in love, they look through rose-tinted glasses. Everything’s wonderful. They transform into a soft teddy bear that’s smiling all the time. - Professor
+Last updated: 2024-04-09 17:58:52
+Random Quote: People say Hawkins is cursed. They're not way off. - Dustin Henderson
