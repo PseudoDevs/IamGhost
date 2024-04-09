@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 09:46:42
-Random Quote: The more you give a king, the more he wants.  We are walking on a bridge of ice with an abyss on either side.  Pleasing one king is difficult enough.  Pleasing two is hardly possible.  -  Jon Snow
+Last updated: 2024-04-09 09:47:20
+Random Quote: I'm not in the meth business. I'm in the empire business. - Walter White
