@@ -1,2 +1,3 @@
-Last updated: 2024-04-09 10:06:24
-Random Quote: A king's son, with the power of kingsblood in his veins.  Do you think you've saved this boy, Onion Knight?  When the long night falls, Edric Storm shall die with the rest, wherever he is hidden.  Your own sons as well.  Darkness and cold will cover the earth.  You meddle in matters you do not understand.  -  Melisandre
+Last updated: 2024-04-09 10:06:57
+Random Quote: Freddie Thorne: "What kind of a list would have the name of a communist and the name of a bookmaker side by side?"
+Thomas Shelby: "Perhaps it's a list of men who give false hope to the poor." - Thomas Shelby
