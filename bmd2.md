@@ -1,2 +1,4 @@
-Last updated: 2024-04-09 17:39:54
-Random Quote: When one chooses to walk the way of the Mandalore, you are both hunter and prey. How can one be a coward if one chooses this way of life? - The Armorer
+Last updated: 2024-04-09 17:41:06
+Random Quote: Rick: "Guests are fans, Morty, which we are not. We'd like professional badges."
+"Do you have a crew?"
+Rick: "Yes. He's a getaway driver with Asperger's and my butt is a demolitions expert." - Rick Sanchez
