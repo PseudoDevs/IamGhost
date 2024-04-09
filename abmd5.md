@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 17:36:06
-Random Quote: There is one problem with success. Not everyone can handle it. - Walt Breslin
+Last updated: 2024-04-09 17:36:45
+Random Quote: When you're younger, everything feels so permanent. But as you get older, you begin to realize nothing is and everyone you love can drift away. - Rue Bennett
