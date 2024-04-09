@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 17:51:27
-Random Quote: Your pain defines who you are but it no longer holds power on you - Noah
+Last updated: 2024-04-09 17:52:00
+Random Quote: You are her perfect prince, agreed, bright and bold and comely as any maid could wish.  Daenerys Targaryen is no maid, however.  She is the widow of a Dothraki Khal, a mother of dragons and sacker of cities, Aegon the Conquereror with teats.  She may not prove as willing as you wish.  -  Tyrion Lannister
