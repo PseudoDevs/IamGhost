@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 09:31:02
-Random Quote: Kids, sometimes you realize, the journey you've been taking has reached its final stop. So, the question becomes: Where do you go next? - Ted Mosby
+Last updated: 2024-04-09 09:31:36
+Random Quote: The septons preach about the seven hells.  What do they know?  Only a man who's been burned knows what hell is truly like.  -  Sandor Clegane
