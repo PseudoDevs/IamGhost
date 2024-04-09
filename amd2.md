@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 09:28:18
-Random Quote: The average American consumes 55 pounds of beef per year. And then there’s Texas, where we can knock that off in a couple of months. Maybe faster if we’re talking about smoked brisket. - Sheldon
+Last updated: 2024-04-09 09:28:52
+Random Quote: Barney: "On your tombstone, it will be, 'Lily Aldrin. Caring wife. Loving friend. Slapbet-Commissioner.'"Marshall: "And your tombstone will read, 'Got slapped by Marhsall so hard he died.'" - Marshall Eriksen
