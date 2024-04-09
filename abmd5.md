@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 01:39:41
-Random Quote: Oh, Cersei is lovely to look at, truly, but cold... the way she guards her cunt, you'd think she had all the gold of Casterly Rock between her legs.  -  Robert Baratheon
+Last updated: 2024-04-09 01:40:15
+Random Quote: People deserve a second chance, just like businesses. - Marty Byrde
