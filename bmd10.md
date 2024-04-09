@@ -1,2 +1,5 @@
-Last updated: 2024-04-09 10:19:46
-Random Quote: Then perhaps Lord Eddard should have kept you chained to a dungeon wall.  Instead he raised you among his own sons, the sweet boys you have butchered, and to my undying shame I trained you in the arts of war.  Would that I had thrust a sword through your belly instead of placing one in your hand.  -  Rodrik Cassel
+Last updated: 2024-04-09 10:20:19
+Random Quote: Morty: "Mom, I have a friend coming over. Is that cool?"
+Beth: "I told your sister no parties."
+Morty: "It's one friend."
+Beth: "That's a party to you." - Beth Smith
