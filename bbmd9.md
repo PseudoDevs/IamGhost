@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 09:46:26
-Random Quote: They get in your head. People tell lies about you, and other people believe them. And it gets to the point where the lies might as well be the truth. - Tyler Down
+Last updated: 2024-04-09 09:46:58
+Random Quote: Put me on your magical boat, man, and sail me down your chocolaty river of meth! - Badger
