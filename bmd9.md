@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 11:31:57
-Random Quote: I dreamed of the man who came today, the one they call Reek.  You and your brother lay dead at his feet, and he was skinning off your faces with a long red blade.  -  Jojen Reed
+Last updated: 2024-04-09 11:32:30
+Random Quote: His size, Gregor is a very large man.  Also a very stupid one.  Too stupid to know when he should die, it seems.  -  Cersei Lannister
