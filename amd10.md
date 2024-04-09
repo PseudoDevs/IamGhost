@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 17:31:33
-Random Quote: These days, even women go to war. I mean, when you finally get older, there's not gonna be that kind of discrimination like we got now. - Seong Gi-hun
+Last updated: 2024-04-09 17:32:06
+Random Quote: Bulls are strong.  Bears.  I have seen my bastard fight.  He is not entirely to blame.  Reek was his tutor, the first Reek, and Reek was never trained at arms.  Ramsay is ferocious, I will grant you, but he swings that sword like a butcher hacking meat.  -  Roose Bolton
