@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 09:53:32
-Random Quote: Why the oldest son, and not the best - fitted?  The crown will suit me, as it never suited Robert and would not suit Stannis. 
+Last updated: 2024-04-09 09:56:02
+Random Quote: Everyone pretend podcasting isn't boring! - Rick Sanchez

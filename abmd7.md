@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 09:55:23
-Random Quote: Robert... he is in my dreams as well.  Laughing.  Drinking.  Boasting.  Those were the things he was best at.  Those, and fighting.  I never bested him at anything.  -  Stannis Baratheon
+Last updated: 2024-04-09 09:56:02
+Random Quote: Yes! Tonight is gonna be Legen... wait, are we sure it's a good idea to go to a strip club? Shut up, Lily! I'm in charge now... Dary! - Barney Stinson
