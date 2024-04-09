@@ -1,6 +1,2 @@
-Last updated: 2024-04-09 09:33:40
-Random Quote: Rick: "Just do a Die Hard!"
-Summer: "What does that mean?"
-Rick: "Sneak around! Use air vents! You've never seen Die Hard?"
-Summer: "I'm 17. No, I've never seen Die Hard."
-Rick: "Well, neither did the guy in Die Hard." - Rick Sanchez
+Last updated: 2024-04-09 09:34:13
+Random Quote: Summer will end soon enough, and childhood as well.  -  Eddard Stark
