@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 09:28:56
-Random Quote: How to run a marathon: Step one, you start running. There is no step two. - Barney Stinson
+Last updated: 2024-04-09 09:29:29
+Random Quote: I never asked for this, no more than I asked to be king.  Yet dare I disregard her?  We do not choose our destinies.  Yet we must... we must do our duty, no?  Great or small, we must do our duty.  -  Stannis Baratheon
