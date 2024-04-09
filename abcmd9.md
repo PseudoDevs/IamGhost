@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 12:07:43
-Random Quote: Very nice, Lily. You know, she is a guest in this country. So while you may choose to turn your back on her, I choose... to turn my front on her. What up! - Barney Stinson
+Last updated: 2024-04-09 12:08:16
+Random Quote: Miss Garvey's parents may stay at our place as long as they like. Provided they each arrive in an urn. - Barney Stinson
