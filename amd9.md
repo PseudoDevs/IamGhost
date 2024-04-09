@@ -1,2 +1,3 @@
-Last updated: 2024-04-09 17:08:42
-Random Quote: That was the night I was born. I rose like a phoenix from her mentholated bosom and strode into the world, Armani-clad and fully awesome. - Barney Stinson
+Last updated: 2024-04-09 17:09:17
+Random Quote: Robin: "I can't believe my great grandparents still do that."
+Barney: "And I never imagined a walker being used for anything other than walking." - Barney Stinson
