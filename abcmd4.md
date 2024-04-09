@@ -1,2 +1,3 @@
-Last updated: 2024-04-09 17:59:57
-Random Quote: All due respect, sir, isn't that a lot of firepower to aim at a country most Americans can't find on a map? - Pepper Potts
+Last updated: 2024-04-09 18:00:31
+Random Quote: George: "I love what you done with the place. Did you do it yourself, or did you get some pouf to help ya?"
+Rebecca: "I could ask the same of your hair." - Rebecca Welton
