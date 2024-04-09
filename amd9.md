@@ -1,3 +1,2 @@
-Last updated: 2024-04-09 11:52:52
-Random Quote: Lily: "We don't wanna burden our little angel with all kinds of gender-specific expectations. Boys can do ballet, girls can play football."
-Marshall: "Hell, the Green Bay Packers have been proving that for years." - Marshall Eriksen
+Last updated: 2024-04-09 11:54:02
+Random Quote: Rule Number One: Don't ever fall in love with a straight girl. - Alex Vause
