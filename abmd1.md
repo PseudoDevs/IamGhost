@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 10:50:00
-Random Quote: Because someday, something will go wrong. It could cost you your life or something worse. And on that day what you can’t be thinking is that you are to be blamed for something you couldn’t control. That’s life. Enjoy it, until the party is over. - Berlin
+Last updated: 2024-04-09 10:51:06
+Random Quote: Quantum mechanics? We're discussing that now? Stay in your lane! You are not talking about a time machine, which is both a real and theoretical impossibility. You are talking about regrets. So if you want to ask about regrets, just ask about regrets and leave all this time-traveling nonsense out of it! - Walter White
