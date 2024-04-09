@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 12:14:25
-Random Quote: You can have all the intelligence in the world, but if nobody's there to act on it, what's it worth? Nothing. - Steve Murphy
+Last updated: 2024-04-09 12:15:01
+Random Quote: To be a scientist is to be naive. - Valery Legasov

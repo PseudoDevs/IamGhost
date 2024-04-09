@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 12:14:26
-Random Quote: Roose Bolton's cold and cunning, aye, but a man can deal with Roose.  We've all known worse.  But this bastard son of his... they say he's mad and cruel, a monster.  -  Locke
+Last updated: 2024-04-09 12:15:00
+Random Quote: What is lost, will be found. - Maura Franklin
