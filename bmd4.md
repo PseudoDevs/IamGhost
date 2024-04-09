@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 11:51:05
-Random Quote: Marshall: "The last time I lived this far from him, was my semester abroad."Lily: "You never did a semester abroad?"Marshall: "That's what I called it, when we lived on opposite sides of the campus." - Marshall Eriksen
+Last updated: 2024-04-09 11:51:40
+Random Quote: Sometimes you gotta do bad things to catch bad people. - Javier Pe�a
