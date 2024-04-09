@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 11:07:25
-Random Quote: When I rode home the next morning, the city looked the same. The people looked the same. It all looked the same. But it wasn't. In just one night, everything had changed. - Ted Mosby
+Last updated: 2024-04-09 11:09:48
+Random Quote: If you die before you say her name, Set, I will hunt you through the seven hells.  -  Oberyn Martell
