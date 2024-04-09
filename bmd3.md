@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 10:39:06
-Random Quote: Come with me to the House of the Undying, and you shall drink of truth and wisdom.  -  Pyat Pree
+Last updated: 2024-04-09 10:41:31
+Random Quote: I told you once, there are old sellswords and there are bold sellswords, but there are no old bold sellswords.  -  Brown Ben Plumm

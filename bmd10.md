@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 10:40:55
-Random Quote: When you're younger, everything feels so permanent. But as you get older, you begin to realize nothing is and everyone you love can drift away. - Rue Bennett
+Last updated: 2024-04-09 10:41:31
+Random Quote: The more you give a king, the more he wants.  We are walking on a bridge of ice with an abyss on either side.  Pleasing one king is difficult enough.  Pleasing two is hardly possible.  -  Jon Snow

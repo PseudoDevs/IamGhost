@@ -1,2 +1,4 @@
-Last updated: 2024-04-09 10:40:56
-Random Quote: Stacey, six kids in five years! The woman's basically a ride to the waterpark. - Ted Mosby
+Last updated: 2024-04-09 10:41:31
+Random Quote: Joel: "I need you to tell us where we are."
+Man: "If you got a map, why you lost?"
+Ellie: "Must've missed all the street signs in the enormous f-cking forest." - Ellie Williams
