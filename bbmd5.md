@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 17:57:19
-Random Quote: Women aren't soldiers, and they sure as hell don't fight on the front lines. They might break a nail. - John Flynn
+Last updated: 2024-04-09 17:57:52
+Random Quote: In Colombia, when money's involved, blood inevitably flows. - Steve Murphy
