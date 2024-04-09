@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 10:00:27
-Random Quote: Penrose chose to die rather than give him up.  It still angers me.  How could he think I would hurt the boy?  I chose Robert, did I not?  When that hard day came, I chose blood over honor.  -  Stannis Baratheon
+Last updated: 2024-04-09 10:01:06
+Random Quote: Robin: "What? I am not keeping Mike on a hook!"Ted: "You are Captain Hook!"Robin: "Dude, I'm a girl, ok? Our girl parts are like a spider webs; sometimes you are gonna catch stuff you don't want." - Robin Scherbatsky
