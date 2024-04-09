@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 17:54:03
-Random Quote: If somehow the Lord gave me a second chance at that moment... I would do it all over again. - Joel Miller
+Last updated: 2024-04-09 17:54:40
+Random Quote: Make it easier for those whose vote you can count on. Make it harder for those you can't. That's how you rig an election without leaving a lick of evidence. - Walt Breslin
