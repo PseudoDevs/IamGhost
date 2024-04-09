@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 17:58:59
-Random Quote: If you had to fall into a woman's arms, my son, why couldn't they have been Margaery Tyrell's?  -  Catelyn Stark
+Last updated: 2024-04-09 17:59:32
+Random Quote: Remember. Once they find out who you are, you die. - Jang Deok-su
