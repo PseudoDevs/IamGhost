@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 17:23:59
-Random Quote: I heard enough to know she saved your a-s. - Mike Ehrmantraut
+Last updated: 2024-04-09 17:24:32
+Random Quote: Roose Bolton's cold and cunning, aye, but a man can deal with Roose.  We've all known worse.  But this bastard son of his... they say he's mad and cruel, a monster.  -  Locke
