@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 09:55:58
-Random Quote: What is lost, will be found. - Maura Franklin
+Last updated: 2024-04-09 09:56:32
+Random Quote: You have a passing clever father, Devan.  He makes me wish I had more smugglers in my service.  And fewer lords.  -  Stannis Baratheon
