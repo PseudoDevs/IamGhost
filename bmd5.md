@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 01:44:49
-Random Quote: If I'm always looking back, I'm never looking ahead. We are who we are because of consequences. You can't live without consequences. - Morty Smith
+Last updated: 2024-04-09 01:45:23
+Random Quote: They say the king loved to hunt.  The things we love destroy us every time, lad.  Remember that.  -  Jeor Mormont
