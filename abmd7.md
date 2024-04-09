@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 10:04:23
-Random Quote: Barney: "On your tombstone, it will be, 'Lily Aldrin. Caring wife. Loving friend. Slapbet-Commissioner.'"Marshall: "And your tombstone will read, 'Got slapped by Marhsall so hard he died.'" - Marshall Eriksen
+Last updated: 2024-04-09 10:04:56
+Random Quote: Our secrecy is our survival. our survival is our strength. - The Armorer
