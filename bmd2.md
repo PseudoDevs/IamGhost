@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 10:43:41
-Random Quote: When you play the game of thrones, you win or you die.  There is no middle ground.  -  Cersei Lannister
+Last updated: 2024-04-09 10:44:14
+Random Quote: First times are special. Unique. But the last times are beyond comparison. They are priceless. But people don’t know it’s their last time. - Berlin
