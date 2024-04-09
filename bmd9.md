@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 11:22:44
-Random Quote: Death, he knew, but slow.  I still have time.  A year.  Two years.  Five.  Some stone men live for ten.  Time enough to cross the sea, to see Griffin's Roost again.  To end the Usurper's line for good and all, and put Rhaegar's son upon the Iron Throne.  Then Lord Jon Connington could die content.  -  Jon Connington
+Last updated: 2024-04-09 11:23:17
+Random Quote: A drum roll?! That's it? So what, you just said good night, came home and... performed a drum solo? - Marshall Eriksen
