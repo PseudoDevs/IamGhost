@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 11:22:36
-Random Quote: Even if I meet the girl of my dreams right the second, I'm still one night and nine months away, from having a family on my own. And that's assuming the mother of my childern is just a huge slut. - Ted Mosby
+Last updated: 2024-04-09 11:23:12
+Random Quote: Every journey has a beginning. But change one step along the way, and you could end up at a very different destination. - The Watcher

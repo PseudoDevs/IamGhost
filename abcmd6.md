@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 11:22:00
-Random Quote: Did you think your dad was the only Mandalorian? - Bo-Katan
+Last updated: 2024-04-09 11:23:12
+Random Quote: Of course, nobody I knew in East-Texas in 1989 cared about Newtonian Physics. The only Newtons they cared about were Wayne and Fig. - Sheldon Cooper
