@@ -1,4 +1,2 @@
-Last updated: 2024-04-09 10:41:31
-Random Quote: Joel: "I need you to tell us where we are."
-Man: "If you got a map, why you lost?"
-Ellie: "Must've missed all the street signs in the enormous f-cking forest." - Ellie Williams
+Last updated: 2024-04-09 10:42:07
+Random Quote: Need found it hard to imagine what could frighten Stannis Baratheon, who had once held Storm's End through a year of siege, surviving on rats and boot leather while the Lords Tyrell and Redwyne sat outside with their hosts, banqueting in sight of his walls.  -  Eddard Stark
