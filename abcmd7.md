@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 17:26:51
-Random Quote: The greatest fools are ofttimes more clever than the men who laugh at them.  -  Tywin Lannister
+Last updated: 2024-04-09 17:27:58
+Random Quote: Italy doesn't need something that is wrinkled, red and leaky, and smells like booze and narcotics. They've already got former Prime Minister Silvio Berlusconi. - Marshall Eriksen
