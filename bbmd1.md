@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 11:57:04
-Random Quote: What is the cost of lies? It's not that we mistake them for the truth. The real danger is that if we hear enough lies, then we no longer recognize the truth at all. - Valery Legasov
+Last updated: 2024-04-09 11:57:37
+Random Quote: Dance, until your feet hurt. Sing, until your lungs hurt. Act, until you're William Hurt. - Phil Dunphy
