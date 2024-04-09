@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 11:38:32
-Random Quote: Jaime and I are more than brother and sister.  We are one person in two bodies.  We shared a womb together.  He came into this world holding my foot, our old maester said.  When he is in me, I feel... whole.  -  Cersei Lannister
+Last updated: 2024-04-09 11:39:05
+Random Quote: Eventually, Nick's groin will heal and you'll be back in Sexville, where all the crossword puzzles only have one box to fill. - Lily Aldrin
