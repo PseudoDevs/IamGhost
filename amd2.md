@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 10:03:39
-Random Quote: A man will tell you poison is dishonorable, but a woman's honor is different.  The Mother shaped us to protect our children, and our only dishonor is failure.  -  Lysa Arryn
+Last updated: 2024-04-09 10:05:32
+Random Quote: Ted, every little boy wants to grow up to nail the doctor, or the lawyer. Somebody's gotta nail the receptionist. - Barney Stinson
