@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 17:40:31
-Random Quote: Ted: "You always kept your toothbrush in the bedroom. Also weird, by the way."Lily: "No. We kept it in the bathroom."Ted: "No, there was only one toothbrush in the bathroom, and it was mine..." - Ted Mosby
+Last updated: 2024-04-09 17:41:07
+Random Quote: Oh, come on. If you don't laugh, it just seems mean. - Barney Stinson
