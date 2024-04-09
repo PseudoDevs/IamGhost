@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 10:54:53
-Random Quote: I am not "with" Nora. Wrong Preposition! Later tonight I'm hoping to be "on" Nora, right? Or "under" Nora. Am I right? Or, we're all adults, so I'll just say it: "behind" Nora. - Barney Stinson
+Last updated: 2024-04-09 10:55:26
+Random Quote: No one had expected the broken boy to live.  The gods could not kill Bran, no more than I could.  It was a strange thought, and stranger still to remember that Bran might still be alive.  -  Theon Greyjoy
