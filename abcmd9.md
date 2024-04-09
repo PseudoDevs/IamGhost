@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 12:02:45
-Random Quote: My metabolism is all messed up. See, I can moose down a pint of fudge ripple for a midnight snack and wake up having lost weight. Well, everywhere except for my boobs. So annoying. - Robin Scherbatsky
+Last updated: 2024-04-09 12:03:18
+Random Quote: So many vows... they make you swear and swear.  Defend the king.  Obey the king.  Keep his secrets.  Do his bidding.  Your life for his.  But obey your father.  Love your sister.  Protect the innocent.  Defend the week.  Respect the gods.  Obey the laws.  It's too much.  No matter what you do, you're forsaking one vow for the other.  -  Jaime Lannister
