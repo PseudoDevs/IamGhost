@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 09:21:45
-Random Quote: You are the love of my life. Everything I have and everything I am is yours. Forever. - Barney Stinson
+Last updated: 2024-04-09 09:22:18
+Random Quote: I asked him why he kept her close, if he thought her so grotesque.  He said that all his other knights wanted things of him, castles or honors or riches, but all that Brienne wanted was to die for him.  -  Loras Tyrell
