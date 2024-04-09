@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 09:36:18
-Random Quote: Ted: "You're not gonna do it at your wedding?"Lily: "Hell, yeah! I'm gonna take that flower-grenade and chuck it to the crowd and scream, 'Crawl for it, bitches!'" - Lily Aldrin
+Last updated: 2024-04-09 09:36:51
+Random Quote: Robin: "He has a book of plays he uses to trick women into sleeping with him."Patrice: "Oh, no way. Barney's my honey bear."Robin: "Actually, one of his plays is called 'The Honey Bear'. He dresses up like Winnie the Pooh, and the next thing you know, his hand's stuck in your pot." - Robin Scherbatsky
