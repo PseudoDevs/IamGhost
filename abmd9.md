@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 01:41:24
-Random Quote: There are no true knights, no more than there are gods.  If you can't protect yourself, die and get out of the way of those who can.  Sharp steel and strong arms rule this world, don't ever believe any different.  -  Sandor Clegane
+Last updated: 2024-04-09 01:41:57
+Random Quote: What I came to realise is that fear, that’s the worst of it. That’s the real enemy. So, get up, get out in the real world and you kick that bastard as hard you can right in the teeth. - Walter White
