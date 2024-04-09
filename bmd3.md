@@ -1,2 +1,3 @@
-Last updated: 2024-04-09 11:06:35
-Random Quote: The storms come and go, waves crash overhead, the big fish eat the little fish, and I keep on paddling.  -  Varys
+Last updated: 2024-04-09 11:07:08
+Random Quote: Weems: "No doubt you'll find something that tickles your fancy."
+Wednesday: "The last person who tickled me lost a finger." - Wednesday Addams
