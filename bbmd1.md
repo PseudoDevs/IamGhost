@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 11:24:16
-Random Quote: You guys can judge me if you want, but I do not care! I have never ever been happier! - Cassie Howard
+Last updated: 2024-04-09 11:24:49
+Random Quote: His blood ran black.  Made him my brother as much as yours.  -  Yoren of the Night's Watch
