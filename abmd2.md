@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 09:27:57
-Random Quote: Phil: "What a beautiful dress."Gloria: "Thank you, Phil."Phil: "Oh, okay."Claire: "Phil! She said Phil, not feel!" - Claire Dunphy
+Last updated: 2024-04-09 09:28:30
+Random Quote: I am Bo-Katan of Clan Kryze. I was born on Mandalore and fought in the Purge. I am the last of my line. - Bo-Katan
