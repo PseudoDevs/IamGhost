@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 01:41:23
-Random Quote: Ted, your throwing your life away. This girl is blinding you with her shiny hair and her boob-shaped boobs! - Barney Stinson
+Last updated: 2024-04-09 01:41:56
+Random Quote: I could keep you safe.  They're all afraid of me.  No one would hurt you again, or I'd kill them.  -  Sandor Clegane

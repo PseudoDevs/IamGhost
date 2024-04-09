@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 01:40:16
-Random Quote: Because there's no way watching it can be more fun than playing it yourself. - Oh Il-nam
+Last updated: 2024-04-09 01:41:56
+Random Quote: Nancy Wheeler: "You're supposed to hit the cans, right?"Jonathan Byers: "No, actually - you see the spaces in between the cans? I'm aiming for those." - Jonathan Byers
