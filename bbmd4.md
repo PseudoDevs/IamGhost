@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 09:31:00
-Random Quote: Talk about being a few sardines short of a can. - Bucky Barnes
+Last updated: 2024-04-09 09:32:11
+Random Quote: I know the poison that my father used, and there is none slower or more agonizing.  Soon we may hear the Mountain screaming, even here in Sunspear.  -  Tyene Sand
