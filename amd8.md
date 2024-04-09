@@ -1,5 +1,2 @@
-Last updated: 2024-04-09 11:41:45
-Random Quote: Bo-Katan: "I haven't seen battle droids since the Clone Wars."
-Din: "I have."
-Bo-Katan: "Any of 'em look suspicious?"
-Din: "They all look suspicious." - Din Djarin
+Last updated: 2024-04-09 11:42:20
+Random Quote: A sorcerer is a wizard without a hat. - Sam Wilson
