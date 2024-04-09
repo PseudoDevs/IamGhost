@@ -1,2 +1,6 @@
-Last updated: 2024-04-09 12:07:56
-Random Quote: Karen: "I'm sure all the exploited diamond miners in Sierra Leone would give you a high-five if they still had all their fingers. But really pretty - meet me upstairs!"Robin: "They only need one finger to give her what I'm thinking." - Robin Scherbatsky
+Last updated: 2024-04-09 12:09:05
+Random Quote: Beth: "Do you want homeless people to have homes?"
+Jerry: "Yes."
+Beth: "Are you gonna build them?"
+Jerry: "No."
+Beth: "Then what good was the 'yes'?" - Beth Smith

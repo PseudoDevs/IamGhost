@@ -1,3 +1,2 @@
-Last updated: 2024-04-09 12:07:57
-Random Quote: Morty: "Rick, can we not leave without my sister?"
-Rick: "Ugh. You have infinite sisters, Morty. Not that I want to spend the rest of my day looking for another one. Sum-Sum, let's go! Grandpa's concern for your safety is fleeting." - Rick Sanchez
+Last updated: 2024-04-09 12:09:05
+Random Quote: Quantum mechanics? We're discussing that now? Stay in your lane! You are not talking about a time machine, which is both a real and theoretical impossibility. You are talking about regrets. So if you want to ask about regrets, just ask about regrets and leave all this time-traveling nonsense out of it! - Walter White

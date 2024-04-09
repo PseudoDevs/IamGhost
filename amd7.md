@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 12:05:37
-Random Quote: Then perhaps Lord Eddard should have kept you chained to a dungeon wall.  Instead he raised you among his own sons, the sweet boys you have butchered, and to my undying shame I trained you in the arts of war.  Would that I had thrust a sword through your belly instead of placing one in your hand.  -  Rodrik Cassel
+Last updated: 2024-04-09 12:09:05
+Random Quote: All I know is, he's not in the same grade as me anymoreAnd I'm thrilled. - Missy
