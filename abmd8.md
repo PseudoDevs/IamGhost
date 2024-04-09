@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 11:55:48
-Random Quote: The only person on earth, who loves Ted Mosby more than Marshall Eriksen, is drunk Marshall Eriksen! - Marshall Eriksen
+Last updated: 2024-04-09 11:56:58
+Random Quote: Everyone wants something, Alayne.  And when you know what a man wants you know who he is, and how to move him.  -  Petyr Baelish
