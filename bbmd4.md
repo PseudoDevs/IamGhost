@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 10:48:10
-Random Quote: In commemoration of Barney's induction into the "Hall of Game", this tie, worn on the seventh night of his perfect week, is hereby retired. - Lily Aldrin
+Last updated: 2024-04-09 10:48:43
+Random Quote: Barney: "Ted, it's a well-known statistic, that 83% of people, married longer than 6 months, are saving someone on the side."Ted: "Do you know that when you make up a statistic, you always use 83% ?" - Ted Mosby
