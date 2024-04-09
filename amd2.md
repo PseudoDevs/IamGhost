@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 10:20:04
-Random Quote: Pardon my French, f-ck those f-ckers! - Billy Butcher
+Last updated: 2024-04-09 10:20:37
+Random Quote: No man has ever died from bending his knee.  He who kneels may rise again, blade in hand.  He who will not kneel stays dead, stiff legs and all.  -  Balon Greyjoy
