@@ -1,2 +1,3 @@
-Last updated: 2024-04-09 17:24:09
-Random Quote: You must be the self-appointed Queen Bee. Interesting thing about bees. Pull out their stingers, they drop dead. - Wednesday Addams
+Last updated: 2024-04-09 17:24:46
+Random Quote: Freddie: "If you want me out of Birmingham, it'll have to be in a wooden box."
+Polly: "You lay a hand on our Ada, I'll put you in a wooden box myself!" - Polly Gray
