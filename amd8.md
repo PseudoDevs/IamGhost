@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 11:16:33
-Random Quote: I don't care if you're so scared you foul your breeches, and I don't care if a thousand wildlings are coming over the walls howling for your blood, you get those birds off, or I swear I'll hunt you through all seven hells and make you damn sorry that you didn't.  -  Jeor Mormont
+Last updated: 2024-04-09 11:17:06
+Random Quote: A face took shape within the hearth.  Stannis?  she thought, for just a moment... but no, these were not his features.  A wooden face, corpse white.  Was this the enemy?  A thousand red eyes floated in the rising flames.  He sees me.  Beside him, a boy with a wolf's face threw back his head and howled.  -  Melisandre
