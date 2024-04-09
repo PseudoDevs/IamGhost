@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 10:51:11
-Random Quote: You wear your honor like a suit of armor, Stark.  You think it keeps you safe, but all it does is weigh you down and make it hard for you to move.  -  Petyr Baelish
+Last updated: 2024-04-09 10:52:50
+Random Quote: I'm only nine years oldMost evil doesn't start till puberty. - Sheldon
