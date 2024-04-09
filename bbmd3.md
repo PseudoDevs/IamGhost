@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 17:38:41
-Random Quote: Minds are like swords, I do fear.  The old ones go to rust.  -  Grand Maester Pycelle
+Last updated: 2024-04-09 17:39:17
+Random Quote: Whisky's good proofing water. Tells you who's real and who isn't. - Thomas Shelby
