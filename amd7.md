@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 11:50:06
-Random Quote: He would see this country burn if he could be king of the ashes.  -  Varys
+Last updated: 2024-04-09 11:50:39
+Random Quote: Piper: "Not every Hispanic person wants the same thing."Lorna: "Oh, sure they do. They all want to come to America."Nicky: "Jesus, your entire world view is based on 'West Side Story', isn't it?" - Nicky Nichols
