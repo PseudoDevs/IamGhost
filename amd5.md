@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 17:12:33
-Random Quote: The name is Thor, with a "T" and an "R" and an "O" and a "H". But not in that order. - Thor
+Last updated: 2024-04-09 17:13:06
+Random Quote: Robert was the true steel.  Stannis is pure iron, black and hard and strong, yes, but brittle, the way iron gets.  He'll break before he bends.  And Renly, that one, he's copper, bright and shiny, pretty to look at but not worth all that much at the end of the day.  -  Donal Noye
