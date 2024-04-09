@@ -1,3 +1,2 @@
-Last updated: 2024-04-09 10:22:59
-Random Quote: Sam: "How do you know about Gandalf?"
-Bucky: "I read 'The Hobbit' in 1937, when it first came out." - Bucky Barnes
+Last updated: 2024-04-09 10:23:32
+Random Quote: We are not husband and wife... anymore. We're just business partners. And our job is to raise those kids. - Marty Byrde
