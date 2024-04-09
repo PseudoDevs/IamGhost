@@ -1,3 +1,2 @@
-Last updated: 2024-04-09 10:56:56
-Random Quote: Weems: "No doubt you'll find something that tickles your fancy."
-Wednesday: "The last person who tickled me lost a finger." - Wednesday Addams
+Last updated: 2024-04-09 10:57:33
+Random Quote: A bag of dragons buys a man's silence for a while, but a well - placed quarrel buys it forever. 
