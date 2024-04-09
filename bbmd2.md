@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 09:26:23
-Random Quote: Lily: "How did you do it?"Barney: "Oh God, you found one of the cameras. I swear that's the only one! Wait, which one did you find?" - Barney Stinson
+Last updated: 2024-04-09 09:28:08
+Random Quote: I am not "with" Nora. Wrong Preposition! Later tonight I'm hoping to be "on" Nora, right? Or "under" Nora. Am I right? Or, we're all adults, so I'll just say it: "behind" Nora. - Barney Stinson
