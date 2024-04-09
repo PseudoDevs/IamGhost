@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 09:57:25
-Random Quote: The only way that entire car is worth 500 bucks, is if there's a $300 hook-r sitting in it. - Saul Goodman
+Last updated: 2024-04-09 09:58:32
+Random Quote: We are not husband and wife... anymore. We're just business partners. And our job is to raise those kids. - Marty Byrde

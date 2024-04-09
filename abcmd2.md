@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 09:57:58
-Random Quote: Quinn: "I have to pay $2,000 every time I gain a pound?"Barney: "Not every time. Just if it shows up at the weekly weigh-in." - Barney Stinson
+Last updated: 2024-04-09 09:58:32
+Random Quote: Sometimes I don't know if I love how much I fear Claire, or fear how much I love her. - Phil Dunphy
