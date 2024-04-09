@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 10:20:18
-Random Quote: This is the one that you saved? You are as its father. A clan of two. But you have removed your helmet. Then you are a Mandalorian no more. - The Armorer
+Last updated: 2024-04-09 10:22:07
+Random Quote: Barney, check it! Three blond babies drinking bad-decision-juice at eight o'clock. - Lily Aldrin
