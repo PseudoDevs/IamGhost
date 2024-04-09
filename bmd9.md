@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 11:29:43
-Random Quote: There are moments when we must understand that the decisions we make influence more than just our own fates. - 
+Last updated: 2024-04-09 11:30:17
+Random Quote: Strip off their skins.  Lord Bolton, he used to say a naked man has few secrets, but a flayed man's got none.  -  Ramsay Bolton
