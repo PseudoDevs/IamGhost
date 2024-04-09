@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 11:44:29
-Random Quote: The septons preach about the seven hells.  What do they know?  Only a man who's been burned knows what hell is truly like.  -  Sandor Clegane
+Last updated: 2024-04-09 11:45:02
+Random Quote: You must be the self-appointed Queen Bee. Interesting thing about bees. Pull out their stingers, they drop dead. - Wednesday Addams
