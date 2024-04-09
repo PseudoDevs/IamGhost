@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 10:51:39
-Random Quote: Men of honor will do things for their children that they would never consider doing for themselves.  -  Petyr Baelish
+Last updated: 2024-04-09 10:52:12
+Random Quote: Whisky's good proofing water. Tells you who's real and who isn't. - Thomas Shelby
