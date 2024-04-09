@@ -1,3 +1,2 @@
-Last updated: 2024-04-09 11:28:50
-Random Quote: Ellie: "Everybody I've cared for, either died or left me."
-Joel: "You have no idea what loss is." - Joel Miller
+Last updated: 2024-04-09 11:29:24
+Random Quote: Life is a long journey where maps were drawn by a fool. - Juan Nepomuceno Guerra
