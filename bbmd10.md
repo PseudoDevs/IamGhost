@@ -1,2 +1,3 @@
-Last updated: 2024-04-09 17:41:41
-Random Quote: A reader lives a thousand lives before he dies.  The man who never reads lives only one.  -  Jojen Reed
+Last updated: 2024-04-09 17:42:15
+Random Quote: Freddie: "You think I can't handle Tommy Shelby?"
+Polly: "You can't. I am having trouble these days and I'm twice the man you are." - Polly Gray
