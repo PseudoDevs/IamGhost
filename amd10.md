@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 10:36:23
-Random Quote: The only way Ralph would remember our anniversary is if there was a beer named "June 2nd". - Agatha Harkness
+Last updated: 2024-04-09 10:36:56
+Random Quote: You're Reek.  You'll always be Reek, no matter how sweet you smell.  Your nose may lie to you.  Remember your name.  Remember who you are.  -  Ramsay Bolton
