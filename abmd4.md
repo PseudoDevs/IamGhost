@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 17:55:42
-Random Quote: Can I dwell on what I scarce remember?  I held a castle on the Marches once, and there was a woman I was pledged to marry, but I could not find that castle today, nor tell you the color of that woman's hair.  Who knighted me, old friend?  What were my favorite foods?  It all fades.  Sometimes I think I was born on the bloody grass in that grove of ash, with the taste of fire in my mouth and a hole in my chest.  Are you my mother, Thoros?  -  Beric Dondarrion
+Last updated: 2024-04-09 17:56:48
+Random Quote: Marshall: "Are you sure this poo-poo didn't happen on your watch and you just ran out the clock until it was my problem?"Lily: "Oh, yeah. Yeah, yeah, right. What kind of mother lets her son sit in his own filth for an extra nine minutes and 42 seconds?" - Lily Aldrin
