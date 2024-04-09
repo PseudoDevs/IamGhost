@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 12:03:53
-Random Quote: Geniuses are always branded as crazy. - Pablo Escobar
+Last updated: 2024-04-09 12:04:27
+Random Quote: Marshall: "Yes, i want a ball-room and I want a band and I want shoes. I've been dreaming about this day since I was... like...Lily: "...a little girl?" - Lily Aldrin
