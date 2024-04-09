@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 11:57:33
-Random Quote: Droids are not good or bad. They are neutral reflections of those who imprint them. - Kuiil
+Last updated: 2024-04-09 11:58:43
+Random Quote: This is the one that you saved? You are as its father. A clan of two. But you have removed your helmet. Then you are a Mandalorian no more. - The Armorer
