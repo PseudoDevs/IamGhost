@@ -1,2 +1,3 @@
-Last updated: 2024-04-09 01:49:53
-Random Quote: You think you're the only one he whispers secrets to?  He gives each of us just enough to convince us that we'd be helpless without him.  -  Cersei Lannister
+Last updated: 2024-04-09 04:53:25
+Random Quote: Lily: "We're going to Atlantic City to elope - right now!"
+Barney: "Oh, congratulations Lily! Marshall, you're getting married? What the hell?" - Barney Stinson
