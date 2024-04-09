@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 17:34:51
-Random Quote: Never buy a girl flowers, 'cause giving her a living thing reminds her of babies. - Barney Stinson
+Last updated: 2024-04-09 17:35:28
+Random Quote: Demons made of snow and ice and cold.  The ancient enemy.  The only enemy that matters.  -  Stannis Baratheon
