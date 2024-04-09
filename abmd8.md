@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 09:31:43
-Random Quote: Gloria: "It seemd like all what we did was fight and make love. One time, I'm not kidding you, we fell out of the window together."Jay: "Which one were you doing?" - Jay Pritchett
+Last updated: 2024-04-09 09:32:17
+Random Quote: I mean she just walked out. At least when I walk out on a girl I have the common courtesy to sleep with her first. It's called manners! - Barney Stinson
