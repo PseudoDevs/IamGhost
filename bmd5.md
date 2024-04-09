@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 17:56:05
-Random Quote: Joe Caputo: "You ever notice how some dog breeds, they sound kind of dirty? Like, shih tzu, cocker, Jack-something."Susan Fischer: "Poodle."Joe Caputo: "That is good, I didn't think of that one." - Joe Caputo
+Last updated: 2024-04-09 17:56:38
+Random Quote: To have power does not mean that one can abuse the poor. - Pablo Escobar
