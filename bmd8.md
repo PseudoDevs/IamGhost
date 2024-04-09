@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 10:47:28
-Random Quote: See, lad, that's why he's the king and I'm not.  I can outdrink, outfight, and outsing him, and my member's thrice the size o' his, but Mance has cunning.  -  Tormund Giantsbane
+Last updated: 2024-04-09 10:48:03
+Random Quote: Be careful who you put your faith in. The only people who can betray us, are the ones we trust. - Maria Miller
