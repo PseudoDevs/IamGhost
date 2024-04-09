@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 17:28:17
-Random Quote: Do you remember that cave?  We should have stayed in that cave.  I told you so.  -  Ygritte
+Last updated: 2024-04-09 17:28:50
+Random Quote: Marshall: "Excuse me, miss. When you get a chance, could you bring over a hundred shots of tequila please?"Barney: "I'll have the same." - Marshall Eriksen
