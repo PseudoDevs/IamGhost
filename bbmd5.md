@@ -1,3 +1,3 @@
-Last updated: 2024-04-09 10:25:58
-Random Quote: Mr. Nimbus: "Say goodbye to your precious dry land! For soon it will be wet!"
-Rick: "Yeah, global warming is already doing that. But sure, yeah, go for it. Make us slightly more wet." - Rick Sanchez
+Last updated: 2024-04-09 10:26:31
+Random Quote: Morty: "You're really this pissed about my mum making sure I'm okay with our adventures?"
+Rick: "What's next, Morty? What if I want you to jump off the Empire State Building? I have to ask?" - Rick Sanchez
