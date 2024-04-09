@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 17:11:09
-Random Quote: Why should I go running to my aunt as if I were a beggar?  My claim is better than her own.  Let her come to me... in Westeros.  -  Aegon Targaryen
+Last updated: 2024-04-09 17:11:45
+Random Quote: Most people are nothing but pawns on a chessboard led by an unknown hand - Noah
