@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 17:38:46
-Random Quote: The men of always aren't interested in the children of never. - Pablo Escobar
+Last updated: 2024-04-09 17:39:20
+Random Quote: Barney: "I only smoke in certain situations. Postcoital, when I'm with Germans, sometimes those two overlap, coital, birthdays, to annoy my mom, precoital, on a sailboat, the day the Mets are mathematically eliminated every year and pregnancy scares."Ted: "Why are you smoking right now?"Barney: "I'm always precoital, Ted." - Barney Stinson
