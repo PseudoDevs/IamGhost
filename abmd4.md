@@ -1,2 +1,3 @@
-Last updated: 2024-04-09 18:00:06
-Random Quote: I have let you come wash my dishes. I said my oven needed cleaning, I invited you to a p-rno! - Victoria
+Last updated: 2024-04-09 18:00:42
+Random Quote: Ellie: "Everybody I've cared for, either died or left me."
+Joel: "You have no idea what loss is." - Joel Miller
