@@ -1,6 +1,2 @@
-Last updated: 2024-04-09 10:36:49
-Random Quote: Sam: "They might be a part of the big three."
-Bucky: "What big three?"
-Sam: "Androids, aliens and wizards."
-Bucky: "That's not a thing."
-Sam: "That's definitely a thing." - Sam Wilson
+Last updated: 2024-04-09 10:37:22
+Random Quote: So young.  Though mayhaps this was a blessing.  Had he lived, he would have grown up to be a Frey.  -  Wyman Manderly
