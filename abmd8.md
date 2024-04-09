@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 11:52:30
-Random Quote: They shall come day and night to see the wonder that has been born again into the world, and when they see they shall lust.  For dragons are fire made flesh, and fire is power.  -  Quaithe
+Last updated: 2024-04-09 11:53:03
+Random Quote: Summer will end soon enough, and childhood as well.  -  Eddard Stark
