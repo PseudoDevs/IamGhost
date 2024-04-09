@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 09:54:49
-Random Quote: Folly and desperation are ofttimes hard to tell apart.  -  Maester Luwin
+Last updated: 2024-04-09 09:55:25
+Random Quote: If you die before you say her name, Set, I will hunt you through the seven hells.  -  Oberyn Martell
