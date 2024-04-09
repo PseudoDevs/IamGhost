@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 09:59:38
-Random Quote: Kids, sometimes you realize, the journey you've been taking has reached its final stop. So, the question becomes: Where do you go next? - Ted Mosby
+Last updated: 2024-04-09 10:00:11
+Random Quote: This is Hawkins, okay? You wanna know the worst thing that's ever happened here in the four years I've been working here? It was when an owl attacked Eleanor Gillespie's head because it though that her hair was a nest. - Jim Hopper
