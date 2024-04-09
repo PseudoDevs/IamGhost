@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 17:09:53
-Random Quote: Lily: "Ted, you did this all yourself?"Ted: "Just like Ryan Gosling in 'The Notebook'. It was pretty manly 'til I mentioned Ryan Gosling in 'The Notebook', huh?" - Ted Mosby
+Last updated: 2024-04-09 17:10:27
+Random Quote: You all know exactly who I am. Say my name. - Walter White
