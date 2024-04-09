@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 10:14:09
-Random Quote: If you waste time trying to get people to love you, you'll end up the most popular dead man in town.  -  Bronn
+Last updated: 2024-04-09 10:16:33
+Random Quote: My old septon used to say that books are dead men talking.  Dead men should keep quiet, is what I say.  No one wants to hear a dead man's yabber.  -  Dolorous Edd Tollett
