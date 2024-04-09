@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 10:51:34
-Random Quote: Marshall: "Baby, you're like 20 slutty chicks all rolled into one."Lily: "Sweet-talk is not gonna change my mind!" - Lily Aldrin
+Last updated: 2024-04-09 10:52:09
+Random Quote: You don't get to blame your problems on anyone but yourself. - Allison Hargreeves
