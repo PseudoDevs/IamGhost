@@ -1,3 +1,3 @@
-Last updated: 2024-04-09 09:40:19
-Random Quote: May: "May Carleton. I breed racehorses and train them. What is it you do?"
-Thommy: "I rarely answer questions is what I do." - Thomas Shelby
+Last updated: 2024-04-09 09:40:57
+Random Quote: Joel: "You got any advice on the best way west?"
+Man: "Yeah. Go east." - Ellie Williams
