@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 17:12:43
-Random Quote: Miss Addams, you sadly had a very interesting educational journey. Eight schools in five years. - Larissa Weems
+Last updated: 2024-04-09 17:13:49
+Random Quote: You know nothing, Jon Snow.  -  Ygritte
