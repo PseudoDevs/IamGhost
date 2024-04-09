@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 12:13:15
-Random Quote: I swear on my name. And the names of the Ancestors, that I shall walk the way of the Mand'alor and the words of the Creed shall be forever forged in my heart. - Din Djarin
+Last updated: 2024-04-09 12:13:50
+Random Quote: I am Bo-Katan of Clan Kryze. I was born on Mandalore and fought in the Purge. I am the last of my line. - Bo-Katan
