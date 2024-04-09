@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 17:29:29
-Random Quote: Ted: "When you leave someone at the altar, you always leave a note. It's common courtesy."Victoria: "I think common courtesy went out the window when I did." - Victoria
+Last updated: 2024-04-09 17:30:02
+Random Quote: Many good men have been bad kings, and some bad men have been good kings.  -  Maester Aemon
