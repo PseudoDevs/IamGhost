@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 10:52:29
-Random Quote: I never asked for this, no more than I asked to be king.  Yet dare I disregard her?  We do not choose our destinies.  Yet we must... we must do our duty, no?  Great or small, we must do our duty.  -  Stannis Baratheon
+Last updated: 2024-04-09 10:53:02
+Random Quote: Airport bar! Flight attendants, they'll get your tray table in it's full upright position. Say what? - Barney Stinson
