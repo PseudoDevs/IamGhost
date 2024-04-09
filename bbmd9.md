@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 09:42:33
-Random Quote: Let's hit a motel, jam in a quickie and get you back to your wedding. - Ted Mosby
+Last updated: 2024-04-09 09:43:06
+Random Quote: Elia Martell, Princess of Dorne.  You raped her!  You murdered her!  You killed her children!  -  Oberyn Martell
