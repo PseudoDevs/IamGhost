@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 17:22:14
-Random Quote: Jerry: "You don't, by any chance, have some sort of crazy science thing you could wrap up, that might help make this dog a little smarter?"Rick: "I thought the whole point of having a dog was to feel superior, Jerry. If I were you, I wouldn't pull that thread." - Rick Sanchez
+Last updated: 2024-04-09 17:22:52
+Random Quote: The singers of the forest had no books.  No ink, no parchment, no written language.  Instead they had the trees, and the weirwoods above all.  When they died, they went into the wood, into leaf and limb and root, and the trees remembered.  All their songs and spells, their histories and prayers, everything they knew about this world.  Maesters will tell you that the weirwoods are sacred to the old gods.  The singers believe they are the old gods.  When singers die they become part of that godhood.  -  Jojen Reed
