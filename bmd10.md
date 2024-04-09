@@ -1,6 +1,2 @@
-Last updated: 2024-04-09 10:44:26
-Random Quote: Morty: "Rick, when you say you made an exact replica of the house, did you mean, like, an exact replica?"
-Rick: "I know about the Yosemite T-Shirt, Morty."
-Morty: "Shit."
-Rick: "You know you can use tissues, right?"
-Morty: "I can't finish without it!" - Morty Smith
+Last updated: 2024-04-09 10:44:59
+Random Quote: The singers of the forest had no books.  No ink, no parchment, no written language.  Instead they had the trees, and the weirwoods above all.  When they died, they went into the wood, into leaf and limb and root, and the trees remembered.  All their songs and spells, their histories and prayers, everything they knew about this world.  Maesters will tell you that the weirwoods are sacred to the old gods.  The singers believe they are the old gods.  When singers die they become part of that godhood.  -  Jojen Reed
