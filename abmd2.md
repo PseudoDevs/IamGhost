@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 09:43:45
-Random Quote: I think maybe you're the only person who really knows who I am and still likes me anyway. - Allison Hargreeves
+Last updated: 2024-04-09 09:44:18
+Random Quote: You're mine.  Mine, as I'm yours.  And if we die, we die.  All men must die, Jon Snow.  But first, we'll live.  -  Ygritte
