@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 09:35:05
-Random Quote: I feel like you ruined me forever. - Maddy Perez
+Last updated: 2024-04-09 09:35:37
+Random Quote: Robb, if that sword could bring him back, I should never let you sheathe it until Need stood at my side once more... but he is gone, and a hundred Whispering Woods will not change that.  -  Catelyn Stark
