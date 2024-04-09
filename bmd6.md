@@ -1,3 +1,2 @@
-Last updated: 2024-04-09 04:54:08
-Random Quote: Alien: "I was just reading you."
-Rick: "Congratulations on making it into print media. Real bright future there." - Rick Sanchez
+Last updated: 2024-04-09 04:54:41
+Random Quote: Good men and true will fight for Joffrey, wrongly believing him the true king.  A northman might even say the same of Robb Stark.  But these lords who flocked to my brother's banners knew him for an usurper.  They turned their backs on their rightful king for no better reason than dreams of power and glory, and I have marked them for what they are.  Pardoned them, yes.  Forgiven, but not forgotten.  -  Stannis Baratheon

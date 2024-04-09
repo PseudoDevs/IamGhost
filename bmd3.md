@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 04:54:08
-Random Quote: Only when we’ve freed ourselves of emotion can we be truly free. Only when you’re willing to sacrifice what you hold dearest. - Adam
+Last updated: 2024-04-09 04:54:41
+Random Quote: Apart, we're okay. But together we're poison. - Kim Wexler
