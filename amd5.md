@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 10:22:42
-Random Quote: And, you know, you just can't be mad at me for wanting you to be okay. - Rue Bennett
+Last updated: 2024-04-09 10:23:17
+Random Quote: I swear to you, I was never so alive as when I was winning this throne, or so dead as now that I've won it.  -  Robert Baratheon
