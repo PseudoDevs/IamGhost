@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 09:35:15
-Random Quote: Eighty-six years. But with good behavior... who knows? - Saul Goodman
+Last updated: 2024-04-09 09:35:51
+Random Quote: Mitchell: "We didn't just go to Vietnam for pleasure. We kinda have some big news."Jay: "Oh God, if Cam comes out there with boobs, I'm leaving." - Jay Pritchett
