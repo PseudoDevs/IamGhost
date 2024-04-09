@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 11:14:36
-Random Quote: I feel like I've framed my entire womanhood around men. - Jules Vaughn
+Last updated: 2024-04-09 11:15:12
+Random Quote: The title was but a courtesy due him as a council member; Varys was lord of nothing but the spiderweb, the master of none but his whispers.  -  Catelyn Stark

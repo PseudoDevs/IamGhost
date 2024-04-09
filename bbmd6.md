@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 11:14:36
-Random Quote: Obara would make Oldtown our father's funeral pyre, but I am not so greedy.  Four lives will suffice for me.  Lord Tywin's golden twins, as payment for Elia's children.  The old lion, for Elia herself.  And last of all the little king, for my father... only royal blood can wash out my father's murder.  -  Nymeria Sand
+Last updated: 2024-04-09 11:15:12
+Random Quote: When a maester donned his collar, he put aside the hope of children, yet Cressen had oft felt a father nonetheless.  Robert, Stannis, Renly: three sons he had raised after the angry sea claimed Lord Steffon.  -  Maester Cressen
