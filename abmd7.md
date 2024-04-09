@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 11:30:58
-Random Quote: The best pie you have ever tasted, my lords.  Wash it down with Arbor gold and savor every bite.  I know I shall.  -  Wyman Manderly
+Last updated: 2024-04-09 11:34:01
+Random Quote: Some of you cared. None of you cared enough. - Hannah Baker
