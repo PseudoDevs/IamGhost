@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 11:50:39
-Random Quote: Piper: "Not every Hispanic person wants the same thing."Lorna: "Oh, sure they do. They all want to come to America."Nicky: "Jesus, your entire world view is based on 'West Side Story', isn't it?" - Nicky Nichols
+Last updated: 2024-04-09 11:51:12
+Random Quote: Hey, it's me again. Look, who are we kidding? You and I are both attracted to each other. We're young, we're drunk, half of us anyway. And we only get one life, so why don't you come over to my apartment and we'll think of something stupid to do together? - Ted Mosby
