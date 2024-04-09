@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 17:55:51
-Random Quote: Have you seen Mace Tyrell's boy?  The Knight of Flowers, they call him.  Now there's a son any man would be proud to own to.  Last tourney, he dumped the Kingslayer on his golden rump, you ought to have seen the look on Cersei's face.  I laughed till my sides hurt.  -  Robert Baratheon
+Last updated: 2024-04-09 17:57:39
+Random Quote: If you're looking for the word that means caring for someone beyond all rationality and wanting them to have everything they want, no matter how much it destroys you, it's love! - Ted Mosby
