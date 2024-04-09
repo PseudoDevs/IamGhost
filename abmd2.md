@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 17:47:02
-Random Quote: If you're looking for the word that means caring for someone beyond all rationality and wanting them to have everything they want, no matter how much it destroys you, it's love! - Ted Mosby
+Last updated: 2024-04-09 17:47:35
+Random Quote: You are not the guy. You're not capable of being the guy. I had a guy but now I don't. You are not the guy. - Mike Ehrmantraut
