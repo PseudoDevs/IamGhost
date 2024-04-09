@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 09:22:46
-Random Quote: I'm growing a child in my belly, a child that just developed ears, and it's a very thin sweater. So, please, if you must tell your story, just make it cheerful. - Lily Aldrin
+Last updated: 2024-04-09 09:23:19
+Random Quote: Shagg, son of Dolf will chop off their manhoods and feed them to the crows.  -  Shagga, son of Dolf
