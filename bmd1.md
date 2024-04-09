@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 10:36:40
-Random Quote: You want to be a bounty hunter? Make the best deal for yourself and survive! - Fennec Shand
+Last updated: 2024-04-09 10:39:06
+Random Quote: In Colombia, when money's involved, blood inevitably flows. - Steve Murphy
