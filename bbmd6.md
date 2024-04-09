@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 10:31:55
-Random Quote: Why have average when you can have extraordinary? - Madelyn Stillwell
+Last updated: 2024-04-09 10:33:07
+Random Quote: You want to rule?  This is what ruling is; lying on a bed of weeds, ripping them out by the root, one by one, before they strangle you in your sleep.  -  Cersei Lannister

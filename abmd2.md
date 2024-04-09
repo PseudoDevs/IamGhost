@@ -1,3 +1,2 @@
-Last updated: 2024-04-09 10:32:31
-Random Quote: Grace: "I had the phone put in. It's in the back."
-Tommy: "If we knew someone else who had a phone, we could call them." - Thomas Shelby
+Last updated: 2024-04-09 10:33:06
+Random Quote: No, only a boy who dreams.  The greenseers were more than that.  They were wargs as well, as you are, and the greatest of them could wear the skins of any beast that flies or swims or crawls, and could look through the eyes of the weirwoods as well, and see the truth that lies beneath the world.  -  Jojen Reed
