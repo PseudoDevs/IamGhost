@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 17:20:54
-Random Quote: Never give power to the big man. - Alfie Solomons
+Last updated: 2024-04-09 17:21:27
+Random Quote: What if God doesn’t know what he’s doing? If the plan is wrong? If God is wrong? - 
