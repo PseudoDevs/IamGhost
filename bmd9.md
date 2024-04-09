@@ -1,3 +1,2 @@
-Last updated: 2024-04-09 09:28:06
-Random Quote: Freddie Thorne: "What kind of a list would have the name of a communist and the name of a bookmaker side by side?"
-Thomas Shelby: "Perhaps it's a list of men who give false hope to the poor." - Thomas Shelby
+Last updated: 2024-04-09 09:28:41
+Random Quote: From experience, it often takes a new perspective before one is able to see the light. - Elia Kane
