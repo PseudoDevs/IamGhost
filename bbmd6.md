@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 11:01:53
-Random Quote: Lord Varys, sometimes I feel as though you are the best friend I have in King's Landing and sometimes I feel you are my worst enemy.  -  Tyrion Lannister
+Last updated: 2024-04-09 11:02:30
+Random Quote: Omera: "You haven't shown your face to anyone since you were a kid?"Mando: "No. I was happy that they took me in. My parents were killed and the Mandalorians took care of me. This is the way." - Din Djarin
