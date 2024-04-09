@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 17:30:09
-Random Quote: Sounds like you guys need to 'Clear Everything,' 'Subtract' the negativity and 'Add' some perspective. - How I Met Your Mother
+Last updated: 2024-04-09 17:30:42
+Random Quote: She really had a fat but: her fat butt! - Barney Stinson
