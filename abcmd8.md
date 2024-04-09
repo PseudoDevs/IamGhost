@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 09:54:06
-Random Quote: Don't believe everything you hear. Our enemies want to separate us. But Mandalorians are stronger together. - Bo-Katan
+Last updated: 2024-04-09 09:54:42
+Random Quote: When you start moving furniture around, people stub their toes and get upset. - Don Neto
