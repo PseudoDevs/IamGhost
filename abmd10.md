@@ -1,2 +1,3 @@
-Last updated: 2024-04-09 09:25:40
-Random Quote: That's what they do, don't they? They show you the world, and then they tell you you can't have it. - Virginia Wilson
+Last updated: 2024-04-09 09:26:14
+Random Quote: Morty: "You're really this pissed about my mum making sure I'm okay with our adventures?"
+Rick: "What's next, Morty? What if I want you to jump off the Empire State Building? I have to ask?" - Rick Sanchez
