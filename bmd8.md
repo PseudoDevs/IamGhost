@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 17:23:23
-Random Quote: Jesus! Just grow some fucking balls! - Walter White
+Last updated: 2024-04-09 17:23:56
+Random Quote: You ought to have no trouble catching our uncles.  One is drunk on seawater, after all, and the other is a great grey bullock so dim he'll probably get lost.  -  Asha Greyjoy
