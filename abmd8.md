@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 10:16:32
-Random Quote: We're going to Buffalo... and I've seen women from there; the city's aptly named. - Barney Stinson
+Last updated: 2024-04-09 10:17:08
+Random Quote: A man who sees nothing has no use for his eyes, cut them out and give them to your next outrider.  Tell him you hope that four eyes might see better than two... and if not, the man after him will have six.  -  Gregor Clegane
