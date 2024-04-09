@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 09:26:56
-Random Quote: You look like an Indian Kardashian. - Fabiola Torres
+Last updated: 2024-04-09 09:27:33
+Random Quote: You wear your honor like a suit of armor, Stark.  You think it keeps you safe, but all it does is weigh you down and make it hard for you to move.  -  Petyr Baelish
