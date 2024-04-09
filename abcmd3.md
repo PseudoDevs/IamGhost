@@ -1,3 +1,2 @@
-Last updated: 2024-04-09 11:26:02
-Random Quote: How does a computer get drunk?
-It takes screenshots. - Will Livingston
+Last updated: 2024-04-09 11:26:35
+Random Quote: You're wrong.  Need Stark was my gaoler, but my blood is still salt and iron.  -  Theon Greyjoy
