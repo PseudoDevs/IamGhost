@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 11:46:19
-Random Quote: I'm not in the meth business. I'm in the empire business. - Walter White
+Last updated: 2024-04-09 11:46:52
+Random Quote: If I got serious with Nora, it would be like if Mother Teresa focused all her attention on one really hot orphan. With great penis comes great responsibility. - Barney Stinson
