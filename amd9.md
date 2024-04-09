@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 01:43:36
-Random Quote: In this fall - this is tough. In this fall I'm going to take my talents to Mouth Beach. - Barney Stinson
+Last updated: 2024-04-09 01:44:10
+Random Quote: Your innocence may be as plain as the scar on your face, but it will not save you.  No more than your father will.  But I might.  Not as your judge.  As your champion.  -  Oberyn Martell
