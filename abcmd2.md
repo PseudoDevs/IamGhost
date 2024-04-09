@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 09:23:25
-Random Quote: Oh, Cersei is lovely to look at, truly, but cold... the way she guards her cunt, you'd think she had all the gold of Casterly Rock between her legs.  -  Robert Baratheon
+Last updated: 2024-04-09 09:24:36
+Random Quote: Since when do vegans eat fried chicken? - Hank Schrader
