@@ -1,3 +1,2 @@
-Last updated: 2024-04-09 10:26:31
-Random Quote: Morty: "You're really this pissed about my mum making sure I'm okay with our adventures?"
-Rick: "What's next, Morty? What if I want you to jump off the Empire State Building? I have to ask?" - Rick Sanchez
+Last updated: 2024-04-09 10:27:04
+Random Quote: One minute we're just laying into each other, and then the next minute... well, same thing. - Ted Mosby
