@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 09:22:47
-Random Quote: Your car's gonna be fine, this is the best auto-shop around. Look at this certificate, one of the mechanics here...[reads the certificate]...finished a 64 ounce steak. - Ted Mosby
+Last updated: 2024-04-09 09:23:19
+Random Quote: Never fear the darkness, Bran.  The strongest trees are rooted in the dark places of the earth.  Darkness will be your cloak, your shield, your mother's milk.  Darkness will make you strong.  -  Bloodraven
