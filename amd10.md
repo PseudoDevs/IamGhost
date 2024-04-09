@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 10:47:53
-Random Quote: Finally, you will be among pears who understand you. Maybe you'll even make some friends. - Morticia Addams
+Last updated: 2024-04-09 10:48:26
+Random Quote: In King's Landing, there are two sorts of people.  The players and the pieces.  -  Petyr Baelish
