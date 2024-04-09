@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 09:34:40
-Random Quote: The stone is strong... the roots of the trees grow deep, and under the ground the Kings of Winter sit their thrones.  So long as those remained, Winterfell remained.  It was not dead, just broken.  Like me... I'm not dead either.  -  Bran Stark
+Last updated: 2024-04-09 09:35:17
+Random Quote: Phil: "What a beautiful dress."Gloria: "Thank you, Phil."Phil: "Oh, okay."Claire: "Phil! She said Phil, not feel!" - Claire Dunphy
