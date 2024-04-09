@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 10:12:23
-Random Quote: Be careful who you put your faith in. The only people who can betray us, are the ones we trust. - Maria Miller
+Last updated: 2024-04-09 10:12:57
+Random Quote: Shagg, son of Dolf will chop off their manhoods and feed them to the crows.  -  Shagga, son of Dolf
