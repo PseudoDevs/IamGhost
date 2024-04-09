@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 12:00:37
-Random Quote: You ought to have no trouble catching our uncles.  One is drunk on seawater, after all, and the other is a great grey bullock so dim he'll probably get lost.  -  Asha Greyjoy
+Last updated: 2024-04-09 12:01:10
+Random Quote: Just remember who your friends and who your enemies are. - Billy Butcher
