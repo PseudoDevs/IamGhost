@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 17:09:26
-Random Quote: We are the ironborn, and once we were conquerors.  Our writ ran everywhere the sound of the waves was heard.  My brother would have been content with the cold and dismal north, my niece with even less... but I shall give you Lannisport.  Highgarden.  The Arbor.  Oldtown.  The Riverlands and the Reach, the Kingswood and the Rainwood, Dorne and the Marches, the Mountains of the Moon and the Vale of Arryn, Tarth and the Stepstones.  I say we take it all!  I say, we take Westeros.  -  Euron Greyjoy
+Last updated: 2024-04-09 17:09:59
+Random Quote: I've heard so many stories about me now that I don't know which one is the most popular. But I do know which is the least popular: the truth. - Hannah Baker
