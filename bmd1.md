@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 11:49:22
-Random Quote: Look, I found a rock that looks like a penis with one ball. It's my Lance Armstrong rock. - Piper Chapman
+Last updated: 2024-04-09 11:49:57
+Random Quote: Robert... he is in my dreams as well.  Laughing.  Drinking.  Boasting.  Those were the things he was best at.  Those, and fighting.  I never bested him at anything.  -  Stannis Baratheon

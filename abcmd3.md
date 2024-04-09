@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 11:48:47
-Random Quote: I am the Greyjoy, Lord Reaper of Pyke, King of Salt and Rock, Son of the Sea Wind, and no man gives me a crown.  I pay the iron price.  I will take my crown, as Urron Redhand did five thousand years ago.  -  Balon Greyjoy
+Last updated: 2024-04-09 11:49:56
+Random Quote: There's three rules of cheating:1st: It's not cheating if you're not the one who's married.2nd: It's not cheating if her name has two adjacent vowels.3rd: And it's not cheating if she's from a different area code. You're fine on all three counts. - Barney Stinson
