@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 11:53:37
-Random Quote: I've lost a hand, a father, a son, a sister, and a lover, and soon enough I will lose a brother.  And yet they keep telling me House Lannister has won this war.  -  Jaime Lannister
+Last updated: 2024-04-09 11:54:09
+Random Quote: By what right does the wolf judge the lion?  -  Jaime Lannister
