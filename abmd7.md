@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 10:33:07
-Random Quote: A queen must listen to all.  The highborn and the low, the strong and the weak, the noble and the venal.  One voice may speak you false, but in many there is always truth to be found.  -  Daenerys Targaryen
+Last updated: 2024-04-09 10:34:17
+Random Quote: Marshall: "Dude, if we fail this econ final, for the rest of our lives we're not gonna be able to... we won't know how to... do you even know what 'econ' is?"Ted: "No idea. We're screwed." - Ted Mosby
