@@ -1,2 +1,6 @@
-Last updated: 2024-04-09 01:43:45
-Random Quote: I'm still out here. Still getting away with it. Feds couldn't find their own ass with both hands and a proctologist. - Saul Goodman
+Last updated: 2024-04-09 01:44:18
+Random Quote: Morty: "Rick, when you say you made an exact replica of the house, did you mean, like, an exact replica?"
+Rick: "I know about the Yosemite T-Shirt, Morty."
+Morty: "Shit."
+Rick: "You know you can use tissues, right?"
+Morty: "I can't finish without it!" - Morty Smith
