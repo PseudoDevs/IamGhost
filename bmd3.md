@@ -1,2 +1,6 @@
-Last updated: 2024-04-09 10:01:00
-Random Quote: Every hookup at a weekend wedding is decided at Friday Night Drinks. Get stuck with the wrong girl tonight, the only action you'll be getting all weekend is a self five and I don't mean the cool kind. Self-five! That's the cool kind. - Barney Stinson
+Last updated: 2024-04-09 10:01:33
+Random Quote: Sam: "They might be a part of the big three."
+Bucky: "What big three?"
+Sam: "Androids, aliens and wizards."
+Bucky: "That's not a thing."
+Sam: "That's definitely a thing." - Sam Wilson
