@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 10:27:13
-Random Quote: Get the keys and remove those chains from him, before you make me rue the day I raped your mother.  -  Roose Bolton
+Last updated: 2024-04-09 10:27:46
+Random Quote: There are moments when we must understand that the decisions we make influence more than just our own fates. - 
