@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 17:22:54
-Random Quote: I'm a good boyfriend in my sleep. I can rock a killer foot rub with one hand and brew a kick-ass pot of chamomile in the other, that would make you weep. Hell, I've forgotten more about microwaving fat-free popcorn and watching Sandra Bullock movies than you'll ever know, but: thanks for your concern, rook! - Marshall Eriksen
+Last updated: 2024-04-09 17:23:32
+Random Quote: You are the love of my life. Everything I have and everything I am is yours. Forever. - Barney Stinson

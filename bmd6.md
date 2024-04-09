@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 17:20:59
-Random Quote: The Drowned God gives every man a gift, even him; no man could piss longer or farther than Aeron Greyjoy, as he proved at every feast.  Once he bet his new longship against a herd of goats that he could quench a hearthfire with no more than his cock.  Aeron feasted on goat for a year, and named the longship Golden Storm, though Balon threatened to hang him from her mast when he heard what sort of ram his brother proposed to mount upon her prow.  -  Aeron Greyjoy
+Last updated: 2024-04-09 17:23:31
+Random Quote: Marshall: "Are you sure this poo-poo didn't happen on your watch and you just ran out the clock until it was my problem?"Lily: "Oh, yeah. Yeah, yeah, right. What kind of mother lets her son sit in his own filth for an extra nine minutes and 42 seconds?" - Lily Aldrin
