@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 17:09:21
-Random Quote: I don't take nothin' a drug addict says personally. 'Cause I don't believe nothin' a drug addict say. - Fezco
+Last updated: 2024-04-09 17:09:55
+Random Quote: It is for my prince to command, for Hotah to obey.  -  Areo Hotah
