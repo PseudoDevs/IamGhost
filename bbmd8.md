@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 09:31:00
-Random Quote: To live is to risk it all. Otherwise you're just an inert chunk of randomly assembled molecules drifting wherever the universe blows you. - Rick Sanchez
+Last updated: 2024-04-09 09:31:34
+Random Quote: In King's Landing, there are two sorts of people.  The players and the pieces.  -  Petyr Baelish
