@@ -1,5 +1,2 @@
-Last updated: 2024-04-09 17:12:05
-Random Quote: Morty: "I'm dying, Rick!"
-Rick: "People who are really dying don't keep bringing it up."
-Morty: "Is that true?"
-Rick: "I don't know. I'm just usually around people that die faster." - Rick Sanchez
+Last updated: 2024-04-09 17:12:38
+Random Quote: I believe the world's a bad place. And I don't think I'm much better. But we have to try. - Walt Breslin
