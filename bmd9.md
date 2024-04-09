@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 10:12:04
-Random Quote: The Burned Men fear nothing.  Timett, son of Timett will ride with the lions.  -  Timett, son of Timett
+Last updated: 2024-04-09 10:12:37
+Random Quote: I don't take nothin' a drug addict says personally. 'Cause I don't believe nothin' a drug addict say. - Fezco
