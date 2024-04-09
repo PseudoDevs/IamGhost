@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 09:25:47
-Random Quote: What's the point of having magic keys if we can't even use them? - Bode Locke
+Last updated: 2024-04-09 09:26:22
+Random Quote: The Horned Lord once said that sorcery is a sword without a hilt.  There is no safe way to grasp it.  -  Dalla
