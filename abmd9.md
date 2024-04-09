@@ -1,3 +1,2 @@
-Last updated: 2024-04-09 09:28:23
-Random Quote: Men and their d-cks never cease to amaze me. John, Lizzie Stark never did a day's work vertical.
-Brave is going where no man has gone before. And with Lizzie Stark, John, that's not what you'll be doing. - Polly Gray
+Last updated: 2024-04-09 09:28:56
+Random Quote: Ted: "My mother is not one-night-stand material!"Barney: "Yeah, you're right. It wasn't night and we weren't standing." - Barney Stinson
