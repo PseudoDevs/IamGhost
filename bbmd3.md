@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 10:39:55
-Random Quote: Larry Bloom: "Piper, you put a pee stick in my rinsing cup."Piper Chapman: "Well, you put your pee stick in my vagina. And that's why we're in this situation." - Piper Chapman
+Last updated: 2024-04-09 10:40:28
+Random Quote: Anyone who goes after him is gonna have to come through me. - Mike Ehrmantraut
