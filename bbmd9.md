@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 01:45:26
-Random Quote: Demons made of snow and ice and cold.  The ancient enemy.  The only enemy that matters.  -  Stannis Baratheon
+Last updated: 2024-04-09 01:46:00
+Random Quote: All the tales agreed that the green men had strange magic powers.  Maybe they could help him walk again, even turn him into a knight.  They turned the little crannogman into a knight, even if it was only for a day, he thought.  A day would be enough.  -  Bran Stark
