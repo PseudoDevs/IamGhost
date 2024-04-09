@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 11:40:35
-Random Quote: He'd led me in war, hunted with a king, won honor in tourney melees, ridden with Brynden Blackfish and Greatjon Umber, fought in the Whispering Wood, bedded more girls than he could name, and yet his uncle was treating him as though he were still a child of ten.  -  Theon Greyjoy
+Last updated: 2024-04-09 11:41:11
+Random Quote: His blood ran black.  Made him my brother as much as yours.  -  Yoren of the Night's Watch
