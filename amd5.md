@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 10:31:17
-Random Quote: Why didn't you say this to me when I was alive? - Hannah Baker
+Last updated: 2024-04-09 10:31:54
+Random Quote: The truth is, our weakness is the same as anyone’s. It’s people. The people we care about. So I say, cut them loose. For your good and for theirs. That way you’re really bulletproof. - Maeve
