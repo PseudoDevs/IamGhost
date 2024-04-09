@@ -1,2 +1,5 @@
-Last updated: 2024-04-09 10:33:41
-Random Quote: Success is 1% inspiration, 98% perspiration, and 2% attention to detail. - Phil Dunphy
+Last updated: 2024-04-09 10:34:16
+Random Quote: Dina: "You're infuriating."
+Ellie: "Have you met you?"
+Dina: "You make me want to go back outside into that blizzard."
+Ellie: "No one is stopping you." - Joel Miller
