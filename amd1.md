@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 11:56:58
-Random Quote: You're a beautiful, sweet girl. Fuck this guy! - Nicky Nichols
+Last updated: 2024-04-09 11:57:33
+Random Quote: The Citadel took my chain, but they could not take my knowledge.  -  Qyburn
