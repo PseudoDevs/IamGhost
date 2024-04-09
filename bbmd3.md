@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 11:39:25
-Random Quote: Heroes are not born, they're forged in darkness. Shaped in battle. Defined by sacrifice. - The Watcher
+Last updated: 2024-04-09 11:40:01
+Random Quote: I buried an axe so deep into Willem's skull, they had to bury him with it.  -  Yoren of the Knight's Watch

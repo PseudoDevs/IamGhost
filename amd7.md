@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 11:39:24
-Random Quote: Barney: "I love how she was this wise, old, chilled out, lesbian farmer."Robin: "No, no, no. She's not a lesbian, nor does she farm them. No, that woman she lives with, that's just her special friend Maureen. They've lived together for... Oh!" - Robin Scherbatsky
+Last updated: 2024-04-09 11:40:01
+Random Quote: He would have killed me but for Howland Reed.  -  Eddard Stark

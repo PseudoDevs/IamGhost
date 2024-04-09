@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 11:39:23
-Random Quote: Screw the FCC! I'll go to the mat with those pencil-pushers! This is textbook freedom of speech. What could be more American than that? - Saul Goodman
+Last updated: 2024-04-09 11:40:01
+Random Quote: There is no such thing as magic, just illusion. Things only change when we change them. But you have to do it skillfully, in secret. Then it seems like magic. - Mikkel Nielsen
