@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 17:23:23
-Random Quote: You don't get to tell anyone what's sad. You're like a one-man Mount Sadmore. So I guess like a Lincoln Sadmorial. - Rick Sanchez
+Last updated: 2024-04-09 17:23:56
+Random Quote: Jaime, sweetling, I have known you since you were a babe at Joanna's breast.  You smile like Gerion and fight like Tyg and there's some of Keven in you, else you would not wear that cloak... but Tyrion is Tywin's son, not you.  I said that once to your father's face, and he would not speak to me for half a year.  -  Genna Lannister
