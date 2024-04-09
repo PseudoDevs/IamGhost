@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 12:03:20
-Random Quote: You think you've lost everything? You have no idea! - Kim Wexler
+Last updated: 2024-04-09 12:03:54
+Random Quote: Make it easier for those whose vote you can count on. Make it harder for those you can't. That's how you rig an election without leaving a lick of evidence. - Walt Breslin
