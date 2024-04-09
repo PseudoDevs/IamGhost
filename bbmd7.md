@@ -1,2 +1,4 @@
-Last updated: 2024-04-09 10:35:10
-Random Quote: There are so many great things to do with the human mouth, why waste it on talking? - Barney Stinson
+Last updated: 2024-04-09 10:35:43
+Random Quote: Rick: "Guests are fans, Morty, which we are not. We'd like professional badges."
+"Do you have a crew?"
+Rick: "Yes. He's a getaway driver with Asperger's and my butt is a demolitions expert." - Rick Sanchez
