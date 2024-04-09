@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 17:24:10
-Random Quote: Every hookup at a weekend wedding is decided at Friday Night Drinks. Get stuck with the wrong girl tonight, the only action you'll be getting all weekend is a self five and I don't mean the cool kind. Self-five! That's the cool kind. - Barney Stinson
+Last updated: 2024-04-09 17:26:04
+Random Quote: The men of Westeros are ever rushing.  What good is this, I ask you?  He who hurries through life hurries to his grave.  -  Salladhor Saan
