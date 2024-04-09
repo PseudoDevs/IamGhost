@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 10:25:08
-Random Quote: What's the point of having magic keys if we can't even use them? - Bode Locke
+Last updated: 2024-04-09 10:25:45
+Random Quote: Spare me your empty little compliments, girl... and your ser's.  I am no knight.  I spit on them and their vows.  My brother is a knight.  -  Sandor Clegane
