@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 11:20:35
-Random Quote: Mando: "I was not born on Mandalore."Greef Karga: "But you're Mandalorian?"Cara Dune: "Mandalorian isn't a race."Mando: "It's a Creed." - Din Djarin
+Last updated: 2024-04-09 11:21:08
+Random Quote: The world was full of cravens who pretended to be heroes; it took a queer sort of courage to admit to cowardice as Samwell Tarly had.  -  Jon Snow
