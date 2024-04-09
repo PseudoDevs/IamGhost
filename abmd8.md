@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 09:54:08
-Random Quote: I learned form Set Arthur Dayne, the Sword of the Morning, who could have slain all five of you with his left hand while he was taking a piss with the right.  -  Jaime Lannister
+Last updated: 2024-04-09 09:54:45
+Random Quote: You are the love of my life. Everything I have and everything I am is yours. Forever. - Barney Stinson
