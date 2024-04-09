@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 01:43:34
-Random Quote: You see, ladies? When you're out with a Blinder, you don't have to queue. - Arthur Shelby
+Last updated: 2024-04-09 01:44:07
+Random Quote: Take the foundling to the city of Calodan on the forest planet Corvus. There, you will find Ahsoka Tano. Tell her you were sent by Bo-Katan. - Bo-Katan
