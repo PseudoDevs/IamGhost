@@ -1,3 +1,2 @@
-Last updated: 2024-04-09 17:36:45
-Random Quote: Morty: "I don't like how meta this is getting, Rick."
-Rick: "Shut up, Morty, you're 14. You watch videos of people on YouTube reacting to fing YouTube. I'll be the judge of when we get too meta." - Rick Sanchez
+Last updated: 2024-04-09 17:37:23
+Random Quote: Dismissing Selmy, where was the sense in that?  Yes, the man was old, but the name of Barristan the Bold still has meaning in the realm.  He lent honor to any man he served.  -  Tywin Lannister
