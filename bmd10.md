@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 11:08:28
-Random Quote: Never forget what you are, for surely the world will not.  Make it your strength.  Then it can never be your weakness.  Armor yourself in it, and it will never be used to hurt you.  -  Tyrion Lannister
+Last updated: 2024-04-09 11:09:01
+Random Quote: Marshall: "I don't care if the dishes aren't done, okay? If you care, you do it."Lily: "Great, then I don't care if you have an orgasm. If you care, you do it." - Lily Aldrin
