@@ -1,4 +1,2 @@
-Last updated: 2024-04-09 10:04:54
-Random Quote: Lorna Morello: "I need to start tightening up. You're making me feel like a cave."
-Nicky Nichols: "Baby, it's a c-nt, it stretches!"
-Lorna Morello: "Yeah, sometimes I feel like you're trying to climb inside my womb." - Lorna Morello
+Last updated: 2024-04-09 10:06:07
+Random Quote: At night, I fall asleep to you, and in the morning, I wake up to you. I kind of feel closer to you than I do anyone in the world. - Nate Jacobs
