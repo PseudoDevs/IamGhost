@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 17:32:39
-Random Quote: I don't know anything about norse gods, but I do know how to bring the thunder. - Thor
+Last updated: 2024-04-09 17:33:12
+Random Quote: The Old Gods stir and will not let me sleep.  I dreamt I saw a shadow with a burning heart butchering a golden stag, aye.  I dreamt of a man without a face, waiting on a bridge that swayed and swung.  On his shoulder perched a drowned crow with seaweed hanging from his wings.  I dreamt of a roaring river and a woman that was a fish.  Dead she drifted, with red tears on her cheeks, but when her eyes did open, oh, I woke from terror.  All this I dreamt, and more.  -  The Ghost of High Heart
