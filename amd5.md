@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 12:07:21
-Random Quote: They shall come day and night to see the wonder that has been born again into the world, and when they see they shall lust.  For dragons are fire made flesh, and fire is power.  -  Quaithe
+Last updated: 2024-04-09 12:08:30
+Random Quote: I feel like you ruined me forever. - Maddy Perez
