@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 12:17:25
-Random Quote: They're all weighing the beskar in their minds, but not me. No. I for one, I celebrate your success, because it is my success as well. Hell, even I'm rich. - Greef Karga
+Last updated: 2024-04-09 12:17:59
+Random Quote: When you date someone, it's like you're taking one long course in who that person is and then, when you break up, all that stuff becomes useless. It's the emotional equivalent of an English degree... - Ted Mosby

@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 12:17:25
-Random Quote: The Wall can stop an army, but not a man alone.  -  Mance Rayder
+Last updated: 2024-04-09 12:17:59
+Random Quote: Why is it always the innocents who suffer most, when you high lords play your game of thrones?  -  Varys
