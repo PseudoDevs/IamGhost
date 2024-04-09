@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 10:35:28
-Random Quote: Friends... they tell each other things. Things that parents don't know. - Mike Wheeler
+Last updated: 2024-04-09 10:36:04
+Random Quote: This is the one that you saved? You are as its father. A clan of two. But you have removed your helmet. Then you are a Mandalorian no more. - The Armorer
