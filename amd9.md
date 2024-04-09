@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 09:55:04
-Random Quote: Catelyn would sooner Lord Umber had seen fit to stay sober, but telling the Greatjon not to drink was like telling him not to breathe for a few hours.  -  Catelyn Stark
+Last updated: 2024-04-09 09:56:10
+Random Quote: Time without purpose is a prison. - Jessica
