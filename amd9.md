@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 09:56:10
-Random Quote: Time without purpose is a prison. - Jessica
+Last updated: 2024-04-09 09:56:43
+Random Quote: Strip off their skins.  Lord Bolton, he used to say a naked man has few secrets, but a flayed man's got none.  -  Ramsay Bolton

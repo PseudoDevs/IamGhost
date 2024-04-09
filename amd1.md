@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 09:56:10
-Random Quote: Don’t take it so personally, okay? I don’t like most people. He’s in the vast majority. - Jonathan Byers
+Last updated: 2024-04-09 09:56:43
+Random Quote: Barney: "Fine, we'll just have a nice, tasteful rehearsal dinner. Maybe at a French restaurant, I know just the place."Robin: "What's the name of the restaurant?"Barney: "La Sertag." - Barney Stinson
