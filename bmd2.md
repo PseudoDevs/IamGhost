@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 11:56:57
-Random Quote: Jaime and I are more than brother and sister.  We are one person in two bodies.  We shared a womb together.  He came into this world holding my foot, our old maester said.  When he is in me, I feel... whole.  -  Cersei Lannister
+Last updated: 2024-04-09 11:57:31
+Random Quote: Smoking marijuana, eating cheetos, and masturbating do not constitute plans in my book. - Walter White
