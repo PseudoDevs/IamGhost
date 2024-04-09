@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 17:24:09
-Random Quote: Why is it always the innocents who suffer most, when you high lords play your game of thrones?  -  Varys
+Last updated: 2024-04-09 17:25:24
+Random Quote: There was this sadness in his eyes. The kind you sometimes see in those who want to die, but life won’t let them - Noah

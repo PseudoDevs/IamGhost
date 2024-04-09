@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 17:24:09
-Random Quote: When you play the game of thrones, you win or you die.  There is no middle ground.  -  Cersei Lannister
+Last updated: 2024-04-09 17:25:24
+Random Quote: Barney: "I met a girl last night. So perky and full of life and not at all fake."Ted: "You're talking about her boobs, right?"Barney: "Si. And that wasn't Spanish, that was cup size. What up?!" - Barney Stinson
