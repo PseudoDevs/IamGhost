@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 10:20:07
-Random Quote: They're minerals, Marie! Jesus! - Hank Schrader
+Last updated: 2024-04-09 10:20:40
+Random Quote: The Red God has his due, sweet girl, and only death may pay for life.  This girl took three that were his.  This girl must give three in their places.  Speak the names, and a man will do the rest.  -  Jaqen H'ghar
