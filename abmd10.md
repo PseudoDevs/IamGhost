@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 10:23:54
-Random Quote: Omera: "You haven't shown your face to anyone since you were a kid?"Mando: "No. I was happy that they took me in. My parents were killed and the Mandalorians took care of me. This is the way." - Din Djarin
+Last updated: 2024-04-09 10:24:33
+Random Quote: Marshall Eriksen, put a baby in my belly. - Lily Aldrin
