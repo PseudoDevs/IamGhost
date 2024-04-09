@@ -1,4 +1,3 @@
-Last updated: 2024-04-09 10:17:10
-Random Quote: Bo-Katan: "I've scugged off a lot of Imperial warlords."
-Din: "They tend to get mad when you hijack their ships."
-Bo-Katan: "Now you tell me." - Bo-Katan
+Last updated: 2024-04-09 10:17:45
+Random Quote: Miguel: "Would you have really fed me to those hippos?"
+Pablo: "No. Hippos don't like Mexicans either." - Pablo Escobar
