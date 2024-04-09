@@ -1,3 +1,2 @@
-Last updated: 2024-04-09 17:06:35
-Random Quote: The Deep: "What do we do? We can't just kill everyone."
-Billy Butcher: "That's exactly what we're gonna do!" - Billy Butcher
+Last updated: 2024-04-09 17:07:09
+Random Quote: You cannot change the nature of things. I am who I am. And you are who you are. Nothing will change that. - Ángel
