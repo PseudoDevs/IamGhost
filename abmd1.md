@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 10:33:27
-Random Quote: Because you're so broken you don't even trust yourself. And that's scary. - Nate Jacobs
+Last updated: 2024-04-09 10:34:00
+Random Quote: It's only once you've stopped, that you realize how hard it is to start again. So you force yourself not to want it. - Ted Mosby
