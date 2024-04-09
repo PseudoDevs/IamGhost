@@ -1,2 +1,3 @@
-Last updated: 2024-04-09 10:27:39
-Random Quote: You think you've lost everything? You have no idea! - Kim Wexler
+Last updated: 2024-04-09 10:28:14
+Random Quote: Robin: "I'm drinking 'til I forget the 1999 NFC Championship?"
+Marshall: "The Vikings were two minutes away from going to the Super Bowl, when our kicker, who hadn't missed all year, shanked a field goal, and we lost in overtime. Damn!" - Marshall Eriksen
