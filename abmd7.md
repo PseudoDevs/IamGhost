@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 09:33:27
-Random Quote: Bulls are strong.  Bears.  I have seen my bastard fight.  He is not entirely to blame.  Reek was his tutor, the first Reek, and Reek was never trained at arms.  Ramsay is ferocious, I will grant you, but he swings that sword like a butcher hacking meat.  -  Roose Bolton
+Last updated: 2024-04-09 09:34:40
+Random Quote: There is no creature on earth half so terrifying as a truly just man.  -  Varys
