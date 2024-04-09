@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 10:14:45
-Random Quote: Yesterday, today and tomorrow are not consecutive, they are connected in a never-ending circle. Everything is connected - The Stranger
+Last updated: 2024-04-09 10:15:20
+Random Quote: The more you give a king, the more he wants.  We are walking on a bridge of ice with an abyss on either side.  Pleasing one king is difficult enough.  Pleasing two is hardly possible.  -  Jon Snow
