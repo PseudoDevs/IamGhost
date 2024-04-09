@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 10:02:22
-Random Quote: Business is changing and we must change with it. - Miguel Angel Felix Gallardo
+Last updated: 2024-04-09 10:04:16
+Random Quote: Marshall: "Excuse me, miss. When you get a chance, could you bring over a hundred shots of tequila please?"Barney: "I'll have the same." - Marshall Eriksen
