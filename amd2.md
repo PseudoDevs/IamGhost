@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 09:58:31
-Random Quote: Tarly, when I was a lad half your age, my lady mother told me that if I stood about with my mouth open, a weasel was like to mistake it for his lair and run down my throat.  If you have something to say, say it.  Otherwise, beware of weasels.  -  Jeor Mormont
+Last updated: 2024-04-09 09:59:10
+Random Quote: There is a time to fight and there is a time to be clever. - Pablo Escobar
