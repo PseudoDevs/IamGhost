@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 11:04:01
-Random Quote: I dreamt a wolf howling in the rain, but no one heard his grief.  I dreamt such a clangor I thought my head myght burst, drums and horns and pipes and screams, but the saddest sound was the little bells.  I dreamt of a maid at a feast with purple serpents in her hair, venom dripping from their fangs.  And later I dreamt that maid again, slaying a savage giant in a castle built of snow.  -  The Ghost of High Heart
+Last updated: 2024-04-09 11:04:34
+Random Quote: There's proving and there's knowing. -  Bill Oakley
