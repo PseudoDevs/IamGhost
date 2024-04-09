@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 11:34:36
-Random Quote: Weakness is not in us, it is what we have outside. - Professor
+Last updated: 2024-04-09 11:35:47
+Random Quote: If I'm always looking back, I'm never looking ahead. We are who we are because of consequences. You can't live without consequences. - Morty Smith
