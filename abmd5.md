@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 17:28:27
-Random Quote: Watch a sunrise at least once a day. - Phil Dunphy
+Last updated: 2024-04-09 17:29:00
+Random Quote: Do you think I can't tell Lord Stannis from Lord Tywin?  They're both bungholes who think they're too noble to shit, but never mind about that, I know the difference.  -  Walder Frey
