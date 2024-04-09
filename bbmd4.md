@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 01:48:48
-Random Quote: You have to be as bad as them above in order to survive. - Polly Gray
+Last updated: 2024-04-09 01:49:23
+Random Quote: Winter will never come for the likes of us.  Should we die in battle, they will surely sing of us, and it's always summer in the songs.  In the songs all knights are gallant, all maids are beautiful, and the sun is always shining.  -  Brienne of Tarth
