@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 17:54:15
-Random Quote: Know the men who follow you and let them know you.  Don't ask your men to die for a stranger.  -  Eddard Stark
+Last updated: 2024-04-09 17:54:47
+Random Quote: The Lion does not concern itself with the opinions of sheep.  -  Tywin Lannister
