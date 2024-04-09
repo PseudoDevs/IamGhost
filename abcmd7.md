@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 01:49:52
-Random Quote: Marshall: "The broken windows?"Lily: "We had to make it look realistic."Marshall: "But why did you break two of them?"Robin: "It looked like fun when she did it, so I wanted to try."Marshall: "I can't believe this whole time it was you guys; I've been blaming Really Tan Dancing Leotard guy." - Marshall Eriksen
+Last updated: 2024-04-09 04:54:04
+Random Quote: The big bro in the sky had answered my prayers. Allmighty five! - Barney Stinson
