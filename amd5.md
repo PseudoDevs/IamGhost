@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 09:32:48
-Random Quote: Oh my God, Larry, by the time I get out, there will've been like three new generations of iPhones! - Piper Chapman
+Last updated: 2024-04-09 09:33:24
+Random Quote: They'll bend the knee or I'll destroy them.  -  Stannis Baratheon
