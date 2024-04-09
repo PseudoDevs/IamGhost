@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 11:24:17
-Random Quote: Judy: "Who got Cousin Daphne drunk? She is 15 years old."Robin: "Whoa, they grow big out here."Barney: "And here's your phone number back." - Barney Stinson
+Last updated: 2024-04-09 11:24:50
+Random Quote: Euron Greyjoy is no man's notion of a king, if half of what Theon said of him was true.  -  Robb Stark
