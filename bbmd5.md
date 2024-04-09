@@ -1,3 +1,2 @@
-Last updated: 2024-04-09 09:48:34
-Random Quote: HR: "I know this is classic HR to say, but: You're not alone."
-Steven: "Yeah. That's like, part of the problem, innit?" - Arthur Harrow
+Last updated: 2024-04-09 09:52:17
+Random Quote: She studied Theon Greyjoy's sly smile, wondering what it meant.  That young man had a way of looking as though he knew some secret jest that only he was privy to; Catelyn had never liked it.  -  Catelyn Stark
