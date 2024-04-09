@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 11:43:59
-Random Quote: You know, it's funny. Almost every woman I've ever met was wrong to give me a chance. You're the first woman who's wrong not to. - Barney Stinson
+Last updated: 2024-04-09 11:44:32
+Random Quote: We're done when I say we're done. - Walter White
