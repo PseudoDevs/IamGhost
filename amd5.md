@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 11:30:16
-Random Quote: You don’t want a criminal lawyer. You want a criminal lawyer. - Jesse Pinkman
+Last updated: 2024-04-09 11:30:49
+Random Quote: If I could be a different person, I promise you, I would. Not 'cause I want it, but 'cause they do. - Rue Bennett
