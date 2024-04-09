@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 01:41:21
-Random Quote: I never asked for this, no more than I asked to be king.  Yet dare I disregard her?  We do not choose our destinies.  Yet we must... we must do our duty, no?  Great or small, we must do our duty.  -  Stannis Baratheon
+Last updated: 2024-04-09 01:41:54
+Random Quote: You're a beautiful, sweet girl. Fuck this guy! - Nicky Nichols
