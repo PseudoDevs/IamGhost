@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 11:06:43
-Random Quote: The Lion does not concern itself with the opinions of sheep.  -  Tywin Lannister
+Last updated: 2024-04-09 11:07:17
+Random Quote: His blood is bad.  He needs to be leeched.  The leeches suck away the bad blood, all the rage and pain.  No man can think so full of anger.  Ramsay, though... his tainted blood would poison even leeches, I fear.  -  Roose Bolton
