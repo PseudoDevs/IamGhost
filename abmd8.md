@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 10:30:24
-Random Quote: I was wed three times and my wives gave me daughters.  Now only Beth remains to me.  My brother Martyn fathered four strong sons, yet only Jory lived to be a man.  When he was slain, Martyn's line died with him.  When we speak of the morrow nothing is ever certain.  -  Rodrik Cassel
+Last updated: 2024-04-09 10:30:57
+Random Quote: You are the love of my life. Everything I have and everything I am is yours. Forever. - Barney Stinson
