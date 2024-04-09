@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 17:38:05
-Random Quote: A grievous wound, aye, but Thoros healed it.  There's never been no better healer.  -  Lem Lemoncloak
+Last updated: 2024-04-09 17:38:42
+Random Quote: I've only known one other being like this. A wise Jedi Master named Yoda. - Ahsoka Tano
