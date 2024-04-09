@@ -1,3 +1,2 @@
-Last updated: 2024-04-09 10:58:10
-Random Quote: Ellie: "There's not gonna be anything bad in here?"
-Joel: "Just you." - Joel Miller
+Last updated: 2024-04-09 11:00:40
+Random Quote: We're done when I say we're done. - Walter White
