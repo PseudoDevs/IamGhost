@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 01:47:41
-Random Quote: Barney: "Or it's a chance to mess with her head by showing up with someone hotter. Even better. Triple-threat: hotter and bigger boobs."Ted: "That's only two?"Barney: "Count again!" - Barney Stinson
+Last updated: 2024-04-09 01:48:14
+Random Quote: Marshall really took a two-flusher on that one! - Ted Mosby
