@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 17:10:56
-Random Quote: All men are fools, if truth be told, but the ones in motley are more amusing than the ones with crowns.  -  Olenna Tyrell
+Last updated: 2024-04-09 17:11:29
+Random Quote: Marshall: "Lily dream-banged someone we know."Barney: "Okay, you caught me vermilion-handed. The truth is, I've spent the last five years trying to inception your wife."Marshall: "That movie only came out two years ago."Barney: "What movie?" - Barney Stinson
