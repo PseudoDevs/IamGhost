@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 09:30:39
-Random Quote: Mrs. Buckminster was a spoonful of sugar. But so far, everyone we can afford on this website HeyNannyNanny.com is "Scary Poppins". - Lily Aldrin
+Last updated: 2024-04-09 09:31:12
+Random Quote: The Lord of Light cherishes the innocent.  There is no sacrifice more precious.  From his king's blood and his untainted fire, a dragon shall be born.  -  Melisandre
