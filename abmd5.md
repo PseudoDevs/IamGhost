@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 17:52:00
-Random Quote: You are her perfect prince, agreed, bright and bold and comely as any maid could wish.  Daenerys Targaryen is no maid, however.  She is the widow of a Dothraki Khal, a mother of dragons and sacker of cities, Aegon the Conquereror with teats.  She may not prove as willing as you wish.  -  Tyrion Lannister
+Last updated: 2024-04-09 17:52:33
+Random Quote: Only Renly could vex me so with a piece of fruit.  He brought his doom on himself with his treason, but I did love him, Davos.  I know that now.  I swear, I will go to my grave thinking of my brother's peach.  -  Stannis Baratheon
