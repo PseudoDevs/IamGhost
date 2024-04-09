@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 17:14:12
-Random Quote: You don't get to blame your problems on anyone but yourself. - Allison Hargreeves
+Last updated: 2024-04-09 17:14:45
+Random Quote: There's kids playing hockey in the back. It's like you want us to make fun of you! - Barney Stinson
