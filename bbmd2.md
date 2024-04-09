@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 01:49:56
-Random Quote: Master Mott said Thoros could outdrink even King Robert.  They were pease in a pod, he told me, both gluttons and sots.  -  Gendry
+Last updated: 2024-04-09 04:53:39
+Random Quote: The only difference between us is, when I made bad decisions in life, I didn't get caught. - Susan Fischer
