@@ -1,3 +1,2 @@
-Last updated: 2024-04-09 11:58:31
-Random Quote: Miguel: "Would you have really fed me to those hippos?"
-Pablo: "No. Hippos don't like Mexicans either." - Pablo Escobar
+Last updated: 2024-04-09 11:59:04
+Random Quote: Oh, come on. If you don't laugh, it just seems mean. - Barney Stinson
