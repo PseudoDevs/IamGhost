@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 09:31:10
-Random Quote: I dreamt a wolf howling in the rain, but no one heard his grief.  I dreamt such a clangor I thought my head myght burst, drums and horns and pipes and screams, but the saddest sound was the little bells.  I dreamt of a maid at a feast with purple serpents in her hair, venom dripping from their fangs.  And later I dreamt that maid again, slaying a savage giant in a castle built of snow.  -  The Ghost of High Heart
+Last updated: 2024-04-09 09:31:43
+Random Quote: I put up a good fight but I lost. For the first time, but not the last. - Rue Bennett
