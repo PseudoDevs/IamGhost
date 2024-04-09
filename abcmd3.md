@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 11:03:01
-Random Quote: Ted: "As a kid, I was known as a bit of a detective. In fact, when my friend's retainer went missing, the Mosby Boys were put on the case, and it was..."Victoria: "The retainer was in the garbage. The Mosby Boys were you, your sister, and a neighborhood squirrel you thought you had tamed."Ted: "I can't believe Squirrel-lock Holmes turned on us like that, eight weeks of training down the drain." - Ted Mosby
+Last updated: 2024-04-09 11:03:34
+Random Quote: Jon, did you ever wonder why the men of the Night's Watch take no wives and father no children?  So they will not love, for love is the bane of honor, the death of duty.  -  Maester Aemon
