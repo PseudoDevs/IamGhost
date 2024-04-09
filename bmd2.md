@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 10:54:30
-Random Quote: Marshall: "Dude, if we fail this econ final, for the rest of our lives we're not gonna be able to... we won't know how to... do you even know what 'econ' is?"Ted: "No idea. We're screwed." - Ted Mosby
+Last updated: 2024-04-09 10:55:06
+Random Quote: Knowledge is a weapon, Jon.  Arm yourself well before you ride forth to battle.  -  Maester Aemon
