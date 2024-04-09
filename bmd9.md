@@ -1,2 +1,5 @@
-Last updated: 2024-04-09 10:15:58
-Random Quote: For the first time in my life, I don't want to find myself in three years with some random girl. No matter how many boobs she has. - Barney Stinson
+Last updated: 2024-04-09 10:17:46
+Random Quote: Dina: "You're infuriating."
+Ellie: "Have you met you?"
+Dina: "You make me want to go back outside into that blizzard."
+Ellie: "No one is stopping you." - Joel Miller

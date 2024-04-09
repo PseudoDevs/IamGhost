@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 10:16:34
-Random Quote: I’d get 30 years. And to be honest, growing old in a prison cell is not my thing. I’d rather run, in body and soul. And if I can’t take my body with me, at least my soul should run. - Tokyo
+Last updated: 2024-04-09 10:17:46
+Random Quote: I'm not surviving, I'm just existing. - Brook Soso
