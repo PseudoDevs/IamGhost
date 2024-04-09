@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 09:21:44
-Random Quote: In the end, we will all get just what we deserve. - 
+Last updated: 2024-04-09 09:22:18
+Random Quote: There are worse ways to die than warm and drunk.  I knew a brother drowned himself in wine once.  It was a poor vintage, though, and his corpse did not improve it.  -  Dolorous Edd Tollett

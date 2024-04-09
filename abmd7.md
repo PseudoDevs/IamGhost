@@ -1,3 +1,2 @@
-Last updated: 2024-04-09 09:21:44
-Random Quote: What do you call a fish with no eyes?
-Fsh. - Marshall Eriksen
+Last updated: 2024-04-09 09:22:18
+Random Quote: Only a fool humbles himself when the world is so full of men eager to do that job for him.  -  Theon Greyjoy
