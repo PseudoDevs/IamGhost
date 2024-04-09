@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 09:53:17
-Random Quote: It's only once you've stopped, that you realize how hard it is to start again. So you force yourself not to want it. - Ted Mosby
+Last updated: 2024-04-09 09:53:50
+Random Quote: What if God doesn’t know what he’s doing? If the plan is wrong? If God is wrong? - 
