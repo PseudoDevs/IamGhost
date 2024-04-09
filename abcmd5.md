@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 10:42:42
-Random Quote: This is my own private domicile and I will not be harassed…bitch! - Jesse Pinkman
+Last updated: 2024-04-09 10:43:17
+Random Quote: Young or old, a true knight is sworn to protect those who are weaker than himself, or die in the attempt.  -  Brienne of Tarth
