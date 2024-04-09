@@ -1,2 +1,4 @@
-Last updated: 2024-04-09 11:11:02
-Random Quote: I can not believe that a woman who was brave enough to travel halfway around the world to pursue her dreams would allow anyone to dictate who she can be with. - Fabiola Torres
+Last updated: 2024-04-09 11:12:13
+Random Quote: Marshall: "Except the flames of Lucifer keep singein our back bumper as we drive through this hellish, cheese-infected wasteland."
+Lily: "Wisconsin?"
+Marshall: "Wisconsin!" - Marshall Eriksen
