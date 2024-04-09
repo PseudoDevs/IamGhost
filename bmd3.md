@@ -1,6 +1,2 @@
-Last updated: 2024-04-09 11:55:49
-Random Quote: Polly: "Six."
-John: "Six what?"
-Polly: "Six questions since you walked through that door. Soon you'll have to start being the man with the answers."
-John: "Why?"
-Polly: "Seven." - Polly Gray
+Last updated: 2024-04-09 11:56:22
+Random Quote: I want you to wanna kiss me so bad that you don't even ask. - Jules Vaughn
