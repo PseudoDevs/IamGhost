@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 11:59:53
-Random Quote: You have to be as bad as them above in order to survive. - Polly Gray
+Last updated: 2024-04-09 12:01:02
+Random Quote: Catelyn would sooner Lord Umber had seen fit to stay sober, but telling the Greatjon not to drink was like telling him not to breathe for a few hours.  -  Catelyn Stark
