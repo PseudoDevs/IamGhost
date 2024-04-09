@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 11:12:49
-Random Quote: I'd ask what you're up to, Klaus, but then it occurred to me: I don't care. - Number Five
+Last updated: 2024-04-09 11:13:24
+Random Quote: When you date someone, it's like you're taking one long course in who that person is and then, when you break up, all that stuff becomes useless. It's the emotional equivalent of an English degree... - Ted Mosby
