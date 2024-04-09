@@ -1,5 +1,2 @@
-Last updated: 2024-04-09 12:12:39
-Random Quote: Therapist: "You need to stop doing these weird things. Go out sometime."
-Klaus: "I went to the park today."
-Therapist: "There you go! I hope you got something from that."
-Klaus: "[Opens up coat] This duck." - Klaus Hargreeves
+Last updated: 2024-04-09 12:13:15
+Random Quote: Barney: "The Disappearing Salami... Mr. Flanagan's wife shot him before he could ever tell me what the trick was."Quinn: "Yeah, that guy was banging your mom!" - Quinn Garvey
