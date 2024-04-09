@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 04:53:21
-Random Quote: I will kill your wife, I will kill your son, I will kill your infant daughter. - Gustavo Fring
+Last updated: 2024-04-09 04:53:57
+Random Quote: I don't remember much between the ages of eight and twelve. Just that the world moved fast and my brain moved slow. And every now and then, if I focused too closely on the way I breathed, I'd die. Until every second of every day, you find yourself trying to outrun your anxiety. - Rue Bennett

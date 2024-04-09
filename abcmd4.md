@@ -1,3 +1,2 @@
-Last updated: 2024-04-09 04:53:25
-Random Quote: Lily: "We're going to Atlantic City to elope - right now!"
-Barney: "Oh, congratulations Lily! Marshall, you're getting married? What the hell?" - Barney Stinson
+Last updated: 2024-04-09 04:54:01
+Random Quote: Ted: "Barney! I'm allowed to miss them, okay? They're my two best friends."Barney: "I'm your two best friends!" - Barney Stinson
