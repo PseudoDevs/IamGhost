@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 17:25:26
-Random Quote: You could turn King's Landing upside down and not find a single man with a mockingbird sewn over his heart but that does not mean I am friendless.  -  Petyr Baelish
+Last updated: 2024-04-09 17:26:04
+Random Quote: There is a time to fight and there is a time to be clever. - Pablo Escobar
