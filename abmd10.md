@@ -1,2 +1,3 @@
-Last updated: 2024-04-09 09:37:33
-Random Quote: The most important moments are the ones that make you realize there’s no turning back. You’ve crossed a line, and you’re stuck on the other side now. - Tokyo
+Last updated: 2024-04-09 09:38:06
+Random Quote: Morty: "You're really this pissed about my mum making sure I'm okay with our adventures?"
+Rick: "What's next, Morty? What if I want you to jump off the Empire State Building? I have to ask?" - Rick Sanchez
