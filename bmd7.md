@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 09:37:46
-Random Quote: My real father died in King's Landing.  I made a choice, and I chose wrong.  -  Theon Greyjoy
+Last updated: 2024-04-09 09:39:00
+Random Quote: Is it your fault that Bronn's an insolent black - hearted rogue?  He's always been an insolent black

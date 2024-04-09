@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 09:38:21
-Random Quote: I did it for me. I liked it. I was good at it. And I was really... I was alive. - Walter White
+Last updated: 2024-04-09 09:39:00
+Random Quote: We can only die.  Why else do we don these black cloaks, but to die in defense of the realm?  -  Qhorin Halfhand
