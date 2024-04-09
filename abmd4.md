@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 10:48:03
-Random Quote: Omera: "You haven't shown your face to anyone since you were a kid?"Mando: "No. I was happy that they took me in. My parents were killed and the Mandalorians took care of me. This is the way." - Din Djarin
+Last updated: 2024-04-09 10:48:39
+Random Quote: Your story is so sweet. You didn't even kiss 'til the third date. By our third date, I hit more bases than Bob Hope on a USO tour. - Barney Stinson

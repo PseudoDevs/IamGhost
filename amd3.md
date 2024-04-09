@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 10:46:51
-Random Quote: Ted: "You know Robin? Been thinking about it. Guess it's kind of nice you're such a bad-ass."Robin: "It's pretty bad-ass you're so nice, Ted." - Robin Scherbatsky
+Last updated: 2024-04-09 10:48:38
+Random Quote: Not all final girls make it to the end by fighting the monster. Some of them hide. They stay quiet when their family needs them. They're not waiting for their moment. They don't even know if another moment's coming. They just close their eyes and wait for it to be over. Truth is, some final girls are cowards. - Kinsey Locke
