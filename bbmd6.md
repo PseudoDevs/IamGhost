@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 10:20:16
-Random Quote: Ted it's fine, I'm a child of divorce. You guys keep fighting all you want - as long as the expensive gifts keep coming. - Lily Aldrin
+Last updated: 2024-04-09 10:20:52
+Random Quote: No voting, no debate. It's not a democracy - it's a Rickpublic! - Summer Smith
