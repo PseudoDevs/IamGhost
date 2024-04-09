@@ -1,3 +1,2 @@
-Last updated: 2024-04-09 11:05:32
-Random Quote: Kids, you can't talk yourself into falling in love. It doesn't take days of deliberation. When it's real, you know pretty quickly and with absolute certainty.
-I had forgotten that, but I was about to be reminded... - Ted Mosby
+Last updated: 2024-04-09 11:06:08
+Random Quote: Mitchell: "It's been five years now and he still does this thing were he announces himself before walking into any room we're in, just to make sure he doesn't ever see us kiss."Cameron: "Wish my mother had that system. Remember?" - Cameron Tucker
