@@ -1,3 +1,2 @@
-Last updated: 2024-04-09 10:26:24
-Random Quote: "Everybody else can see Ben, right?"
-"Yeah, and he's a complete d-ckhead." - Allison Hargreeves
+Last updated: 2024-04-09 10:27:01
+Random Quote: You think you've lost everything? You have no idea! - Kim Wexler

@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 10:25:47
-Random Quote: All three of you were being a buch of little a-sholes. I was the only reasonable one. - Dustin Henderson
+Last updated: 2024-04-09 10:27:01
+Random Quote: I don't know what kind of fed up sht you got going inside of your head. I don't know how to help, but I could tell you one thing: This drug sht - it's not the answer. - Fezco

@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 10:25:47
-Random Quote: You think you're the only one he whispers secrets to?  He gives each of us just enough to convince us that we'd be helpless without him.  -  Cersei Lannister
+Last updated: 2024-04-09 10:27:01
+Random Quote: Someone has to protect this family from the man who protects this family. - Skyler White
