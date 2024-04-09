@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 09:51:40
-Random Quote: Barney: "Ted, it's a well-known statistic, that 83% of people, married longer than 6 months, are saving someone on the side."Ted: "Do you know that when you make up a statistic, you always use 83% ?" - Ted Mosby
+Last updated: 2024-04-09 09:52:18
+Random Quote: My real father died in King's Landing.  I made a choice, and I chose wrong.  -  Theon Greyjoy

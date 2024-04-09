@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 09:51:03
-Random Quote: I can not believe that a woman who was brave enough to travel halfway around the world to pursue her dreams would allow anyone to dictate who she can be with. - Fabiola Torres
+Last updated: 2024-04-09 09:52:18
+Random Quote: If you die before you say her name, Set, I will hunt you through the seven hells.  -  Oberyn Martell
