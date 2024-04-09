@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 11:56:31
-Random Quote: I guess, if we're splitting hairs, then technically... there was a plurality to the times I've lied to women for sex-having-purposes. - Barney Stinson
+Last updated: 2024-04-09 11:57:04
+Random Quote: What is the cost of lies? It's not that we mistake them for the truth. The real danger is that if we hear enough lies, then we no longer recognize the truth at all. - Valery Legasov
