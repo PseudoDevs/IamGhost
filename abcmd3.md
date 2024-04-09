@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 11:11:37
-Random Quote: Just in case either of us can actually make it out of this hellhole somehow, we'll look after each other's loved ones, okay? - Oh Il-nam
+Last updated: 2024-04-09 11:12:13
+Random Quote: A queen must listen to all.  The highborn and the low, the strong and the weak, the noble and the venal.  One voice may speak you false, but in many there is always truth to be found.  -  Daenerys Targaryen
