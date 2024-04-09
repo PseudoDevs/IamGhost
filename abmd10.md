@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 09:23:24
-Random Quote: You have to be as bad as them above in order to survive. - Polly Gray
+Last updated: 2024-04-09 09:23:59
+Random Quote: Freeways have exits, so do relationships. The first exit, my personal favourite, is six hours in: You meet, you talk, you have sex, you exit when she's in the shower. - Barney Stinson
