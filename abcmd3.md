@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 09:34:03
-Random Quote: I believe the world's a bad place. And I don't think I'm much better. But we have to try. - Walt Breslin
+Last updated: 2024-04-09 09:34:40
+Random Quote: The stone is strong... the roots of the trees grow deep, and under the ground the Kings of Winter sit their thrones.  So long as those remained, Winterfell remained.  It was not dead, just broken.  Like me... I'm not dead either.  -  Bran Stark
