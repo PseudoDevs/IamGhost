@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 10:31:43
-Random Quote: Fire in the hole, bitch! - Jesse Pinkman
+Last updated: 2024-04-09 10:32:16
+Random Quote: The absolute worst part of depression is that even though you know you're depressed, You're unable to stop yourself from getting worse. - Rue Bennett
