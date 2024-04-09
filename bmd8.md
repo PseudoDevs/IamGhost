@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 17:29:08
-Random Quote: Larry Bloom: "Piper, you put a pee stick in my rinsing cup."Piper Chapman: "Well, you put your pee stick in my vagina. And that's why we're in this situation." - Piper Chapman
+Last updated: 2024-04-09 17:29:43
+Random Quote: Ted: "We can do it against the door. It will be hot. It will be like a three-way: you, me and the door."Stella: "Yeah, but then it's going to be weird between me and the door tomorrow." - Stella Zinman
