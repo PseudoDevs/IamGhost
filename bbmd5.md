@@ -1,3 +1,2 @@
-Last updated: 2024-04-09 01:40:25
-Random Quote: Kids, you can't talk yourself into falling in love. It doesn't take days of deliberation. When it's real, you know pretty quickly and with absolute certainty.
-I had forgotten that, but I was about to be reminded... - Ted Mosby
+Last updated: 2024-04-09 01:40:58
+Random Quote: We have to control this fing world, or it will control you. And if you don't protect yourself, it makes a mess and breaks you. - Miguel Angel Felix Gallardo
