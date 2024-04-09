@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 11:00:01
-Random Quote: Know the men who follow you and let them know you.  Don't ask your men to die for a stranger.  -  Eddard Stark
+Last updated: 2024-04-09 11:00:37
+Random Quote: Just remember who your friends and who your enemies are. - Billy Butcher
