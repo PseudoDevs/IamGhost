@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 17:13:31
-Random Quote: Jesus! Just grow some fucking balls! - Walter White
+Last updated: 2024-04-09 17:14:41
+Random Quote: Why the oldest son, and not the best - fitted?  The crown will suit me, as it never suited Robert and would not suit Stannis. 
