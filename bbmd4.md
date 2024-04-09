@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 11:45:22
-Random Quote: Ted: "She was 15?!"Barney: "No. A 15. Like in blackjack."Ted: "As in.. not sure whether you'd hit it?"Barney: "Exactly!" - Barney Stinson
+Last updated: 2024-04-09 11:45:55
+Random Quote: And at some point you make a choice about who you are and what you want. - Rue Bennett
