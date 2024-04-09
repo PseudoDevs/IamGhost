@@ -1,3 +1,2 @@
-Last updated: 2024-04-09 11:28:37
-Random Quote: Kids, you can't talk yourself into falling in love. It doesn't take days of deliberation. When it's real, you know pretty quickly and with absolute certainty.
-I had forgotten that, but I was about to be reminded... - Ted Mosby
+Last updated: 2024-04-09 11:29:10
+Random Quote: What if God doesn’t know what he’s doing? If the plan is wrong? If God is wrong? - 
