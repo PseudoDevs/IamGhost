@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 04:54:29
-Random Quote: Miss Addams, you sadly had a very interesting educational journey. Eight schools in five years. - Larissa Weems
+Last updated: 2024-04-09 09:20:03
+Random Quote: This is my own private domicile and I will not be harassed…bitch! - Jesse Pinkman
