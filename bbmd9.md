@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 09:25:48
-Random Quote: Barney: "Her butt?"Marshall: "What is it, too much?"Lily: "Too low?"Robin: "Or ist it an issue of access?" - Robin Scherbatsky
+Last updated: 2024-04-09 09:26:58
+Random Quote: The Lord of Light cherishes the innocent.  There is no sacrifice more precious.  From his king's blood and his untainted fire, a dragon shall be born.  -  Melisandre
