@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 09:46:03
-Random Quote: Sometimes I don't know if I love how much I fear Claire, or fear how much I love her. - Phil Dunphy
+Last updated: 2024-04-09 09:47:55
+Random Quote: What do you think a knight is for, girl?  You think it's all taking favors from ladies and looking fine in gold plate?  Knights are for killing.  I killed my first man at twelve.  I've lost count of how many I've killed since then.  High lords with old names, fat rich men dressed in velvet, knights puffed up like bladders with their honors, yes, and women and children too... they're all meat, and I'm the butcher.  -  Sandor Clegane
