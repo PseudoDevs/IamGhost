@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 17:24:48
-Random Quote: You can never tell with men. They go for whoever their dcks point at and there's no changing their minds. - Polly Gray
+Last updated: 2024-04-09 17:26:03
+Random Quote: Men call me Darkstar, and I am of the night.  -  Gerold Dayne
