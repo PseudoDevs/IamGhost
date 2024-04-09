@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 11:10:51
-Random Quote: No, that you think you'll graduate High-School. - Meemaw
+Last updated: 2024-04-09 11:11:24
+Random Quote: See, lad, that's why he's the king and I'm not.  I can outdrink, outfight, and outsing him, and my member's thrice the size o' his, but Mance has cunning.  -  Tormund Giantsbane
