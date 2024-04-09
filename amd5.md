@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 10:45:06
-Random Quote: You look like an Indian Kardashian. - Fabiola Torres
+Last updated: 2024-04-09 10:45:41
+Random Quote: It's not Aerys I rue, it's Robert... Why is it no one names Robert oathbreaker?  He tore the realm apart, yet I am the one with shit for honor.  -  Jaime Lannister

@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 10:45:06
-Random Quote: In this world, a man must learn to seize whatever gifts the gods chose to send him.  That was a lesson I learned at some cost.  -  The Tattered Prince
+Last updated: 2024-04-09 10:45:41
+Random Quote: In all the world, violent men are the easiest to deal with. - Irene O'Donnell
