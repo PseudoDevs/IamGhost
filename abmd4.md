@@ -1,3 +1,2 @@
-Last updated: 2024-04-09 17:15:55
-Random Quote: Freddie: "Are you mad?"
-Ada: "Yeah. Mad as hell with all of them." - Ada Thorne
+Last updated: 2024-04-09 17:16:29
+Random Quote: Men call me Darkstar, and I am of the night.  -  Gerold Dayne
