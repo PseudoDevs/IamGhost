@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 10:07:34
-Random Quote: Robb Stark has won more battles in a year than the Lord of Highgarden had in twenty.  -  Tyrion Lannister
+Last updated: 2024-04-09 10:08:07
+Random Quote: A queen must listen to all.  The highborn and the low, the strong and the weak, the noble and the venal.  One voice may speak you false, but in many there is always truth to be found.  -  Daenerys Targaryen
