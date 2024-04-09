@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 10:50:23
-Random Quote: If there was any shame in a dude getting a pedicure I don't think there would've been a feature about it in Details magazine. - Barney Stinson
+Last updated: 2024-04-09 10:50:58
+Random Quote: Marshall, you being 18 isn't a bad thing. It just means you get to spend even more of your life with her. - Ted Mosby
