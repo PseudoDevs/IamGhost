@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 09:35:08
-Random Quote: There's always hope tomorrow'll be taco night. - Nicky Nichols
+Last updated: 2024-04-09 09:35:41
+Random Quote: Know the men who follow you and let them know you.  Don't ask your men to die for a stranger.  -  Eddard Stark
