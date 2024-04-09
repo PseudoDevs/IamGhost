@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 11:01:52
-Random Quote: I am Pablo Emilio Escobar Gaviria. My eyes are everywhere. That means you guys can't move a finger in all of Antioquia without me knowing about it. Do you understand? Not a finger. One day, I'm going to be president of the Republic of Colombia. So look, I make deals for a living. Now, you can stay calm and accept my deal, or accept the consequences. - Pablo Escobar
+Last updated: 2024-04-09 11:02:27
+Random Quote: Sometimes, even when you know something's a mistake, you gotta make it anyway. - Ted Mosby
