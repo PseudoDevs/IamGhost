@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 12:04:28
-Random Quote: I've only known one other being like this. A wise Jedi Master named Yoda. - Ahsoka Tano
+Last updated: 2024-04-09 12:05:03
+Random Quote: Free folk don't follow names, or little cloth animals sewn on a tunic.  They won't dance for coins, they don't care how you style yourself or what that chain of office means or who your grandsire was.  They follow strength.  They follow the man.  -  Mance Rayder

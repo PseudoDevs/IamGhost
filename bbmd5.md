@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 12:03:54
-Random Quote: The less talk, the better. - Mike Ehrmantraut
+Last updated: 2024-04-09 12:05:03
+Random Quote: When you tear out a man's tongue, you are not proving him a liar, you're only telling the world that you fear what he might say.  -  Tyrion Lannister
