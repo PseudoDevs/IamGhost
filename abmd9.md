@@ -1,6 +1,2 @@
-Last updated: 2024-04-09 01:40:51
-Random Quote: You lie to your husband all the time...
-"That shirt looks great on you."
-"I love your mom."
-"I never fantasize about Barney when we're doing it."
-Sound familiar, Pinocchio? - Barney Stinson
+Last updated: 2024-04-09 01:41:24
+Random Quote: There are no true knights, no more than there are gods.  If you can't protect yourself, die and get out of the way of those who can.  Sharp steel and strong arms rule this world, don't ever believe any different.  -  Sandor Clegane
