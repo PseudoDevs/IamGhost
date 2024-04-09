@@ -1,2 +1,3 @@
-Last updated: 2024-04-09 09:53:33
-Random Quote: Larry Bloom: "Piper, you put a pee stick in my rinsing cup."Piper Chapman: "Well, you put your pee stick in my vagina. And that's why we're in this situation." - Piper Chapman
+Last updated: 2024-04-09 09:54:08
+Random Quote: Wyatt Langmore: "This job's my old man's idea. Something about 'calluses and character'."
+Charlotte Byrde: "Yeah, well, you're blowing leaves, not hiding Anne Frank." - Charlotte Byrde
