@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 01:44:15
-Random Quote: There's something between us. Maybe my head was saying, "nip it in the bud", because my heart was saying something else... - Robin Scherbatsky
+Last updated: 2024-04-09 01:44:49
+Random Quote: Every man's a piece to start with, and every maid as well.  Even some who think they are players.  Cersei, for one.  She thinks herself sly, but in truth she is utterly predictable.  Her strength rests on her beauty, birth, and riches.  Only the first of those is truly her own, and it will soon desert her.  I pity her then.  She wants power, but has no notion what to do with it when she gets it.  -  Petyr Baelish
