@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 18:00:19
-Random Quote: I am not in danger, Skyler. I AM the danger! - Walter White
+Last updated: 2024-04-09 18:00:52
+Random Quote: You're mine.  Mine, as I'm yours.  And if we die, we die.  All men must die, Jon Snow.  But first, we'll live.  -  Ygritte
