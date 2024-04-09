@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 10:31:17
-Random Quote: If we miss Hawaii because of this, guess who's not doing "The Disappearing Salami" anytime soon? - Quinn Garvey
+Last updated: 2024-04-09 10:31:55
+Random Quote: All three of you were being a buch of little a-sholes. I was the only reasonable one. - Dustin Henderson
