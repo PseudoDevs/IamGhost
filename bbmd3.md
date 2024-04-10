@@ -1,3 +1,2 @@
-Last updated: 2024-04-10 00:33:03
-Random Quote: Gor Koresh: "This is no place for a child."
-Mando: "Wherever I go, he goes. I've been quested to bring him to his kind." - Din Djarin
+Last updated: 2024-04-10 00:33:38
+Random Quote: Is it your fault that Bronn's an insolent black - hearted rogue?  He's always been an insolent black
