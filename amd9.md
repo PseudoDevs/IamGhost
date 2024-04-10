@@ -1,2 +1,2 @@
-Last updated: 2024-04-10 04:18:47
-Random Quote: These old knights are more cunning than you think, or they would never have lived to see their first grey hair.  -  Dagmer Cleftjaw
+Last updated: 2024-04-10 04:19:23
+Random Quote: Larry Bloom: "Are we at least gonna talk about other options?"Piper Chapman: "You mean..."Larry Bloom: "It's not Voldemort, you can say it. Abortion." - Larry Bloom
