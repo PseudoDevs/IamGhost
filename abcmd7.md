@@ -1,2 +1,2 @@
-Last updated: 2024-04-10 00:33:35
-Random Quote: Marshall: "Excuse me, miss. When you get a chance, could you bring over a hundred shots of tequila please?"Barney: "I'll have the same." - Marshall Eriksen
+Last updated: 2024-04-10 00:34:09
+Random Quote: A guy opens his door and gets shot and you think that of me? No. I am the one who knocks! - Walter White
