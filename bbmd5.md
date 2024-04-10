@@ -1,2 +1,3 @@
-Last updated: 2024-04-10 04:32:04
-Random Quote: My only aim is to take many lives. The more the better I feel. - 
+Last updated: 2024-04-10 04:33:16
+Random Quote: Tommy: "I'll have some men watch her house 'til the danger passes."
+Polly: "'Til the danger passes. That'll be the bloody day." - Polly Gray
