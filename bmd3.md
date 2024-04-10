@@ -1,2 +1,2 @@
-Last updated: 2024-04-10 04:46:01
-Random Quote: A wolf is not a kraken.  What the kraken grasps it does not lose, be it longship or leviathan.  -  Victarion Greyjoy
+Last updated: 2024-04-10 04:47:14
+Random Quote: They'll bend the knee or I'll destroy them.  -  Stannis Baratheon
