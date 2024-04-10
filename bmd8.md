@@ -1,2 +1,2 @@
-Last updated: 2024-04-10 04:06:37
-Random Quote: Some battles are won with swords and spears, others with quills and ravens.  -  Tywin Lannister
+Last updated: 2024-04-10 04:07:14
+Random Quote: Everything will be okay in the end. If it's not okay, it's not the end. - Yuk Je
