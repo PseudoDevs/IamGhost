@@ -1,2 +1,2 @@
-Last updated: 2024-04-10 00:31:20
-Random Quote: Ted: "[to Marshall, lying next to him] Marshall, are you still thinking about Lily?"Marshall: "Yeah."Ted: "Please stop!" - Ted Mosby
+Last updated: 2024-04-10 00:31:54
+Random Quote: When a maester donned his collar, he put aside the hope of children, yet Cressen had oft felt a father nonetheless.  Robert, Stannis, Renly: three sons he had raised after the angry sea claimed Lord Steffon.  -  Maester Cressen
