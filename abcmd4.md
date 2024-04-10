@@ -1,2 +1,2 @@
-Last updated: 2024-04-10 00:44:13
-Random Quote: Power tastes best when sweetened by courtesy; you had best learn that if you ever hope to rule.  -  Roose Bolton
+Last updated: 2024-04-10 00:44:48
+Random Quote: It's not just football. It's life. - Cal Jacobs
