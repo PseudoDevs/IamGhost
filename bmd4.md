@@ -1,2 +1,2 @@
-Last updated: 2024-04-10 03:56:50
-Random Quote: Let's have a toast. For the hits life throws our way. With time, they're what make you stronger, young man. - Don Neto
+Last updated: 2024-04-10 03:57:23
+Random Quote: Until the Mountain crushed my brother's skull, no Dornishmen had died in this War of the Five Kings.  Tell me, Captain, is that my shame or my glory?  -  Doran Martell
