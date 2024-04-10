@@ -1,2 +1,2 @@
-Last updated: 2024-04-10 04:44:50
-Random Quote: When someone is in love, they look through rose-tinted glasses. Everything’s wonderful. They transform into a soft teddy bear that’s smiling all the time. - Professor
+Last updated: 2024-04-10 04:45:26
+Random Quote: I am the storm, my lord, the first storm, and the last.  -  Euron Greyjoy
