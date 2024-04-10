@@ -1,2 +1,3 @@
-Last updated: 2024-04-10 00:53:02
-Random Quote: The past is always with us, Tyler. Now, you can try and run away but it's always there. - Rendell Locke
+Last updated: 2024-04-10 00:53:37
+Random Quote: The Deep: "What do we do? We can't just kill everyone."
+Billy Butcher: "That's exactly what we're gonna do!" - Billy Butcher
