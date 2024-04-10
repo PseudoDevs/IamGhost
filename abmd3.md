@@ -1,2 +1,2 @@
-Last updated: 2024-04-10 04:14:29
-Random Quote: I have won every battle, yet somehow I'm losing the war.  -  Robb Stark
+Last updated: 2024-04-10 04:15:04
+Random Quote: Because there's no way watching it can be more fun than playing it yourself. - Oh Il-nam
