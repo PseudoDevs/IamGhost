@@ -1,2 +1,2 @@
-Last updated: 2024-04-10 00:40:08
-Random Quote: Sam Healy: "It's popular fiction. It's like global warming or female ejaculation."Piper: "No! No. No, it's not. This is real."Sam Healy: "How is it real? Wait, which?"Piper: "The chicken. And the... the chicken." - Piper Chapman
+Last updated: 2024-04-10 00:41:18
+Random Quote: When the truth offends me, we lie and we lie until we can no longer remember it is even there. Every lie we tell incurs a debt to the truth. Sooner or later, that debt is paid. - Valery Legasov
