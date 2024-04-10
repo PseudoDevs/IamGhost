@@ -1,2 +1,2 @@
-Last updated: 2024-04-10 03:59:02
-Random Quote: Dinner's a very intimate activity. It requires a level of connection and eye contact, that sex just doesn't. Call me old-fashioned, but I need to have sex with a girl at least three times before I'll even consider having dinner with her. - Barney Stinson
+Last updated: 2024-04-10 04:00:41
+Random Quote: There is a 83% correlation between times when men are wearing a boutonniere and when they are getting laid... proms, weddings, funerals... thanks for the redhead, grandma! By the way, did you know that "boutonniere" is french for "booty is near"? - Barney Stinson
