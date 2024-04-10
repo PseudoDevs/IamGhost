@@ -1,2 +1,2 @@
-Last updated: 2024-04-10 00:57:23
-Random Quote: If you die before you say her name, Set, I will hunt you through the seven hells.  -  Oberyn Martell
+Last updated: 2024-04-10 00:57:58
+Random Quote: You know how sometimes you'll meet a girl and there'll be that one bewitching little detail that'll make you fall in love with her instantly? You know, a little freckle on the nose, the lilt of her laugh, the way she pronounces a certain word or phrase... - Ted Mosby
