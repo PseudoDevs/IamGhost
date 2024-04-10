@@ -1,2 +1,2 @@
-Last updated: 2024-04-10 04:31:25
-Random Quote: Those men sitting in Mexico City might be done with me, but I'm not done with them. - Miguel Angel Felix Gallardo
+Last updated: 2024-04-10 04:32:02
+Random Quote: They shall come day and night to see the wonder that has been born again into the world, and when they see they shall lust.  For dragons are fire made flesh, and fire is power.  -  Quaithe
