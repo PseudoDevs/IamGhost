@@ -1,2 +1,2 @@
-Last updated: 2024-04-10 04:34:51
-Random Quote: Where has it gotten me? Nowhere. I can't talk to the person I love. People still don't take me seriously. I wanna be numb again. - Klaus Hargreeves
+Last updated: 2024-04-10 04:35:58
+Random Quote: That's not a law, just a sword.  Happens I got one too.  -  Yoren of the Night's Watch
