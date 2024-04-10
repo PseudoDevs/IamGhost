@@ -1,2 +1,2 @@
-Last updated: 2024-04-10 00:35:10
-Random Quote: Someone has to protect this family from the man who protects this family. - Skyler White
+Last updated: 2024-04-10 00:36:16
+Random Quote: Tell the Crow's Eye he's afraid of kinslaying and he'll murder one of his own sons just to prove you wrong.  -  Asha Greyjoy
