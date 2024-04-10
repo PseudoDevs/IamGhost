@@ -1,2 +1,2 @@
-Last updated: 2024-04-10 04:25:09
-Random Quote: Only a fool humbles himself when the world is so full of men eager to do that job for him.  -  Theon Greyjoy
+Last updated: 2024-04-10 04:25:42
+Random Quote: We just don't wanna rush anything, okay? We decided to wait, until she decides to let me have sex with her. - Barney Stinson
