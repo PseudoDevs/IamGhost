@@ -1,2 +1,2 @@
-Last updated: 2024-04-10 04:16:57
-Random Quote: And at some point you make a choice about who you are and what you want. - Rue Bennett
+Last updated: 2024-04-10 04:18:46
+Random Quote: The greatest fools are ofttimes more clever than the men who laugh at them.  -  Tywin Lannister
