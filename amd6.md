@@ -1,2 +1,4 @@
-Last updated: 2024-04-10 00:43:04
-Random Quote: The Captain: "Guess it's just you, me, and six hours in frigid international waters."Ted: "Or we could stay in dry land, hang out with some witnesses?" - Ted Mosby
+Last updated: 2024-04-10 00:43:39
+Random Quote: Morty: "Mom told me she wanted me to stay here to make sure you didn't die."
+Jerry: "Well, you tell your mother that I'm gonna be fine."
+Rick: "Don't train your child to lie, Jerry." - Rick Sanchez
