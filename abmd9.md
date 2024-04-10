@@ -1,2 +1,2 @@
-Last updated: 2024-04-10 00:30:07
-Random Quote: You know, it's funny. Almost every woman I've ever met was wrong to give me a chance. You're the first woman who's wrong not to. - Barney Stinson
+Last updated: 2024-04-10 00:30:41
+Random Quote: If I'm always looking back, I'm never looking ahead. We are who we are because of consequences. You can't live without consequences. - Morty Smith
