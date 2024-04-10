@@ -1,2 +1,2 @@
-Last updated: 2024-04-10 04:49:38
-Random Quote: Dad, you can be in all of the fights that you want, but don't get hurt too bad. - Seong Gi-hun
+Last updated: 2024-04-10 04:51:27
+Random Quote: You grew up with actors.  You learned their craft and you learned it well.  I grew up with soldiers.  I learned how to die a long time ago.  -  Eddard Stark
