@@ -1,2 +1,3 @@
-Last updated: 2024-04-10 04:17:34
-Random Quote: Ran: "Mayfeld, he's one of the best triggermen I've ever seen. Former Imperial sharpshooter."Mando: "That's not saying much." - Din Djarin
+Last updated: 2024-04-10 04:18:12
+Random Quote: Wyatt Langmore: "This job's my old man's idea. Something about 'calluses and character'."
+Charlotte Byrde: "Yeah, well, you're blowing leaves, not hiding Anne Frank." - Charlotte Byrde
