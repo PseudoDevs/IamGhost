@@ -1,2 +1,2 @@
-Last updated: 2024-04-10 04:06:02
-Random Quote: Elia of Dorne.  I killed her screaming whelp.  Then I raped her.  Then I smashed her fucking head in like this.  -  Gregor Clegane
+Last updated: 2024-04-10 04:07:16
+Random Quote: I am not a rich person. I am a poor person with money. - Pablo Escobar
