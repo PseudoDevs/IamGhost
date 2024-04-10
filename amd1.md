@@ -1,3 +1,2 @@
-Last updated: 2024-04-10 00:45:43
-Random Quote: Sal: "Does Lily have any other plates? I don't let Sammy eat off this plastic."
-Pepper: "How does she breastfeed him if she doesn't let him near plastic?" - Pepper Saltzman
+Last updated: 2024-04-10 00:46:16
+Random Quote: Ted: "Where does this girl live?"Robin: "We're talking about a woman who's gotten Barney to commit. I'm guessing Narnia." - Robin Scherbatsky
