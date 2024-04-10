@@ -1,2 +1,2 @@
-Last updated: 2024-04-10 00:57:25
-Random Quote: Lily: "It's nine weeks 'til the wedding, at this point, I'd say yes to just about anything."Barney: "Well..."Lily: "No, Barney." - Lily Aldrin
+Last updated: 2024-04-10 00:58:02
+Random Quote: There are so many great things to do with the human mouth, why waste it on talking? - Barney Stinson
