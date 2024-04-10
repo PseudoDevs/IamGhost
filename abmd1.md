@@ -1,2 +1,2 @@
-Last updated: 2024-04-10 04:15:30
-Random Quote: My old septon used to say that books are dead men talking.  Dead men should keep quiet, is what I say.  No one wants to hear a dead man's yabber.  -  Dolorous Edd Tollett
+Last updated: 2024-04-10 04:16:03
+Random Quote: I have a tender spot in my heart for cripples, bastards, and broken things.  -  Tyrion Lannister
