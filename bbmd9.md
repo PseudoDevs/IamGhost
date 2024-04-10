@@ -1,2 +1,2 @@
-Last updated: 2024-04-10 04:43:04
-Random Quote: Ted: "All my friends from high-school, they're here with their wifes or kids. My date for the night is a sticky magazine..."Robin: "Sounds like high-school all over again!" - Robin Scherbatsky
+Last updated: 2024-04-10 04:43:39
+Random Quote: Marshall: "Can we borrow your air mattress? My mom's coming into town for a few days."Ted: "Absolutely not!"Lily: "Bummer, I guess she can't stay with us. Hey, look what I just found! A list of hotels and other creative housing options."Marshall: "Baby, my mom is not staying at a hotel. Or our storage unit." - Lily Aldrin

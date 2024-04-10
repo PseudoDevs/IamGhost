@@ -1,2 +1,2 @@
-Last updated: 2024-04-10 04:42:26
-Random Quote: My daughter has taken an axe for a lover.  I will not have my son bedeck himself like a whore.  It is as I feared.  The green lands have made you soft, and the Starks have made you theirs.  -  Balon Greyjoy
+Last updated: 2024-04-10 04:43:39
+Random Quote: In my head, it's like If I can conquer men, then I can conquer femininity. - Jules Vaughn
