@@ -1,2 +1,2 @@
-Last updated: 2024-04-10 04:33:14
-Random Quote: Barney, check it! Three blond babies drinking bad-decision-juice at eight o'clock. - Lily Aldrin
+Last updated: 2024-04-10 04:33:49
+Random Quote: Bear Island knows no king save the King in the North, whose name is Stark.  -  Lyanna Mormont
