@@ -1,2 +1,2 @@
-Last updated: 2024-04-10 00:30:11
-Random Quote: Fire in the hole, bitch! - Jesse Pinkman
+Last updated: 2024-04-10 00:30:44
+Random Quote: Get the keys and remove those chains from him, before you make me rue the day I raped your mother.  -  Roose Bolton
