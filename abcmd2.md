@@ -1,2 +1,2 @@
-Last updated: 2024-04-10 00:42:28
-Random Quote: The Stranger: We’re not free in what we do, because we’re not free in what we want. We can’t overcome what’s deep within us. - 
+Last updated: 2024-04-10 00:43:01
+Random Quote: Birds are lost, messages stolen or sold... there are things I might tell you of that eunuch that would chill your blood...  -  Grand Maester Pycelle
