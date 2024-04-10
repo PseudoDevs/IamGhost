@@ -1,2 +1,4 @@
-Last updated: 2024-04-10 04:11:45
-Random Quote: In this fall - this is tough. In this fall I'm going to take my talents to Mouth Beach. - Barney Stinson
+Last updated: 2024-04-10 04:12:18
+Random Quote: Rick: "Guests are fans, Morty, which we are not. We'd like professional badges."
+"Do you have a crew?"
+Rick: "Yes. He's a getaway driver with Asperger's and my butt is a demolitions expert." - Rick Sanchez
