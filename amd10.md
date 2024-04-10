@@ -1,2 +1,2 @@
-Last updated: 2024-04-10 04:50:14
-Random Quote: Elia Martell, Princess of Dorne.  You raped her!  You murdered her!  You killed her children!  -  Oberyn Martell
+Last updated: 2024-04-10 04:51:26
+Random Quote: I don't need to be good at Math, I have beautiful hair. - Missy
