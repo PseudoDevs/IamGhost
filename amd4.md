@@ -1,3 +1,2 @@
-Last updated: 2024-04-10 03:55:13
-Random Quote: Bro, bro, bro your broat, gently to the bar
-Hit on sluts, then do ten shots and... - Barney Stinson
+Last updated: 2024-04-10 03:55:49
+Random Quote: Sometimes it lasts all night. And I lie here and I listen to the shovels, and the picks against that wall there. And I pray the sun will come up at the curtains before they break through. No, I don't pray. I hope. And sometimes it happens. The sun beats them. But mostly the shovels beat the sun. - Thomas Shelby
