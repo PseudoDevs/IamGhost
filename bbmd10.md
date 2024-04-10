@@ -1,2 +1,2 @@
-Last updated: 2024-04-10 00:45:34
-Random Quote: Well, Amanda is going to make Lily a cake, she's a chef! We met when I was at a restaurant last week and I sent some soup back. Luckily she's got such pretty hair I didn't mind eating a little bit of it. - Ted Mosby
+Last updated: 2024-04-10 00:46:07
+Random Quote: I have my voice, and the god is with me.  Mine is the strength of the sea, a strength the Crow's Eye cannot hope to withstand.  The waves may break upon the mountain, yet still they come, wave upon wave, and in the end only pebbles remain where once the mountain stood.  And soon even the pebbles are swept away, to be ground beneath the sea for all eternity.  -  Aeron Greyjoy
