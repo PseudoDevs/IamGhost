@@ -1,2 +1,3 @@
-Last updated: 2024-04-10 04:12:43
-Random Quote: Everyone was yelling stuff.  Hot Pie yelled hot pie.  He must have yelled it a hundred times.  -  Arya Stark
+Last updated: 2024-04-10 04:13:17
+Random Quote: Jerry: "Well, traditionally, science faires are a father-son thing."
+Rick: "Well, scientifically, traditions are an idiot thing." - Rick Sanchez
