@@ -1,2 +1,3 @@
-Last updated: 2024-04-10 04:46:46
-Random Quote: "Cap'n Cook?" That's not you? Like I said, no one is looking for you. - Walter White
+Last updated: 2024-04-10 04:47:19
+Random Quote: Bo-Katan: "You are not a Mandalorian."
+Boba: "Never said I was." - Boba Fett
