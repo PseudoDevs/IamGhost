@@ -1,2 +1,2 @@
-Last updated: 2024-04-10 00:48:37
-Random Quote: The past is always with us, Tyler. Now, you can try and run away but it's always there. - Rendell Locke
+Last updated: 2024-04-10 00:49:10
+Random Quote: Barney: "On your tombstone, it will be, 'Lily Aldrin. Caring wife. Loving friend. Slapbet-Commissioner.'"Marshall: "And your tombstone will read, 'Got slapped by Marhsall so hard he died.'" - Marshall Eriksen
