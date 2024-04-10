@@ -1,2 +1,2 @@
-Last updated: 2024-04-10 04:07:14
-Random Quote: Everything will be okay in the end. If it's not okay, it's not the end. - Yuk Je
+Last updated: 2024-04-10 04:07:51
+Random Quote: The Peaky Blinders. The vicious, merciless gangs who blind those who see and cut out the tongues of those who talk. - Chester Campbell
