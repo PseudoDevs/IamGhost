@@ -1,2 +1,2 @@
-Last updated: 2024-04-10 00:32:26
-Random Quote: That's what they do, don't they? They show you the world, and then they tell you you can't have it. - Virginia Wilson
+Last updated: 2024-04-10 00:33:02
+Random Quote: What I came to realise is that fear, that’s the worst of it. That’s the real enemy. So, get up, get out in the real world and you kick that bastard as hard you can right in the teeth. - Walter White
