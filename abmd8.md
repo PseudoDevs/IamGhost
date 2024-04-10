@@ -1,2 +1,2 @@
-Last updated: 2024-04-10 00:39:02
-Random Quote: He would have killed me but for Howland Reed.  -  Eddard Stark
+Last updated: 2024-04-10 00:41:21
+Random Quote: You have to be as bad as them above in order to survive. - Polly Gray
