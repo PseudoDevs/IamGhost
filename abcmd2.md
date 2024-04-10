@@ -1,2 +1,4 @@
-Last updated: 2024-04-10 04:40:38
-Random Quote: Hush, Alerie, don't take that tone with me.  And don't call me mother.  If I'd given birth to you, I'm sure I'd remember.  I'm only to blame for your husband, the lord oaf of Highgarden.  -  Olenna Tyrell
+Last updated: 2024-04-10 04:43:03
+Random Quote: Rick: "Guests are fans, Morty, which we are not. We'd like professional badges."
+"Do you have a crew?"
+Rick: "Yes. He's a getaway driver with Asperger's and my butt is a demolitions expert." - Rick Sanchez
