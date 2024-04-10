@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 18:01:17
-Random Quote: You can tell a lot about a person from his biography. - Phil Dunphy
+Last updated: 2024-04-10 00:29:39
+Random Quote: A ruler who hides behind paid executioners soon forgets what death is.  -  Eddard Stark
