@@ -1,3 +1,2 @@
-Last updated: 2024-04-10 04:52:38
-Random Quote: Planetina: "Your acid rain is an acid pain... in the butt, Diesel Wiesel!"
-Rick: "Yikes! Who's the chick in need of a dialogue pass?" - Rick Sanchez
+Last updated: 2024-04-10 04:53:26
+Random Quote: Anyone who goes after him is gonna have to come through me. - Mike Ehrmantraut
