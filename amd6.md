@@ -1,2 +1,2 @@
-Last updated: 2024-04-10 04:51:51
-Random Quote: Ted: "Barney! I'm allowed to miss them, okay? They're my two best friends."Barney: "I'm your two best friends!" - Barney Stinson
+Last updated: 2024-04-10 04:52:56
+Random Quote: The pain is his vessel, desire his compass. It is all that man is capable of. - 
