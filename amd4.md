@@ -1,2 +1,2 @@
-Last updated: 2024-04-10 04:16:20
-Random Quote: You two suck at peddling meth. - Saul Goodman
+Last updated: 2024-04-10 04:16:57
+Random Quote: Being a Mandalorian is not just learning about how to fight. You also have to know how to navigate the Galaxy. That way you'll never be lost. - Din Djarin
