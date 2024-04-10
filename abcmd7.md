@@ -1,2 +1,2 @@
-Last updated: 2024-04-10 04:42:23
-Random Quote: Marshall: "Jelly beans, fluffernutter, Gummi Bears, ginger snap... this is a grocery list!"Robin: "For who? A witch building a house in the forest?"Marshall: "Sugar helps me study."Barney: "This is like the shopping a ten-year-old does when his parents leave him alone for the weekend."Lily: "What parent leaves a ten-year-old alone for the weekend?"Barney: "And your mom was perfect." - Barney Stinson
+Last updated: 2024-04-10 04:42:56
+Random Quote: Barney: "Our wedding is gonna be legendary."Robin: "No wait for it?"Barney: "I've got you, I don't have to wait for it anymore." - Barney Stinson
