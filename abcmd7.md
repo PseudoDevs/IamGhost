@@ -1,2 +1,2 @@
-Last updated: 2024-04-10 04:26:02
-Random Quote: Marshall: "Let the dinnertainment begin!"Barney: "That reminds me there's this other restaurant we should try sometime. What they do is, they cook you a meal, in a little room called a 'kitchen'." - Barney Stinson
+Last updated: 2024-04-10 04:26:37
+Random Quote: I'm really sorry if I gave you the wrong impression. I'm not interested in dating anyone. I'm extremly busy with work and raising my son, and I just have no room in my life for the kind of intimacy you are clearly craving. But I really comment you on your directness and your bravado and I really hope that you find what you're looking for. Goodbye, now. - Dr. Jean Milburn
