@@ -1,2 +1,2 @@
-Last updated: 2024-04-10 04:24:15
-Random Quote: Men say Tywin never smiled, but he smiled when he wed your mother, and when Aerys made him Hand.  When Tarbeck Hall came crashing down on Lady Ellyn, that scheming bitch, Tyg claimed he smiled then, and he smiled at your birth, Jaime, I saw with my own eyes.  -  Genna Lannister
+Last updated: 2024-04-10 04:24:51
+Random Quote: The beauty of a moment, is that it's fleeting. - Ted Mosby
