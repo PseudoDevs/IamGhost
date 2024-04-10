@@ -1,2 +1,2 @@
-Last updated: 2024-04-10 00:40:43
-Random Quote: Lies are necessary, when the truth is too difficult to believe. - Pablo Escobar
+Last updated: 2024-04-10 00:41:19
+Random Quote: Robert wanted smiles and cheers, always, so he went where he found them, to his friends and his whores.  Robert wanted to be loved.  My brother Tyrion has the same disease.  -  Cersei Lannister
