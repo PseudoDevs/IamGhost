@@ -1,2 +1,2 @@
-Last updated: 2024-04-10 04:51:27
-Random Quote: You grew up with actors.  You learned their craft and you learned it well.  I grew up with soldiers.  I learned how to die a long time ago.  -  Eddard Stark
+Last updated: 2024-04-10 04:52:03
+Random Quote: The world is full of such paradoxes we simply choose to ignore them most of the time. - 
