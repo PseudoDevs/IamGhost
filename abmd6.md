@@ -1,2 +1,2 @@
-Last updated: 2024-04-10 00:40:45
-Random Quote: Kuiil: "They really don't like you for some reason."Mandalorian: "Well, I did disintegrate a few of them." - Din Djarin
+Last updated: 2024-04-10 00:42:31
+Random Quote: I know you mean well. I know you wanna protect me. You have. And when we're done, we'll go wherever you want. Tommy's, sheep ranch, the moon... I'll follow you anywhere you go. But there's no halfway with this. We finish what we started. - Ellie Williams

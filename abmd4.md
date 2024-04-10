@@ -1,2 +1,4 @@
-Last updated: 2024-04-10 00:41:57
-Random Quote: If ever a man deserved to die screaming, it was Gregor Clegane.  -  Doran Martell
+Last updated: 2024-04-10 00:42:31
+Random Quote: Tony Stark: "Lieutenant Killmonger? What is that? German?"
+Killmonger: "A nickname."
+Tony Stark: "That's clearly a good fit." - Killmonger
