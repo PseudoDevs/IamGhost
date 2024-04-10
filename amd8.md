@@ -1,2 +1,4 @@
-Last updated: 2024-04-10 00:51:21
-Random Quote: Ted: "Where does this girl live?"Robin: "We're talking about a woman who's gotten Barney to commit. I'm guessing Narnia." - Robin Scherbatsky
+Last updated: 2024-04-10 00:51:54
+Random Quote: Greef: "Nevarro is a very fine planet. And now that the scum and villainy have been washed away, it's very respectable again."
+Mando: "As a bounty hunter hive?"
+Greef: "Some of my favorite people are bounty hunters." - Greef Karga
