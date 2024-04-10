@@ -1,2 +1,2 @@
-Last updated: 2024-04-10 04:26:39
-Random Quote: The absolute worst part of depression is that even though you know you're depressed, You're unable to stop yourself from getting worse. - Rue Bennett
+Last updated: 2024-04-10 04:27:14
+Random Quote: My skin has gone from porcelain, to ivory, to steel.  -  Sansa Stark

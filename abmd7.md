@@ -1,6 +1,2 @@
-Last updated: 2024-04-10 04:26:39
-Random Quote: Sam: "They might be a part of the big three."
-Bucky: "What big three?"
-Sam: "Androids, aliens and wizards."
-Bucky: "That's not a thing."
-Sam: "That's definitely a thing." - Sam Wilson
+Last updated: 2024-04-10 04:27:14
+Random Quote: What good is having all the money in the world if you can't go home? - Tata Escobar
