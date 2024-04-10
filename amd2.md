@@ -1,2 +1,2 @@
-Last updated: 2024-04-10 00:42:24
-Random Quote: The most amazing things that can happen to a human being will happen to you, if you just lower your expectations. - Phil Dunphy
+Last updated: 2024-04-10 00:43:30
+Random Quote: Many good men have been bad kings, and some bad men have been good kings.  -  Maester Aemon
