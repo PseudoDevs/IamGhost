@@ -1,2 +1,2 @@
-Last updated: 2024-04-10 04:03:37
-Random Quote: Fire in the hole, bitch! - Jesse Pinkman
+Last updated: 2024-04-10 04:04:13
+Random Quote: Pennsatucky: "It weren't my fault. I was just doing as the Spirit commanded."Pussey: "Fuck are you? Joan of Arc?"Pennsatucky: "No, I'm from Waynesboro, my name is Tiffany..." - Tiffany 'Pennsatucky' Doggett
