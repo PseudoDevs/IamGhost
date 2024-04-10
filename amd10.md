@@ -1,4 +1,2 @@
-Last updated: 2024-04-10 04:43:38
-Random Quote: Oh Il-nam: "As a kid, I'm willing to bet you got spanked a lot."
-Seong Gi-hun: "How did you know?"
-Oh Il-nam: "My son did too. He was just like you, friend." - Oh Il-nam
+Last updated: 2024-04-10 04:44:13
+Random Quote: Nobody likes to be alone, especially after a breakup. But that's when we discover who we really are and what we really want. - Ted Mosby
