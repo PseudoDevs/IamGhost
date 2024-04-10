@@ -1,2 +1,4 @@
-Last updated: 2024-04-10 00:37:20
-Random Quote: If we're together long enough I hope that one day you see yourself like I do. - Kevin
+Last updated: 2024-04-10 00:37:53
+Random Quote: Stark: "Red, green, blue... who paints a button blue?"
+Carter: "Don't tell me the American playboy needs help pushing buttons."
+Stark: "Hedy Lamarr and I spent a weekend together, but she wasn't teaching me German." - Howard Stark

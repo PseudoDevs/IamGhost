@@ -1,2 +1,2 @@
-Last updated: 2024-04-10 00:35:40
-Random Quote: His blood is bad.  He needs to be leeched.  The leeches suck away the bad blood, all the rage and pain.  No man can think so full of anger.  Ramsay, though... his tainted blood would poison even leeches, I fear.  -  Roose Bolton
+Last updated: 2024-04-10 00:37:53
+Random Quote: It's the greatest samurai, who lets his sword rust in its scabbard. - Barney Stinson
