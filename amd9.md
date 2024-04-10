@@ -1,2 +1,2 @@
-Last updated: 2024-04-10 04:04:12
-Random Quote: Marshall: "If economic sanctions and trade-restrictions aren't enforced, the destruction of the rainforest will continue and over a million species will be wiped out!"Ted: "So you don't want coffee?" - Ted Mosby
+Last updated: 2024-04-10 04:04:48
+Random Quote: Lord Balon's eldest brother had never given up the Old Way, even for a day.  His Silence, with its black sails and dark red hull, was infamous in every port from Ibben to Asshai, it was said.  -  Theon Greyjoy
