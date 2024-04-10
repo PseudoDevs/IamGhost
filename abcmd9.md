@@ -1,2 +1,4 @@
-Last updated: 2024-04-10 04:19:59
-Random Quote: Robin: "What? I am not keeping Mike on a hook!"Ted: "You are Captain Hook!"Robin: "Dude, I'm a girl, ok? Our girl parts are like a spider webs; sometimes you are gonna catch stuff you don't want." - Robin Scherbatsky
+Last updated: 2024-04-10 04:21:12
+Random Quote: Jimmy: "I can't believe Wanda and Vision are having a baby."
+Darcy Lewis: "You want any?"
+Jimmy: "Heck, I thought about it for sure. A little Jimmy Woo. Get him a tiny little FBI badge... oh, you... chip? Sure." - Jimmy Woo
