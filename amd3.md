@@ -1,2 +1,2 @@
-Last updated: 2024-04-10 04:54:30
-Random Quote: Sitting around, smoking marijuana, eating Cheetos and masturbating do not constitute "plans". - Walter White
+Last updated: 2024-04-10 04:55:04
+Random Quote: Aye, and from what I saw of Joffrey, you are as unfit a mother as you are a ruler.  -  Kevan Lannister
