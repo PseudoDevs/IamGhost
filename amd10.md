@@ -1,2 +1,2 @@
-Last updated: 2024-04-10 04:24:45
-Random Quote: A true man does what he will, not what he must.  -  Cersei Lannister
+Last updated: 2024-04-10 04:25:50
+Random Quote: My father never bellowed like the Greatjon, but he was no less dangerous in his wroth.  -  Alys Karstark
