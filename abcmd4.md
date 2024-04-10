@@ -1,2 +1,2 @@
-Last updated: 2024-04-10 00:39:36
-Random Quote: We just don't wanna rush anything, okay? We decided to wait, until she decides to let me have sex with her. - Barney Stinson
+Last updated: 2024-04-10 00:40:10
+Random Quote: And at some point you make a choice about who you are and what you want. - Rue Bennett
