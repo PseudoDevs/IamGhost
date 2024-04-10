@@ -1,2 +1,2 @@
-Last updated: 2024-04-10 05:00:45
-Random Quote: I am scared, 'cause I don't know how to fly. But you're there at the bottom of the slide to catch me when I fall. - Hannah Baker
+Last updated: 2024-04-10 05:01:18
+Random Quote: Robert wanted smiles and cheers, always, so he went where he found them, to his friends and his whores.  Robert wanted to be loved.  My brother Tyrion has the same disease.  -  Cersei Lannister
