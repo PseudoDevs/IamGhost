@@ -1,2 +1,2 @@
-Last updated: 2024-04-10 04:36:53
-Random Quote: Love is poison.  A sweet poison, yes, but it will kill you all the same.  -  Cersei Lannister
+Last updated: 2024-04-10 04:37:30
+Random Quote: Do you know how much I make a year? I mean, even if I told you, you wouldn't believe it. - Walter White
