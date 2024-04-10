@@ -1,2 +1,2 @@
-Last updated: 2024-04-10 00:55:09
-Random Quote: I poured my blood, sweat and tears into that building. Though, to be fair, a lot of that happened the day I accidentally fell down the elevator shaft. - Ted Mosby
+Last updated: 2024-04-10 00:55:42
+Random Quote: Penrose chose to die rather than give him up.  It still angers me.  How could he think I would hurt the boy?  I chose Robert, did I not?  When that hard day came, I chose blood over honor.  -  Stannis Baratheon
