@@ -1,3 +1,2 @@
-Last updated: 2024-04-10 04:18:12
-Random Quote: Wyatt Langmore: "This job's my old man's idea. Something about 'calluses and character'."
-Charlotte Byrde: "Yeah, well, you're blowing leaves, not hiding Anne Frank." - Charlotte Byrde
+Last updated: 2024-04-10 04:18:48
+Random Quote: You must be the self-appointed Queen Bee. Interesting thing about bees. Pull out their stingers, they drop dead. - Wednesday Addams
