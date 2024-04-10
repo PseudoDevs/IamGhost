@@ -1,2 +1,2 @@
-Last updated: 2024-04-10 00:48:44
-Random Quote: Power tastes best when sweetened by courtesy; you had best learn that if you ever hope to rule.  -  Roose Bolton
+Last updated: 2024-04-10 00:49:17
+Random Quote: I've had shits that I've liked better than Walder Frey.  -  Brynden Tully
