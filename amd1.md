@@ -1,2 +1,2 @@
-Last updated: 2024-04-10 00:44:37
-Random Quote: Well, I'm just gonna go jerk off then. For the 500th time today. - Larry Bloom
+Last updated: 2024-04-10 00:45:10
+Random Quote: Treason is a noxious weed.  It must be torn up, root and stem and seed, lest new traitors sprout from every roadside.  -  Grand Maester Pycelle
