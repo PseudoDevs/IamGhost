@@ -1,2 +1,2 @@
-Last updated: 2024-04-10 04:12:04
-Random Quote: Whatever happens next, it's not gonna go down the way you think it is. - Mike Ehrmantraut
+Last updated: 2024-04-10 04:15:05
+Random Quote: People are oblivious to reality. They only see what they want to see, when all they have to do is shift their perspective to see the full scope of things. - Yuk Je
