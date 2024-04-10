@@ -1,2 +1,2 @@
-Last updated: 2024-04-10 00:31:52
-Random Quote: If you think this has a happy ending, you haven't been paying attention.  -  Ramsay Bolton
+Last updated: 2024-04-10 00:33:01
+Random Quote: Mitchell: "we've decided we really wanted to have a baby so, we initially asked one of our lesbian friends to be a surrogate."Cameron: "Then we figured, they already mean enough, can you imagine one of them pregnant?" - Cameron Tucker
