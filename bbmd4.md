@@ -1,2 +1,2 @@
-Last updated: 2024-04-10 04:33:18
-Random Quote: Your innocence may be as plain as the scar on your face, but it will not save you.  No more than your father will.  But I might.  Not as your judge.  As your champion.  -  Oberyn Martell
+Last updated: 2024-04-10 04:33:54
+Random Quote: Her one choice gave birth to a whole new history and gave the multiverse a new hero. As for me, these are my stories. I observe all that transpires here, but I do not, cannot, will not interfere. For I am the Watcher. - The Watcher
