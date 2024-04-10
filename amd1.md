@@ -1,3 +1,2 @@
-Last updated: 2024-04-10 04:05:00
-Random Quote: Morty: "Rick, can we not leave without my sister?"
-Rick: "Ugh. You have infinite sisters, Morty. Not that I want to spend the rest of my day looking for another one. Sum-Sum, let's go! Grandpa's concern for your safety is fleeting." - Rick Sanchez
+Last updated: 2024-04-10 04:05:33
+Random Quote: If you love something, set it free. Unless it's a tiger. - Phil Dunphy
