@@ -1,2 +1,2 @@
-Last updated: 2024-04-10 00:31:16
-Random Quote: Best-available idea doesn't make something a good idea. - Kinsey Locke
+Last updated: 2024-04-10 00:31:51
+Random Quote: Mando: "I was not born on Mandalore."Greef Karga: "But you're Mandalorian?"Cara Dune: "Mandalorian isn't a race."Mando: "It's a Creed." - Din Djarin
