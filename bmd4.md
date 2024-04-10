@@ -1,2 +1,2 @@
-Last updated: 2024-04-10 00:36:28
-Random Quote: Your innocence may be as plain as the scar on your face, but it will not save you.  No more than your father will.  But I might.  Not as your judge.  As your champion.  -  Oberyn Martell
+Last updated: 2024-04-10 00:37:00
+Random Quote: You don't get to tell me what to look at, I've seen your Pornhub account! Also, who makes a Pornhub account? - Rick Sanchez
