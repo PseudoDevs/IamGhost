@@ -1,2 +1,2 @@
-Last updated: 2024-04-10 04:25:57
-Random Quote: Geniuses are always branded as crazy. - Pablo Escobar
+Last updated: 2024-04-10 04:26:30
+Random Quote: Roose Bolton's cold and cunning, aye, but a man can deal with Roose.  We've all known worse.  But this bastard son of his... they say he's mad and cruel, a monster.  -  Locke
