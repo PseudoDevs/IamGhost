@@ -1,2 +1,2 @@
-Last updated: 2024-04-10 00:39:05
-Random Quote: Despite the stupidity, the lies, you're compelled. The problem has been assigned and you'll stop at nothing until you find an answer. Because that is who you are. - Valery Legasov
+Last updated: 2024-04-10 00:39:38
+Random Quote: Just in case either of us can actually make it out of this hellhole somehow, we'll look after each other's loved ones, okay? - Oh Il-nam
