@@ -1,3 +1,2 @@
-Last updated: 2024-04-10 04:57:38
-Random Quote: Kids, you can't talk yourself into falling in love. It doesn't take days of deliberation. When it's real, you know pretty quickly and with absolute certainty.
-I had forgotten that, but I was about to be reminded... - Ted Mosby
+Last updated: 2024-04-10 04:58:13
+Random Quote: In my body, where the shame gland should be, there is a second awesome gland. True story! - Barney Stinson
