@@ -1,2 +1,2 @@
-Last updated: 2024-04-10 04:27:20
-Random Quote: Marshall: "I don't care if the dishes aren't done, okay? If you care, you do it."Lily: "Great, then I don't care if you have an orgasm. If you care, you do it." - Lily Aldrin
+Last updated: 2024-04-10 04:28:27
+Random Quote: Folly and desperation are ofttimes hard to tell apart.  -  Maester Luwin

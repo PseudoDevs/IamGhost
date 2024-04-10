@@ -1,2 +1,2 @@
-Last updated: 2024-04-10 04:27:53
-Random Quote: You have courage.  Not battle courage perhaps but... I don't know... a kind of woman's courage.  -  Brienne of Tarth
+Last updated: 2024-04-10 04:28:27
+Random Quote: If we're together long enough I hope that one day you see yourself like I do. - Kevin
