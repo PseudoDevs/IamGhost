@@ -1,2 +1,3 @@
-Last updated: 2024-04-10 03:53:57
-Random Quote: Ties and no playoffs? Why do you even do this? - Jim Hopper
+Last updated: 2024-04-10 03:54:31
+Random Quote: Sal: "Does Lily have any other plates? I don't let Sammy eat off this plastic."
+Pepper: "How does she breastfeed him if she doesn't let him near plastic?" - Pepper Saltzman
