@@ -1,2 +1,2 @@
-Last updated: 2024-04-10 04:35:04
-Random Quote: Fire in the hole, bitch! - Jesse Pinkman
+Last updated: 2024-04-10 04:35:40
+Random Quote: Lord Varys, sometimes I feel as though you are the best friend I have in King's Landing and sometimes I feel you are my worst enemy.  -  Tyrion Lannister
