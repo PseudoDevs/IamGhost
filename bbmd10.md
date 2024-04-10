@@ -1,2 +1,2 @@
-Last updated: 2024-04-10 00:47:46
-Random Quote: I count no day as lived unless I have loved a woman, slain a foeman, and eaten a fine meal.  -  Daario Naharis
+Last updated: 2024-04-10 00:48:19
+Random Quote: In the game of thrones, even the humblest pieces have wills of their own.  Sometimes they refuse to make the moves you've planned for them.  Mark that well, Alayne.  It's a lesson that Cersei Lannister still has yet to learn.  -  Petyr Baelish
