@@ -1,2 +1,2 @@
-Last updated: 2024-04-10 00:52:15
-Random Quote: If you die before you say her name, Set, I will hunt you through the seven hells.  -  Oberyn Martell
+Last updated: 2024-04-10 00:52:48
+Random Quote: New Mexico. It's another state. I mean, it's like California, just less traffic. - Lalo Salamanca
