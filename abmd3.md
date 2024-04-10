@@ -1,2 +1,2 @@
-Last updated: 2024-04-10 04:36:38
-Random Quote: She had seen Bronn fight on the high road; it was no accident that he had survived the journey while other men had died.  He moved like a panther, and that ugly sword of his seemed a part of his arm.  -  Catelyn Stark
+Last updated: 2024-04-10 04:37:11
+Random Quote: If you don't think there's hope for the world, why bother going on? - Ellie Williams
