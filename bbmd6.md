@@ -1,2 +1,4 @@
-Last updated: 2024-04-10 05:00:16
-Random Quote: The wheels of bureaucracy tend to move at their own speed. - Walt Breslin
+Last updated: 2024-04-10 05:00:49
+Random Quote: Joel: "I need you to tell us where we are."
+Man: "If you got a map, why you lost?"
+Ellie: "Must've missed all the street signs in the enormous f-cking forest." - Ellie Williams
