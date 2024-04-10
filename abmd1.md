@@ -1,6 +1,2 @@
-Last updated: 2024-04-10 04:53:27
-Random Quote: Beth: "Do you want homeless people to have homes?"
-Jerry: "Yes."
-Beth: "Are you gonna build them?"
-Jerry: "No."
-Beth: "Then what good was the 'yes'?" - Beth Smith
+Last updated: 2024-04-10 04:55:15
+Random Quote: Marshall: "The broken windows?"Lily: "We had to make it look realistic."Marshall: "But why did you break two of them?"Robin: "It looked like fun when she did it, so I wanted to try."Marshall: "I can't believe this whole time it was you guys; I've been blaming Really Tan Dancing Leotard guy." - Marshall Eriksen
