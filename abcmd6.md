@@ -1,2 +1,2 @@
-Last updated: 2024-04-10 00:39:24
-Random Quote: If the cancer doesn't get him, it'll be the cops or a bullet to the head. - Mike Ehrmantraut
+Last updated: 2024-04-10 00:39:57
+Random Quote: Joe Caputo: "You ever notice how some dog breeds, they sound kind of dirty? Like, shih tzu, cocker, Jack-something."Susan Fischer: "Poodle."Joe Caputo: "That is good, I didn't think of that one." - Joe Caputo
