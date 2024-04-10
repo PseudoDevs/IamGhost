@@ -1,2 +1,2 @@
-Last updated: 2024-04-10 04:00:02
-Random Quote: I never wanted any of it to change, but that's not how life works. - Ted Mosby
+Last updated: 2024-04-10 04:01:12
+Random Quote: Your innocence may be as plain as the scar on your face, but it will not save you.  No more than your father will.  But I might.  Not as your judge.  As your champion.  -  Oberyn Martell

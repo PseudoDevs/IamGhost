@@ -1,3 +1,2 @@
-Last updated: 2024-04-10 04:00:36
-Random Quote: Sal: "Does Lily have any other plates? I don't let Sammy eat off this plastic."
-Pepper: "How does she breastfeed him if she doesn't let him near plastic?" - Pepper Saltzman
+Last updated: 2024-04-10 04:01:12
+Random Quote: No more half-measures, Walter. - Mike Ehrmantraut
