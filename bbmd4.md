@@ -1,2 +1,2 @@
-Last updated: 2024-04-10 04:21:58
-Random Quote: All due respect, sir, isn't that a lot of firepower to aim at a country most Americans can't find on a map? - Pepper Potts
+Last updated: 2024-04-10 04:22:31
+Random Quote: Edric Storm, they call him.  He is said to be the very image of my brother.  If men were to see him, and then look again at Joffrey and Tommen, they could not help but wonder, I would think.  -  Stannis Baratheon
