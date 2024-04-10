@@ -1,4 +1,2 @@
-Last updated: 2024-04-10 00:51:54
-Random Quote: Greef: "Nevarro is a very fine planet. And now that the scum and villainy have been washed away, it's very respectable again."
-Mando: "As a bounty hunter hive?"
-Greef: "Some of my favorite people are bounty hunters." - Greef Karga
+Last updated: 2024-04-10 00:52:29
+Random Quote: That went surprisingly well. You came off like a naive idiot - and naive idiots are not a threat. - Viktor Bryukhanov
