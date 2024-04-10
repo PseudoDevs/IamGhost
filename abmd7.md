@@ -1,2 +1,2 @@
-Last updated: 2024-04-10 04:57:03
-Random Quote: So how do you take down a crook who's at the top of his game? Who has every cop in town in his pocket? Well, you hold your breath and you hope you get lucky. - Walt Breslin
+Last updated: 2024-04-10 04:57:38
+Random Quote: Only when we’ve freed ourselves of emotion can we be truly free. Only when you’re willing to sacrifice what you hold dearest. - Adam

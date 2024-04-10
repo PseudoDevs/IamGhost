@@ -1,2 +1,2 @@
-Last updated: 2024-04-10 04:55:54
-Random Quote: It's like...It's like I'm a fucked-up-shit magnet. - Maria Ruiz
+Last updated: 2024-04-10 04:57:38
+Random Quote: Piper: "Not every Hispanic person wants the same thing."Lorna: "Oh, sure they do. They all want to come to America."Nicky: "Jesus, your entire world view is based on 'West Side Story', isn't it?" - Nicky Nichols
