@@ -1,2 +1,2 @@
-Last updated: 2024-04-10 04:19:22
-Random Quote: It seems to me that a queen who trusts no one is as foolish as a queen who trusts everyone.  -  Daenerys Targaryen
+Last updated: 2024-04-10 04:19:58
+Random Quote: I will not be remembered as Set Arys the Unworthy.  I will not soil my cloak.  -  Arys Oakheart
