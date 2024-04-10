@@ -1,2 +1,2 @@
-Last updated: 2024-04-10 00:57:16
-Random Quote: What I came to realise is that fear, that’s the worst of it. That’s the real enemy. So, get up, get out in the real world and you kick that bastard as hard you can right in the teeth. - Walter White
+Last updated: 2024-04-10 00:57:49
+Random Quote: Lily: "Whenever we board a flight, you lick the plane!"Marshall: "Have we crashed even once?" - Marshall Eriksen
