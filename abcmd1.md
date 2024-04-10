@@ -1,3 +1,2 @@
-Last updated: 2024-04-10 04:02:58
-Random Quote: Ellie: "Everybody I've cared for, either died or left me."
-Joel: "You have no idea what loss is." - Joel Miller
+Last updated: 2024-04-10 04:03:33
+Random Quote: The end is the beginning, and the beginning is the end - 
