@@ -1,2 +1,3 @@
-Last updated: 2024-04-10 04:43:14
-Random Quote: Euron Greyjoy is no man's notion of a king, if half of what Theon said of him was true.  -  Robb Stark
+Last updated: 2024-04-10 04:44:20
+Random Quote: Joel: "You got any advice on the best way west?"
+Man: "Yeah. Go east." - Ellie Williams
