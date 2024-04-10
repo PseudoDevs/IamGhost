@@ -1,2 +1,3 @@
-Last updated: 2024-04-10 00:42:24
-Random Quote: Clint: "Ted, your mother is a very, very erotic woman."Ted: "Please don't." - Ted Mosby
+Last updated: 2024-04-10 00:42:57
+Random Quote: Larissa: "So you automatically assume a Nevermore student is the murderer, even though there's no evidence a crime was even committed."
+Donovan: "I'm sorry. I forgot, you only teach the good outcasts here, right?" - Donovan Galpin
