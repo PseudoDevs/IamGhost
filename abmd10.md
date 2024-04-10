@@ -1,2 +1,2 @@
-Last updated: 2024-04-10 03:55:21
-Random Quote: Barney: "How's the single life?"Ted: "I wouldn't know. After this whole Robin thing, I'm laying low."Barney: "Laying low as in sleeping with a really short chick? You guys doing thirty-nine?" - Barney Stinson
+Last updated: 2024-04-10 03:55:54
+Random Quote: It's not like anyone's 100% straight or 100% gay. - Maddy Perez
