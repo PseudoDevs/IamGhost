@@ -1,2 +1,2 @@
-Last updated: 2024-04-10 04:13:15
-Random Quote: Marshall: "Yes, i want a ball-room and I want a band and I want shoes. I've been dreaming about this day since I was... like...Lily: "...a little girl?" - Lily Aldrin
+Last updated: 2024-04-10 04:13:50
+Random Quote: It's nice that they found each other. Sometimes you fall for someone you'd never expect, but that doesn't make it wrong. Doesn't everyone deserve to be happy? - Barney Stinson
