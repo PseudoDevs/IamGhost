@@ -1,2 +1,2 @@
-Last updated: 2024-04-10 00:33:37
-Random Quote: Ted, the only reason to wait a month for sex is if the girl is 17 years and 11 months old. - Barney Stinson
+Last updated: 2024-04-10 00:34:14
+Random Quote: He climbed onto his throne over the corpses of children, though I will grant you he was no Joffrey.  -  Arianne Martell
