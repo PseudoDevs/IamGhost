@@ -1,2 +1,2 @@
-Last updated: 2024-04-10 00:36:34
-Random Quote: You better go to your room before I give you a smack. Smacking is still an acceptable punishment in many minority cultures. - Nalini Vishwakumar
+Last updated: 2024-04-10 00:37:09
+Random Quote: Nymeria was least dangerous when nearly naked.  Elsewise she was sure to have a dozen blades concealed about her person.  -  Areo Hotah
