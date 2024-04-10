@@ -1,2 +1,2 @@
-Last updated: 2024-04-10 04:19:23
-Random Quote: I want you to wanna kiss me so bad that you don't even ask. - Jules Vaughn
+Last updated: 2024-04-10 04:20:00
+Random Quote: Did the boy charm you?  He has that gift.  He got it from his father, with the blood.  He knows he is a king's son, but chooses to forget that he is bastard - born. 
