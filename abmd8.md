@@ -1,2 +1,2 @@
-Last updated: 2024-04-10 00:34:39
-Random Quote: Rickard Karstark killed more than a Frey and a Lannister.  He killed my honor.  -  Robb Stark
+Last updated: 2024-04-10 00:35:12
+Random Quote: Many good men have been bad kings, and some bad men have been good kings.  -  Maester Aemon
