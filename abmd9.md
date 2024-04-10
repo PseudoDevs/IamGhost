@@ -1,2 +1,3 @@
-Last updated: 2024-04-10 03:59:38
-Random Quote: Freeways have exits, so do relationships. The first exit, my personal favourite, is six hours in: You meet, you talk, you have sex, you exit when she's in the shower. - Barney Stinson
+Last updated: 2024-04-10 04:00:10
+Random Quote: Robin: "I'm drinking 'til I forget the 1999 NFC Championship?"
+Marshall: "The Vikings were two minutes away from going to the Super Bowl, when our kicker, who hadn't missed all year, shanked a field goal, and we lost in overtime. Damn!" - Marshall Eriksen
