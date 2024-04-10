@@ -1,2 +1,2 @@
-Last updated: 2024-04-10 04:45:41
-Random Quote: I dreamed of the man who came today, the one they call Reek.  You and your brother lay dead at his feet, and he was skinning off your faces with a long red blade.  -  Jojen Reed
+Last updated: 2024-04-10 04:46:14
+Random Quote: So how do you take down a crook who's at the top of his game? Who has every cop in town in his pocket? Well, you hold your breath and you hope you get lucky. - Walt Breslin
