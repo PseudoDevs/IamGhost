@@ -1,2 +1,2 @@
-Last updated: 2024-04-10 04:49:02
-Random Quote: I don't take nothin' a drug addict says personally. 'Cause I don't believe nothin' a drug addict say. - Fezco
+Last updated: 2024-04-10 04:49:38
+Random Quote: I have served six kings, but here before us lies the greatest man I ever knew.  Lord Tywin wore no crown, yet he was all a king should be.  -  Grand Maester Pycelle
