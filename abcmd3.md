@@ -1,2 +1,2 @@
-Last updated: 2024-04-10 04:09:26
-Random Quote: Are you allowed to say that to people in my tax bracket? - Iron Man
+Last updated: 2024-04-10 04:09:59
+Random Quote: Mother of dragons.  Mother of monsters.  What have I unleashed upon the world?  A queen I am, but my throne is made of burned bones, and it rests on quicksand.  Without dragons, how could she hope to hold Mereen, much less win back Westeros?  I am the blood of the dragon.  If they are monsters, so am I.  -  Daenerys Targaryen
