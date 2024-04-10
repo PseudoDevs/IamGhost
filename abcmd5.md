@@ -1,2 +1,3 @@
-Last updated: 2024-04-10 00:54:57
-Random Quote: The only way that entire car is worth 500 bucks, is if there's a $300 hook-r sitting in it. - Saul Goodman
+Last updated: 2024-04-10 00:55:32
+Random Quote: Mi-nyeo: "Deok-su. You betray me... I'll kill you. Okay?"
+Deok-su: "You're the reason that I think I might die tonight." - Jang Deok-su
