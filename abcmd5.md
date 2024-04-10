@@ -1,2 +1,2 @@
-Last updated: 2024-04-10 00:52:13
-Random Quote: Marshall: "Robin, I need you to delete the last text that Lily got before she sees it."Robin: "Bro, it's my wedding weekend. Just because you didn't know better than to take a naked selfie while you were in the coldest part of the country..."Marshall: "...first, I'm an Eriksen. Cold has a plumping effect." - Marshall Eriksen
+Last updated: 2024-04-10 00:52:45
+Random Quote: Yes, I'm in a rotten mood. No, I don't want to talk about it. Yes, this has booze in it. No, it's not my first. - Lily Aldrin
