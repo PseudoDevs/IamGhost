@@ -1,2 +1,4 @@
-Last updated: 2024-04-10 04:28:41
-Random Quote: Ted: "Our point guard's a 52-year-old virgin, happy as a clam."Barney: "I'm sure he's quite a ball handler." - Barney Stinson
+Last updated: 2024-04-10 04:29:14
+Random Quote: Joel: "Long way or short way?"
+Tess: "I mean, it's the long way or the 'we're fuckin' dead' way."
+Ellie: "Well, I vote long way just based on that limited information." - Ellie Williams
