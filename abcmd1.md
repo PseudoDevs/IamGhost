@@ -1,5 +1,2 @@
-Last updated: 2024-04-10 00:51:08
-Random Quote: Morty: "Mom, I have a friend coming over. Is that cool?"
-Beth: "I told your sister no parties."
-Morty: "It's one friend."
-Beth: "That's a party to you." - Beth Smith
+Last updated: 2024-04-10 00:51:40
+Random Quote: I am the storm, my lord, the first storm, and the last.  -  Euron Greyjoy
