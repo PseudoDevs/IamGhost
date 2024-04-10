@@ -1,2 +1,2 @@
-Last updated: 2024-04-10 00:38:21
-Random Quote: Ted, I believe you and I met for a reason. It's like the universe was saying: "Hey Barney, there's this dude, he's pretty cool, but it's your job to make him awesome." - Barney Stinson
+Last updated: 2024-04-10 00:38:56
+Random Quote: Robert was never the same after he put on that crown.  Some men are like swords, made for fighting.  Hang them up and they go to rust.  -  Donal Noye
