@@ -1,2 +1,2 @@
-Last updated: 2024-04-10 04:01:47
-Random Quote: Yesterday, today and tomorrow are not consecutive, they are connected in a never-ending circle. Everything is connected - The Stranger
+Last updated: 2024-04-10 04:02:23
+Random Quote: Quentyn had never felt so much a boy as when he'd stood before Daenerys Targaryen, pleading for her hand.  The thought of bedding her terrified him almost as much as her dragons had.  -  Quentyn Martell
