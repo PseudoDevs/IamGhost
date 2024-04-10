@@ -1,3 +1,2 @@
-Last updated: 2024-04-10 00:53:37
-Random Quote: The Deep: "What do we do? We can't just kill everyone."
-Billy Butcher: "That's exactly what we're gonna do!" - Billy Butcher
+Last updated: 2024-04-10 00:54:10
+Random Quote: Pennsatucky: "It weren't my fault. I was just doing as the Spirit commanded."Pussey: "Fuck are you? Joan of Arc?"Pennsatucky: "No, I'm from Waynesboro, my name is Tiffany..." - Tiffany 'Pennsatucky' Doggett
