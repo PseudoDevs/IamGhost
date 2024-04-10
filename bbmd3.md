@@ -1,2 +1,2 @@
-Last updated: 2024-04-10 00:33:38
-Random Quote: Is it your fault that Bronn's an insolent black - hearted rogue?  He's always been an insolent black
+Last updated: 2024-04-10 00:34:13
+Random Quote: When you tear out a man's tongue, you are not proving him a liar, you're only telling the world that you fear what he might say.  -  Tyrion Lannister

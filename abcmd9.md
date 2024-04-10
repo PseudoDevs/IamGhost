@@ -1,3 +1,2 @@
-Last updated: 2024-04-10 00:33:38
-Random Quote: "Everybody else can see Ben, right?"
-"Yeah, and he's a complete d-ckhead." - Allison Hargreeves
+Last updated: 2024-04-10 00:34:13
+Random Quote: Better the butcher than the meat.  All kings are butchers.  Are queens so different?  -  Daario Naharis
