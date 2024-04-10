@@ -1,2 +1,2 @@
-Last updated: 2024-04-10 04:16:19
-Random Quote: Lily: "Ted, you did this all yourself?"Ted: "Just like Ryan Gosling in 'The Notebook'. It was pretty manly 'til I mentioned Ryan Gosling in 'The Notebook', huh?" - Ted Mosby
+Last updated: 2024-04-10 04:16:55
+Random Quote: I love hospitals. If I could spend the rest of my life in a hospital, I would. Because when you're in a hospital, you have zero responsibilities. - Rue Bennett
