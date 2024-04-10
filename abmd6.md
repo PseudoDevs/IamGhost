@@ -1,2 +1,2 @@
-Last updated: 2024-04-10 04:21:49
-Random Quote: I know you mean well. I know you wanna protect me. You have. And when we're done, we'll go wherever you want. Tommy's, sheep ranch, the moon... I'll follow you anywhere you go. But there's no halfway with this. We finish what we started. - Ellie Williams
+Last updated: 2024-04-10 04:22:26
+Random Quote: No voting, no debate. It's not a democracy - it's a Rickpublic! - Summer Smith
