@@ -1,2 +1,2 @@
-Last updated: 2024-04-10 00:51:34
-Random Quote: This is Stannis Baratheon.  The man will fight to the bitter end and then some.  -  Tywin Lannister
+Last updated: 2024-04-10 00:52:07
+Random Quote: It's probably his... I've spent years, training my boys to swim the other way. - Barney Stinson
