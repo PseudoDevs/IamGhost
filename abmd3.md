@@ -1,2 +1,2 @@
-Last updated: 2024-04-10 04:12:07
-Random Quote: There are worse ways to die than warm and drunk.  I knew a brother drowned himself in wine once.  It was a poor vintage, though, and his corpse did not improve it.  -  Dolorous Edd Tollett
+Last updated: 2024-04-10 04:14:29
+Random Quote: I have won every battle, yet somehow I'm losing the war.  -  Robb Stark
