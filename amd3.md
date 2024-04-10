@@ -1,2 +1,2 @@
-Last updated: 2024-04-10 05:00:35
-Random Quote: In Texas, the holy trinity is God, Football and barbecue. Not necessarily in that order. - Sheldon Cooper
+Last updated: 2024-04-10 05:01:08
+Random Quote: There is entirely too much tut - tutting in this realm, if you ask me.  All these kings would do a deal better if they put down their swords and listended to their mothers. 
