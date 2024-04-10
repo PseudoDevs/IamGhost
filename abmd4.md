@@ -1,2 +1,3 @@
-Last updated: 2024-04-10 04:23:02
-Random Quote: I act as if I don't care if people dislike me. Deep down, I actually enjoy it. - Wednesday Addams
+Last updated: 2024-04-10 04:24:15
+Random Quote: Freddie: "If you want me out of Birmingham, it'll have to be in a wooden box."
+Polly: "You lay a hand on our Ada, I'll put you in a wooden box myself!" - Polly Gray
