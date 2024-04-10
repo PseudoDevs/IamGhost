@@ -1,2 +1,4 @@
-Last updated: 2024-04-10 04:17:59
-Random Quote: The Universe is Random. Not Inevitable. It's simple Chaos. - Walter White
+Last updated: 2024-04-10 04:18:32
+Random Quote: Greef: "Nevarro is a very fine planet. And now that the scum and villainy have been washed away, it's very respectable again."
+Mando: "As a bounty hunter hive?"
+Greef: "Some of my favorite people are bounty hunters." - Greef Karga
