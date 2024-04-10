@@ -1,2 +1,2 @@
-Last updated: 2024-04-10 00:54:52
-Random Quote: The more you give a king, the more he wants.  We are walking on a bridge of ice with an abyss on either side.  Pleasing one king is difficult enough.  Pleasing two is hardly possible.  -  Jon Snow
+Last updated: 2024-04-10 00:55:29
+Random Quote: You want to be a bounty hunter? Make the best deal for yourself and survive! - Fennec Shand
