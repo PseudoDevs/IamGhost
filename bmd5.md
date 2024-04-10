@@ -1,5 +1,2 @@
-Last updated: 2024-04-10 04:12:25
-Random Quote: John Flynn: "Rogers, get in there!"
-Peggy Carter: "He can't."
-John Flynn: "Stark, you go in!"
-Howard Stark: "What? Are you crazy? I push the buttons. I'm the buttons guy." - Howard Stark
+Last updated: 2024-04-10 04:12:58
+Random Quote: If you mean when will Chernobyl be completly save - the half-life of Plutonium 239 is 24,000 years. Perhaps we should just say, 'not in our lifetimes'. - Valery Legasov
