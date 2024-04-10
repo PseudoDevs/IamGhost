@@ -1,2 +1,2 @@
-Last updated: 2024-04-10 00:30:16
-Random Quote: The Drowned God gives every man a gift, even him; no man could piss longer or farther than Aeron Greyjoy, as he proved at every feast.  Once he bet his new longship against a herd of goats that he could quench a hearthfire with no more than his cock.  Aeron feasted on goat for a year, and named the longship Golden Storm, though Balon threatened to hang him from her mast when he heard what sort of ram his brother proposed to mount upon her prow.  -  Aeron Greyjoy
+Last updated: 2024-04-10 00:30:49
+Random Quote: From this day forth, you will not call yourself a craven.  You've faced more things this past year than most men face in a lifetime.  You can face the Citadel, but you'll face it as a Sworn Brother of the Night's Watch.  I can't command you to be brave, but I can command you to hide your fears.  -  Jon Snow
