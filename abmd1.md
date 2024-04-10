@@ -1,2 +1,2 @@
-Last updated: 2024-04-10 04:52:04
-Random Quote: You're mine.  Mine, as I'm yours.  And if we die, we die.  All men must die, Jon Snow.  But first, we'll live.  -  Ygritte
+Last updated: 2024-04-10 04:52:39
+Random Quote: I had nothing but time. Endless time. At first, it was madness. Then enlightment. Then madness again. But perhaps it was a gift. I could see the life of time. And as I watched the life of time in all its fleeting, terrible light, I wondered, had I lived? Was I just the object in another's story? Was that all I ever was? Could I be more? I had nothing but time and still no answer. Time without purpose is a prison. I have glimpsed into the mind of eternity. Perhaps the mind of God. And found nothing but silence. - Jessica
