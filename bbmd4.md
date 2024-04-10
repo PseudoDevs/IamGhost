@@ -1,2 +1,2 @@
-Last updated: 2024-04-10 04:41:49
-Random Quote: Client: "Please lower your blaster."Mando: "Tell them to lower theirs first."Stormtrooper: "We have you four to one."Mando: "I like those odds." - Din Djarin
+Last updated: 2024-04-10 04:42:24
+Random Quote: Treason is a noxious weed.  It must be torn up, root and stem and seed, lest new traitors sprout from every roadside.  -  Grand Maester Pycelle
