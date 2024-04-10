@@ -1,2 +1,2 @@
-Last updated: 2024-04-10 00:30:47
-Random Quote: I don't want to be good. I am going to be great. - Pablo Escobar
+Last updated: 2024-04-10 00:31:21
+Random Quote: The men of Westeros are ever rushing.  What good is this, I ask you?  He who hurries through life hurries to his grave.  -  Salladhor Saan
