@@ -1,2 +1,2 @@
-Last updated: 2024-04-10 00:50:37
-Random Quote: I'm only nine years oldMost evil doesn't start till puberty. - Sheldon
+Last updated: 2024-04-10 00:51:13
+Random Quote: Women aren't soldiers, and they sure as hell don't fight on the front lines. They might break a nail. - John Flynn
