@@ -1,2 +1,2 @@
-Last updated: 2024-04-10 04:17:14
-Random Quote: Barney: "He's the awesomest, most best-lookingest, greatest guy ever!"Lily: "He's exactly like Barney."Barney: "That's what I just said." - Barney Stinson
+Last updated: 2024-04-10 04:17:47
+Random Quote: If you don't make it back, there's one thing that I need to tell you... - Klaus Hargreeves
