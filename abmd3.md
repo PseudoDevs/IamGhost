@@ -1,2 +1,2 @@
-Last updated: 2024-04-10 00:31:47
-Random Quote: I knew quite a few Jedi, you know. I don't know what they taught you about us, but there was a time we actually got along quite well. Fought side by side. - Bo-Katan
+Last updated: 2024-04-10 00:32:20
+Random Quote: My father knew the worth of Howland Reed.  -  Robb Stark
