@@ -1,2 +1,3 @@
-Last updated: 2024-04-10 04:54:05
-Random Quote: I've been dreaming of that since I was five. Well, that and my own operational Death Star. - Barney Stinson
+Last updated: 2024-04-10 04:55:15
+Random Quote: Ellie: "Everybody I've cared for, either died or left me."
+Joel: "You have no idea what loss is." - Joel Miller
