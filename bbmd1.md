@@ -1,2 +1,2 @@
-Last updated: 2024-04-10 04:21:11
-Random Quote: I thought I was the inventor, but the greatest invention of all is the free gift of eternal life. - Rick Sanchez
+Last updated: 2024-04-10 04:21:47
+Random Quote: When you play the game of thrones, you win or you die.  There is no middle ground.  -  Cersei Lannister
