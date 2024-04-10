@@ -1,2 +1,2 @@
-Last updated: 2024-04-10 00:36:53
-Random Quote: Hey, it's me again. Look, who are we kidding? You and I are both attracted to each other. We're young, we're drunk, half of us anyway. And we only get one life, so why don't you come over to my apartment and we'll think of something stupid to do together? - Ted Mosby
+Last updated: 2024-04-10 00:37:26
+Random Quote: Lies are necessary, when the truth is too difficult to believe. - Pablo Escobar
