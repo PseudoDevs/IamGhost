@@ -1,2 +1,2 @@
-Last updated: 2024-04-10 03:58:44
-Random Quote: I never wanted the throne, I only ever wanted to be your equal. - Thor
+Last updated: 2024-04-10 03:59:16
+Random Quote: Catelyn would sooner Lord Umber had seen fit to stay sober, but telling the Greatjon not to drink was like telling him not to breathe for a few hours.  -  Catelyn Stark
