@@ -1,2 +1,2 @@
-Last updated: 2024-04-10 04:22:55
-Random Quote: Master Mott said Thoros could outdrink even King Robert.  They were pease in a pod, he told me, both gluttons and sots.  -  Gendry
+Last updated: 2024-04-10 04:23:28
+Random Quote: My son lies here broken and dying, Luwin, and you wish to discuss a new master of horse?  Do you think I care what happens in the stables?  Do you think it matters to me one whit?  I would gladly butcher every horse in Winterfell with my own hands if it would open Bran's eyes, do you understand that?  Do you?  -  Catelyn Stark
