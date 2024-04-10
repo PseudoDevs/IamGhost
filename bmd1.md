@@ -1,3 +1,2 @@
-Last updated: 2024-04-10 00:48:50
-Random Quote: Jang Deok-su: "Tell me what you're good at?"
-Han Mi-nyeo: "Everything, except the things I can't do." - Oh Il-nam
+Last updated: 2024-04-10 00:49:25
+Random Quote: There's nothing more powerful than a fat girl who doesn't give a f. - Kat Hernandez
