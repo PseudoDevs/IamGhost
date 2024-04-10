@@ -1,2 +1,2 @@
-Last updated: 2024-04-10 04:29:37
-Random Quote: I learned form Set Arthur Dayne, the Sword of the Morning, who could have slain all five of you with his left hand while he was taking a piss with the right.  -  Jaime Lannister
+Last updated: 2024-04-10 04:30:12
+Random Quote: Death is always inevitable. destiny is nothing but the connection between cause and effect. In light, in shadow. - 
