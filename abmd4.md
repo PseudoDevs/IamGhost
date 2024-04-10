@@ -1,2 +1,2 @@
-Last updated: 2024-04-10 00:54:20
-Random Quote: Kevin: "Well, it's a close one. Lily made 14 awkward references to marriage and Marshall made an even 60."Robin: "I'm so sorry, Kevin."Kevin: "It's okay. I'm gonna go to bed, but you guys think tomorrow we can stop with all the marriage talk?"Lily: "I do."Marshall: "I do."Kevin: "That's a half a point each." - Kevin
+Last updated: 2024-04-10 00:54:55
+Random Quote: Nick: "So, I went to this fortune teller today and she said there was a curse on me."Robin: "Did she sell you something to ward off the curse?"Nick: "It's like you're a fortune teller, too." - Nick
