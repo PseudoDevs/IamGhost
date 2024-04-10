@@ -1,3 +1,2 @@
-Last updated: 2024-04-10 04:03:01
-Random Quote: I hired a decorator and I asked him: "What would the inside of Tinkerbell's vagina look like?"
-And the kid just ran with it! - Quinn Garvey
+Last updated: 2024-04-10 04:03:37
+Random Quote: Whatever happens next, it's not gonna go down the way you think it is. - Mike Ehrmantraut
