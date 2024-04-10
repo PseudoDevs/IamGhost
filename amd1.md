@@ -1,2 +1,3 @@
-Last updated: 2024-04-10 00:47:22
-Random Quote: That's what they do, don't they? They show you the world, and then they tell you you can't have it. - Virginia Wilson
+Last updated: 2024-04-10 00:47:55
+Random Quote: George: "I love what you done with the place. Did you do it yourself, or did you get some pouf to help ya?"
+Rebecca: "I could ask the same of your hair." - Rebecca Welton
