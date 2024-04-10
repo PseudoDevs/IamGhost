@@ -1,2 +1,2 @@
-Last updated: 2024-04-10 00:57:45
-Random Quote: Old gods or new, it makes no matter, no man is so accursed as the kinslayer.  -  Rickard Karstark
+Last updated: 2024-04-10 00:58:17
+Random Quote: I've only known one other being like this. A wise Jedi Master named Yoda. - Ahsoka Tano
