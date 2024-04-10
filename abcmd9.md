@@ -1,2 +1,2 @@
-Last updated: 2024-04-09 18:01:17
-Random Quote: One day, we'll wake up, and brush our teeth, and go to work. And at some point, we'll suddenly realize that we haven't thought about it at all. None of it. And that's when we'll know. We'll know we can forget. - Saul Goodman
+Last updated: 2024-04-10 00:29:36
+Random Quote: They know.  The gods know.  They saw what I did.  And for one strange moment it seemed as if it were Bran's face carved into the pale trunk of the weirwood, staring down at him with eyes red and wise and sad.  Bran's ghost, he thought, but that was madness.  Why should Bran want to haunt him?  He had been fond of the boy, had never done him any harm.  It was not Bran we killed.  It was not Rickon.  They were only miller's sons, from the mill by the Acorn Water.  -  Theon Greyjoy
