@@ -1,2 +1,2 @@
-Last updated: 2024-04-10 03:54:48
-Random Quote: Cum is kind of like a penis having a sneeze. Ugh, that means when you swallow someone's cum, it's like eating their snot. - Aimee Gibbs
+Last updated: 2024-04-10 03:55:21
+Random Quote: Lily: "That's Dirty Dancing!"Ted: "It was on last night."Marshall: "No, it was two nights ago. 'She's Like the Wind' has been stuck in my brain for about 40 hours. I just got it out; now it's back in. Damn you, Swayze!" - Marshall Eriksen
