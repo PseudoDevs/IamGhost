@@ -1,2 +1,2 @@
-Last updated: 2024-04-10 00:41:56
-Random Quote: No matter how tough things get, children always turn out okay. - Berlin
+Last updated: 2024-04-10 00:42:30
+Random Quote: Fool's blood, king's blood, blood on the maiden's thigh, but chains for the guests and chains for the bridegroom, aye aye aye.  -  Patchface
