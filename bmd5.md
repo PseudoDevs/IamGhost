@@ -1,2 +1,2 @@
-Last updated: 2024-04-10 04:20:25
-Random Quote: You think you're the only one he whispers secrets to?  He gives each of us just enough to convince us that we'd be helpless without him.  -  Cersei Lannister
+Last updated: 2024-04-10 04:20:58
+Random Quote: Did you just bring a bomb into a hospital? - Jesse Pinkman
