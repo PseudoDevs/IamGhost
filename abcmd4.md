@@ -1,2 +1,2 @@
-Last updated: 2024-04-10 04:03:36
-Random Quote: I'll help you study. We're gonna stay up all night long. I'm gonna drill you and then we're gonna study. No, seriously. We're gonna do some cramming and then we're gonna study. No, seriously. We're gonna bone up on... - Barney Stinson
+Last updated: 2024-04-10 04:04:49
+Random Quote: We’re wanderers in the darkness. - 
