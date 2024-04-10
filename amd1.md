@@ -1,2 +1,2 @@
-Last updated: 2024-04-10 04:22:25
-Random Quote: Turns out, when you projectile vomit on skates, you roll right into the spray. - Ted Mosby
+Last updated: 2024-04-10 04:23:02
+Random Quote: You grew up with actors.  You learned their craft and you learned it well.  I grew up with soldiers.  I learned how to die a long time ago.  -  Eddard Stark
