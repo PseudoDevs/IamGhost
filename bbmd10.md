@@ -1,2 +1,2 @@
-Last updated: 2024-04-10 00:30:50
-Random Quote: All three of you were being a buch of little a-sholes. I was the only reasonable one. - Dustin Henderson
+Last updated: 2024-04-10 00:32:29
+Random Quote: I have worked at the downfall of Tywin Lannister since the day they told me of Elia and her children.  -  Doran Martell
