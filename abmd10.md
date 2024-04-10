@@ -1,2 +1,2 @@
-Last updated: 2024-04-10 00:50:23
-Random Quote: Emotion equals weakness. - Wednesday Addams
+Last updated: 2024-04-10 00:50:56
+Random Quote: Jaime and I are more than brother and sister.  We are one person in two bodies.  We shared a womb together.  He came into this world holding my foot, our old maester said.  When he is in me, I feel... whole.  -  Cersei Lannister
