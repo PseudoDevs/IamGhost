@@ -1,2 +1,2 @@
-Last updated: 2024-04-10 04:15:04
-Random Quote: Because there's no way watching it can be more fun than playing it yourself. - Oh Il-nam
+Last updated: 2024-04-10 04:15:41
+Random Quote: Not all Mandalorians are bounty hunters. Some of us serve a higher purpose. - Bo-Katan
