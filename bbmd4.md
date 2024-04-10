@@ -1,2 +1,2 @@
-Last updated: 2024-04-10 04:01:48
-Random Quote: Robin: "I just finished a seven-day cleanse."Marshall: "I thought you just started that yesterday."Robin: "I finished early, okay?" - Robin Scherbatsky
+Last updated: 2024-04-10 04:02:25
+Random Quote: By "entertainment" they mean "table-shuffle-board", Makramee classes and other non-stimulating activities which are only used in Manhatten to calm down drug-addicts and the criminaly insane. - Robin Scherbatsky
