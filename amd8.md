@@ -1,3 +1,2 @@
-Last updated: 2024-04-10 04:52:01
-Random Quote: The boobs on the bus go up and down, up and down, up and down
-The boobs on the bus go up and down, all through the town - Barney Stinson
+Last updated: 2024-04-10 04:52:35
+Random Quote: Only a fool humbles himself when the world is so full of men eager to do that job for him.  -  Theon Greyjoy
