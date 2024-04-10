@@ -1,3 +1,2 @@
-Last updated: 2024-04-10 04:35:41
-Random Quote: I hired a decorator and I asked him: "What would the inside of Tinkerbell's vagina look like?"
-And the kid just ran with it! - Quinn Garvey
+Last updated: 2024-04-10 04:36:17
+Random Quote: "Cap'n Cook?" That's not you? Like I said, no one is looking for you. - Walter White
