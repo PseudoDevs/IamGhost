@@ -1,2 +1,2 @@
-Last updated: 2024-04-10 04:11:21
-Random Quote: Lord Varys, sometimes I feel as though you are the best friend I have in King's Landing and sometimes I feel you are my worst enemy.  -  Tyrion Lannister
+Last updated: 2024-04-10 04:11:54
+Random Quote: Ted: "It's the Drunk Train! You crossed out all the stops and wrote Vagina-Ville."Barney: "That's not true. That one says Boner Gardens." - Barney Stinson
