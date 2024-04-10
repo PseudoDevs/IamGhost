@@ -1,2 +1,2 @@
-Last updated: 2024-04-10 04:00:02
-Random Quote: You need to figure out what the fuck you want. - Nicky Nichols
+Last updated: 2024-04-10 04:00:36
+Random Quote: The truth is, our weakness is the same as anyone’s. It’s people. The people we care about. So I say, cut them loose. For your good and for theirs. That way you’re really bulletproof. - Maeve

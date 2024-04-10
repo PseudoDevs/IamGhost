@@ -1,2 +1,2 @@
-Last updated: 2024-04-10 04:00:01
-Random Quote: All the tales agreed that the green men had strange magic powers.  Maybe they could help him walk again, even turn him into a knight.  They turned the little crannogman into a knight, even if it was only for a day, he thought.  A day would be enough.  -  Bran Stark
+Last updated: 2024-04-10 04:00:36
+Random Quote: The most beautiful woman in the world has urgent need of my axe.  -  Victarion Greyjoy.
