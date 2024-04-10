@@ -1,4 +1,2 @@
-Last updated: 2024-04-10 00:53:07
-Random Quote: Ellie: "Can I have a gun?"
-Joel: "Absolutely not."
-Ellie: "Okay, Jesus. Fine. I'll have to throw a f-ckin' sandwich at them." - Ellie Williams
+Last updated: 2024-04-10 00:53:42
+Random Quote: There's no shame in fear, my father told me, what matters is how we face it.  -  Jon Snow
