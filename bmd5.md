@@ -1,2 +1,2 @@
-Last updated: 2024-04-10 04:11:19
-Random Quote: You want to rule?  This is what ruling is; lying on a bed of weeds, ripping them out by the root, one by one, before they strangle you in your sleep.  -  Cersei Lannister
+Last updated: 2024-04-10 04:11:52
+Random Quote: As fun as this place is, it's late. So, what's our play? And don't say, "The Siamese Twins", we're not stretching out another one of my jackets! - Ted Mosby
