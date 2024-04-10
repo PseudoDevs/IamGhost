@@ -1,2 +1,2 @@
-Last updated: 2024-04-10 04:07:02
-Random Quote: Fool's blood, king's blood, blood on the maiden's thigh, but chains for the guests and chains for the bridegroom, aye aye aye.  -  Patchface
+Last updated: 2024-04-10 04:07:35
+Random Quote: Robb, who had been more a brother to Theon than any son born of Balon Greyjoy's loins.  Murdered at the Red Wedding, butchered by the Freys.  I should have been with him.  Where was I?  I should have died with him.  -  Theon Greyjoy
