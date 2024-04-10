@@ -1,2 +1,4 @@
-Last updated: 2024-04-10 04:29:40
-Random Quote: Free folk don't follow names, or little cloth animals sewn on a tunic.  They won't dance for coins, they don't care how you style yourself or what that chain of office means or who your grandsire was.  They follow strength.  They follow the man.  -  Mance Rayder
+Last updated: 2024-04-10 04:30:50
+Random Quote: Ted: "It's freezing out there. Where's your coat?"
+Robin: "Ted, I'm Canadian. I don't need a coat. This kind of weather is nothing for me."
+Marshall: "Yeah. This is like a spring day back in Minnesota." - Marshall Eriksen
