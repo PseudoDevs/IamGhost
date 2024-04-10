@@ -1,2 +1,2 @@
-Last updated: 2024-04-10 00:45:44
-Random Quote: Khaleesi, better a man should swallow scorpions than trust in the spawn of shadows, who dare not show their face beneath the sun.  It is known.  -  Rakharo
+Last updated: 2024-04-10 00:46:49
+Random Quote: A sorcerer is a wizard without a hat. - Sam Wilson
