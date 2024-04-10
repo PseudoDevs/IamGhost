@@ -1,2 +1,2 @@
-Last updated: 2024-04-10 04:48:26
-Random Quote: If I hadn't buried my feelings so deep I would totally be tearing up right now. - Maritza Ramos
+Last updated: 2024-04-10 04:52:39
+Random Quote: You want to rule?  This is what ruling is; lying on a bed of weeds, ripping them out by the root, one by one, before they strangle you in your sleep.  -  Cersei Lannister
