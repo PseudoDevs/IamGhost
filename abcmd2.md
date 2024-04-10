@@ -1,2 +1,2 @@
-Last updated: 2024-04-10 00:48:30
-Random Quote: Buzz buzz buzz - The fly
+Last updated: 2024-04-10 00:49:03
+Random Quote: I dreamed of the man who came today, the one they call Reek.  You and your brother lay dead at his feet, and he was skinning off your faces with a long red blade.  -  Jojen Reed

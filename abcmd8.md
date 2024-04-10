@@ -1,2 +1,2 @@
-Last updated: 2024-04-10 00:48:30
-Random Quote: Cara: "It's gonna break his little heart."Mando: "He'll get over it. We all do." - Din Djarin
+Last updated: 2024-04-10 00:49:03
+Random Quote: He is strong with the Force, but talent without training is nothing. I will give my life to protect the child, but he will not be safe until he masters his abilities. - Luke Skywalker
