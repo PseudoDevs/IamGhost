@@ -1,2 +1,3 @@
-Last updated: 2024-04-10 03:56:26
-Random Quote: Things never work out the way you imagine they will. - Lucien
+Last updated: 2024-04-10 03:57:01
+Random Quote: Larissa: "So you automatically assume a Nevermore student is the murderer, even though there's no evidence a crime was even committed."
+Donovan: "I'm sorry. I forgot, you only teach the good outcasts here, right?" - Donovan Galpin
