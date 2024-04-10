@@ -1,2 +1,2 @@
-Last updated: 2024-04-10 04:10:16
-Random Quote: New Mexico. It's another state. I mean, it's like California, just less traffic. - Lalo Salamanca
+Last updated: 2024-04-10 04:11:28
+Random Quote: The frightened child who sheltered in my manse died on the Dothraki Sea, and was reborn in blood and fire.  This dragon queen who wears her name is a true Targaryen.  -  Illyrio Mopatis
