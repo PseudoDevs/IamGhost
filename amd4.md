@@ -1,5 +1,3 @@
-Last updated: 2024-04-10 04:00:59
-Random Quote: John Flynn: "Rogers, get in there!"
-Peggy Carter: "He can't."
-John Flynn: "Stark, you go in!"
-Howard Stark: "What? Are you crazy? I push the buttons. I'm the buttons guy." - Howard Stark
+Last updated: 2024-04-10 04:01:32
+Random Quote: George: "I love what you done with the place. Did you do it yourself, or did you get some pouf to help ya?"
+Rebecca: "I could ask the same of your hair." - Rebecca Welton
