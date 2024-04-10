@@ -1,2 +1,2 @@
-Last updated: 2024-04-10 04:57:38
-Random Quote: Piper: "Not every Hispanic person wants the same thing."Lorna: "Oh, sure they do. They all want to come to America."Nicky: "Jesus, your entire world view is based on 'West Side Story', isn't it?" - Nicky Nichols
+Last updated: 2024-04-10 04:58:13
+Random Quote: I feel like you ruined me forever. - Maddy Perez
