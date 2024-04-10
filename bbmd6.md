@@ -1,2 +1,2 @@
-Last updated: 2024-04-10 00:40:30
-Random Quote: Weakness is not in us, it is what we have outside. - Professor
+Last updated: 2024-04-10 00:41:03
+Random Quote: The septons preach about the seven hells.  What do they know?  Only a man who's been burned knows what hell is truly like.  -  Sandor Clegane
