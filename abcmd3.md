@@ -1,2 +1,2 @@
-Last updated: 2024-04-10 04:38:48
-Random Quote: If the cancer doesn't get him, it'll be the cops or a bullet to the head. - Mike Ehrmantraut
+Last updated: 2024-04-10 04:39:25
+Random Quote: Are you aware, that breaking a broath can have deadly- even fatal repercussions? - Barney Stinson
