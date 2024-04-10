@@ -1,2 +1,2 @@
-Last updated: 2024-04-10 04:11:25
-Random Quote: So a guy with cancer can't be an asshole?? Believe me, I speak from experience. - Saul Goodman
+Last updated: 2024-04-10 04:12:00
+Random Quote: There is a savage beast in every man, and it stirs when you put a sword in his hand.  -  Jorah Mormont
