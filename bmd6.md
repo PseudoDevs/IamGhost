@@ -1,2 +1,2 @@
-Last updated: 2024-04-10 00:43:32
-Random Quote: Everyone pretend podcasting isn't boring! - Rick Sanchez
+Last updated: 2024-04-10 00:44:05
+Random Quote: New York! Home of the Mets, the Chrysler Building, those ladies from Sex and the City and now, the zombie apocalypse. If you can make it here, you can make it anywhere - but first, you have to not get eaten. - Spider-Man
