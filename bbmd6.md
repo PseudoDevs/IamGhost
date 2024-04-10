@@ -1,2 +1,2 @@
-Last updated: 2024-04-10 04:56:58
-Random Quote: Droids are not good or bad. They are neutral reflections of those who imprint them. - Kuiil
+Last updated: 2024-04-10 04:57:31
+Random Quote: I was a better smuggler than a knight, he had written to his wife, a better knight than a King's hand, a better King's hand than a husband.  I am so sorry Marya, I have loved you.  Please forgive the wrongs I did you.  -  Davos Seaworth
