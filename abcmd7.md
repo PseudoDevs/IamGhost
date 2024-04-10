@@ -1,2 +1,2 @@
-Last updated: 2024-04-10 04:51:51
-Random Quote: The wheels of bureaucracy tend to move at their own speed. - Walt Breslin
+Last updated: 2024-04-10 04:52:23
+Random Quote: No one had expected the broken boy to live.  The gods could not kill Bran, no more than I could.  It was a strange thought, and stranger still to remember that Bran might still be alive.  -  Theon Greyjoy
