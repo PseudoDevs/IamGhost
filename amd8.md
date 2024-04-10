@@ -1,2 +1,2 @@
-Last updated: 2024-04-10 04:02:59
-Random Quote: To live is to risk it all. Otherwise you're just an inert chunk of randomly assembled molecules drifting wherever the universe blows you. - Rick Sanchez
+Last updated: 2024-04-10 04:03:34
+Random Quote: I learned form Set Arthur Dayne, the Sword of the Morning, who could have slain all five of you with his left hand while he was taking a piss with the right.  -  Jaime Lannister
