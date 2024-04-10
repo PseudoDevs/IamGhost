@@ -1,2 +1,2 @@
-Last updated: 2024-04-10 00:57:08
-Random Quote: What if Einstein's parents had held him back? We wouldn't even have the... - I was gonna say atomic bomb, but there's probably a better example. - Meemaw
+Last updated: 2024-04-10 00:58:13
+Random Quote: Crazy? I'll tell you what's crazy. 50-year-old high school chemistry teacher comes into my office. The guy is so broke, he can't pay his own mortgage. One year later, he's got a pile of cash as big as a Volkswagen. - Saul Goodman
