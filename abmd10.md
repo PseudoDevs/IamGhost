@@ -1,2 +1,2 @@
-Last updated: 2024-04-10 04:39:23
-Random Quote: Come on, baby, do the magic hand thing! - Greef Karga
+Last updated: 2024-04-10 04:39:59
+Random Quote: My father won all the battles.  He killed Prince Rhaegar and took the crown, while your father was hiding under Casterly Rock.  A strong king acts boldly, he doesn't just talk.  -  Joffrey Baratheon
