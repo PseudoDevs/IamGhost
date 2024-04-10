@@ -1,2 +1,2 @@
-Last updated: 2024-04-10 04:38:57
-Random Quote: I'm not him, I'm not the turncloak, he died at Winterfell.  My name is Reek.  It rhymes with freak.  -  Reek
+Last updated: 2024-04-10 04:39:30
+Random Quote: I wouldn't lie to you. Well... that's a lie. - Rick Sanchez
