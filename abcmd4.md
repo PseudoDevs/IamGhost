@@ -1,2 +1,3 @@
-Last updated: 2024-04-10 03:57:38
-Random Quote: Aunties are older Indian women who have no blood-relation to you. But are allowed to have opinions about your life and all your shortcomings. And you have to be nice to them because you're Indian. - John McEnroe
+Last updated: 2024-04-10 03:58:15
+Random Quote: Wyatt Langmore: "This job's my old man's idea. Something about 'calluses and character'."
+Charlotte Byrde: "Yeah, well, you're blowing leaves, not hiding Anne Frank." - Charlotte Byrde
