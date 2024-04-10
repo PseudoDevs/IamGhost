@@ -1,2 +1,2 @@
-Last updated: 2024-04-10 00:39:32
-Random Quote: The only thing The Umbrella Academy knows about love is how to screw it up. - Klaus Hargreeves
+Last updated: 2024-04-10 00:40:08
+Random Quote: It seems to me that a queen who trusts no one is as foolish as a queen who trusts everyone.  -  Daenerys Targaryen
