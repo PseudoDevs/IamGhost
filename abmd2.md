@@ -1,2 +1,3 @@
-Last updated: 2024-04-10 04:31:52
-Random Quote: Women aren't soldiers, and they sure as hell don't fight on the front lines. They might break a nail. - John Flynn
+Last updated: 2024-04-10 04:32:25
+Random Quote: Grace Burgess: "You think I am a wh-re?"
+Tommy Shelby: "Everyone's a wh-re, Grace. We just sell different parts of ourselves." - Thomas Shelby
