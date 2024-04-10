@@ -1,2 +1,3 @@
-Last updated: 2024-04-10 00:41:19
-Random Quote: Robert wanted smiles and cheers, always, so he went where he found them, to his friends and his whores.  Robert wanted to be loved.  My brother Tyrion has the same disease.  -  Cersei Lannister
+Last updated: 2024-04-10 00:41:53
+Random Quote: Aimee: "Did you know you need, like, sugar and flour and an oven to bake? And you don't shove it all in, you have to follow alle these rules."
+Maeve: "Yeah, it's called a recipe." - Maeve Wiley

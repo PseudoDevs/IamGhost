@@ -1,2 +1,2 @@
-Last updated: 2024-04-10 00:41:19
-Random Quote: Do you know what it is like to be sold, squire?  I do.  My brother sold me to Khal Drogo for the promise of a golden crown.  Well, Drogo crowned him in gold, though not as he had wished, and I... my sun - and
+Last updated: 2024-04-10 00:41:53
+Random Quote: He can hear youHe knows if you've been bad or goodLike Santa, but he can send you to hell. - Missy
