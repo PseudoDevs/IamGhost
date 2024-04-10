@@ -1,2 +1,2 @@
-Last updated: 2024-04-10 04:43:39
-Random Quote: In my head, it's like If I can conquer men, then I can conquer femininity. - Jules Vaughn
+Last updated: 2024-04-10 04:44:50
+Random Quote: My father won all the battles.  He killed Prince Rhaegar and took the crown, while your father was hiding under Casterly Rock.  A strong king acts boldly, he doesn't just talk.  -  Joffrey Baratheon
