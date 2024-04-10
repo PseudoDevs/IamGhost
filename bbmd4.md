@@ -1,2 +1,2 @@
-Last updated: 2024-04-10 03:58:29
-Random Quote: In King's Landing, there are two sorts of people.  The players and the pieces.  -  Petyr Baelish
+Last updated: 2024-04-10 03:59:02
+Random Quote: Career has been trouncing romance for years. It's like the Globetrotters versus the Generals: Career's sinking hook shots from half court, romance is just a bunch of slow white guys, who couldn't make it in the Italian league. - Ted Mosby
