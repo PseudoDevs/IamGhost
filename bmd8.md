@@ -1,2 +1,3 @@
-Last updated: 2024-04-10 00:46:42
-Random Quote: I know that new situations can be intimidating. You look around, and it's all scary and different. But meeting them head-on, charging right into them like a bull, that's how we grow as people. - Rick Sanchez
+Last updated: 2024-04-10 00:47:15
+Random Quote: Jerry: "Why Florida?"
+Cat: "Because they don't ask questions. They play Volleyball, they party and they have fun." - Rick and Morty
