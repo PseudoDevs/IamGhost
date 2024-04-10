@@ -1,3 +1,2 @@
-Last updated: 2024-04-10 04:23:37
-Random Quote: The good news is, Luke has his bike.
-More good news, I taught some random kid a valuable lesson by stealing his bike. - Phil Dunphy
+Last updated: 2024-04-10 04:24:11
+Random Quote: I asked him why he kept her close, if he thought her so grotesque.  He said that all his other knights wanted things of him, castles or honors or riches, but all that Brienne wanted was to die for him.  -  Loras Tyrell
