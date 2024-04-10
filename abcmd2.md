@@ -1,3 +1,3 @@
-Last updated: 2024-04-10 00:33:38
-Random Quote: Morty: "I don't deserve this. I was just having fun."
-Rick: "So was Jeffrey Dahmer." - Rick Sanchez
+Last updated: 2024-04-10 00:34:13
+Random Quote: Weems: "No doubt you'll find something that tickles your fancy."
+Wednesday: "The last person who tickled me lost a finger." - Wednesday Addams
