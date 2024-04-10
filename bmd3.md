@@ -1,2 +1,2 @@
-Last updated: 2024-04-10 00:56:06
-Random Quote: Sometimes I don't know if I love how much I fear Claire, or fear how much I love her. - Phil Dunphy
+Last updated: 2024-04-10 00:56:42
+Random Quote: They may separate us, but they'll never be able to destroy us. - Pablo Escobar
