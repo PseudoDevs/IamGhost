@@ -1,2 +1,2 @@
-Last updated: 2024-04-10 00:58:37
-Random Quote: I poured my blood, sweat and tears into that building. Though, to be fair, a lot of that happened the day I accidentally fell down the elevator shaft. - Ted Mosby
+Last updated: 2024-04-10 00:59:12
+Random Quote: I buried an axe so deep into Willem's skull, they had to bury him with it.  -  Yoren of the Knight's Watch
