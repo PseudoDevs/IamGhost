@@ -1,2 +1,2 @@
-Last updated: 2024-04-10 04:24:52
-Random Quote: They shall come day and night to see the wonder that has been born again into the world, and when they see they shall lust.  For dragons are fire made flesh, and fire is power.  -  Quaithe
+Last updated: 2024-04-10 04:26:03
+Random Quote: I have worked at the downfall of Tywin Lannister since the day they told me of Elia and her children.  -  Doran Martell
