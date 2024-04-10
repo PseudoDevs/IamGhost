@@ -1,2 +1,2 @@
-Last updated: 2024-04-10 04:14:28
-Random Quote: Marshall: "Lily, you snooped through her stuff?"Lily: "No, it's like the first thing you see when you jimmy open her desk-drawer with the letter opener her grandfather left her, according to her diary." - Lily Aldrin
+Last updated: 2024-04-10 04:15:42
+Random Quote: Drugs are kind of cool. I mean, they're cool before they wreck your skin. And your life. And your family. That's when they get uncool. It's actually a very narrow window of cool. - Rue Bennett
