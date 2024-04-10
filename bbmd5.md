@@ -1,4 +1,2 @@
-Last updated: 2024-04-10 04:30:50
-Random Quote: Ted: "It's freezing out there. Where's your coat?"
-Robin: "Ted, I'm Canadian. I don't need a coat. This kind of weather is nothing for me."
-Marshall: "Yeah. This is like a spring day back in Minnesota." - Marshall Eriksen
+Last updated: 2024-04-10 04:32:04
+Random Quote: My only aim is to take many lives. The more the better I feel. - 
