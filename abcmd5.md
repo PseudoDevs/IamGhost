@@ -1,2 +1,2 @@
-Last updated: 2024-04-10 00:53:18
-Random Quote: Never trust a pirate. - Din Djarin
+Last updated: 2024-04-10 00:53:51
+Random Quote: Good men and true will fight for Joffrey, wrongly believing him the true king.  A northman might even say the same of Robb Stark.  But these lords who flocked to my brother's banners knew him for an usurper.  They turned their backs on their rightful king for no better reason than dreams of power and glory, and I have marked them for what they are.  Pardoned them, yes.  Forgiven, but not forgotten.  -  Stannis Baratheon
