@@ -1,2 +1,3 @@
-Last updated: 2024-04-10 04:21:13
-Random Quote: You want to dismantle an empire? Divide it! - Guillermo Gonzalez Calderoni
+Last updated: 2024-04-10 04:21:50
+Random Quote: Jay: "I got you a little gift to celebrate. I know it’s not much...-"
+Gloria: "It’s practically nothing!" - Gloria Pritchett
