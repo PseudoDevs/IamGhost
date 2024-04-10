@@ -1,2 +1,2 @@
-Last updated: 2024-04-10 00:48:16
-Random Quote: Tequila makes me wanna dance. - Jules Vaughn
+Last updated: 2024-04-10 00:48:51
+Random Quote: The common people pray for rain, healthy children, and a summer that never ends.  It is no matter to them if the high lords play their game of thrones, so long as they are left in peace.  They never are.  -  Jorah Mormont
