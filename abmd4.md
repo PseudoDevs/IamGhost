@@ -1,2 +1,2 @@
-Last updated: 2024-04-10 04:58:47
-Random Quote: A grievous wound, aye, but Thoros healed it.  There's never been no better healer.  -  Lem Lemoncloak
+Last updated: 2024-04-10 04:59:23
+Random Quote: No man has ever died from bending his knee.  He who kneels may rise again, blade in hand.  He who will not kneel stays dead, stiff legs and all.  -  Balon Greyjoy
