@@ -1,2 +1,2 @@
-Last updated: 2024-04-10 00:40:44
-Random Quote: Man cannot tame what God wishes to be wild. - Jacob Snell
+Last updated: 2024-04-10 00:41:20
+Random Quote: Penrose chose to die rather than give him up.  It still angers me.  How could he think I would hurt the boy?  I chose Robert, did I not?  When that hard day came, I chose blood over honor.  -  Stannis Baratheon
