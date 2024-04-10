@@ -1,2 +1,2 @@
-Last updated: 2024-04-10 04:09:48
-Random Quote: They pray to trees and golden idols and goat - headed abominations.  False gods... just so, and for that sin I kill them all.  I spill their blood upon the sea and sow their screaming women with my seed.  Their little gods cannot stop me, so plainly they are false gods.  I am more devout than even you, Aeron.  Perhaps it should be you who kneels to me for blessing. 
+Last updated: 2024-04-10 04:10:54
+Random Quote: Every Halloween I bring a spare costume. In case I strike out with the hottest girl at the party. That way I have a second chance to make a first impression. - Barney Stinson
