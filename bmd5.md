@@ -1,2 +1,2 @@
-Last updated: 2024-04-10 04:02:19
-Random Quote: Jane Goodall had to go to Africa to study the apes. I just had to go to dinner. - Sheldon Cooper
+Last updated: 2024-04-10 04:02:52
+Random Quote: Lord Varys, sometimes I feel as though you are the best friend I have in King's Landing and sometimes I feel you are my worst enemy.  -  Tyrion Lannister
