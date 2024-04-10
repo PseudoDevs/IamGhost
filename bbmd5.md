@@ -1,2 +1,2 @@
-Last updated: 2024-04-10 00:54:55
-Random Quote: Love doesn't make sense. I mean, you can't logic your way into or out of it. Love ist totally nonsensical, but we have to keep doing it or else we're lost and love is dead and humanity should just pack it in. Because love is the best thing we do. - Ted Mosby
+Last updated: 2024-04-10 00:56:09
+Random Quote: Because you're so broken you don't even trust yourself. And that's scary. - Nate Jacobs
