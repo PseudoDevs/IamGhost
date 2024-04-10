@@ -1,2 +1,2 @@
-Last updated: 2024-04-10 04:36:05
-Random Quote: Emotion equals weakness. - Wednesday Addams
+Last updated: 2024-04-10 04:36:38
+Random Quote: She had seen Bronn fight on the high road; it was no accident that he had survived the journey while other men had died.  He moved like a panther, and that ugly sword of his seemed a part of his arm.  -  Catelyn Stark
