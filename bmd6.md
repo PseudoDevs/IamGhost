@@ -1,2 +1,2 @@
-Last updated: 2024-04-10 04:41:14
-Random Quote: Honey, don't you think the little rocks would hurt your nose, if you're trying to snort crack? I think you mean coke. - Piper Chapman
+Last updated: 2024-04-10 04:41:51
+Random Quote: Asha Greyjoy did not intend to be taken alive.  She would die as she had lived, with an axe in her hand and a laugh upon her lips.  -  Asha Greyjoy
