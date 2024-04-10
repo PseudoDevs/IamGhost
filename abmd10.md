@@ -1,2 +1,2 @@
-Last updated: 2024-04-10 04:33:54
-Random Quote: My daughter has taken an axe for a lover.  I will not have my son bedeck himself like a whore.  It is as I feared.  The green lands have made you soft, and the Starks have made you theirs.  -  Balon Greyjoy
+Last updated: 2024-04-10 04:35:42
+Random Quote: One day, we'll wake up, and brush our teeth, and go to work. And at some point, we'll suddenly realize that we haven't thought about it at all. None of it. And that's when we'll know. We'll know we can forget. - Saul Goodman
