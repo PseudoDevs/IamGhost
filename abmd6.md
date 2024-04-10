@@ -1,3 +1,2 @@
-Last updated: 2024-04-10 04:13:53
-Random Quote: "How do you take your tea?"
-Ted: "Well, normally right back to the counter because there's been a terrible mistake." - Jim Hopper
+Last updated: 2024-04-10 04:14:29
+Random Quote: Because there's no way watching it can be more fun than playing it yourself. - Oh Il-nam
