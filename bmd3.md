@@ -1,2 +1,2 @@
-Last updated: 2024-04-10 00:51:14
-Random Quote: We all must choose.  Man or woman, young or old, lord or peasant, our choices are the same.  We choose light or we choose darkness.  -  Melisandre
+Last updated: 2024-04-10 00:51:52
+Random Quote: Brother, you're driving the "I-wanna-have-sex-with-her-truck" and its got a huge blind spot. - Marshall Eriksen
