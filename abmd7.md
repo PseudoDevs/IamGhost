@@ -1,2 +1,3 @@
-Last updated: 2024-04-10 00:55:29
-Random Quote: You want to be a bounty hunter? Make the best deal for yourself and survive! - Fennec Shand
+Last updated: 2024-04-10 00:56:02
+Random Quote: Grace Burgess: "You think I am a wh-re?"
+Tommy Shelby: "Everyone's a wh-re, Grace. We just sell different parts of ourselves." - Thomas Shelby
