@@ -1,2 +1,2 @@
-Last updated: 2024-04-10 04:37:33
-Random Quote: Lily: "Your job is very simple. At the wedding, do not sleep with anyone even remotely related to me."Barney: "Yeah. Lily, you know I can't promise that" - Barney Stinson
+Last updated: 2024-04-10 04:38:48
+Random Quote: I will kill your wife, I will kill your son, I will kill your infant daughter. - Gustavo Fring
