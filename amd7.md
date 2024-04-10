@@ -1,2 +1,2 @@
-Last updated: 2024-04-10 00:32:19
-Random Quote: The Night's Watch is a sworn brotherhood.  We have no families.  None of us will ever father sons.  Our wife is duty.  Our mistress is honor.  -  Benjen Stark
+Last updated: 2024-04-10 00:32:51
+Random Quote: Emotion equals weakness. - Wednesday Addams
