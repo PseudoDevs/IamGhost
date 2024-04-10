@@ -1,2 +1,3 @@
-Last updated: 2024-04-10 04:48:30
-Random Quote: When I have kids, and I tell them how I met their mother, I'm gonna tell them everything. The whole damn story. - Ted Mosby
+Last updated: 2024-04-10 04:49:04
+Random Quote: Neither one of us are gonna say, "Hey, how's it going?" or "Good to see you!"
+Because it really will be good to see you. - Barney Stinson
