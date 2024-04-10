@@ -1,2 +1,2 @@
-Last updated: 2024-04-10 00:42:30
-Random Quote: Don Eladio, look into Fring's eyes. There you will see the truth. The Chicken Man hates you. He is our enemy. He plots against us. I demand blood for blood. - Hector Salamanca
+Last updated: 2024-04-10 00:43:38
+Random Quote: A bag of dragons buys a man's silence for a while, but a well - placed quarrel buys it forever. 
