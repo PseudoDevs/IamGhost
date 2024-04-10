@@ -1,2 +1,2 @@
-Last updated: 2024-04-10 00:36:46
-Random Quote: Money. That's what seperates the haves from the have-nots. But what is money? It's everything if you don't have it, right? - Marty Byrde
+Last updated: 2024-04-10 00:37:20
+Random Quote: Barney: "He's the awesomest, most best-lookingest, greatest guy ever!"Lily: "He's exactly like Barney."Barney: "That's what I just said." - Barney Stinson
