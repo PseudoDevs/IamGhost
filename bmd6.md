@@ -1,2 +1,2 @@
-Last updated: 2024-04-10 04:27:14
-Random Quote: God has a plan for every human being. - 
+Last updated: 2024-04-10 04:28:26
+Random Quote: Robert wanted smiles and cheers, always, so he went where he found them, to his friends and his whores.  Robert wanted to be loved.  My brother Tyrion has the same disease.  -  Cersei Lannister
