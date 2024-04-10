@@ -1,2 +1,2 @@
-Last updated: 2024-04-10 00:51:52
-Random Quote: Brother, you're driving the "I-wanna-have-sex-with-her-truck" and its got a huge blind spot. - Marshall Eriksen
+Last updated: 2024-04-10 00:53:05
+Random Quote: .OkaySomebody's got to teach this kid to swear, it's embarrassing. - Meemaw
