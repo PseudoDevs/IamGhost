@@ -1,3 +1,2 @@
-Last updated: 2024-04-10 00:30:40
-Random Quote: Freddie: "Are you mad?"
-Ada: "Yeah. Mad as hell with all of them." - Ada Thorne
+Last updated: 2024-04-10 00:31:14
+Random Quote: Ted: "Do you have a cold?"Barney: "I'm fine. My nose is just overflowing with awesome and I had to get some of it out." - Barney Stinson
