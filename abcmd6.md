@@ -1,2 +1,2 @@
-Last updated: 2024-04-10 00:50:36
-Random Quote: Why the oldest son, and not the best - fitted?  The crown will suit me, as it never suited Robert and would not suit Stannis. 
+Last updated: 2024-04-10 00:51:10
+Random Quote: I know you mean well. I know you wanna protect me. You have. And when we're done, we'll go wherever you want. Tommy's, sheep ranch, the moon... I'll follow you anywhere you go. But there's no halfway with this. We finish what we started. - Ellie Williams
