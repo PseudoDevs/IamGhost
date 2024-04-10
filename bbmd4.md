@@ -1,2 +1,2 @@
-Last updated: 2024-04-10 00:42:52
-Random Quote: His blood ran black.  Made him my brother as much as yours.  -  Yoren of the Night's Watch
+Last updated: 2024-04-10 00:43:25
+Random Quote: From experience, it often takes a new perspective before one is able to see the light. - Elia Kane
