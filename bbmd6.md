@@ -1,3 +1,2 @@
-Last updated: 2024-04-10 04:21:14
-Random Quote: Lily: "I can't believe I unloaded like that on a high-school senior."
-Robin: "I can't believe a high-school senior unloaded like that on me." - Robin Scherbatsky
+Last updated: 2024-04-10 04:23:01
+Random Quote: You can never tell with men. They go for whoever their dcks point at and there's no changing their minds. - Polly Gray
