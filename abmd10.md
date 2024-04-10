@@ -1,3 +1,2 @@
-Last updated: 2024-04-10 04:54:47
-Random Quote: Lily: "I can't believe I unloaded like that on a high-school senior."
-Robin: "I can't believe a high-school senior unloaded like that on me." - Robin Scherbatsky
+Last updated: 2024-04-10 04:55:53
+Random Quote: My arm hasn't been this sore, since I was 13 years old and figured out how to lock a bathroom. - Barney Stinson
