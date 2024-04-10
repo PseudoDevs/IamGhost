@@ -1,2 +1,2 @@
-Last updated: 2024-04-10 04:19:14
-Random Quote: And Stannis has always felt he was cheated of Storm's End.  The ancestral seat of House Baratheon, his by rights... if you knew how many times he came to Robert singing that same dull song in that gloomy aggrieved tone he has.  When Robert gave the place to Renly, Stannis clenched his jaw so tight I thought his teeth would shatter.  -  Cersei Lannister
+Last updated: 2024-04-10 04:19:47
+Random Quote: Ted: "I just thought he needed to listen to common sense and reasonable discourse."Robin: "Oh, God. Tell me those aren't the names of your fists."Ted: "They're my feet. I'm actually more of a kicker." - Ted Mosby
