@@ -1,2 +1,4 @@
-Last updated: 2024-04-10 00:59:16
-Random Quote: Once, at the Citadel, I came into an empty room and saw an empty chair.  Yet I knew a woman had been there, only a moment before.  The cushion was dented where she'd sat, the cloth was still warm, and her scent lingered in the air.  If we leave our smells behind us when we leave a room, surely something of our souls must remain when we leave this life?  The archmaesters did not like my thinking, though.  Well, Marwyn did, but he was the only one.  -  Qyburn
+Last updated: 2024-04-10 03:54:01
+Random Quote: Marshall: "Except the flames of Lucifer keep singein our back bumper as we drive through this hellish, cheese-infected wasteland."
+Lily: "Wisconsin?"
+Marshall: "Wisconsin!" - Marshall Eriksen
