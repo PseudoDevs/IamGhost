@@ -1,2 +1,2 @@
-Last updated: 2024-04-10 00:51:02
-Random Quote: If we miss Hawaii because of this, guess who's not doing "The Disappearing Salami" anytime soon? - Quinn Garvey
+Last updated: 2024-04-10 00:51:35
+Random Quote: You could turn King's Landing upside down and not find a single man with a mockingbird sewn over his heart but that does not mean I am friendless.  -  Petyr Baelish
