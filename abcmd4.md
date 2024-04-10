@@ -1,2 +1,2 @@
-Last updated: 2024-04-10 04:16:56
-Random Quote: It doesn't matter how tough you are, you're not going to win in this place. Not on your own. - Jang Deok-su
+Last updated: 2024-04-10 04:17:32
+Random Quote: It is for my prince to command, for Hotah to obey.  -  Areo Hotah
