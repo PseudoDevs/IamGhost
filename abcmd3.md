@@ -1,2 +1,2 @@
-Last updated: 2024-04-10 04:28:13
-Random Quote: You can tell a lot about a person from his biography. - Phil Dunphy
+Last updated: 2024-04-10 04:28:47
+Random Quote: Marshall: "The tiniest little burger joint you ever saw. Tucked between a taxidermist and a XXX bookstore."Barney: "Name two places where things get stuffed." - Barney Stinson
