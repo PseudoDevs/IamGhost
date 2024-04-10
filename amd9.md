@@ -1,2 +1,2 @@
-Last updated: 2024-04-10 04:16:56
-Random Quote: Place was overrun with rats when we moved in.  The spearwives killed the nasty buggers.  Now the place is overrun with spearwives.  There's days I want the rats back.  -  Dolorous Edd Tollett
+Last updated: 2024-04-10 04:18:10
+Random Quote: Little did I know that I would be stepping into a nightmare full of mystery, mayhem and murder. I think I'm going to love it here. - Wednesday Addams
