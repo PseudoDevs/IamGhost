@@ -1,2 +1,2 @@
-Last updated: 2024-04-10 00:52:01
-Random Quote: Did Need Stark dress you like that?  Was it his pleasure to garb you in velvets and silks and make you his own sweet daughter?  -  Balon Greyjoy
+Last updated: 2024-04-10 00:52:34
+Random Quote: They're all running away from something. Why else would someone want to go somewhere different? - Virginia Wilson
