@@ -1,2 +1,2 @@
-Last updated: 2024-04-10 04:03:37
-Random Quote: Lord Balon's eldest brother had never given up the Old Way, even for a day.  His Silence, with its black sails and dark red hull, was infamous in every port from Ibben to Asshai, it was said.  -  Theon Greyjoy
+Last updated: 2024-04-10 04:04:13
+Random Quote: The only person who gets to torture my brother is me. - Wednesday Addams
