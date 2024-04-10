@@ -1,2 +1,2 @@
-Last updated: 2024-04-10 00:56:10
-Random Quote: Barney: "The Disappearing Salami... Mr. Flanagan's wife shot him before he could ever tell me what the trick was."Quinn: "Yeah, that guy was banging your mom!" - Quinn Garvey
+Last updated: 2024-04-10 00:56:47
+Random Quote: There is a tool for every task, and a task for every tool.  -  Tywin Lannister

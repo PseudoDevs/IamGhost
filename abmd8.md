@@ -1,2 +1,3 @@
-Last updated: 2024-04-10 00:53:40
-Random Quote: Barney: "Wow, Ted. You're gonna have to find a new member for yourself, cause I'm revoking your dude-membership."Ted: "Yeah, how was that manicure yesterday?"Barney: "Invigorating... thanks." - Barney Stinson
+Last updated: 2024-04-10 00:56:46
+Random Quote: Wyatt Langmore: "This job's my old man's idea. Something about 'calluses and character'."
+Charlotte Byrde: "Yeah, well, you're blowing leaves, not hiding Anne Frank." - Charlotte Byrde
