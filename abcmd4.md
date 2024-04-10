@@ -1,2 +1,2 @@
-Last updated: 2024-04-10 04:29:57
-Random Quote: That right there, that's a scone. Tastes like a muffin except it sucks all the spit out of your mouth. - Jim Hopper
+Last updated: 2024-04-10 04:31:03
+Random Quote: Then odds are he'll be near a settlement, probably close to another city out there. Ain't too many of 'em in Wyoming. - Joel Miller
