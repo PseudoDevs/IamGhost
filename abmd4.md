@@ -1,2 +1,2 @@
-Last updated: 2024-04-10 04:35:43
-Random Quote: My daughter has taken an axe for a lover.  I will not have my son bedeck himself like a whore.  It is as I feared.  The green lands have made you soft, and the Starks have made you theirs.  -  Balon Greyjoy
+Last updated: 2024-04-10 04:37:32
+Random Quote: Do you remember that cave?  We should have stayed in that cave.  I told you so.  -  Ygritte
