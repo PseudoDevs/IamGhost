@@ -1,2 +1,2 @@
-Last updated: 2024-04-10 00:36:07
-Random Quote: You must be the self-appointed Queen Bee. Interesting thing about bees. Pull out their stingers, they drop dead. - Wednesday Addams
+Last updated: 2024-04-10 00:37:47
+Random Quote: The more you give a king, the more he wants.  We are walking on a bridge of ice with an abyss on either side.  Pleasing one king is difficult enough.  Pleasing two is hardly possible.  -  Jon Snow
