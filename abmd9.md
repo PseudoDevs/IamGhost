@@ -1,2 +1,2 @@
-Last updated: 2024-04-10 04:23:42
-Random Quote: She studied Theon Greyjoy's sly smile, wondering what it meant.  That young man had a way of looking as though he knew some secret jest that only he was privy to; Catelyn had never liked it.  -  Catelyn Stark
+Last updated: 2024-04-10 04:24:17
+Random Quote: That right there, that's a scone. Tastes like a muffin except it sucks all the spit out of your mouth. - Jim Hopper
