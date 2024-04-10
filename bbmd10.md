@@ -1,2 +1,2 @@
-Last updated: 2024-04-10 00:34:49
-Random Quote: Sometimes I think everyone is just pretending to be brave, and none of us really are.  Maybe pretending is how you get brave, I don't know.  -  Grenn
+Last updated: 2024-04-10 00:37:44
+Random Quote: What a man wants does not define him. What a man needs is what defines him. - Juan Nepomuceno Guerra
