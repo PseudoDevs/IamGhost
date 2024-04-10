@@ -1,2 +1,2 @@
-Last updated: 2024-04-10 04:36:57
-Random Quote: Robert was never the same after he put on that crown.  Some men are like swords, made for fighting.  Hang them up and they go to rust.  -  Donal Noye
+Last updated: 2024-04-10 04:38:10
+Random Quote: Was snow ever so black?  Ramsay took Lord Hornwood's lands by forcibly wedding his widow, then locked her in a tower and forgot her.  It is said she ate her own fingers in her extremity... and the Lannister notion of king's justice is to reward her killer with Need Stark's little girl.  -  Wyman Manderly
