@@ -1,2 +1,2 @@
-Last updated: 2024-04-10 00:49:10
-Random Quote: Barney: "On your tombstone, it will be, 'Lily Aldrin. Caring wife. Loving friend. Slapbet-Commissioner.'"Marshall: "And your tombstone will read, 'Got slapped by Marhsall so hard he died.'" - Marshall Eriksen
+Last updated: 2024-04-10 00:49:42
+Random Quote: Lily: "How did you do it?"Barney: "Oh God, you found one of the cameras. I swear that's the only one! Wait, which one did you find?" - Barney Stinson
