@@ -1,2 +1,3 @@
-Last updated: 2024-04-10 00:56:07
-Random Quote: Your lord father did not come to the wedding.  An insult, as I see it.  Even if he is dying.  He never came to my last wedding either.  He calls me the Late Lord Frey, you know.  Does he think I'm dead?  I'm not dead, and I promise you, I'lll outlive him as I outlived his father.  Your family has always pissed on me, don't deny it, don't lie, you know it's true.  -  Walder Frey
+Last updated: 2024-04-10 00:56:42
+Random Quote: The good news is, Luke has his bike.
+More good news, I taught some random kid a valuable lesson by stealing his bike. - Phil Dunphy
