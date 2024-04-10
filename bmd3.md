@@ -1,3 +1,2 @@
-Last updated: 2024-04-10 04:42:41
-Random Quote: Layla: "Summon the suit!"
-Steven: "Summon the soup? What are you saying?" - Arthur Harrow
+Last updated: 2024-04-10 04:43:14
+Random Quote: Euron Greyjoy is no man's notion of a king, if half of what Theon said of him was true.  -  Robb Stark
