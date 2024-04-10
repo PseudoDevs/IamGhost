@@ -1,2 +1,2 @@
-Last updated: 2024-04-10 00:44:37
-Random Quote: I stayed up all night wondering where the sun went. Then it dawned on me. - Will Livingston
+Last updated: 2024-04-10 00:45:10
+Random Quote: No, only a boy who dreams.  The greenseers were more than that.  They were wargs as well, as you are, and the greatest of them could wear the skins of any beast that flies or swims or crawls, and could look through the eyes of the weirwoods as well, and see the truth that lies beneath the world.  -  Jojen Reed
