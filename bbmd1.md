@@ -1,2 +1,2 @@
-Last updated: 2024-04-10 04:59:58
-Random Quote: In my body, where the shame gland should be, there is a second awesome gland. True story! - Barney Stinson
+Last updated: 2024-04-10 05:01:07
+Random Quote: It's not Aerys I rue, it's Robert... Why is it no one names Robert oathbreaker?  He tore the realm apart, yet I am the one with shit for honor.  -  Jaime Lannister
