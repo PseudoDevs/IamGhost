@@ -1,2 +1,2 @@
-Last updated: 2024-04-10 04:30:10
-Random Quote: Only a fool humbles himself when the world is so full of men eager to do that job for him.  -  Theon Greyjoy
+Last updated: 2024-04-10 04:30:46
+Random Quote: A bag of dragons buys a man's silence for a while, but a well - placed quarrel buys it forever. 
