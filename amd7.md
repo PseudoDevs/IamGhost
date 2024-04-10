@@ -1,2 +1,2 @@
-Last updated: 2024-04-10 04:28:01
-Random Quote: Power tastes best when sweetened by courtesy; you had best learn that if you ever hope to rule.  -  Roose Bolton
+Last updated: 2024-04-10 04:28:34
+Random Quote: Know the men who follow you and let them know you.  Don't ask your men to die for a stranger.  -  Eddard Stark
