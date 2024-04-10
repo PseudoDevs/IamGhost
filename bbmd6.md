@@ -1,2 +1,2 @@
-Last updated: 2024-04-10 04:56:24
-Random Quote: See, lad, that's why he's the king and I'm not.  I can outdrink, outfight, and outsing him, and my member's thrice the size o' his, but Mance has cunning.  -  Tormund Giantsbane
+Last updated: 2024-04-10 04:56:58
+Random Quote: Droids are not good or bad. They are neutral reflections of those who imprint them. - Kuiil
