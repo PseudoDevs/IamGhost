@@ -1,2 +1,2 @@
-Last updated: 2024-04-10 03:55:14
-Random Quote: I believe that in this universe, as in every other, hope never dies. As long as someone keeps their good eye on the bigger picture. - Nick Fury
+Last updated: 2024-04-10 03:56:25
+Random Quote: They are children, Sansa thought.  They are silly little girls, even Elinor.  They've never seen a battle, they've never seen a man die, they know nothing.  Their dreams were full of songs and stories, the way hers had been before Joffrey cut her father's head off.  Sansa pitied them.  Sansa envied them.  -  Sansa Stark
