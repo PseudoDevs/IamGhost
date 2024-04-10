@@ -1,4 +1,2 @@
-Last updated: 2024-04-10 04:10:16
-Random Quote: Rick: "Guests are fans, Morty, which we are not. We'd like professional badges."
-"Do you have a crew?"
-Rick: "Yes. He's a getaway driver with Asperger's and my butt is a demolitions expert." - Rick Sanchez
+Last updated: 2024-04-10 04:12:02
+Random Quote: I can bring you in warm, or I can bring you in cold. - Din Djarin
