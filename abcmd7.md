@@ -1,2 +1,2 @@
-Last updated: 2024-04-10 00:46:31
-Random Quote: So you're half cold, unfeeling reptile, half also cold, equally unfeeling machine? Wow, so your origin is what? You fell into a vat of redundancy? - Rick Sanchez
+Last updated: 2024-04-10 00:47:06
+Random Quote: I've had shits that I've liked better than Walder Frey.  -  Brynden Tully
