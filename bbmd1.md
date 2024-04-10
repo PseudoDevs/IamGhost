@@ -1,3 +1,2 @@
-Last updated: 2024-04-10 00:33:03
-Random Quote: What do I think love is? It's like when someone makes your stomach feel all tight, but floaty at the same time, you know? And your cheeks hurt from smiling. And you smile so much, that people think something's wrong with you.
-...And also fucking. Twenty-four seven, deep-dick, can't-walk-right fucking. - Aleida Diaz
+Last updated: 2024-04-10 00:34:49
+Random Quote: Ted: "My mother is not one-night-stand material!"Barney: "Yeah, you're right. It wasn't night and we weren't standing." - Barney Stinson
