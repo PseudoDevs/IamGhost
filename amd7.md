@@ -1,2 +1,2 @@
-Last updated: 2024-04-10 04:26:54
-Random Quote: If one of the Vancouver Canucks walked in here, my panties would drop so hard, there would be a hole in the floor halfway to China. - Robin Scherbatsky
+Last updated: 2024-04-10 04:27:27
+Random Quote: Whats your prescription, Dr. Estrogen? Eat Haagen-Dazs and watch "Love... actually" until your periods sync up? - Barney Stinson
