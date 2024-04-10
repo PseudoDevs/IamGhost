@@ -1,2 +1,2 @@
-Last updated: 2024-04-10 04:57:31
-Random Quote: I was a better smuggler than a knight, he had written to his wife, a better knight than a King's hand, a better King's hand than a husband.  I am so sorry Marya, I have loved you.  Please forgive the wrongs I did you.  -  Davos Seaworth
+Last updated: 2024-04-10 04:58:04
+Random Quote: Science is neat, but I’m afraid it’s not very forgiving. - Scott Clarke
