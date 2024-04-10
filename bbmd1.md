@@ -1,2 +1,2 @@
-Last updated: 2024-04-10 04:15:05
-Random Quote: A true man does what he will, not what he must.  -  Cersei Lannister
+Last updated: 2024-04-10 04:16:20
+Random Quote: Robb Stark has won more battles in a year than the Lord of Highgarden had in twenty.  -  Tyrion Lannister
