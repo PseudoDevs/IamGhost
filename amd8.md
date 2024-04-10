@@ -1,2 +1,2 @@
-Last updated: 2024-04-10 04:23:31
-Random Quote: Airport Security: "How did you get that through the X-Ray machine?"Barney: "No questions from the audience, please!" - Barney Stinson
+Last updated: 2024-04-10 04:24:04
+Random Quote: Edric Storm, they call him.  He is said to be the very image of my brother.  If men were to see him, and then look again at Joffrey and Tommen, they could not help but wonder, I would think.  -  Stannis Baratheon
