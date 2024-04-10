@@ -1,2 +1,2 @@
-Last updated: 2024-04-10 04:16:20
-Random Quote: Yes Barney, your submissions were recieved and no, we will not be attending any parties in your pants. - Ted Mosby
+Last updated: 2024-04-10 04:16:56
+Random Quote: A true man does what he will, not what he must.  -  Cersei Lannister

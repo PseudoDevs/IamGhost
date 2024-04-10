@@ -1,2 +1,2 @@
-Last updated: 2024-04-10 04:15:44
-Random Quote: Perhaps we can fly.  All of us.  How will we ever know unless we leap from some tall tower?  No man ever truly knows what he can do unless he dares to leap.  -  Euron Greyjoy
+Last updated: 2024-04-10 04:16:56
+Random Quote: Grief never gets any smaller, so you have to make yourself bigger around it. The best way to do that is to open up. Let people in. - Rendell Locke

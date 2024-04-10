@@ -1,2 +1,2 @@
-Last updated: 2024-04-10 04:16:20
-Random Quote: Because were baseball, strippers and guns can't help, the only thing that can really heal a broken heart, is time. - Ted Mosby
+Last updated: 2024-04-10 04:16:56
+Random Quote: Place was overrun with rats when we moved in.  The spearwives killed the nasty buggers.  Now the place is overrun with spearwives.  There's days I want the rats back.  -  Dolorous Edd Tollett
