@@ -1,2 +1,2 @@
-Last updated: 2024-04-10 04:53:09
-Random Quote: In King's Landing, there are two sorts of people.  The players and the pieces.  -  Petyr Baelish
+Last updated: 2024-04-10 04:53:42
+Random Quote: A lie is just a great story that someone ruined with the truth. - Barney Stinson
