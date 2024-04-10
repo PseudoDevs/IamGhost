@@ -1,2 +1,2 @@
-Last updated: 2024-04-10 00:58:02
-Random Quote: You want to rule?  This is what ruling is; lying on a bed of weeds, ripping them out by the root, one by one, before they strangle you in your sleep.  -  Cersei Lannister
+Last updated: 2024-04-10 00:59:52
+Random Quote: You want to dismantle an empire? Divide it! - Guillermo Gonzalez Calderoni
