@@ -1,2 +1,2 @@
-Last updated: 2024-04-10 03:59:24
-Random Quote: I know about the promiese... Maester Theomore, tell them!  A thousand years before the Conquest, a promise was made, and oaths were sworn in the Wolf's Den before the Old Gods and the new.  When we were sore beset and friendless, hounded from our homes and in peril of our lives, the wolves took us in and nourished us and protected us against our enemies.  The city is built upon the land they gave us.  In return we swore that we should always be their men.  Stark men!  -  Wylla Manderly
+Last updated: 2024-04-10 03:59:58
+Random Quote: In the game of thrones, even the humblest pieces have wills of their own.  Sometimes they refuse to make the moves you've planned for them.  Mark that well, Alayne.  It's a lesson that Cersei Lannister still has yet to learn.  -  Petyr Baelish
