@@ -1,2 +1,2 @@
-Last updated: 2024-04-10 04:38:47
-Random Quote: It's not even the lies that hurt, you know? It's the fact that you're never really emotionally prepared for someone to leave you. - Rue Bennett
+Last updated: 2024-04-10 04:40:38
+Random Quote: For a joke to work, it has to have part of truth and part of pain. - Berlin
