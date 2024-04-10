@@ -1,2 +1,2 @@
-Last updated: 2024-04-10 00:31:21
-Random Quote: The men of Westeros are ever rushing.  What good is this, I ask you?  He who hurries through life hurries to his grave.  -  Salladhor Saan
+Last updated: 2024-04-10 00:31:54
+Random Quote: His blood ran black.  Made him my brother as much as yours.  -  Yoren of the Night's Watch
