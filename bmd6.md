@@ -1,2 +1,2 @@
-Last updated: 2024-04-10 04:47:13
-Random Quote: Phil: "What a beautiful dress."Gloria: "Thank you, Phil."Phil: "Oh, okay."Claire: "Phil! She said Phil, not feel!" - Claire Dunphy
+Last updated: 2024-04-10 04:48:25
+Random Quote: Whisky's good proofing water. Tells you who's real and who isn't. - Thomas Shelby
