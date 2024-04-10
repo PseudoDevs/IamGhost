@@ -1,2 +1,2 @@
-Last updated: 2024-04-10 04:04:32
-Random Quote: Take care of this little one or maybe, it'll take care of you. - Greef Karga
+Last updated: 2024-04-10 04:05:04
+Random Quote: When the snows fall and the white winds blow, the lone wolf dies, but the pack survives.  -  Eddard Stark
