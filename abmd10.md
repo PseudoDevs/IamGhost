@@ -1,2 +1,2 @@
-Last updated: 2024-04-10 04:09:11
-Random Quote: My old septon used to say that books are dead men talking.  Dead men should keep quiet, is what I say.  No one wants to hear a dead man's yabber.  -  Dolorous Edd Tollett
+Last updated: 2024-04-10 04:09:44
+Random Quote: Young I was, and vain, but the sea washed my follies and my vanities away.  That man drowned, nephew.  His lungs filled with seawater, and the fish ate the scales off his eyes.  When I rose again, I saw clearly.  -  Aeron Greyjoy
