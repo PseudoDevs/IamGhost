@@ -1,2 +1,2 @@
-Last updated: 2024-04-10 00:50:41
-Random Quote: You grew up with actors.  You learned their craft and you learned it well.  I grew up with soldiers.  I learned how to die a long time ago.  -  Eddard Stark
+Last updated: 2024-04-10 00:51:16
+Random Quote: Ted, no! You never break up a girl fight! Never! - Barney Stinson
