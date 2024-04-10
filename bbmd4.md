@@ -1,2 +1,2 @@
-Last updated: 2024-04-10 00:40:41
-Random Quote: Now don't be a p-ssy, laser my f-cking t-ts! - Stormfront
+Last updated: 2024-04-10 00:41:14
+Random Quote: Words are like arrows, Arianne.  Once loosed, you cannot call them back.  -  Areo Hotah
