@@ -1,2 +1,2 @@
-Last updated: 2024-04-10 04:41:48
-Random Quote: Just 'cause you fall on your *ss doesn't mean you have to stay there. - Hughie Campbell
+Last updated: 2024-04-10 04:42:23
+Random Quote: Have you ever been told you're different, odd, or simply don't belong? In a world full of normies, do you feel like an outcast? Me too. But I'm pleased to tell you there's a very special place for people like us. Nevermore Academy. - Wednesday Addams
