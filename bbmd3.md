@@ -1,2 +1,2 @@
-Last updated: 2024-04-10 04:13:15
-Random Quote: He can hear youHe knows if you've been bad or goodLike Santa, but he can send you to hell. - Missy
+Last updated: 2024-04-10 04:13:51
+Random Quote: Winter will never come for the likes of us.  Should we die in battle, they will surely sing of us, and it's always summer in the songs.  In the songs all knights are gallant, all maids are beautiful, and the sun is always shining.  -  Brienne of Tarth
