@@ -1,2 +1,2 @@
-Last updated: 2024-04-10 00:40:54
-Random Quote: Sometimes, the cure is a little taste of the disease. The difference between medicine and poison sometimes is only dosage. - Arthur Harrow
+Last updated: 2024-04-10 00:41:27
+Random Quote: Quentyn had never felt so much a boy as when he'd stood before Daenerys Targaryen, pleading for her hand.  The thought of bedding her terrified him almost as much as her dragons had.  -  Quentyn Martell
