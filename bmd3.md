@@ -1,2 +1,2 @@
-Last updated: 2024-04-10 00:49:26
-Random Quote: I can't see myself living in CaliforniaI don't trust their carefree lifestyle. - Sheldon
+Last updated: 2024-04-10 00:50:01
+Random Quote: Lord Balon's eldest brother had never given up the Old Way, even for a day.  His Silence, with its black sails and dark red hull, was infamous in every port from Ibben to Asshai, it was said.  -  Theon Greyjoy
