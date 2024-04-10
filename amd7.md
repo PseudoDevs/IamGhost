@@ -1,2 +1,2 @@
-Last updated: 2024-04-10 04:21:48
-Random Quote: We are not husband and wife... anymore. We're just business partners. And our job is to raise those kids. - Marty Byrde
+Last updated: 2024-04-10 04:22:25
+Random Quote: Power resides where men believe it resides... It's a trick, a shadow on the wall.  -  Varys
