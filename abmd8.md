@@ -1,2 +1,2 @@
-Last updated: 2024-04-10 00:31:50
-Random Quote: Euron Greyjoy is no man's notion of a king, if half of what Theon said of him was true.  -  Robb Stark
+Last updated: 2024-04-10 00:32:25
+Random Quote: The only thing The Umbrella Academy knows about love is how to screw it up. - Klaus Hargreeves
