@@ -1,2 +1,2 @@
-Last updated: 2024-04-10 04:10:51
-Random Quote: Now don't be a p-ssy, laser my f-cking t-ts! - Stormfront
+Last updated: 2024-04-10 04:13:15
+Random Quote: I was a better smuggler than a knight, he had written to his wife, a better knight than a King's hand, a better King's hand than a husband.  I am so sorry Marya, I have loved you.  Please forgive the wrongs I did you.  -  Davos Seaworth
