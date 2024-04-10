@@ -1,2 +1,2 @@
-Last updated: 2024-04-10 04:18:09
-Random Quote: Did you just bring a bomb into a hospital? - Jesse Pinkman
+Last updated: 2024-04-10 04:18:44
+Random Quote: My real father died in King's Landing.  I made a choice, and I chose wrong.  -  Theon Greyjoy
