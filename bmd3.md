@@ -1,4 +1,2 @@
-Last updated: 2024-04-10 04:36:19
-Random Quote: Rick: "Guests are fans, Morty, which we are not. We'd like professional badges."
-"Do you have a crew?"
-Rick: "Yes. He's a getaway driver with Asperger's and my butt is a demolitions expert." - Rick Sanchez
+Last updated: 2024-04-10 04:36:55
+Random Quote: I told you once, there are old sellswords and there are bold sellswords, but there are no old bold sellswords.  -  Brown Ben Plumm

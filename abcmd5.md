@@ -1,2 +1,2 @@
-Last updated: 2024-04-10 04:36:19
-Random Quote: Ted: "Grinch, Grinch, Grinch, Grinch!"[The lights turn out]Lily: "Happy? Now you pissed up the big guy upstairs!"Ted: "Yeah, I'm sure god cares if I..."Man: "You use that language again and I turn off your water!"Lily: "It's my super - he lives above me." - Lily Aldrin
+Last updated: 2024-04-10 04:36:55
+Random Quote: Ted: "First it was too much eye-contact, then not enough - where do you look during sex?"Barney: "Into the hidden camera at future me, watching it." - Barney Stinson
