@@ -1,2 +1,2 @@
-Last updated: 2024-04-10 00:58:39
-Random Quote: Right down here, the ocean has a depth of almost 4,000 meters. Man has mapped out every corner of this world. Been to the farthest deserts, the top of the highest mountains. But what's down there is still a mystery. A hidden world in the shadows. - Eyk Larsen
+Last updated: 2024-04-10 03:54:01
+Random Quote: The Old Gods stir and will not let me sleep.  I dreamt I saw a shadow with a burning heart butchering a golden stag, aye.  I dreamt of a man without a face, waiting on a bridge that swayed and swung.  On his shoulder perched a drowned crow with seaweed hanging from his wings.  I dreamt of a roaring river and a woman that was a fish.  Dead she drifted, with red tears on her cheeks, but when her eyes did open, oh, I woke from terror.  All this I dreamt, and more.  -  The Ghost of High Heart
