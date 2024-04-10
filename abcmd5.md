@@ -1,2 +1,2 @@
-Last updated: 2024-04-10 00:39:40
-Random Quote: Marshall: "During that time, I have been, how do I put this delicately, saving all my love for you."Lily: "I have read eleven books on conception, I have cut out alcohol, caffeine and sugar. I take my temperature every hour. But good for you for not playing with yourself!" - Lily Aldrin
+Last updated: 2024-04-10 00:40:13
+Random Quote: Desperation Day has come and gone and you have neither gone nor come. - Robin Scherbatsky
