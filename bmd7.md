@@ -1,2 +1,2 @@
-Last updated: 2024-04-10 04:03:07
-Random Quote: Ted: "Those Robin's boobies?"Barney: "When new nubile hotties lean in to inspect your bundle of joy, you can inspect their bundles of joy. The Broller. God, I come up with a lot of good stuff!" - Barney Stinson
+Last updated: 2024-04-10 04:03:40
+Random Quote: In King's Landing, there are two sorts of people.  The players and the pieces.  -  Petyr Baelish
