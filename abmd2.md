@@ -1,3 +1,2 @@
-Last updated: 2024-04-10 04:45:31
-Random Quote: Larissa: "So you automatically assume a Nevermore student is the murderer, even though there's no evidence a crime was even committed."
-Donovan: "I'm sorry. I forgot, you only teach the good outcasts here, right?" - Donovan Galpin
+Last updated: 2024-04-10 04:46:04
+Random Quote: She had a nice face, her booty was in place, but Barney don't chase. - Barney Stinson
