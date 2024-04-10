@@ -1,2 +1,2 @@
-Last updated: 2024-04-10 00:44:14
-Random Quote: Why didn't you say this to me when I was alive? - Hannah Baker
+Last updated: 2024-04-10 00:45:22
+Random Quote: You have courage.  Not battle courage perhaps but... I don't know... a kind of woman's courage.  -  Brienne of Tarth
