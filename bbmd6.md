@@ -1,2 +1,2 @@
-Last updated: 2024-04-10 04:06:47
-Random Quote: Do you know what it is like to be sold, squire?  I do.  My brother sold me to Khal Drogo for the promise of a golden crown.  Well, Drogo crowned him in gold, though not as he had wished, and I... my sun - and
+Last updated: 2024-04-10 04:07:20
+Random Quote: I wish you could live to see the world we make. - Arthur Harrow
