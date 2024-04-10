@@ -1,2 +1,2 @@
-Last updated: 2024-04-10 00:52:40
-Random Quote: This is the one that you saved? You are as its father. A clan of two. But you have removed your helmet. Then you are a Mandalorian no more. - The Armorer
+Last updated: 2024-04-10 00:53:13
+Random Quote: You ought to have no trouble catching our uncles.  One is drunk on seawater, after all, and the other is a great grey bullock so dim he'll probably get lost.  -  Asha Greyjoy
