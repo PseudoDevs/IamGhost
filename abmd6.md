@@ -1,3 +1,2 @@
-Last updated: 2024-04-10 03:54:37
-Random Quote: Kids, you can't talk yourself into falling in love. It doesn't take days of deliberation. When it's real, you know pretty quickly and with absolute certainty.
-I had forgotten that, but I was about to be reminded... - Ted Mosby
+Last updated: 2024-04-10 03:56:26
+Random Quote: Robb, who had been more a brother to Theon than any son born of Balon Greyjoy's loins.  Murdered at the Red Wedding, butchered by the Freys.  I should have been with him.  Where was I?  I should have died with him.  -  Theon Greyjoy
