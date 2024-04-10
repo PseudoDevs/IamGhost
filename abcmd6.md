@@ -1,3 +1,2 @@
-Last updated: 2024-04-10 04:42:28
-Random Quote: Alex: "What's Jagermeister?"
-Phil: "Well, you know how in a fairytale there's always a potion that makes the princess fall asleep and then the guys start kissing her? Well, this is like that, except you don't wake up in a castle, you wake up in a frat house with a bad reputation." - Phil Dunphy
+Last updated: 2024-04-10 04:43:02
+Random Quote: When I look at something, I don't see it for what it is, I see it for what it could be. When I look at something, I see how it ends. - Miguel Angel Felix Gallardo
