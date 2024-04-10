@@ -1,3 +1,2 @@
-Last updated: 2024-04-10 00:39:30
-Random Quote: Give it a week, you'll get her back. And her front.
-Oh! Did you feel that? I think we just had a "what up?"-quake! - Barney Stinson
+Last updated: 2024-04-10 00:40:06
+Random Quote: We all have things we keep hidden. Sometimes, keeping secrets is how you survive. Because in High School, one rumor, one picture, one incident, can define you forever. - Hannah Baker
