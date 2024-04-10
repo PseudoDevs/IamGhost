@@ -1,2 +1,2 @@
-Last updated: 2024-04-10 04:14:29
-Random Quote: Because there's no way watching it can be more fun than playing it yourself. - Oh Il-nam
+Last updated: 2024-04-10 04:16:20
+Random Quote: Can I dwell on what I scarce remember?  I held a castle on the Marches once, and there was a woman I was pledged to marry, but I could not find that castle today, nor tell you the color of that woman's hair.  Who knighted me, old friend?  What were my favorite foods?  It all fades.  Sometimes I think I was born on the bloody grass in that grove of ash, with the taste of fire in my mouth and a hole in my chest.  Are you my mother, Thoros?  -  Beric Dondarrion
