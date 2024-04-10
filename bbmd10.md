@@ -1,2 +1,2 @@
-Last updated: 2024-04-10 00:59:46
-Random Quote: Sometimes one has to adjust to a situation as it unfolds. With every calamity comes opportunity. - Virginia Wilson
+Last updated: 2024-04-10 03:53:50
+Random Quote: How many eyes does Lord Bloodraven have?  the riddle ran.  A thousand eyes, and one.  Some claimed the King's Hand was a student of the dark arts who could change his face, put on the likeness of a one - eyed dog, even turn into a mist.  Packs of gaunt gray wolves hunted down his foes, men said, and carrion crows spied for him and whispered secrets in his ear.  Most of the tales were only tales, Dunk did not doubt, but no one could doubt that Bloodraven had informers everywhere. 
