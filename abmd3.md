@@ -1,7 +1,2 @@
-Last updated: 2024-04-10 03:55:48
-Random Quote: Bo-Katan: "You are a disgrace to your armor."
-Boba Fett: "This armor belonged to my father."
-Bo-Katan: "Don't you mean your donor?"
-Boba Fett: "Careful, princess."
-Bo-Katan: "You are a clone. I've heard your voice thousands of times."
-Boba Fett: "Mine might be the last one you hear." - Boba Fett
+Last updated: 2024-04-10 03:56:23
+Random Quote: We are the ironborn, and once we were conquerors.  Our writ ran everywhere the sound of the waves was heard.  My brother would have been content with the cold and dismal north, my niece with even less... but I shall give you Lannisport.  Highgarden.  The Arbor.  Oldtown.  The Riverlands and the Reach, the Kingswood and the Rainwood, Dorne and the Marches, the Mountains of the Moon and the Vale of Arryn, Tarth and the Stepstones.  I say we take it all!  I say, we take Westeros.  -  Euron Greyjoy
