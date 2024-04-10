@@ -1,2 +1,3 @@
-Last updated: 2024-04-10 04:35:05
-Random Quote: The pain is his vessel, desire his compass. It is all that man is capable of. - 
+Last updated: 2024-04-10 04:35:41
+Random Quote: I hired a decorator and I asked him: "What would the inside of Tinkerbell's vagina look like?"
+And the kid just ran with it! - Quinn Garvey
