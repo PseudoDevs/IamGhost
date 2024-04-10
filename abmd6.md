@@ -1,2 +1,2 @@
-Last updated: 2024-04-10 00:36:16
-Random Quote: Tell the Crow's Eye he's afraid of kinslaying and he'll murder one of his own sons just to prove you wrong.  -  Asha Greyjoy
+Last updated: 2024-04-10 00:36:49
+Random Quote: A bag of dragons buys a man's silence for a while, but a well - placed quarrel buys it forever. 
