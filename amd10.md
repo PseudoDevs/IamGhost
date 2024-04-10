@@ -1,2 +1,2 @@
-Last updated: 2024-04-10 04:31:26
-Random Quote: The common people pray for rain, healthy children, and a summer that never ends.  It is no matter to them if the high lords play their game of thrones, so long as they are left in peace.  They never are.  -  Jorah Mormont
+Last updated: 2024-04-10 04:32:03
+Random Quote: You're a beautiful, sweet girl. Fuck this guy! - Nicky Nichols
