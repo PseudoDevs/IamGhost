@@ -1,2 +1,2 @@
-Last updated: 2024-04-10 04:03:40
-Random Quote: In King's Landing, there are two sorts of people.  The players and the pieces.  -  Petyr Baelish
+Last updated: 2024-04-10 04:04:14
+Random Quote: Larry Bloom: "Piper, you put a pee stick in my rinsing cup."Piper Chapman: "Well, you put your pee stick in my vagina. And that's why we're in this situation." - Piper Chapman
