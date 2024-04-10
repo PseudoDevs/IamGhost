@@ -1,2 +1,2 @@
-Last updated: 2024-04-10 04:10:14
-Random Quote: The farther you go, the sharper their blade. Just don't ever give them an opening. - Cal Jacobs
+Last updated: 2024-04-10 04:10:48
+Random Quote: Everyone pretend podcasting isn't boring! - Rick Sanchez
