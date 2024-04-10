@@ -1,2 +1,2 @@
-Last updated: 2024-04-10 04:55:06
-Random Quote: It wasn't the violence that scared her. It was the fact that she knew no matter what he did, she'd still love him. - Rue Bennett
+Last updated: 2024-04-10 04:55:40
+Random Quote: Phil: "What a beautiful dress."Gloria: "Thank you, Phil."Phil: "Oh, okay."Claire: "Phil! She said Phil, not feel!" - Claire Dunphy
