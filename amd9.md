@@ -1,2 +1,2 @@
-Last updated: 2024-04-10 00:37:20
-Random Quote: Barney: "He's the awesomest, most best-lookingest, greatest guy ever!"Lily: "He's exactly like Barney."Barney: "That's what I just said." - Barney Stinson
+Last updated: 2024-04-10 00:38:26
+Random Quote: I know that new situations can be intimidating. You look around, and it's all scary and different. But meeting them head-on, charging right into them like a bull, that's how we grow as people. - Rick Sanchez
