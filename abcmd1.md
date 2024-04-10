@@ -1,2 +1,2 @@
-Last updated: 2024-04-10 04:30:03
-Random Quote: One does not speak unless one knows. - Din Djarin
+Last updated: 2024-04-10 04:30:36
+Random Quote: His size, Gregor is a very large man.  Also a very stupid one.  Too stupid to know when he should die, it seems.  -  Cersei Lannister
