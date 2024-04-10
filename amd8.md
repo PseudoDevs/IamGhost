@@ -1,2 +1,2 @@
-Last updated: 2024-04-10 04:04:09
-Random Quote: Sometimes a truce is the most important part of a war. - Professor
+Last updated: 2024-04-10 04:04:42
+Random Quote: Did the boy charm you?  He has that gift.  He got it from his father, with the blood.  He knows he is a king's son, but chooses to forget that he is bastard - born. 
