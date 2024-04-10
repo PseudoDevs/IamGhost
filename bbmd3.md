@@ -1,2 +1,2 @@
-Last updated: 2024-04-10 00:55:32
-Random Quote: You give me one hour of phone-free bro time, during which we, and by we I mean you, get magnificently, mythologically drunk. I'm talking needing-subtitles-when-you-speak drunk. - Barney Stinson
+Last updated: 2024-04-10 00:56:45
+Random Quote: My daughter has taken an axe for a lover.  I will not have my son bedeck himself like a whore.  It is as I feared.  The green lands have made you soft, and the Starks have made you theirs.  -  Balon Greyjoy
