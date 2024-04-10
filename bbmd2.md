@@ -1,2 +1,2 @@
-Last updated: 2024-04-10 00:29:40
-Random Quote: Bulls are strong.  Bears.  I have seen my bastard fight.  He is not entirely to blame.  Reek was his tutor, the first Reek, and Reek was never trained at arms.  Ramsay is ferocious, I will grant you, but he swings that sword like a butcher hacking meat.  -  Roose Bolton
+Last updated: 2024-04-10 00:30:15
+Random Quote: In my head, it's like If I can conquer men, then I can conquer femininity. - Jules Vaughn
