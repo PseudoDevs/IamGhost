@@ -1,2 +1,3 @@
-Last updated: 2024-04-10 00:30:09
-Random Quote: Aye, and from what I saw of Joffrey, you are as unfit a mother as you are a ruler.  -  Kevan Lannister
+Last updated: 2024-04-10 00:30:42
+Random Quote: Alien: "I was just reading you."
+Rick: "Congratulations on making it into print media. Real bright future there." - Rick Sanchez
