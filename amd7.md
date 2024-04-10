@@ -1,2 +1,2 @@
-Last updated: 2024-04-10 00:46:11
-Random Quote: Talk about being a few sardines short of a can. - Bucky Barnes
+Last updated: 2024-04-10 00:46:44
+Random Quote: Barney: "Fine, we'll just have a nice, tasteful rehearsal dinner. Maybe at a French restaurant, I know just the place."Robin: "What's the name of the restaurant?"Barney: "La Sertag." - Barney Stinson
