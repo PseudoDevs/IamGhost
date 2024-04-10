@@ -1,2 +1,2 @@
-Last updated: 2024-04-10 04:47:42
-Random Quote: I asked him why he kept her close, if he thought her so grotesque.  He said that all his other knights wanted things of him, castles or honors or riches, but all that Brienne wanted was to die for him.  -  Loras Tyrell
+Last updated: 2024-04-10 04:48:14
+Random Quote: I'm honest.  It's the world that's awful.  -  Sandor Clegane
