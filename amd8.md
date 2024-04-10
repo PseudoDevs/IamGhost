@@ -1,2 +1,2 @@
-Last updated: 2024-04-10 00:45:20
-Random Quote: Here's the secret, kids: none of us can vow to be perfect. In the end, all we can do is promise to love each other with everything we've got. Because love's the best thing we do. - Ted Mosby
+Last updated: 2024-04-10 00:45:52
+Random Quote: I never asked for this, no more than I asked to be king.  Yet dare I disregard her?  We do not choose our destinies.  Yet we must... we must do our duty, no?  Great or small, we must do our duty.  -  Stannis Baratheon
