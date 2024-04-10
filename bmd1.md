@@ -1,5 +1,2 @@
-Last updated: 2024-04-10 00:44:48
-Random Quote: Dina: "You're infuriating."
-Ellie: "Have you met you?"
-Dina: "You make me want to go back outside into that blizzard."
-Ellie: "No one is stopping you." - Joel Miller
+Last updated: 2024-04-10 00:45:23
+Random Quote: You do seem to have a little “shit creek” action going… You know, FYI, you can buy a paddle. - Saul Goodman
