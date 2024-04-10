@@ -1,2 +1,2 @@
-Last updated: 2024-04-10 04:24:10
-Random Quote: Have you ever been told you're different, odd, or simply don't belong? In a world full of normies, do you feel like an outcast? Me too. But I'm pleased to tell you there's a very special place for people like us. Nevermore Academy. - Wednesday Addams
+Last updated: 2024-04-10 04:24:43
+Random Quote: Lily: "Just give me his name!"Robin: "Fine. It's Bill Pepper."Lily: "Kind of a coincidence there happens to be a bill and a pepper shaker here on the table. Any chance you and Bill had a three-way with Fork Napkin?" - Lily Aldrin
