@@ -1,2 +1,2 @@
-Last updated: 2024-04-10 04:59:48
-Random Quote: Your heart's talking to you, Barney. Do you have the guts to listen to it? - Lily Aldrin
+Last updated: 2024-04-10 05:00:21
+Random Quote: For some women it was the ashes of my parents. For others it was the trophy from Wimbledon and believe it or not, for one busty dullard, it was both. Game, enormous set and match! - Barney Stinson
