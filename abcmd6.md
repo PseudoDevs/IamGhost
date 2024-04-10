@@ -1,6 +1,2 @@
-Last updated: 2024-04-10 04:52:04
-Random Quote: Sam: "They might be a part of the big three."
-Bucky: "What big three?"
-Sam: "Androids, aliens and wizards."
-Bucky: "That's not a thing."
-Sam: "That's definitely a thing." - Sam Wilson
+Last updated: 2024-04-10 04:52:39
+Random Quote: Your heart's talking to you, Barney. Do you have the guts to listen to it? - Lily Aldrin
