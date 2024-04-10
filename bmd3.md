@@ -1,2 +1,2 @@
-Last updated: 2024-04-10 00:43:40
-Random Quote: Lily: "Whenever we board a flight, you lick the plane!"Marshall: "Have we crashed even once?" - Marshall Eriksen
+Last updated: 2024-04-10 00:45:23
+Random Quote: My old septon used to say that books are dead men talking.  Dead men should keep quiet, is what I say.  No one wants to hear a dead man's yabber.  -  Dolorous Edd Tollett
