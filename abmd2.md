@@ -1,2 +1,2 @@
-Last updated: 2024-04-10 04:16:56
-Random Quote: Now if you'll excuse me, I've got a quick solo adventure to go on - and this one will not be directed by Ron Howard. - Rick Sanchez
+Last updated: 2024-04-10 04:18:10
+Random Quote: Your innocence may be as plain as the scar on your face, but it will not save you.  No more than your father will.  But I might.  Not as your judge.  As your champion.  -  Oberyn Martell
