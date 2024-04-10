@@ -1,2 +1,2 @@
-Last updated: 2024-04-10 04:38:10
-Random Quote: No sword is strong until it's been tempered.  The Stark boy is a child.  No doubt he likes the sound of warhorns well enough, and the sight of his banners fluttering in the wind, but in the end it comes down to butcher's work.  I doubt he has the stomach for it.  -  Tywin Lannister
+Last updated: 2024-04-10 04:38:47
+Random Quote: Her one choice gave birth to a whole new history and gave the multiverse a new hero. As for me, these are my stories. I observe all that transpires here, but I do not, cannot, will not interfere. For I am the Watcher. - The Watcher
