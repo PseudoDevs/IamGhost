@@ -1,2 +1,2 @@
-Last updated: 2024-04-10 04:06:29
-Random Quote: Robin: "Sometimes in life you have to be assertive and stand up for yourself."Ted: "You called her a whore!"Robin: "Who wears that much make up?"Ted: "Old ladies!"Robin: "Who take money for sex, exactly!" - Robin Scherbatsky
+Last updated: 2024-04-10 04:07:02
+Random Quote: The children are gone from the world, and their wisdom with them.  It had to do with the faces in the trees, we think.  The First Men believed that the greenseers could see through the eyes of the weirwoods.  That was why they cut down the trees whenever they warred upon the children.  Supposedly the greenseers also had the power over the beasts of the wood and the birds in the trees.  Even fish.  -  Maester Luwin
