@@ -1,2 +1,2 @@
-Last updated: 2024-04-10 00:51:13
-Random Quote: Women aren't soldiers, and they sure as hell don't fight on the front lines. They might break a nail. - John Flynn
+Last updated: 2024-04-10 00:51:49
+Random Quote: Help was not promised, lovely girl.  Only death.  -  Jaqen H'ghar
