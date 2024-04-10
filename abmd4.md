@@ -1,2 +1,2 @@
-Last updated: 2024-04-10 03:57:15
-Random Quote: In Texas, the holy trinity is God, Football and barbecue. Not necessarily in that order. - Sheldon Cooper
+Last updated: 2024-04-10 03:57:48
+Random Quote: Omera: "You haven't shown your face to anyone since you were a kid?"Mando: "No. I was happy that they took me in. My parents were killed and the Mandalorians took care of me. This is the way." - Din Djarin
