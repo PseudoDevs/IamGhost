@@ -1,2 +1,2 @@
-Last updated: 2024-04-10 00:48:51
-Random Quote: We all have things we keep hidden. Sometimes, keeping secrets is how you survive. Because in High School, one rumor, one picture, one incident, can define you forever. - Hannah Baker
+Last updated: 2024-04-10 00:49:26
+Random Quote: I can't see myself living in CaliforniaI don't trust their carefree lifestyle. - Sheldon
