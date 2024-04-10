@@ -1,2 +1,3 @@
-Last updated: 2024-04-10 00:37:44
-Random Quote: Our secrecy is our survival. our survival is our strength. - The Armorer
+Last updated: 2024-04-10 00:38:19
+Random Quote: George: "I love what you done with the place. Did you do it yourself, or did you get some pouf to help ya?"
+Rebecca: "I could ask the same of your hair." - Rebecca Welton

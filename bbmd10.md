@@ -1,2 +1,3 @@
-Last updated: 2024-04-10 00:37:44
-Random Quote: What a man wants does not define him. What a man needs is what defines him. - Juan Nepomuceno Guerra
+Last updated: 2024-04-10 00:38:19
+Random Quote: Summer: "Someone out there is trying to kill us."
+Rick: "Someone's always trying to kill us." - Rick Sanchez
