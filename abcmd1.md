@@ -1,2 +1,2 @@
-Last updated: 2024-04-10 04:05:13
-Random Quote: Ted: "What could she possibly have to say me, that she couldn't write in an email?"Robin: "I've cut out all my fingers?" - Robin Scherbatsky
+Last updated: 2024-04-10 04:05:46
+Random Quote: Grief never gets any smaller, so you have to make yourself bigger around it. The best way to do that is to open up. Let people in. - Rendell Locke
