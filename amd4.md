@@ -1,2 +1,2 @@
-Last updated: 2024-04-10 04:26:02
-Random Quote: Barney: "You avoiding the family too?"James: "I'm gay, I'm black and I'm getting a divorce. Those walking skeletons are gonna have more questions for me than their pharmacists." - James Stinson
+Last updated: 2024-04-10 04:26:38
+Random Quote: If you don't trust your men with your money, you have bigger problems than if you trust Saul Goodman. - Kim Wexler
