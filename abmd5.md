@@ -1,2 +1,2 @@
-Last updated: 2024-04-10 03:55:26
-Random Quote: Doctor: "Don't worry, it's totally safe. Unless part of your big date involves connecting yourself to a car battery."Barney: "Well, now it doesn't." - Barney Stinson
+Last updated: 2024-04-10 03:55:59
+Random Quote: Marshall: "Are you sure this poo-poo didn't happen on your watch and you just ran out the clock until it was my problem?"Lily: "Oh, yeah. Yeah, yeah, right. What kind of mother lets her son sit in his own filth for an extra nine minutes and 42 seconds?" - Lily Aldrin
