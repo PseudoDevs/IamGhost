@@ -1,2 +1,2 @@
-Last updated: 2024-04-10 04:41:16
-Random Quote: All I wanted was to eat the chicken that is smarter than other chickens and to absorb it's power. - Galina 'Red' Reznikov
+Last updated: 2024-04-10 04:41:51
+Random Quote: I knew Brienne when she was no more than a girl playing at her father's feet in Evenfall Hall, and I knew her still better when the Evenstar sent her here to Storm's End.  She loved Renly Baratheon from the first moment she laid eyes on him, a blind man could see it.  -  Cortnay Penrose

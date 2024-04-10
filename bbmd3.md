@@ -1,2 +1,2 @@
-Last updated: 2024-04-10 04:41:14
-Random Quote: Please.  A sword, that's all I ask.  Let me die as Theon, not as Reek.  -  Theon Greyjoy
+Last updated: 2024-04-10 04:41:50
+Random Quote: They shall come day and night to see the wonder that has been born again into the world, and when they see they shall lust.  For dragons are fire made flesh, and fire is power.  -  Quaithe
