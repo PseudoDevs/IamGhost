@@ -1,2 +1,2 @@
-Last updated: 2024-04-10 04:03:01
-Random Quote: One life, one choice, one moment can destroy the entire universe. - The Watcher
+Last updated: 2024-04-10 04:03:37
+Random Quote: Lord Balon's eldest brother had never given up the Old Way, even for a day.  His Silence, with its black sails and dark red hull, was infamous in every port from Ibben to Asshai, it was said.  -  Theon Greyjoy
