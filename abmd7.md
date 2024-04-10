@@ -1,2 +1,2 @@
-Last updated: 2024-04-10 00:38:20
-Random Quote: I have worked at the downfall of Tywin Lannister since the day they told me of Elia and her children.  -  Doran Martell
+Last updated: 2024-04-10 00:38:55
+Random Quote: They'll bend the knee or I'll destroy them.  -  Stannis Baratheon
