@@ -1,2 +1,2 @@
-Last updated: 2024-04-10 04:41:03
-Random Quote: Jesus! Just grow some fucking balls! - Walter White
+Last updated: 2024-04-10 04:41:36
+Random Quote: You don't bring a date to a wedding, that's like taking a deer carcass on a hunting trip. - Barney Stinson
