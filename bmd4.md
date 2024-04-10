@@ -1,2 +1,2 @@
-Last updated: 2024-04-10 00:35:21
-Random Quote: Space. Time. Reality. It's more than a linear path. It's a prism of endless possibility. - The Watcher
+Last updated: 2024-04-10 00:36:28
+Random Quote: Your innocence may be as plain as the scar on your face, but it will not save you.  No more than your father will.  But I might.  Not as your judge.  As your champion.  -  Oberyn Martell
