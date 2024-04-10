@@ -1,2 +1,2 @@
-Last updated: 2024-04-10 03:57:02
-Random Quote: Marshall really took a two-flusher on that one! - Ted Mosby
+Last updated: 2024-04-10 03:58:14
+Random Quote: You're Reek.  You'll always be Reek, no matter how sweet you smell.  Your nose may lie to you.  Remember your name.  Remember who you are.  -  Ramsay Bolton
