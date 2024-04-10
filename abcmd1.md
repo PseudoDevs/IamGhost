@@ -1,2 +1,2 @@
-Last updated: 2024-04-10 04:31:42
-Random Quote: Robin: "I'm pregnant."Barney: "Are you sure you're not just getting fat?" - Barney Stinson
+Last updated: 2024-04-10 04:32:15
+Random Quote: We have to control this fing world, or it will control you. And if you don't protect yourself, it makes a mess and breaks you. - Miguel Angel Felix Gallardo
