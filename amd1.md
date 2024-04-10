@@ -1,2 +1,2 @@
-Last updated: 2024-04-10 00:49:34
-Random Quote: Ted: "Uh, the time Lily went into labor!"Lily: "That's now!"Ted: "Sorry, I'm running out of stories." - Ted Mosby
+Last updated: 2024-04-10 00:50:07
+Random Quote: Lily, you just gave those children a stapler, a pair of sharp scissors and a pretty decent Pinot Noir. - Marshall Eriksen
