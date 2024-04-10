@@ -1,2 +1,2 @@
-Last updated: 2024-04-10 04:04:11
-Random Quote: Ted: "As a kid, I was known as a bit of a detective. In fact, when my friend's retainer went missing, the Mosby Boys were put on the case, and it was..."Victoria: "The retainer was in the garbage. The Mosby Boys were you, your sister, and a neighborhood squirrel you thought you had tamed."Ted: "I can't believe Squirrel-lock Holmes turned on us like that, eight weeks of training down the drain." - Ted Mosby
+Last updated: 2024-04-10 04:04:47
+Random Quote: Piper: "Not every Hispanic person wants the same thing."Lorna: "Oh, sure they do. They all want to come to America."Nicky: "Jesus, your entire world view is based on 'West Side Story', isn't it?" - Nicky Nichols
