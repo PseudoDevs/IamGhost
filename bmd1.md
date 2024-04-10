@@ -1,2 +1,2 @@
-Last updated: 2024-04-10 00:41:22
-Random Quote: What about the reality where Hitler cured cancer, Morty? The answer is: don't think about it. - Rick Sanchez
+Last updated: 2024-04-10 00:42:31
+Random Quote: Rhaegar fought valiantly, Rhaegar fought nobly, and Rhaegar died.  -  Jorah Mormont
