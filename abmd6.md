@@ -1,5 +1,2 @@
-Last updated: 2024-04-10 04:54:05
-Random Quote: Morty: "Mom, I have a friend coming over. Is that cool?"
-Beth: "I told your sister no parties."
-Morty: "It's one friend."
-Beth: "That's a party to you." - Beth Smith
+Last updated: 2024-04-10 04:54:41
+Random Quote: Love is poison.  A sweet poison, yes, but it will kill you all the same.  -  Cersei Lannister

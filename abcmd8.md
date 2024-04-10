@@ -1,2 +1,2 @@
-Last updated: 2024-04-10 04:54:05
-Random Quote: There's only three things you'll ever see me fight:The stubborn clasp of a bra.Sexual harassment charges - nine for nine!And the urge to vomit when, I see someone wearing brown shoes with a black suit. - Barney Stinson
+Last updated: 2024-04-10 04:54:40
+Random Quote: No, only a boy who dreams.  The greenseers were more than that.  They were wargs as well, as you are, and the greatest of them could wear the skins of any beast that flies or swims or crawls, and could look through the eyes of the weirwoods as well, and see the truth that lies beneath the world.  -  Jojen Reed
