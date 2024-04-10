@@ -1,2 +1,5 @@
-Last updated: 2024-04-10 04:32:03
-Random Quote: You're a beautiful, sweet girl. Fuck this guy! - Nicky Nichols
+Last updated: 2024-04-10 04:33:53
+Random Quote: Bo-Katan: "I haven't seen battle droids since the Clone Wars."
+Din: "I have."
+Bo-Katan: "Any of 'em look suspicious?"
+Din: "They all look suspicious." - Din Djarin
