@@ -1,2 +1,2 @@
-Last updated: 2024-04-10 04:16:56
-Random Quote: Penrose chose to die rather than give him up.  It still angers me.  How could he think I would hurt the boy?  I chose Robert, did I not?  When that hard day came, I chose blood over honor.  -  Stannis Baratheon
+Last updated: 2024-04-10 04:17:34
+Random Quote: We will take them before last night's beer turns to piss. - Chester Campbell
