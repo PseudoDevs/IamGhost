@@ -1,2 +1,3 @@
-Last updated: 2024-04-10 04:26:21
-Random Quote: We’re not free in what we do because we’re not free in what we want. We can’t overcome what’s deep within us - The Stranger
+Last updated: 2024-04-10 04:26:55
+Random Quote: George: "I love what you done with the place. Did you do it yourself, or did you get some pouf to help ya?"
+Rebecca: "I could ask the same of your hair." - Rebecca Welton
