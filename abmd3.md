@@ -1,2 +1,2 @@
-Last updated: 2024-04-10 04:01:54
-Random Quote: Need found it hard to imagine what could frighten Stannis Baratheon, who had once held Storm's End through a year of siege, surviving on rats and boot leather while the Lords Tyrell and Redwyne sat outside with their hosts, banqueting in sight of his walls.  -  Eddard Stark
+Last updated: 2024-04-10 04:02:27
+Random Quote: The Pork Authority is closed. Looks like it's Hand Central Station for you little buddy. - James Stinson
