@@ -1,4 +1,2 @@
-Last updated: 2024-04-10 04:57:59
-Random Quote: Bo-Katan: "I've scugged off a lot of Imperial warlords."
-Din: "They tend to get mad when you hijack their ships."
-Bo-Katan: "Now you tell me." - Bo-Katan
+Last updated: 2024-04-10 04:58:32
+Random Quote: Have you ever thought that if you could go back in time, you might still make the same decisions? We all make our own snowballs out of our bad decisions. Balls that become massive, like the Indiana Jones boulder, chasing you down-hill only to crush you in the end. - Tokyo
