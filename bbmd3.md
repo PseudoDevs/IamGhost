@@ -1,2 +1,2 @@
-Last updated: 2024-04-10 04:15:35
-Random Quote: Rule Number One: Don't ever fall in love with a straight girl. - Alex Vause
+Last updated: 2024-04-10 04:16:08
+Random Quote: He'd led me in war, hunted with a king, won honor in tourney melees, ridden with Brynden Blackfish and Greatjon Umber, fought in the Whispering Wood, bedded more girls than he could name, and yet his uncle was treating him as though he were still a child of ten.  -  Theon Greyjoy
