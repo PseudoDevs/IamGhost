@@ -1,2 +1,2 @@
-Last updated: 2024-04-10 04:29:24
-Random Quote: They are knights now, all three, and your sister has promised them further advancement.  And the eldest, Set Osmund of the Kingsguard, dreams of certain other... favors... as well.  You can match the queen coin for coin, I have no doubt, but she has a second purse that is quite inexhaustible.  -  Varys
+Last updated: 2024-04-10 04:29:57
+Random Quote: That right there, that's a scone. Tastes like a muffin except it sucks all the spit out of your mouth. - Jim Hopper
