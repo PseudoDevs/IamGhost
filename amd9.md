@@ -1,2 +1,2 @@
-Last updated: 2024-04-10 00:56:05
-Random Quote: Always keep your foes confused.  If they are never certain who you are or what you want, they cannot know what you are like to do next.  Sometimes the best way to baffle them is to make moves that have no purpose, or even seem to work against you.  Remember that, Sansa, when you come to play the game.  -  Petyr Baelish
+Last updated: 2024-04-10 00:56:39
+Random Quote: Night gathers, and now my watch begins.  It shall not end until my death.  I shall take no wife, hold no lands, father no children.  I shall wear no crowns and win no glory.  I shall live and die at my post.  I am the sword in the darkness.  I am the watcher on the walls.  I am the fire that burns against the cold, the light that brings the dawn, the horn that wakes the sleepers, the shield that guards the realms of men.  I pledge my life and honor to the Night's Watch, for this night and all the nights to come.  -  Vow of the Night's Watch
