@@ -1,2 +1,3 @@
-Last updated: 2024-04-10 04:01:29
-Random Quote: I'm a genetic goldmine! No family history of diabetes or heart disease, everyone has non-porous teeth and perfect eyesight. I had one schizophrenic uncle, but even he had perfect vision. Which was unfortunate for the people around the bell tower he was in. - Robin Scherbatsky
+Last updated: 2024-04-10 04:02:01
+Random Quote: Steven Grant: "I'm not trying to slag off marketing, but there's been a major blunder. Because they've got seven gods here, and the Ennead has nine."
+Donna: "I fired two of them for bein' late. Listen, if you don't stop natterin' at me, I swear I'll shove you in a sarcophagus. You can tell the pharaoh in there what's wrong with them and all." - Arthur Harrow
