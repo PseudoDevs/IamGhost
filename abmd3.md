@@ -1,2 +1,2 @@
-Last updated: 2024-04-10 00:45:53
-Random Quote: She had seen Bronn fight on the high road; it was no accident that he had survived the journey while other men had died.  He moved like a panther, and that ugly sword of his seemed a part of his arm.  -  Catelyn Stark
+Last updated: 2024-04-10 00:46:26
+Random Quote: I did it for me. I liked it. I was good at it. And I was really... I was alive. - Walter White
