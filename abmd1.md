@@ -1,2 +1,2 @@
-Last updated: 2024-04-10 00:43:05
-Random Quote: Among all the games that kids played back then, it was the most physical and violent. - Seong Gi-hun
+Last updated: 2024-04-10 00:43:40
+Random Quote: If I'm always looking back, I'm never looking ahead. We are who we are because of consequences. You can't live without consequences. - Morty Smith
