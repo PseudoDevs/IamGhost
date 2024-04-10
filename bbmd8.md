@@ -1,2 +1,2 @@
-Last updated: 2024-04-10 00:40:43
-Random Quote: Stop crying. Remember? Crying makes you ugly and weak. - Dayanara Diaz
+Last updated: 2024-04-10 00:41:18
+Random Quote: Have you seen Mace Tyrell's boy?  The Knight of Flowers, they call him.  Now there's a son any man would be proud to own to.  Last tourney, he dumped the Kingslayer on his golden rump, you ought to have seen the look on Cersei's face.  I laughed till my sides hurt.  -  Robert Baratheon
