@@ -1,2 +1,2 @@
-Last updated: 2024-04-10 04:10:48
-Random Quote: Everyone pretend podcasting isn't boring! - Rick Sanchez
+Last updated: 2024-04-10 04:11:21
+Random Quote: Lord Varys, sometimes I feel as though you are the best friend I have in King's Landing and sometimes I feel you are my worst enemy.  -  Tyrion Lannister
