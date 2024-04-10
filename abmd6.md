@@ -1,2 +1,2 @@
-Last updated: 2024-04-10 04:25:28
-Random Quote: It all goes back and back.  To our mothers and fathers and theirs before them.  We are puppets dancing on the strings of those who came before us, and one day our own children will take up our strings and dance in our steads.  -  Tyrion Lannister
+Last updated: 2024-04-10 04:26:03
+Random Quote: Take the foundling to the city of Calodan on the forest planet Corvus. There, you will find Ahsoka Tano. Tell her you were sent by Bo-Katan. - Bo-Katan
