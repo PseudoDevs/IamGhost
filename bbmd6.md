@@ -1,2 +1,2 @@
-Last updated: 2024-04-10 00:29:42
-Random Quote: I was a better smuggler than a knight, he had written to his wife, a better knight than a King's hand, a better King's hand than a husband.  I am so sorry Marya, I have loved you.  Please forgive the wrongs I did you.  -  Davos Seaworth
+Last updated: 2024-04-10 00:30:16
+Random Quote: There's always hope tomorrow'll be taco night. - Nicky Nichols
