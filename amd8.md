@@ -1,2 +1,2 @@
-Last updated: 2024-04-10 04:12:33
-Random Quote: They may separate us, but they'll never be able to destroy us. - Pablo Escobar
+Last updated: 2024-04-10 04:13:06
+Random Quote: "I never win anything.  The gods always smiled on Watt, though.  When the wildlings knocked him off the Bridge of Skulls, somehow he landed in a nice deep pool of water.  How lucky was that, missing all those rocks?"  "Was it a long fall?  Did landing in the pool of water save his life?"  "No.  He was dead already, from that axe in his head.  Still, it was pretty lucky, missing the rocks."  -  Dolorous Edd and Grenn
