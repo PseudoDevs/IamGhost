@@ -1,2 +1,2 @@
-Last updated: 2024-04-10 00:45:10
-Random Quote: I buried an axe so deep into Willem's skull, they had to bury him with it.  -  Yoren of the Knight's Watch
+Last updated: 2024-04-10 00:45:43
+Random Quote: Whisky's good proofing water. Tells you who's real and who isn't. - Thomas Shelby
