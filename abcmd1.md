@@ -1,2 +1,2 @@
-Last updated: 2024-04-10 00:34:03
-Random Quote: That's not a law, just a sword.  Happens I got one too.  -  Yoren of the Night's Watch
+Last updated: 2024-04-10 00:34:36
+Random Quote: We will take them before last night's beer turns to piss. - Chester Campbell
