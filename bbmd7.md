@@ -1,4 +1,2 @@
-Last updated: 2024-04-10 00:41:10
-Random Quote: Morty: "Mom told me she wanted me to stay here to make sure you didn't die."
-Jerry: "Well, you tell your mother that I'm gonna be fine."
-Rick: "Don't train your child to lie, Jerry." - Rick Sanchez
+Last updated: 2024-04-10 00:41:43
+Random Quote: Robin: "Who wants hot-wings?"Lily: "I'm in... or maybe we should just pour hot-sauce on Barney, since he's a total chicken." - Lily Aldrin
