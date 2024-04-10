@@ -1,2 +1,2 @@
-Last updated: 2024-04-10 04:00:01
-Random Quote: The Burned Men fear nothing.  Timett, son of Timett will ride with the lions.  -  Timett, son of Timett
+Last updated: 2024-04-10 04:02:24
+Random Quote: Words are like arrows, Arianne.  Once loosed, you cannot call them back.  -  Areo Hotah
