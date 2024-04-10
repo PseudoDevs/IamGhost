@@ -1,2 +1,2 @@
-Last updated: 2024-04-10 04:24:15
-Random Quote: Nothing is wrong with him, now turn back around before I break your neck. - Mary
+Last updated: 2024-04-10 04:25:27
+Random Quote: Birds are lost, messages stolen or sold... there are things I might tell you of that eunuch that would chill your blood...  -  Grand Maester Pycelle

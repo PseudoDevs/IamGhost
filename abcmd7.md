@@ -1,2 +1,2 @@
-Last updated: 2024-04-10 04:24:50
-Random Quote: We will take them before last night's beer turns to piss. - Chester Campbell
+Last updated: 2024-04-10 04:25:26
+Random Quote: Ran: "We were all young, tryin' to make a name for ourselves. But runnin' with a Mandalorian, that brought us some reputation."Mayfeld: "Oh, yeah? What did he get out of it?"Ran: "I asked him that one time. You remember what you said, Mando? Target Practice." - Din Djarin
