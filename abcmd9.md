@@ -1,2 +1,2 @@
-Last updated: 2024-04-10 04:07:14
-Random Quote: Never give power to the big man. - Alfie Solomons
+Last updated: 2024-04-10 04:07:50
+Random Quote: We are not husband and wife... anymore. We're just business partners. And our job is to raise those kids. - Marty Byrde
