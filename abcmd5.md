@@ -1,2 +1,2 @@
-Last updated: 2024-04-10 04:01:12
-Random Quote: And at some point you make a choice about who you are and what you want. - Rue Bennett
+Last updated: 2024-04-10 04:01:47
+Random Quote: Jaime and I are more than brother and sister.  We are one person in two bodies.  We shared a womb together.  He came into this world holding my foot, our old maester said.  When he is in me, I feel... whole.  -  Cersei Lannister
