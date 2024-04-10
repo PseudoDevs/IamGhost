@@ -1,2 +1,2 @@
-Last updated: 2024-04-10 04:05:27
-Random Quote: You have your mother's common sense, but your father's devilment. I see them fighting. Let your mother win! - Polly Gray
+Last updated: 2024-04-10 04:07:51
+Random Quote: For the night is dark and full of terrors.  -  Words of R'hllor
