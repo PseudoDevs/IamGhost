@@ -1,6 +1,2 @@
-Last updated: 2024-04-10 03:54:39
-Random Quote: Sam: "They might be a part of the big three."
-Bucky: "What big three?"
-Sam: "Androids, aliens and wizards."
-Bucky: "That's not a thing."
-Sam: "That's definitely a thing." - Sam Wilson
+Last updated: 2024-04-10 03:56:26
+Random Quote: There are no men like me.  There's only me.  -  Jaime Lannister
