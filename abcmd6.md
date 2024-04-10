@@ -1,2 +1,4 @@
-Last updated: 2024-04-10 04:33:53
-Random Quote: The gods be damned.  It was a hollow victory they gave me.  A crown... it was the girl I prayed them for.  Your sister, safe... and mine again, as she was meant to be.  I ask you, Need, what good is it to wear a crown?  The gods mock the prayers of kings and cowherds alike.  -  Robert Baratheon
+Last updated: 2024-04-10 04:34:29
+Random Quote: Barney: "Ted, I'm gonna teach you how to live. Barney... we met at the urinal. Lesson 1: Loose the goatee it doesn't go with your suit!"
+Ted: "I'm not wearing a suit."
+Barney: "Lesson 2: Get a suit, suits are cool. Exhibit A. Lesson 3: "Don't even think about getting married until your 30." - Barney Stinson

@@ -1,5 +1,2 @@
-Last updated: 2024-04-10 04:33:53
-Random Quote: Bo-Katan: "I haven't seen battle droids since the Clone Wars."
-Din: "I have."
-Bo-Katan: "Any of 'em look suspicious?"
-Din: "They all look suspicious." - Din Djarin
+Last updated: 2024-04-10 04:34:29
+Random Quote: Sometimes our best decisions are the ones that don't make any sense at all. - Ted Mosby
