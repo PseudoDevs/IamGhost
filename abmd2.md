@@ -1,2 +1,2 @@
-Last updated: 2024-04-10 04:44:25
-Random Quote: Power resides where men believe it resides... It's a trick, a shadow on the wall.  -  Varys
+Last updated: 2024-04-10 04:44:58
+Random Quote: Never bring a knife to a sword fight. Unless it's concealed. - Wednesday Addams
