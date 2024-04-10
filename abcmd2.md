@@ -1,2 +1,2 @@
-Last updated: 2024-04-10 04:09:40
-Random Quote: I'm growing a child in my belly, a child that just developed ears, and it's a very thin sweater. So, please, if you must tell your story, just make it cheerful. - Lily Aldrin
+Last updated: 2024-04-10 04:10:16
+Random Quote: A family is like a small business. And with a small business, at times, there comes a bit of transition. - Marty Byrde

@@ -1,2 +1,2 @@
-Last updated: 2024-04-10 04:08:28
-Random Quote: You grew up with actors.  You learned their craft and you learned it well.  I grew up with soldiers.  I learned how to die a long time ago.  -  Eddard Stark
+Last updated: 2024-04-10 04:10:16
+Random Quote: When something seems too perfect, it's usually anything but. - Allison Hargreeves
