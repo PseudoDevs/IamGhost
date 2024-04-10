@@ -1,2 +1,2 @@
-Last updated: 2024-04-10 04:35:07
-Random Quote: Freeways have exits, so do relationships. The first exit, my personal favourite, is six hours in: You meet, you talk, you have sex, you exit when she's in the shower. - Barney Stinson
+Last updated: 2024-04-10 04:36:55
+Random Quote: Fear cuts deeper than swords.  -  Syrio Forel
