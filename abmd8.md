@@ -1,2 +1,3 @@
-Last updated: 2024-04-10 03:56:38
-Random Quote: The storms come and go, waves crash overhead, the big fish eat the little fish, and I keep on paddling.  -  Varys
+Last updated: 2024-04-10 03:57:11
+Random Quote: Gor Koresh: "This is no place for a child."
+Mando: "Wherever I go, he goes. I've been quested to bring him to his kind." - Din Djarin
