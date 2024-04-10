@@ -1,2 +1,2 @@
-Last updated: 2024-04-10 04:24:12
-Random Quote: It's only once you've stopped, that you realize how hard it is to start again. So you force yourself not to want it. - Ted Mosby
+Last updated: 2024-04-10 04:24:45
+Random Quote: A true man does what he will, not what he must.  -  Cersei Lannister
