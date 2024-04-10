@@ -1,2 +1,2 @@
-Last updated: 2024-04-10 04:26:47
-Random Quote: You don't get to blame your problems on anyone but yourself. - Allison Hargreeves
+Last updated: 2024-04-10 04:27:20
+Random Quote: Marshall: "I don't care if the dishes aren't done, okay? If you care, you do it."Lily: "Great, then I don't care if you have an orgasm. If you care, you do it." - Lily Aldrin
