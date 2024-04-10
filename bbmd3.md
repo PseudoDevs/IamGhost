@@ -1,2 +1,2 @@
-Last updated: 2024-04-10 04:06:38
-Random Quote: Ted: "Oh hey, where are you guys?"Barney: "We're in a fundraiser, helping young women raise money for community college."Ted: "Stripclub... nice!" - Barney Stinson
+Last updated: 2024-04-10 04:07:15
+Random Quote: It was the white cloak that soiled me, not the other way around.  -  Jaime Lannister
