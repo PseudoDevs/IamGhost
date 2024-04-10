@@ -1,2 +1,4 @@
-Last updated: 2024-04-10 04:57:26
-Random Quote: Friends tell the truth. - Eleven
+Last updated: 2024-04-10 04:57:59
+Random Quote: Bo-Katan: "I've scugged off a lot of Imperial warlords."
+Din: "They tend to get mad when you hijack their ships."
+Bo-Katan: "Now you tell me." - Bo-Katan
