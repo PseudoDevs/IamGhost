@@ -1,2 +1,2 @@
-Last updated: 2024-04-10 04:19:59
-Random Quote: The Empire improves every system it touches. Judge by any metric: safety, prosperity, trade, opportunity, peace. Compare Imperial rule to what is happening right now. Is the world more peaceful since the revolution? I see nothing but death and chaos. - The Client
+Last updated: 2024-04-10 04:21:11
+Random Quote: That's where The Boys come in: Spank the bastards when they get out of line. - Billy Butcher
