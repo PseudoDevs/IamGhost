@@ -1,2 +1,2 @@
-Last updated: 2024-04-10 04:26:15
-Random Quote: Marshall: "Yes, i want a ball-room and I want a band and I want shoes. I've been dreaming about this day since I was... like...Lily: "...a little girl?" - Lily Aldrin
+Last updated: 2024-04-10 04:26:47
+Random Quote: You don't get to blame your problems on anyone but yourself. - Allison Hargreeves
