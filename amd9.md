@@ -1,2 +1,2 @@
-Last updated: 2024-04-10 00:40:10
-Random Quote: Family members help each other, no questions asked. Because it makes you happy and your life depends on it. You have your plan, I know. Well, I have one, too. You’ve taught me that we help each other. That’s who we are. - Nairobi
+Last updated: 2024-04-10 00:41:21
+Random Quote: If you don’t know who I am, then maybe your best course would be to tread lightly. - Walter White
