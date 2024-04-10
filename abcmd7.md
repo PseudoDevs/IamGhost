@@ -1,2 +1,2 @@
-Last updated: 2024-04-10 04:12:39
-Random Quote: Nobody takes an intro class to get on any other path, but the path to not being hungover anymore. I learned that in my intro to something-ology class. - Marshall Eriksen
+Last updated: 2024-04-10 04:15:40
+Random Quote: Geniuses are always branded as crazy. - Pablo Escobar
