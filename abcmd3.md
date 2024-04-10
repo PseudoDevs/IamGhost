@@ -1,2 +1,2 @@
-Last updated: 2024-04-10 04:47:09
-Random Quote: Sandy Rivers: "I don't know what went wrong."Robin: "Well, proposing a three way was bad. Starting without us was worse. Finishing in the hallway was the nail in the coffin." - Robin Scherbatsky
+Last updated: 2024-04-10 04:47:42
+Random Quote: I asked him why he kept her close, if he thought her so grotesque.  He said that all his other knights wanted things of him, castles or honors or riches, but all that Brienne wanted was to die for him.  -  Loras Tyrell
