@@ -1,3 +1,2 @@
-Last updated: 2024-04-10 00:42:19
-Random Quote: Robin: "I can't believe my great grandparents still do that."
-Barney: "And I never imagined a walker being used for anything other than walking." - Barney Stinson
+Last updated: 2024-04-10 00:42:52
+Random Quote: His blood ran black.  Made him my brother as much as yours.  -  Yoren of the Night's Watch
