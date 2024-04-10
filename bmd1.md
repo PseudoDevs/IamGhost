@@ -1,2 +1,2 @@
-Last updated: 2024-04-10 00:40:17
-Random Quote: Edric Storm, they call him.  He is said to be the very image of my brother.  If men were to see him, and then look again at Joffrey and Tommen, they could not help but wonder, I would think.  -  Stannis Baratheon
+Last updated: 2024-04-10 00:40:50
+Random Quote: People say Hawkins is cursed. They're not way off. - Dustin Henderson
