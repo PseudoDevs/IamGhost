@@ -1,2 +1,2 @@
-Last updated: 2024-04-10 00:43:06
-Random Quote: Aunties are older Indian women who have no blood-relation to you. But are allowed to have opinions about your life and all your shortcomings. And you have to be nice to them because you're Indian. - John McEnroe
+Last updated: 2024-04-10 00:43:40
+Random Quote: Lily: "Whenever we board a flight, you lick the plane!"Marshall: "Have we crashed even once?" - Marshall Eriksen
