@@ -1,2 +1,2 @@
-Last updated: 2024-04-10 04:26:03
-Random Quote: People are making apocalypse jokes like there's no tomorrow. - Will Livingston
+Last updated: 2024-04-10 04:26:39
+Random Quote: Larry: "Where would you like me to put it then, Piper?"Piper: "Up your ass."Larry: "There's no room. Apparently, my head's already up there." - Larry Bloom
