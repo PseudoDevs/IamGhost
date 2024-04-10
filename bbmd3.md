@@ -1,2 +1,2 @@
-Last updated: 2024-04-10 00:42:57
-Random Quote: My only aim is to take many lives. The more the better I feel. - 
+Last updated: 2024-04-10 00:43:30
+Random Quote: Young or old, a true knight is sworn to protect those who are weaker than himself, or die in the attempt.  -  Brienne of Tarth
