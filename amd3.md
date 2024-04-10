@@ -1,2 +1,2 @@
-Last updated: 2024-04-10 04:03:48
-Random Quote: The only difference between us is, when I made bad decisions in life, I didn't get caught. - Susan Fischer
+Last updated: 2024-04-10 04:04:21
+Random Quote: When your enemies defy you, you must serve them steel and fire.  When they go to their knees, however, you must help them back to their feet.  Elsewise no man will ever bend the knee to you.  And any man who must say "I am the king" is no true king at all.  Aerys never understood that, but you will.  When I've won your war for you, we will restore the king's peace and the king's justice.  -  Tywin Lannister
