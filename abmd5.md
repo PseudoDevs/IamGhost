@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 10:06:11
-Random Quote: How many eyes does Lord Bloodraven have?  the riddle ran.  A thousand eyes, and one.  Some claimed the King's Hand was a student of the dark arts who could change his face, put on the likeness of a one - eyed dog, even turn into a mist.  Packs of gaunt gray wolves hunted down his foes, men said, and carrion crows spied for him and whispered secrets in his ear.  Most of the tales were only tales, Dunk did not doubt, but no one could doubt that Bloodraven had informers everywhere. 
+Last updated: 2024-04-11 10:06:45
+Random Quote: Obara would make Oldtown our father's funeral pyre, but I am not so greedy.  Four lives will suffice for me.  Lord Tywin's golden twins, as payment for Elia's children.  The old lion, for Elia herself.  And last of all the little king, for my father... only royal blood can wash out my father's murder.  -  Nymeria Sand
