@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 08:49:30
-Random Quote: Never give power to the big man. - Alfie Solomons
+Last updated: 2024-04-11 08:50:05
+Random Quote: Gods help you, Theon Greyjoy.  Now you are truly lost.  -  Rodrik Cassel
