@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 09:32:27
-Random Quote: Those men sitting in Mexico City might be done with me, but I'm not done with them. - Miguel Angel Felix Gallardo
+Last updated: 2024-04-11 09:33:02
+Random Quote: Gloria: "It seemd like all what we did was fight and make love. One time, I'm not kidding you, we fell out of the window together."Jay: "Which one were you doing?" - Jay Pritchett
