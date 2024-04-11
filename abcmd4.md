@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 10:34:17
-Random Quote: I'm a simple man making his way through the galaxy. Like my father before me. - Boba Fett
+Last updated: 2024-04-11 10:34:51
+Random Quote: You want to know the horrible truth?  I can't even remember what she looked like.  I only know she was the one thing I ever wanted, and seven kingdoms couldn't fill the hole she left behind.  -  Robert Baratheon
