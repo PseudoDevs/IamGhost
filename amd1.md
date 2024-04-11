@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 08:31:35
-Random Quote: For some women it was the ashes of my parents. For others it was the trophy from Wimbledon and believe it or not, for one busty dullard, it was both. Game, enormous set and match! - Barney Stinson
+Last updated: 2024-04-11 08:33:24
+Random Quote: No sword is strong until it's been tempered.  The Stark boy is a child.  No doubt he likes the sound of warhorns well enough, and the sight of his banners fluttering in the wind, but in the end it comes down to butcher's work.  I doubt he has the stomach for it.  -  Tywin Lannister
