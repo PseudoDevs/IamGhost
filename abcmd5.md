@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 08:47:38
-Random Quote: He has got to go. You need to be like:You are the weakest link goodbye!Punchy, the tribe has spoken.Please pack up your knives and go.Your work of art, didn't work for me.You're times up.I have to ask you to leave the mansion.You must leave the chateau.Your tour ends here.You've been chopped!You've been evicted from the Big Brother house.Your desert just didn't measure up.Sashay away!Give me your jacket and leave Hell's kitchen!You did not get a rose.You have been eliminated from the race.You are no longer in the running to be America's Next Top Model.You're fired.Auf Wiedersehen. - Barney Stinson
+Last updated: 2024-04-11 08:48:52
+Random Quote: Barney: "Before you know it, you'll be marrying a man who once ate a vanilla-scented candle!"Robin: "That was on me. I shouldn't have left it in the kitchen. Though, it was lit. Man, he dumb." - Robin Scherbatsky
