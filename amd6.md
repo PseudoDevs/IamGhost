@@ -1,3 +1,2 @@
-Last updated: 2024-04-11 08:07:58
-Random Quote: Wanda: "I had a brother. His name was Pietro."
-Geraldine: "He was killed by Ultron, wasn't he?" - Monica "Geraldine" Rambeau
+Last updated: 2024-04-11 08:08:34
+Random Quote: You want to be a bounty hunter? Make the best deal for yourself and survive! - Fennec Shand
