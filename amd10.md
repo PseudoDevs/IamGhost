@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 10:40:04
-Random Quote: You have your mother's common sense, but your father's devilment. I see them fighting. Let your mother win! - Polly Gray
+Last updated: 2024-04-11 10:40:37
+Random Quote: Hush, Alerie, don't take that tone with me.  And don't call me mother.  If I'd given birth to you, I'm sure I'd remember.  I'm only to blame for your husband, the lord oaf of Highgarden.  -  Olenna Tyrell

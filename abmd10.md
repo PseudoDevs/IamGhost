@@ -1,3 +1,2 @@
-Last updated: 2024-04-11 10:40:04
-Random Quote: Ellie: "There's not gonna be anything bad in here?"
-Joel: "Just you." - Joel Miller
+Last updated: 2024-04-11 10:40:37
+Random Quote: I just want to stand on top of the Wall and piss off the edge of the world.  -  Tyrion Lannister
