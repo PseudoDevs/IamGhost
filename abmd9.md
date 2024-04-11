@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 09:04:22
-Random Quote: The past is always with us, Tyler. Now, you can try and run away but it's always there. - Rendell Locke
+Last updated: 2024-04-11 09:04:59
+Random Quote: Marshall: "Jelly beans, fluffernutter, Gummi Bears, ginger snap... this is a grocery list!"Robin: "For who? A witch building a house in the forest?"Marshall: "Sugar helps me study."Barney: "This is like the shopping a ten-year-old does when his parents leave him alone for the weekend."Lily: "What parent leaves a ten-year-old alone for the weekend?"Barney: "And your mom was perfect." - Barney Stinson
