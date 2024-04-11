@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 09:53:44
-Random Quote: The Red God has his due, sweet girl, and only death may pay for life.  This girl took three that were his.  This girl must give three in their places.  Speak the names, and a man will do the rest.  -  Jaqen H'ghar
+Last updated: 2024-04-11 09:54:56
+Random Quote: Oh man, I am so excited that you're here! It has been forever since I have been around anyone even remotely fun![to Lily, Robin, Ted and Marshall] Huh... yes, offense! - Barney Stinson
