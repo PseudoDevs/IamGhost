@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 08:56:48
-Random Quote: Pardon me, but you really hurt my feelings. - Hannah Baker
+Last updated: 2024-04-11 08:57:21
+Random Quote: Elia of Dorne.  I killed her screaming whelp.  Then I raped her.  Then I smashed her fucking head in like this.  -  Gregor Clegane
