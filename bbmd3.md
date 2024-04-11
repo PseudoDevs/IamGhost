@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 08:01:59
-Random Quote: I don't care if you're so scared you foul your breeches, and I don't care if a thousand wildlings are coming over the walls howling for your blood, you get those birds off, or I swear I'll hunt you through all seven hells and make you damn sorry that you didn't.  -  Jeor Mormont
+Last updated: 2024-04-11 08:02:33
+Random Quote: Sometimes I don't know if I love how much I fear Claire, or fear how much I love her. - Phil Dunphy
