@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 09:27:08
-Random Quote: Lily: "That's Dirty Dancing!"Ted: "It was on last night."Marshall: "No, it was two nights ago. 'She's Like the Wind' has been stuck in my brain for about 40 hours. I just got it out; now it's back in. Damn you, Swayze!" - Marshall Eriksen
+Last updated: 2024-04-11 09:27:45
+Random Quote: Ted: "Every three years we sit down and Tril' it up big time, agreed?"Marshall: "Agreed-o!" - Marshall Eriksen
