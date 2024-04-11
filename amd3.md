@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 10:26:56
-Random Quote: Marshall: "Neither of you guys has any game, right? Or else you'd be married. Like me. If dating is the game, then marriage is winning the game."Ted: "Yeah, if you're playing in the women's league!" - Ted Mosby
+Last updated: 2024-04-11 10:28:05
+Random Quote: I never wanted any of it to change, but that's not how life works. - Ted Mosby
