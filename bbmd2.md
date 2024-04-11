@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 08:26:59
-Random Quote: Marshall: "Dude, if we fail this econ final, for the rest of our lives we're not gonna be able to... we won't know how to... do you even know what 'econ' is?"Ted: "No idea. We're screwed." - Ted Mosby
+Last updated: 2024-04-11 08:27:32
+Random Quote: Night gathers, and now my watch begins.  It shall not end until my death.  I shall take no wife, hold no lands, father no children.  I shall wear no crowns and win no glory.  I shall live and die at my post.  I am the sword in the darkness.  I am the watcher on the walls.  I am the fire that burns against the cold, the light that brings the dawn, the horn that wakes the sleepers, the shield that guards the realms of men.  I pledge my life and honor to the Night's Watch, for this night and all the nights to come.  -  Vow of the Night's Watch
