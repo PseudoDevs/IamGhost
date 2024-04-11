@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 08:53:48
-Random Quote: Having just any boyfriend, no matter who he is, is not going to make you happier or change who you are. - Fabiola Torres
+Last updated: 2024-04-11 08:54:26
+Random Quote: There is a savage beast in every man, and it stirs when you put a sword in his hand.  -  Jorah Mormont
