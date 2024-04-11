@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 08:55:04
-Random Quote: Since when did "hopeful" and "naive" become the same thing? I mean, why would you get into this business if not to save the world? That’s all I have ever wanted. - Starlight
+Last updated: 2024-04-11 08:56:56
+Random Quote: No sword is strong until it's been tempered.  The Stark boy is a child.  No doubt he likes the sound of warhorns well enough, and the sight of his banners fluttering in the wind, but in the end it comes down to butcher's work.  I doubt he has the stomach for it.  -  Tywin Lannister

@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 08:56:18
-Random Quote: Dead people are notoriously bad at returning calls. - Wednesday Addams
+Last updated: 2024-04-11 08:56:58
+Random Quote: A war is coming. I'm afraid your friends at Hawkins are very much in the eye of the storm. I don't know how to say this other than just to say it: without you, we can't win this war. - Sam Owens
