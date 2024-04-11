@@ -1,2 +1,3 @@
-Last updated: 2024-04-11 09:34:29
-Random Quote: Please.  A sword, that's all I ask.  Let me die as Theon, not as Reek.  -  Theon Greyjoy
+Last updated: 2024-04-11 09:35:02
+Random Quote: "I thought Mandalorians were honorable."
+Koska Reeves: "We are, kid. All it takes is a few credits." - Din Djarin
