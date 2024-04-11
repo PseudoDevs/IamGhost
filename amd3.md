@@ -1,2 +1,5 @@
-Last updated: 2024-04-11 08:24:41
-Random Quote: For a joke to work, it has to have part of truth and part of pain. - Berlin
+Last updated: 2024-04-11 08:25:19
+Random Quote: Dina: "You're infuriating."
+Ellie: "Have you met you?"
+Dina: "You make me want to go back outside into that blizzard."
+Ellie: "No one is stopping you." - Joel Miller
