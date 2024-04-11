@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 09:04:57
-Random Quote: There are things out there that our little minds will never comprehend - 
+Last updated: 2024-04-11 09:05:32
+Random Quote: Ran: "We were all young, tryin' to make a name for ourselves. But runnin' with a Mandalorian, that brought us some reputation."Mayfeld: "Oh, yeah? What did he get out of it?"Ran: "I asked him that one time. You remember what you said, Mando? Target Practice." - Din Djarin
