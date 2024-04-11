@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 10:41:48
-Random Quote: Whats your prescription, Dr. Estrogen? Eat Haagen-Dazs and watch "Love... actually" until your periods sync up? - Barney Stinson
+Last updated: 2024-04-11 10:42:54
+Random Quote: I'm going out of this world the same way I came into it: Buck-naked. Yeah. It's gonna be awesome. Open bar for the guys, open casket for the ladies. What up? - Barney Stinson
