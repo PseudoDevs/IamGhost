@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 10:48:06
-Random Quote: My father never bellowed like the Greatjon, but he was no less dangerous in his wroth.  -  Alys Karstark
+Last updated: 2024-04-11 10:48:40
+Random Quote: If you want my advice? Get out of your own goddamn drama for a minute. - Nicky Nichols
