@@ -1,7 +1,2 @@
-Last updated: 2024-04-11 10:17:13
-Random Quote: Seven years ago when Marshall and Lily got engaged Ted saw Robin across a crowded room and I said 'oh yeah you just know she likes it dirty', but Ted really liked her, so we played 'Have You met Ted?' They went to dinner, he walked her home, should have kissed her, didn't - lame.
-So he stole the Smurf penis, went back to her place, should have kissed her, didn't - lame.
-He threw three parties, they kissed on the roof but decided to be friends - lame.
-Then Ted wanted to take Robin to a wedding, she couldn't go, he went alone and met Victoria. Didn't kiss her either - lame.
-Not a great closer Ted. Then he finally kissed her, they started dating, she went to Germany. Ted kissed Robin, lost Victoria, Ted did a rain dance, got Robin. Ted and Robin broke up, Robin moved to Brazil came back with a Latin stud.
-Ted got jealous, got a tramp stamp, not really relevant to the story I just like mentioning it as much as possible. I hooked up with Robin, Ted and I stopped being friends, Ted got hit by a bus, we made up... Robin and I started dating and I got fat, her hair fell out, we broke up. Robin dated Don, I dated Nora. I cheated on her with Robin, I dumped Nora. Robin dated Kevin but not for long and then I met you and you took my Grandpa's watch, but I fell in love with you anyway and you let me fart in front of you and I asked you to marry me and you said 'yes', so we came over here to meet little Marvin and that's everything. Also I went on the Price Is Right and I won a dune buggy. - Barney Stinson
+Last updated: 2024-04-11 10:17:46
+Random Quote: The men of Westeros are ever rushing.  What good is this, I ask you?  He who hurries through life hurries to his grave.  -  Salladhor Saan
