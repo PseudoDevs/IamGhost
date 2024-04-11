@@ -1,2 +1,3 @@
-Last updated: 2024-04-11 09:15:20
-Random Quote: Our thinking is shaped by dualism. Entrance, exit. Black, white. Good, evil. Everything appears as opposite pairs. But that’s wrong. - H.G. Tannhaus
+Last updated: 2024-04-11 09:15:57
+Random Quote: Summer: "Someone out there is trying to kill us."
+Rick: "Someone's always trying to kill us." - Rick Sanchez
