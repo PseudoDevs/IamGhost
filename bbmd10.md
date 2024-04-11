@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 08:06:41
-Random Quote: Nothing is wrong with him, now turn back around before I break your neck. - Mary
+Last updated: 2024-04-11 08:07:54
+Random Quote: Many good men have been bad kings, and some bad men have been good kings.  -  Maester Aemon

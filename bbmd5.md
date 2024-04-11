@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 08:07:16
-Random Quote: Ted: "No, seriously Robin, you should get the slap. I mean, you're a great slapper. In fact, I want to study slapping under your tutelage. I want to be your slap-prentice."Robin: "Don't sell yourself short there, Teddy. You're a slapping rock star. Your name should be Eric Slapton." - Robin Scherbatsky
+Last updated: 2024-04-11 08:07:55
+Random Quote: Ted: "You know, as your best friend, if called upon, I'd be honored to raise Marvin."Robin: "If you want him to be raised by his underwear on a flagpole, Ted's your guy. If you want him pulling the chord on some other nerd's panties, I'm your guy."Barney: "I'll teach that kid how to be awesome in ways you and Lily never could. It's going to be legend- wait for it... no, I won't wait for it and neither should little baby Marvin, so maybe it's better if you two just die right now... -dary!" - Barney Stinson
