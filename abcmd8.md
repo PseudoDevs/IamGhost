@@ -1,4 +1,2 @@
-Last updated: 2024-04-11 09:14:43
-Random Quote: Joel: "Long way or short way?"
-Tess: "I mean, it's the long way or the 'we're fuckin' dead' way."
-Ellie: "Well, I vote long way just based on that limited information." - Ellie Williams
+Last updated: 2024-04-11 09:15:20
+Random Quote: Because there's no way watching it can be more fun than playing it yourself. - Oh Il-nam
