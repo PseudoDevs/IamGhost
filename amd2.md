@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 08:40:53
-Random Quote: You ever touch me again, I will burn your eyes out! - Starlight
+Last updated: 2024-04-11 08:41:33
+Random Quote: When one chooses to walk the way of the Mandalore, you are both hunter and prey. How can one be a coward if one chooses this way of life? - The Armorer
