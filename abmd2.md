@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 08:01:13
-Random Quote: I am Bo-Katan of Clan Kryze. I was born on Mandalore and fought in the Purge. I am the last of my line. - Bo-Katan
+Last updated: 2024-04-11 08:01:48
+Random Quote: We can only die.  Why else do we don these black cloaks, but to die in defense of the realm?  -  Qhorin Halfhand
