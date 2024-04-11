@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 10:14:01
-Random Quote: Didn't you notice? Those jerks with masks came in and removed the beds of the people who died. Make on mistake out there, and yours is next. - Jang Deok-su
+Last updated: 2024-04-11 10:14:35
+Random Quote: If the cancer doesn't get him, it'll be the cops or a bullet to the head. - Mike Ehrmantraut
