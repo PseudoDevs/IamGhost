@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 09:34:16
-Random Quote: There are so many great things to do with the human mouth, why waste it on talking? - Barney Stinson
+Last updated: 2024-04-11 09:37:20
+Random Quote: If you wish to give up on playing, the 25.5 billion won will be sent to the bereaved families of the late players. - Jang Deok-su
