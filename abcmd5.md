@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 10:10:23
-Random Quote: Robert... he is in my dreams as well.  Laughing.  Drinking.  Boasting.  Those were the things he was best at.  Those, and fighting.  I never bested him at anything.  -  Stannis Baratheon
+Last updated: 2024-04-11 10:10:56
+Random Quote: In all the world, violent men are the easiest to deal with. - Irene O'Donnell
