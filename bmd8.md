@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 10:56:32
-Random Quote: Eleven: "Promise?"Mike: "It means something that you can't break. Ever." - Mike Wheeler
+Last updated: 2024-04-11 10:57:05
+Random Quote: Oh, Cersei is lovely to look at, truly, but cold... the way she guards her cunt, you'd think she had all the gold of Casterly Rock between her legs.  -  Robert Baratheon
