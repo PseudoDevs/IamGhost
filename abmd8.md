@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 10:02:43
-Random Quote: The plan was to kill you and take the kid. But after what happened last night, I couldn't go through with it. - Greef Karga
+Last updated: 2024-04-11 10:03:53
+Random Quote: If you keep all your treasures in one purse, you only make it easier for those who would rob you.  -  Robb Stark
