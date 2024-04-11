@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 08:00:45
-Random Quote: I'm not surviving, I'm just existing. - Brook Soso
+Last updated: 2024-04-11 08:01:17
+Random Quote: You could turn King's Landing upside down and not find a single man with a mockingbird sewn over his heart but that does not mean I am friendless.  -  Petyr Baelish
