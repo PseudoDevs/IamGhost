@@ -1,6 +1,2 @@
-Last updated: 2024-04-11 10:46:51
-Random Quote: Sam: "They might be a part of the big three."
-Bucky: "What big three?"
-Sam: "Androids, aliens and wizards."
-Bucky: "That's not a thing."
-Sam: "That's definitely a thing." - Sam Wilson
+Last updated: 2024-04-11 10:47:28
+Random Quote: Did you just bring a bomb into a hospital? - Jesse Pinkman
