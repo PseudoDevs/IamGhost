@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 10:42:24
-Random Quote: Young I was, and vain, but the sea washed my follies and my vanities away.  That man drowned, nephew.  His lungs filled with seawater, and the fish ate the scales off his eyes.  When I rose again, I saw clearly.  -  Aeron Greyjoy
+Last updated: 2024-04-11 10:42:57
+Random Quote: You all know exactly who I am. Say my name. - Walter White
