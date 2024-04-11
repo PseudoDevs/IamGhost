@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 10:51:42
-Random Quote: That everything’s repeating That this has all happened before Like a massive déjĂ  Vu - 
+Last updated: 2024-04-11 10:52:15
+Random Quote: Most of him has gone into the tree... he has lived beyond his mortal span, and yet he lingers.  For us, for you, for the realms of men.  Only a little strength remains in his flesh.  He has a thousand eyes and one, but there is much to watch.  One day you will know.  -  Leaf
