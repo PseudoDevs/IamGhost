@@ -1,3 +1,2 @@
-Last updated: 2024-04-11 09:23:08
-Random Quote: "I thought Mandalorians were honorable."
-Koska Reeves: "We are, kid. All it takes is a few credits." - Din Djarin
+Last updated: 2024-04-11 09:23:41
+Random Quote: I heard enough to know she saved your a-s. - Mike Ehrmantraut
