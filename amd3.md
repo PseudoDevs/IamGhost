@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 08:31:38
-Random Quote: You know how sometimes you'll meet a girl and there'll be that one bewitching little detail that'll make you fall in love with her instantly? You know, a little freckle on the nose, the lilt of her laugh, the way she pronounces a certain word or phrase... - Ted Mosby
+Last updated: 2024-04-11 08:32:12
+Random Quote: Think of me as Yoda - only, instead of being little and green, I wear suits and I'm awesome. I'm your bro. I'm Broda. - Barney Stinson
