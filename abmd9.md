@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 10:32:36
-Random Quote: Robin: "Have plans with Don on Saturday, he's making me Chinese."Lily: "I'll assume you're talking about food, otherwise, I have some follow-up-questions." - Lily Aldrin
+Last updated: 2024-04-11 10:33:43
+Random Quote: Jaime, sweetling, I have known you since you were a babe at Joanna's breast.  You smile like Gerion and fight like Tyg and there's some of Keven in you, else you would not wear that cloak... but Tyrion is Tywin's son, not you.  I said that once to your father's face, and he would not speak to me for half a year.  -  Genna Lannister
