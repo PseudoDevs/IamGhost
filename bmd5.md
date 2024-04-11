@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 08:54:24
-Random Quote: Barney: "Her butt?"Marshall: "What is it, too much?"Lily: "Too low?"Robin: "Or ist it an issue of access?" - Robin Scherbatsky
+Last updated: 2024-04-11 08:55:02
+Random Quote: A family is like a small business. And with a small business, at times, there comes a bit of transition. - Marty Byrde
