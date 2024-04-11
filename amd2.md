@@ -1,2 +1,5 @@
-Last updated: 2024-04-11 08:15:17
-Random Quote: Heroes are not born, they're forged in darkness. Shaped in battle. Defined by sacrifice. - The Watcher
+Last updated: 2024-04-11 08:16:22
+Random Quote: Morty: "I'm dying, Rick!"
+Rick: "People who are really dying don't keep bringing it up."
+Morty: "Is that true?"
+Rick: "I don't know. I'm just usually around people that die faster." - Rick Sanchez
