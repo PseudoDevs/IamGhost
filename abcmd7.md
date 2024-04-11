@@ -1,2 +1,3 @@
-Last updated: 2024-04-11 10:34:17
-Random Quote: You know, I always thought that tea was going to taste like hot brown water, and you know what? I was right. It's horrible. - Rebecca Welton
+Last updated: 2024-04-11 10:34:51
+Random Quote: Enid Sinclair: "Want to take a stab at being social?"
+Wednesday: "I do like stabbing. The social part, not so much." - Wednesday Addams
