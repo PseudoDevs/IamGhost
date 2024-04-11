@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 09:39:40
-Random Quote: Only when we’ve freed ourselves of emotion can we be truly free. Only when you’re willing to sacrifice what you hold dearest. - Adam
+Last updated: 2024-04-11 09:40:13
+Random Quote: Why should I go running to my aunt as if I were a beggar?  My claim is better than her own.  Let her come to me... in Westeros.  -  Aegon Targaryen
