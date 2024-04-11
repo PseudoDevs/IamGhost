@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 10:51:00
-Random Quote: I was a better smuggler than a knight, he had written to his wife, a better knight than a King's hand, a better King's hand than a husband.  I am so sorry Marya, I have loved you.  Please forgive the wrongs I did you.  -  Davos Seaworth
+Last updated: 2024-04-11 10:51:36
+Random Quote: We have to control this fing world, or it will control you. And if you don't protect yourself, it makes a mess and breaks you. - Miguel Angel Felix Gallardo
