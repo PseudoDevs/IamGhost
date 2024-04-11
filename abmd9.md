@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 08:32:27
-Random Quote: I don't want to be good. I am going to be great. - Pablo Escobar
+Last updated: 2024-04-11 08:33:01
+Random Quote: Welcome to the church of MathologyToday I'd like to talk about prime numbers and why they give us joy. - Sheldon
