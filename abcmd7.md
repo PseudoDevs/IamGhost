@@ -1,4 +1,2 @@
-Last updated: 2024-04-11 08:27:54
-Random Quote: Rick: "Wait a minute! Is that Mountain Dew in my quantum-transport-solution?"
-Morty: "I saw you were marking the level so I had to top it off."
-Rick: "Top it off? Do you know how dangerously toxic this stuff is? And you added it to my portal fluid?" - Rick Sanchez
+Last updated: 2024-04-11 08:28:31
+Random Quote: I got thirty this time, men and boys all bound for the Wall, and don't be thinking they're like that bastard brother o' yours.  Lord Eddard gave me pick o' the dungeons, and I didn't find no little lordlings down there.  This log, half o' them would turn you over to the queen quick as spit for a pardon and maybe a few silvers.  The other half'd do the same, only they'd rape you first.  -  Yoren of the Night's Watch
