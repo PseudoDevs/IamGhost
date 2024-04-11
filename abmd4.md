@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 10:48:01
-Random Quote: Fine I'll fill her in and I am so angry I am not even goin' to make a joke about "filling her in"... which I did three times last night. Self-five! - Barney Stinson
+Last updated: 2024-04-11 10:48:35
+Random Quote: When something seems too perfect, it's usually anything but. - Allison Hargreeves
