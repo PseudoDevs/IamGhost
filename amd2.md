@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 09:39:33
-Random Quote: People taking power who don't deserve it. It never ends well. - Jérôme
+Last updated: 2024-04-11 09:40:06
+Random Quote: It's not Aerys I rue, it's Robert... Why is it no one names Robert oathbreaker?  He tore the realm apart, yet I am the one with shit for honor.  -  Jaime Lannister
