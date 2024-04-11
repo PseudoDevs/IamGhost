@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 10:55:46
-Random Quote: Love doesn't make sense. I mean, you can't logic your way into or out of it. Love ist totally nonsensical, but we have to keep doing it or else we're lost and love is dead and humanity should just pack it in. Because love is the best thing we do. - Ted Mosby
+Last updated: 2024-04-11 10:56:23
+Random Quote: And Stannis has always felt he was cheated of Storm's End.  The ancestral seat of House Baratheon, his by rights... if you knew how many times he came to Robert singing that same dull song in that gloomy aggrieved tone he has.  When Robert gave the place to Renly, Stannis clenched his jaw so tight I thought his teeth would shatter.  -  Cersei Lannister
