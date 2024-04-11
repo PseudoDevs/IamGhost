@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 08:33:38
-Random Quote: I like my testicles attached to my body, rather than rolling around next to some eyeliner in Robin's purse. Stinson out! - Barney Stinson
+Last updated: 2024-04-11 08:34:11
+Random Quote: Serve, Obey, Protect.  Simple vows for a simple man.  -  Areo Hotah
