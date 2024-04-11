@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 09:24:40
-Random Quote: This is the one that you saved? You are as its father. A clan of two. But you have removed your helmet. Then you are a Mandalorian no more. - The Armorer
+Last updated: 2024-04-11 09:25:54
+Random Quote: Those men sitting in Mexico City might be done with me, but I'm not done with them. - Miguel Angel Felix Gallardo
