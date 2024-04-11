@@ -1,2 +1,3 @@
-Last updated: 2024-04-11 10:29:55
-Random Quote: That was the night I was born. I rose like a phoenix from her mentholated bosom and strode into the world, Armani-clad and fully awesome. - Barney Stinson
+Last updated: 2024-04-11 10:30:29
+Random Quote: Summer: "I think it's in our best interest to work as a team."
+Morty: "Yeah, most people would call that 'family'." - Morty Smith
