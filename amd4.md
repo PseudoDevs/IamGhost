@@ -1,6 +1,2 @@
-Last updated: 2024-04-11 10:57:32
-Random Quote: You lie to your husband all the time...
-"That shirt looks great on you."
-"I love your mom."
-"I never fantasize about Barney when we're doing it."
-Sound familiar, Pinocchio? - Barney Stinson
+Last updated: 2024-04-11 10:58:07
+Random Quote: My skin has gone from porcelain, to ivory, to steel.  -  Sansa Stark
