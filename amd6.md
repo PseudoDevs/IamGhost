@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 10:57:20
-Random Quote: It's like, I think about sex 24/7, but I don't really know how to do it. In the movies, you always see the girl kiss her way down the guy's body, but then, she moves off-screen. Is she stopping at the penis or kissing all the way to the foot? - Devi Vishwakumar
+Last updated: 2024-04-11 10:57:53
+Random Quote: Barney: "I scoured the dating sites, using my own personal logarithms, factoring in a broad spectrum of variables, filtering out undesirable high-risk negatives, guaranteeing a success-rate of eighty-thr..."Ted: "...you picked the girls that showed the most boob." - Ted Mosby
