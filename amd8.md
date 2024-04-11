@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 10:26:55
-Random Quote: We should have never gotten on this ship. It was a mistake. All of it, a huge mistake. - Yuk Je
+Last updated: 2024-04-11 10:27:29
+Random Quote: Power resides where men believe it resides... It's a trick, a shadow on the wall.  -  Varys
