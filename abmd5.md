@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 09:31:17
-Random Quote: That's what they do, don't they? They show you the world, and then they tell you you can't have it. - Virginia Wilson
+Last updated: 2024-04-11 09:32:28
+Random Quote: Quinn: "In the event of divorce, Miss Garvey shall get full custody of Mr. Stinson's suits."Barney: "Why? What would you do with them?"Quinn: "Nothing. I'd just sit around and watch them go out of style." - Quinn Garvey
