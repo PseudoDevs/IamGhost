@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 09:19:45
-Random Quote: Summer friends will melt away like summer snows, but winter friends are friends forever.  -  Mully
+Last updated: 2024-04-11 09:20:19
+Random Quote: Quentyn had never felt so much a boy as when he'd stood before Daenerys Targaryen, pleading for her hand.  The thought of bedding her terrified him almost as much as her dragons had.  -  Quentyn Martell
