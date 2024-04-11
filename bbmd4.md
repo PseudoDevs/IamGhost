@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 10:55:45
-Random Quote: This is Hawkins, okay? You wanna know the worst thing that's ever happened here in the four years I've been working here? It was when an owl attacked Eleanor Gillespie's head because it though that her hair was a nest. - Jim Hopper
+Last updated: 2024-04-11 10:56:23
+Random Quote: There's nothing more powerful than a fat girl who doesn't give a f. - Kat Hernandez
