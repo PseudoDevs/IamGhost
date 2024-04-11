@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 08:34:38
-Random Quote: Your innocence may be as plain as the scar on your face, but it will not save you.  No more than your father will.  But I might.  Not as your judge.  As your champion.  -  Oberyn Martell
+Last updated: 2024-04-11 08:35:16
+Random Quote: I don't have a phone. I refuse to be a slave to technology. - Wednesday Addams
