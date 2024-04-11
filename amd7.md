@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 09:58:17
-Random Quote: You're Reek.  You'll always be Reek, no matter how sweet you smell.  Your nose may lie to you.  Remember your name.  Remember who you are.  -  Ramsay Bolton
+Last updated: 2024-04-11 09:58:50
+Random Quote: Dude, ditch Tiffany and join the Barnacle in the Pharma-Girl-Free-For-All. Side effects may include: loss of clothing, rug burns, shortness of breath and soar abdominals the next morning. What in the world is up! - Barney Stinson
