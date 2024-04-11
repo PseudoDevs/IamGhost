@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 08:19:53
-Random Quote: I'm going out of this world the same way I came into it: Buck-naked. Yeah. It's gonna be awesome. Open bar for the guys, open casket for the ladies. What up? - Barney Stinson
+Last updated: 2024-04-11 08:20:27
+Random Quote: You have to be as bad as them above in order to survive. - Polly Gray
