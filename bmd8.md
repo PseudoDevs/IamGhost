@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 08:59:38
-Random Quote: The Horned Lord once said that sorcery is a sword without a hilt.  There is no safe way to grasp it.  -  Dalla
+Last updated: 2024-04-11 09:00:11
+Random Quote: I'm KFC baby - you don't mess with the Colonel's recipe! - Barney Stinson
