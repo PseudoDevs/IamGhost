@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 08:36:23
-Random Quote: Take care of this little one or maybe, it'll take care of you. - Greef Karga
+Last updated: 2024-04-11 08:36:56
+Random Quote: Do you remember that cave?  We should have stayed in that cave.  I told you so.  -  Ygritte
