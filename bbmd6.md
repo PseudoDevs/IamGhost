@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 09:50:42
-Random Quote: You wear your honor like a suit of armor, Stark.  You think it keeps you safe, but all it does is weigh you down and make it hard for you to move.  -  Petyr Baelish
+Last updated: 2024-04-11 09:51:18
+Random Quote: If we're together long enough I hope that one day you see yourself like I do. - Kevin
