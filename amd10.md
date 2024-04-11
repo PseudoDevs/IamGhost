@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 10:30:41
-Random Quote: My name is ASAC Schrader, and you can go f*ck yourself. - Hank Schrader
+Last updated: 2024-04-11 10:31:14
+Random Quote: A godly man got no cause to fear such.  I said as much to that Mance Rayder once, when he come sniffing round.  He never listened, no more'n you crows with your swords and your bloody fires.  That won't help you none when the white cold comes.  Only the gods will help you then.  You best get right with the gods.  -  Craster
