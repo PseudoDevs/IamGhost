@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 09:40:28
-Random Quote: Nobody likes to be alone, especially after a breakup. But that's when we discover who we really are and what we really want. - Ted Mosby
+Last updated: 2024-04-11 09:42:18
+Random Quote: Now my bastards presume to teach me courtesy.  I'll speak any way I like, damn you.  I've had three kings to guest in my life, and queens as well, do you think I require lessons from the likes of you, Ryger?  Your mother was milking goats the first time I gave her my seed.  -  Walder Frey
