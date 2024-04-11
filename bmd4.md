@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 10:26:38
-Random Quote: When you're younger, everything feels so permanent. But as you get older, you begin to realize nothing is and everyone you love can drift away. - Rue Bennett
+Last updated: 2024-04-11 10:27:11
+Random Quote: Friends... they tell each other things. Things that parents don't know. - Mike Wheeler
