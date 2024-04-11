@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 10:42:13
-Random Quote: Let's have a toast. For the hits life throws our way. With time, they're what make you stronger, young man. - Don Neto
+Last updated: 2024-04-11 10:42:47
+Random Quote: I was a better smuggler than a knight, he had written to his wife, a better knight than a King's hand, a better King's hand than a husband.  I am so sorry Marya, I have loved you.  Please forgive the wrongs I did you.  -  Davos Seaworth

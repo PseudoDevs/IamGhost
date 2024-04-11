@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 10:42:13
-Random Quote: Marshall: "Can we borrow your air mattress? My mom's coming into town for a few days."Ted: "Absolutely not!"Lily: "Bummer, I guess she can't stay with us. Hey, look what I just found! A list of hotels and other creative housing options."Marshall: "Baby, my mom is not staying at a hotel. Or our storage unit." - Lily Aldrin
+Last updated: 2024-04-11 10:42:47
+Random Quote: We are not husband and wife... anymore. We're just business partners. And our job is to raise those kids. - Marty Byrde
