@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 08:13:51
-Random Quote: Oh man, I am so excited that you're here! It has been forever since I have been around anyone even remotely fun![to Lily, Robin, Ted and Marshall] Huh... yes, offense! - Barney Stinson
+Last updated: 2024-04-11 08:14:24
+Random Quote: When Barney overhears that Ted and Robin have a secret to reveal at the wedding reception, he begins to guess what it might be. - Lily Aldrin
