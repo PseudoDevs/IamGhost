@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 10:10:44
-Random Quote: What you have to do is show these suckers what you’re capable of. Show them you’re not scared. - Nairobi
+Last updated: 2024-04-11 10:11:17
+Random Quote: Lily: "We'll all have a wedding dress camp-out. It'll be fun!"Barney: "I can't go. I've got this thing."Lily: "What thing?"Barney: "A penis!" - Barney Stinson
