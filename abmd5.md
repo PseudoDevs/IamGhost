@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 08:06:49
-Random Quote: I'm not him, I'm not the turncloak, he died at Winterfell.  My name is Reek.  It rhymes with freak.  -  Reek
+Last updated: 2024-04-11 08:07:55
+Random Quote: Being alone like that shows you what kind of a person you are. - Maura Franklin
