@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 08:12:22
-Random Quote: You ever hear about Wall Street, Morty? You know what those guys do in their fancy boardrooms? They take their balls and they dip them in cocaine and wipe them all over each other. - Rick Sanchez
+Last updated: 2024-04-11 08:12:58
+Random Quote: I will kill your wife, I will kill your son, I will kill your infant daughter. - Gustavo Fring
