@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 10:27:34
-Random Quote: Gloria: "It seemd like all what we did was fight and make love. One time, I'm not kidding you, we fell out of the window together."Jay: "Which one were you doing?" - Jay Pritchett
+Last updated: 2024-04-11 10:28:08
+Random Quote: A good lord comforts and protects the weak and helpless.  -  Maester Luwin
