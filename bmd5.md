@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 09:01:52
-Random Quote: Nick: "So, I went to this fortune teller today and she said there was a curse on me."Robin: "Did she sell you something to ward off the curse?"Nick: "It's like you're a fortune teller, too." - Nick
+Last updated: 2024-04-11 09:02:30
+Random Quote: Cara: "It's gonna break his little heart."Mando: "He'll get over it. We all do." - Din Djarin
