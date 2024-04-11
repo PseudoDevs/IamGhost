@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 09:29:50
-Random Quote: Rick: "Hey Morty, quick favor."Morty: "What, cover me in gasoline and spiders? Fine, yeah, I'm in."Rick: "Wasn't my first pitch but hey, not gonna waste this opportunity." - Rick Sanchez
+Last updated: 2024-04-11 09:30:23
+Random Quote: There's kids playing hockey in the back. It's like you want us to make fun of you! - Barney Stinson
