@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 08:18:54
-Random Quote: Sometimes people make decisions, shit happens, and we gotta act accordingly. - Marty Byrde
+Last updated: 2024-04-11 08:19:27
+Random Quote: Think of me as Yoda - only, instead of being little and green, I wear suits and I'm awesome. I'm your bro. I'm Broda. - Barney Stinson
