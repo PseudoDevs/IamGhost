@@ -1,4 +1,2 @@
-Last updated: 2024-04-11 08:44:14
-Random Quote: Rebecca: "So, I spoke to the owner of The Sun."
-Ted: "You spoke to God?!"
-Rebecca: "No, the newspaper." - Rebecca Welton
+Last updated: 2024-04-11 08:44:46
+Random Quote: Marshall: "Let the dinnertainment begin!"Barney: "That reminds me there's this other restaurant we should try sometime. What they do is, they cook you a meal, in a little room called a 'kitchen'." - Barney Stinson
