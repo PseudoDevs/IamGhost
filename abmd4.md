@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 09:46:43
-Random Quote: When you play the game of thrones, you win or you die.  There is no middle ground.  -  Cersei Lannister
+Last updated: 2024-04-11 09:47:16
+Random Quote: Grey Wind ate two of his fingers, and he laughed about it.  -  Robb Stark on Greatjon Umber
