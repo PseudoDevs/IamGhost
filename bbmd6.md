@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 10:12:46
-Random Quote: Barney: "Or it's a chance to mess with her head by showing up with someone hotter. Even better. Triple-threat: hotter and bigger boobs."Ted: "That's only two?"Barney: "Count again!" - Barney Stinson
+Last updated: 2024-04-11 10:13:20
+Random Quote: Our secrecy is our survival. our survival is our strength. - The Armorer
