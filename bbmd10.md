@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 08:42:09
-Random Quote: Mrs. Buckminster was a spoonful of sugar. But so far, everyone we can afford on this website HeyNannyNanny.com is "Scary Poppins". - Lily Aldrin
+Last updated: 2024-04-11 08:43:24
+Random Quote: What the hell is the matter with you? You tryin' out for the retard Olympics? - George 'Pornstache' Mendez
