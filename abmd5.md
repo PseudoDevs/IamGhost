@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 09:33:04
-Random Quote: "I never win anything.  The gods always smiled on Watt, though.  When the wildlings knocked him off the Bridge of Skulls, somehow he landed in a nice deep pool of water.  How lucky was that, missing all those rocks?"  "Was it a long fall?  Did landing in the pool of water save his life?"  "No.  He was dead already, from that axe in his head.  Still, it was pretty lucky, missing the rocks."  -  Dolorous Edd and Grenn
+Last updated: 2024-04-11 09:34:52
+Random Quote: I have served six kings, but here before us lies the greatest man I ever knew.  Lord Tywin wore no crown, yet he was all a king should be.  -  Grand Maester Pycelle
