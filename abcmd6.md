@@ -1,2 +1,3 @@
-Last updated: 2024-04-11 09:23:10
-Random Quote: The stone is strong... the roots of the trees grow deep, and under the ground the Kings of Winter sit their thrones.  So long as those remained, Winterfell remained.  It was not dead, just broken.  Like me... I'm not dead either.  -  Bran Stark
+Last updated: 2024-04-11 09:23:44
+Random Quote: Alex: "What's Jagermeister?"
+Phil: "Well, you know how in a fairytale there's always a potion that makes the princess fall asleep and then the guys start kissing her? Well, this is like that, except you don't wake up in a castle, you wake up in a frat house with a bad reputation." - Phil Dunphy
