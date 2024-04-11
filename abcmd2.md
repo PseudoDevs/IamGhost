@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 08:07:53
-Random Quote: Sometimes our best decisions are the ones that don't make any sense at all. - Ted Mosby
+Last updated: 2024-04-11 08:08:30
+Random Quote: Qhorin was my enemy.  But also my brother, once.  So... shall I thank you for killing him, Jon Snow?  Or curse you?  -  Mance Rayder
