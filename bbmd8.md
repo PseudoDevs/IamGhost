@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 10:35:45
-Random Quote: Please.  A sword, that's all I ask.  Let me die as Theon, not as Reek.  -  Theon Greyjoy
+Last updated: 2024-04-11 10:36:17
+Random Quote: If ever a man deserved to die screaming, it was Gregor Clegane.  -  Doran Martell
