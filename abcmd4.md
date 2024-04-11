@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 08:08:38
-Random Quote: When a maester donned his collar, he put aside the hope of children, yet Cressen had oft felt a father nonetheless.  Robert, Stannis, Renly: three sons he had raised after the angry sea claimed Lord Steffon.  -  Maester Cressen
+Last updated: 2024-04-11 08:09:13
+Random Quote: If you don't push, I will shove that baby up your throat and pull it out of your mouth! - Dr. Sonya
