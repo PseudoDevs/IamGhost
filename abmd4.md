@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 08:42:45
-Random Quote: There's nothing more powerful than a fat girl who doesn't give a f. - Kat Hernandez
+Last updated: 2024-04-11 08:43:22
+Random Quote: My father won all the battles.  He killed Prince Rhaegar and took the crown, while your father was hiding under Casterly Rock.  A strong king acts boldly, he doesn't just talk.  -  Joffrey Baratheon
