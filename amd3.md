@@ -1,2 +1,3 @@
-Last updated: 2024-04-11 11:01:08
-Random Quote: Just when you thought things couldn't get any worse, we gotta go to Jersey. - Hulk
+Last updated: 2024-04-11 11:02:20
+Random Quote: Billy: "Halloween's a magical holiday. All about family, friends, and the thrill of getting to be someone else for a day."
+Tommy: "Wrong! Halloween's about candy. And scaring people, but mostly candy." - Tommy Maximoff
