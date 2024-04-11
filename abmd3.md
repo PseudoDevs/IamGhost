@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 08:32:47
-Random Quote: Nobody takes an intro class to get on any other path, but the path to not being hungover anymore. I learned that in my intro to something-ology class. - Marshall Eriksen
+Last updated: 2024-04-11 08:34:02
+Random Quote: I don't know anything about norse gods, but I do know how to bring the thunder. - Thor
