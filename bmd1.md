@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 08:25:40
-Random Quote: Not all final girls make it to the end by fighting the monster. Some of them hide. They stay quiet when their family needs them. They're not waiting for their moment. They don't even know if another moment's coming. They just close their eyes and wait for it to be over. Truth is, some final girls are cowards. - Kinsey Locke
+Last updated: 2024-04-11 08:26:46
+Random Quote: I'm just saying, love is a million things. - Maddy Perez
