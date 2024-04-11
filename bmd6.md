@@ -1,4 +1,2 @@
-Last updated: 2024-04-11 09:38:35
-Random Quote: Oh Il-nam: "As a kid, I'm willing to bet you got spanked a lot."
-Seong Gi-hun: "How did you know?"
-Oh Il-nam: "My son did too. He was just like you, friend." - Oh Il-nam
+Last updated: 2024-04-11 09:40:27
+Random Quote: When you meet someone special, suddenly life is full of firsts: The first kiss, the first night together, the first weekend together. - Ted Mosby
