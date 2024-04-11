@@ -1,3 +1,2 @@
-Last updated: 2024-04-11 08:03:35
-Random Quote: Tommy: "I'll have some men watch her house 'til the danger passes."
-Polly: "'Til the danger passes. That'll be the bloody day." - Polly Gray
+Last updated: 2024-04-11 08:04:13
+Random Quote: I don't wanna be choosing between two girls, I wanna be a complete head over heels idiot for one! - Ted Mosby

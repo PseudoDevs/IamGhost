@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 08:02:58
-Random Quote: Barney: "Whoa, Ted, that thing you're packing is way too big to fit in that box."Ted: "Yeah, that's what your mom said."Barney: "How dare you?"Ted: "No, she actually said that." - Ted Mosby
+Last updated: 2024-04-11 08:04:12
+Random Quote: Any time, a girl wants to get back at her ex-bodyfriends, we'll be there.Any time, a girl wants to solve her father-issues through promiscuity and binge drinking we will be there.Any time a bachelorette party drives through the city in a limo, sticking their heads out the sunroof, shouting 'what's up New York?', we will be what is 'up' New York! - Barney Stinson
