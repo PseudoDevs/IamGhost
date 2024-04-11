@@ -1,3 +1,2 @@
-Last updated: 2024-04-11 08:27:09
-Random Quote: Darcy Lewis: "No one would notice if you blew up a Dakota. Honestly, I can't tell them apart."
-Carol Danvers: "South Dakota is on the bottom." - Captain Marvel
+Last updated: 2024-04-11 08:27:42
+Random Quote: The god took me deep beneath the waves and drowned the worthless thing I was.  When he cast me forth again he gave me eyes to see, ears to hear, and a voice to spread his word, that I might be his prophet and teach his truth to those who have forgotten.  I was not made to sit upon the Seastone Chair... no more than Euron Crow's Eye.  For I have heard the god, who says, no godless man may sit my Seastone Chair.  -  Aeron Greyjoy
