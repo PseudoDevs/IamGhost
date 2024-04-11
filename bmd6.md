@@ -1,2 +1,4 @@
-Last updated: 2024-04-11 09:37:59
-Random Quote: Listen, you have a choice, okay? You can pay up now or bleed to death in court. - Saul Goodman
+Last updated: 2024-04-11 09:38:35
+Random Quote: Oh Il-nam: "As a kid, I'm willing to bet you got spanked a lot."
+Seong Gi-hun: "How did you know?"
+Oh Il-nam: "My son did too. He was just like you, friend." - Oh Il-nam
