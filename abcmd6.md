@@ -1,6 +1,2 @@
-Last updated: 2024-04-11 09:32:11
-Random Quote: Polly: "Six."
-John: "Six what?"
-Polly: "Six questions since you walked through that door. Soon you'll have to start being the man with the answers."
-John: "Why?"
-Polly: "Seven." - Polly Gray
+Last updated: 2024-04-11 09:32:44
+Random Quote: When the sun has set, no candle can replace it.  -  Loras Tyrell
