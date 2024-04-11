@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 09:53:07
-Random Quote: I never asked for this crown.  Gold is cold and heavy on the head, but so long as I am the king, I have a duty... if I must sacrifice one child to the flames to save a million from the dark... sacrifice... is never easy, Davos.  Or it is no true sacrifice.  -  Stannis Baratheon
+Last updated: 2024-04-11 09:53:43
+Random Quote: There are moments in life we should just be able to have a damn remote control, so you could pause it. Even if just for five minutes. But sometimes things happen with irreverent obscenity and there’s nothing you can do to help it. - Tokyo
