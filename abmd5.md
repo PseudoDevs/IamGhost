@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 09:20:10
-Random Quote: Welcome to the church of MathologyToday I'd like to talk about prime numbers and why they give us joy. - Sheldon
+Last updated: 2024-04-11 09:20:43
+Random Quote: Where has it gotten me? Nowhere. I can't talk to the person I love. People still don't take me seriously. I wanna be numb again. - Klaus Hargreeves
