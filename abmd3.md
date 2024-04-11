@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 10:29:47
-Random Quote: In short, the god mankind has prayed to for thousands of years the god that everything is bound with, this god exists as nothing other than time itself. - 
+Last updated: 2024-04-11 10:30:20
+Random Quote: From experience, it often takes a new perspective before one is able to see the light. - Elia Kane
