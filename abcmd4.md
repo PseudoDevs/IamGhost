@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 10:33:10
-Random Quote: Dismissing Selmy, where was the sense in that?  Yes, the man was old, but the name of Barristan the Bold still has meaning in the realm.  He lent honor to any man he served.  -  Tywin Lannister
+Last updated: 2024-04-11 10:34:17
+Random Quote: I'm a simple man making his way through the galaxy. Like my father before me. - Boba Fett
