@@ -1,3 +1,2 @@
-Last updated: 2024-04-11 08:39:08
-Random Quote: Morty: "I don't deserve this. I was just having fun."
-Rick: "So was Jeffrey Dahmer." - Rick Sanchez
+Last updated: 2024-04-11 08:39:42
+Random Quote: Robert was never the same after he put on that crown.  Some men are like swords, made for fighting.  Hang them up and they go to rust.  -  Donal Noye
