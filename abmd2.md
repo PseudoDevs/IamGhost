@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 08:27:16
-Random Quote: There is a savage beast in every man, and it stirs when you put a sword in his hand.  -  Jorah Mormont
+Last updated: 2024-04-11 08:27:54
+Random Quote: Ties and no playoffs? Why do you even do this? - Jim Hopper
