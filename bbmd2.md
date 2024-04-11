@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 08:35:47
-Random Quote: I know you mean well. I know you wanna protect me. You have. And when we're done, we'll go wherever you want. Tommy's, sheep ranch, the moon... I'll follow you anywhere you go. But there's no halfway with this. We finish what we started. - Ellie Williams
+Last updated: 2024-04-11 08:36:20
+Random Quote: Always keep your foes confused.  If they are never certain who you are or what you want, they cannot know what you are like to do next.  Sometimes the best way to baffle them is to make moves that have no purpose, or even seem to work against you.  Remember that, Sansa, when you come to play the game.  -  Petyr Baelish
