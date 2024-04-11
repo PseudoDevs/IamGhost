@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 09:08:00
-Random Quote: You poor stupid blind crippled fool.  Must I spell out every little thing for you?  Very well.  Cersei is a lying whore, she's been fucking Lancel and Osmund  Kettleblack and probably Moon Boy for all I know.  And I am the monster they all say I am.  Yes, I killed your vile son.  -  Tyrion Lannister
+Last updated: 2024-04-11 09:08:35
+Random Quote: The end of a rope has been this man's destiny since the night he was born. - Chester Campbell
