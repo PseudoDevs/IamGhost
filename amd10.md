@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 08:48:22
-Random Quote: You don’t want a criminal lawyer. You want a criminal lawyer. - Jesse Pinkman
+Last updated: 2024-04-11 08:48:56
+Random Quote: One day, we'll wake up, and brush our teeth, and go to work. And at some point, we'll suddenly realize that we haven't thought about it at all. None of it. And that's when we'll know. We'll know we can forget. - Saul Goodman
