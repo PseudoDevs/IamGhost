@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 09:53:20
-Random Quote: Everyone pretend podcasting isn't boring! - Rick Sanchez
+Last updated: 2024-04-11 09:53:53
+Random Quote: You see, ladies? When you're out with a Blinder, you don't have to queue. - Arthur Shelby
