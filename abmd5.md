@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 10:59:41
-Random Quote: The septons preach about the seven hells.  What do they know?  Only a man who's been burned knows what hell is truly like.  -  Sandor Clegane
+Last updated: 2024-04-11 11:00:15
+Random Quote: That changes everything, how do you know who to trust? - Meemaw
