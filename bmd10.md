@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 08:33:25
-Random Quote: The purpose of war is peace. - Pablo Escobar
+Last updated: 2024-04-11 08:34:38
+Random Quote: Birds are lost, messages stolen or sold... there are things I might tell you of that eunuch that would chill your blood...  -  Grand Maester Pycelle
