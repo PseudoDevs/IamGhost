@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 10:09:15
-Random Quote: I swear on my name. And the names of the Ancestors, that I shall walk the way of the Mand'alor and the words of the Creed shall be forever forged in my heart. - Din Djarin
+Last updated: 2024-04-11 10:09:50
+Random Quote: Robb, if that sword could bring him back, I should never let you sheathe it until Need stood at my side once more... but he is gone, and a hundred Whispering Woods will not change that.  -  Catelyn Stark
