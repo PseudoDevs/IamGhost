@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 09:29:00
-Random Quote: Piper: "Not every Hispanic person wants the same thing."Lorna: "Oh, sure they do. They all want to come to America."Nicky: "Jesus, your entire world view is based on 'West Side Story', isn't it?" - Nicky Nichols
+Last updated: 2024-04-11 09:29:32
+Random Quote: From experience, it often takes a new perspective before one is able to see the light. - Elia Kane
