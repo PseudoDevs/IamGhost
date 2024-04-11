@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 11:02:05
-Random Quote: A Dothraki wedding without at least three deaths is considered a dull affair.  -  Illyrio Mopatis
+Last updated: 2024-04-11 11:02:38
+Random Quote: Serve, Obey, Protect.  Simple vows for a simple man.  -  Areo Hotah

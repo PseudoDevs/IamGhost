@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 11:02:08
-Random Quote: Being alone like that shows you what kind of a person you are. - Maura Franklin
+Last updated: 2024-04-11 11:02:42
+Random Quote: I don't remember much between the ages of eight and twelve. Just that the world moved fast and my brain moved slow. And every now and then, if I focused too closely on the way I breathed, I'd die. Until every second of every day, you find yourself trying to outrun your anxiety. - Rue Bennett
