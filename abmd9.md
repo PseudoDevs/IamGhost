@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 08:57:35
-Random Quote: This sacred text was eventually brought to the New World in 1776 by none other than Christopher Brolumbus. And that's why he got to bang Pocahontas. - Barney Stinson
+Last updated: 2024-04-11 08:58:11
+Random Quote: The Bro Code has been around for centuries. Nay... whatever's more than centuries. - Barney Stinson
