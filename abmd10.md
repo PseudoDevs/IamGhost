@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 08:46:39
-Random Quote: The Lion does not concern itself with the opinions of sheep.  -  Tywin Lannister
+Last updated: 2024-04-11 08:47:12
+Random Quote: I asked him why he kept her close, if he thought her so grotesque.  He said that all his other knights wanted things of him, castles or honors or riches, but all that Brienne wanted was to die for him.  -  Loras Tyrell
