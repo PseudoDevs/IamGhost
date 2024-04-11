@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 10:57:34
-Random Quote: Everyone sounds like Meryl Streep with a gun to their head. - Mike Ehrmantraut
+Last updated: 2024-04-11 10:58:10
+Random Quote: My uncle Kevan would make a passably good regent if someone pressed the duty on him, but he will never reach for it.  The gods shaped him to be a follower, not a leader.  -  Tyrion Lannister
