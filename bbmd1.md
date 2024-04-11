@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 09:37:59
-Random Quote: Underneath all of those lies is one true thing. One true thing that can support the weight of all the lies in the world, and that's the fact that I love you. - Barney Stinson
+Last updated: 2024-04-11 09:38:35
+Random Quote: Marshall: "All pregnant ladies have crazy sex dreams. It's just her hormones going berserk."Barney: "So who's responsible for her rapid thigh movement this time?"Ted: "Oh, my favorite was when she banged George Washington."Barney: "I liked the three-way with Bill Cosby and Papa Smurf."Ted: "Oh, he smurfed the smurf out of her."Marshall: "Yes, while The Cos smurfed off in the corner - we all remember." - Marshall Eriksen
