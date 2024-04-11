@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 08:42:09
-Random Quote: I know the poison that my father used, and there is none slower or more agonizing.  Soon we may hear the Mountain screaming, even here in Sunspear.  -  Tyene Sand
+Last updated: 2024-04-11 08:42:46
+Random Quote: So that's it? A couple of white Urkels offer you sausages and you're gone? - Robin Scherbatsky

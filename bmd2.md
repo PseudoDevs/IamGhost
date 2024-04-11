@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 08:40:53
-Random Quote: One day, we'll wake up, and brush our teeth, and go to work. And at some point, we'll suddenly realize that we haven't thought about it at all. None of it. And that's when we'll know. We'll know we can forget. - Saul Goodman
+Last updated: 2024-04-11 08:42:47
+Random Quote: I know that new situations can be intimidating. You look around, and it's all scary and different. But meeting them head-on, charging right into them like a bull, that's how we grow as people. - Rick Sanchez

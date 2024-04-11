@@ -1,3 +1,2 @@
-Last updated: 2024-04-11 08:41:33
-Random Quote: Jerry: "Space sperm? Sperm from... space?"
-Rick: "Very impressive verbal forensic work, Jerry." - Rick Sanchez
+Last updated: 2024-04-11 08:42:47
+Random Quote: There's no shame in fear, my father told me, what matters is how we face it.  -  Jon Snow
