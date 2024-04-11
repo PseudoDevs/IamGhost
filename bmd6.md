@@ -1,2 +1,3 @@
-Last updated: 2024-04-11 10:55:45
-Random Quote: People are oblivious to reality. They only see what they want to see, when all they have to do is shift their perspective to see the full scope of things. - Yuk Je
+Last updated: 2024-04-11 10:56:21
+Random Quote: Tommy: "I'll have some men watch her house 'til the danger passes."
+Polly: "'Til the danger passes. That'll be the bloody day." - Polly Gray
