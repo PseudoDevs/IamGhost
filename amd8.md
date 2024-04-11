@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 09:53:44
-Random Quote: He would see this country burn if he could be king of the ashes.  -  Varys
+Last updated: 2024-04-11 09:54:20
+Random Quote: I put up a good fight but I lost. For the first time, but not the last. - Rue Bennett
