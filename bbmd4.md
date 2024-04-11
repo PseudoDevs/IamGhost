@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 09:13:27
-Random Quote: Obara would make Oldtown our father's funeral pyre, but I am not so greedy.  Four lives will suffice for me.  Lord Tywin's golden twins, as payment for Elia's children.  The old lion, for Elia herself.  And last of all the little king, for my father... only royal blood can wash out my father's murder.  -  Nymeria Sand
+Last updated: 2024-04-11 09:14:43
+Random Quote: Quantum mechanics? We're discussing that now? Stay in your lane! You are not talking about a time machine, which is both a real and theoretical impossibility. You are talking about regrets. So if you want to ask about regrets, just ask about regrets and leave all this time-traveling nonsense out of it! - Walter White
