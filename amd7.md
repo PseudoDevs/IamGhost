@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 10:42:02
-Random Quote: I'm a good boyfriend in my sleep. I can rock a killer foot rub with one hand and brew a kick-ass pot of chamomile in the other, that would make you weep. Hell, I've forgotten more about microwaving fat-free popcorn and watching Sandra Bullock movies than you'll ever know, but: thanks for your concern, rook! - Marshall Eriksen
+Last updated: 2024-04-11 10:42:35
+Random Quote: Because they are the knights of summer, and winter is coming.  -  Catelyn Stark
