@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 10:03:51
-Random Quote: They're all running away from something. Why else would someone want to go somewhere different? - Virginia Wilson
+Last updated: 2024-04-11 10:04:27
+Random Quote: A hall to die in, and men to bury me.  I thank you, my lords... but I spit on your pity... I am a knight... I shall die a knight.  -  Barristan Selmy
