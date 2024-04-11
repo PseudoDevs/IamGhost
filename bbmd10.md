@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 09:13:28
-Random Quote: You Westerosi are all the same.  You sew some beast upon a scrap of silk, and suddenly you are all lions or dragons or eagles.  -  Illyrio Mopatis
+Last updated: 2024-04-11 09:14:44
+Random Quote: You know how they say 'it's been a pleasure'? Well... it hasn't. - Mike Ehrmantraut
