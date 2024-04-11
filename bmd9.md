@@ -1,3 +1,2 @@
-Last updated: 2024-04-11 09:14:58
-Random Quote: Planetina: "Your acid rain is an acid pain... in the butt, Diesel Wiesel!"
-Rick: "Yikes! Who's the chick in need of a dialogue pass?" - Rick Sanchez
+Last updated: 2024-04-11 09:15:31
+Random Quote: Lily: "It's nine weeks 'til the wedding, at this point, I'd say yes to just about anything."Barney: "Well..."Lily: "No, Barney." - Lily Aldrin
