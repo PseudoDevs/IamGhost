@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 08:31:12
-Random Quote: People make fun of the guy who stays at home every night doing nothing, but the truth is that guy is a genius. - Ted Mosby
+Last updated: 2024-04-11 08:31:45
+Random Quote: I will kill your wife, I will kill your son, I will kill your infant daughter. - Gustavo Fring
