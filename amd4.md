@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 10:55:45
-Random Quote: I am Mr. Charity. I frequently sleep with sixes, chubsters, over thirty's. I am the Bill and Melinda Gates of the sympathy bang. - Barney Stinson
+Last updated: 2024-04-11 10:56:21
+Random Quote: I don't wanna be choosing between two girls, I wanna be a complete head over heels idiot for one! - Ted Mosby
