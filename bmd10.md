@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 10:55:40
-Random Quote: Is she worth the pain? A man does not suffer like this for his own glory. There is a fine line between devotion and delusion. Love can break more than your heart. It can shatter your mind. - O-Bengh
+Last updated: 2024-04-11 10:56:13
+Random Quote: There is entirely too much tut - tutting in this realm, if you ask me.  All these kings would do a deal better if they put down their swords and listended to their mothers. 

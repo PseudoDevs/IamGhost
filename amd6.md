@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 10:55:40
-Random Quote: Freeways have exits, so do relationships. The first exit, my personal favourite, is six hours in: You meet, you talk, you have sex, you exit when she's in the shower. - Barney Stinson
+Last updated: 2024-04-11 10:56:13
+Random Quote: It's probably his... I've spent years, training my boys to swim the other way. - Barney Stinson
