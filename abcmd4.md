@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 08:35:18
-Random Quote: The absolute worst part of depression is that even though you know you're depressed, You're unable to stop yourself from getting worse. - Rue Bennett
+Last updated: 2024-04-11 08:35:55
+Random Quote: And, you know, you just can't be mad at me for wanting you to be okay. - Rue Bennett
