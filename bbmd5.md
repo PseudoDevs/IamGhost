@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 08:38:32
-Random Quote: I asked him why he kept her close, if he thought her so grotesque.  He said that all his other knights wanted things of him, castles or honors or riches, but all that Brienne wanted was to die for him.  -  Loras Tyrell
+Last updated: 2024-04-11 08:39:05
+Random Quote: There's three rules of cheating:1st: It's not cheating if you're not the one who's married.2nd: It's not cheating if her name has two adjacent vowels.3rd: And it's not cheating if she's from a different area code. You're fine on all three counts. - Barney Stinson
