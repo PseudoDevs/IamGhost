@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 08:56:53
-Random Quote: Dragons old and young, true and false, bright and dark.  And you.  A small man with a big shadow, snarling in the midst of it all.  -  Moqorro
+Last updated: 2024-04-11 08:57:26
+Random Quote: Penrose chose to die rather than give him up.  It still angers me.  How could he think I would hurt the boy?  I chose Robert, did I not?  When that hard day came, I chose blood over honor.  -  Stannis Baratheon
