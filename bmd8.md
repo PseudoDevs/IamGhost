@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 08:10:33
-Random Quote: Mike: "A friend is someone that you'd do anything for."Dustin: "You lend them your cool stuff, like comic books and trading cards."Mike: "And they never break a promise." - Mike Wheeler
+Last updated: 2024-04-11 08:12:20
+Random Quote: No sword is strong until it's been tempered.  The Stark boy is a child.  No doubt he likes the sound of warhorns well enough, and the sight of his banners fluttering in the wind, but in the end it comes down to butcher's work.  I doubt he has the stomach for it.  -  Tywin Lannister

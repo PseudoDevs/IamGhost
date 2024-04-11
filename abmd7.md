@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 08:11:42
-Random Quote: Have you seen Mace Tyrell's boy?  The Knight of Flowers, they call him.  Now there's a son any man would be proud to own to.  Last tourney, he dumped the Kingslayer on his golden rump, you ought to have seen the look on Cersei's face.  I laughed till my sides hurt.  -  Robert Baratheon
+Last updated: 2024-04-11 08:12:20
+Random Quote: Men say Tywin never smiled, but he smiled when he wed your mother, and when Aerys made him Hand.  When Tarbeck Hall came crashing down on Lady Ellyn, that scheming bitch, Tyg claimed he smiled then, and he smiled at your birth, Jaime, I saw with my own eyes.  -  Genna Lannister
