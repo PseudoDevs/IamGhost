@@ -1,2 +1,5 @@
-Last updated: 2024-04-11 09:56:08
-Random Quote: Gloria: "It seemd like all what we did was fight and make love. One time, I'm not kidding you, we fell out of the window together."Jay: "Which one were you doing?" - Jay Pritchett
+Last updated: 2024-04-11 09:56:44
+Random Quote: John Flynn: "Rogers, get in there!"
+Peggy Carter: "He can't."
+John Flynn: "Stark, you go in!"
+Howard Stark: "What? Are you crazy? I push the buttons. I'm the buttons guy." - Howard Stark
