@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 09:40:26
-Random Quote: The god took me deep beneath the waves and drowned the worthless thing I was.  When he cast me forth again he gave me eyes to see, ears to hear, and a voice to spread his word, that I might be his prophet and teach his truth to those who have forgotten.  I was not made to sit upon the Seastone Chair... no more than Euron Crow's Eye.  For I have heard the god, who says, no godless man may sit my Seastone Chair.  -  Aeron Greyjoy
+Last updated: 2024-04-11 09:41:03
+Random Quote: The Freys slashed her throat from ear to ear.  When we found her by the river she was three days dead.  Harwin begged me to give her the kiss of life, but it had been too long.  I would not do it, so Lord Beric put his lips to hers instead, and the flame of life passed from him to her.  And... she rose.  May the Lord of Light protect us.  She rose.  -  Thoros of Myr
