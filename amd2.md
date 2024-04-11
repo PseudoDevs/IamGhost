@@ -1,2 +1,3 @@
-Last updated: 2024-04-11 08:18:34
-Random Quote: Underneath all of those lies is one true thing. One true thing that can support the weight of all the lies in the world, and that's the fact that I love you. - Barney Stinson
+Last updated: 2024-04-11 08:20:26
+Random Quote: Morty: "You're really this pissed about my mum making sure I'm okay with our adventures?"
+Rick: "What's next, Morty? What if I want you to jump off the Empire State Building? I have to ask?" - Rick Sanchez
