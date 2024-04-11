@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 09:52:30
-Random Quote: Ah, Arya.  You have a wildness in you, child.  The 'wolf blood', my father used to call it.  Lyanna had a touch of it, and my brother Brandon more than a touch.  It brought them both to an early grave.  Lyanna might have carried a sword, if my lord father had allowed it.  You remind me of her sometimes.  You even look like her.  -  Eddard Stark
+Last updated: 2024-04-11 09:53:06
+Random Quote: Pain is always there cause life is freaking painful, okay? - Tiffany 'Pennsatucky' Doggett
