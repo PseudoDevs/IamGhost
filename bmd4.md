@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 08:17:53
-Random Quote: My lady, I have seen how you look at my brother.  Loras is valiant and handsome, and we all love him dearly... but your Imp will make a better husband.  He is a bigger man than he seems, I think.  -  Garlan Tyrell
+Last updated: 2024-04-11 08:18:30
+Random Quote: I'm a criminal, yo. - Jesse Pinkman
