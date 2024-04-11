@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 10:15:09
-Random Quote: Men call me Darkstar, and I am of the night.  -  Gerold Dayne
+Last updated: 2024-04-11 10:16:19
+Random Quote: Nick: "So, I went to this fortune teller today and she said there was a curse on me."Robin: "Did she sell you something to ward off the curse?"Nick: "It's like you're a fortune teller, too." - Nick
