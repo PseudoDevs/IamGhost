@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 08:58:49
-Random Quote: I got more second-story guys in my book than pimples at a junior prom. - Saul Goodman
+Last updated: 2024-04-11 09:00:40
+Random Quote: Men say Tywin never smiled, but he smiled when he wed your mother, and when Aerys made him Hand.  When Tarbeck Hall came crashing down on Lady Ellyn, that scheming bitch, Tyg claimed he smiled then, and he smiled at your birth, Jaime, I saw with my own eyes.  -  Genna Lannister
