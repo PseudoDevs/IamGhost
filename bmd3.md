@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 08:02:27
-Random Quote: Kingthlayer... you are my captifth.  -  Vargo Hoat
+Last updated: 2024-04-11 08:03:01
+Random Quote: Freeways have exits, so do relationships. The first exit, my personal favourite, is six hours in: You meet, you talk, you have sex, you exit when she's in the shower. - Barney Stinson
