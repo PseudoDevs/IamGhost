@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 08:56:17
-Random Quote: Robert could piss in a cup and men would call it wine, but I offer them cold clear water and they squint in suspicion and mutter to each other about how queer it tastes.  -  Stannis Baratheon
+Last updated: 2024-04-11 08:57:35
+Random Quote: I wouldn't lie to you. Well... that's a lie. - Rick Sanchez
