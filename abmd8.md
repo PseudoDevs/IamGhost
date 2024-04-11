@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 10:56:59
-Random Quote: The longer Cersei waits, the angrier she'll become, and anger makes her stupid.  I much prefer angry and stupid to composed and cunning.  -  Tyrion Lannister
+Last updated: 2024-04-11 10:57:33
+Random Quote: He can hear youHe knows if you've been bad or goodLike Santa, but he can send you to hell. - Missy
