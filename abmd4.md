@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 08:52:31
-Random Quote: What you're doing right now. I'm getting a de-rection! - Barney Stinson
+Last updated: 2024-04-11 08:53:04
+Random Quote: Rickard Karstark killed more than a Frey and a Lannister.  He killed my honor.  -  Robb Stark
