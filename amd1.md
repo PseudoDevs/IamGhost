@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 08:18:41
-Random Quote: Good and evil are a question of perspective - Mikkel
+Last updated: 2024-04-11 08:19:14
+Random Quote: Long distance is a lie teenagers tell each other to get laid the summer before college. - Ted Mosby
