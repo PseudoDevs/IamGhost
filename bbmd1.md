@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 10:10:06
-Random Quote: Barney: "Fine, we'll just have a nice, tasteful rehearsal dinner. Maybe at a French restaurant, I know just the place."Robin: "What's the name of the restaurant?"Barney: "La Sertag." - Barney Stinson
+Last updated: 2024-04-11 10:11:12
+Random Quote: Jesus was a fag! He said: 'This is my body. Eat me.' - Big Boo
