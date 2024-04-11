@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 09:33:39
-Random Quote: Lucas: "Do you think she's acting weird?"Dustin: "You're asking if the weirdo is acting weird?" - Dustin Henderson
+Last updated: 2024-04-11 09:34:16
+Random Quote: My daughter has taken an axe for a lover.  I will not have my son bedeck himself like a whore.  It is as I feared.  The green lands have made you soft, and the Starks have made you theirs.  -  Balon Greyjoy
