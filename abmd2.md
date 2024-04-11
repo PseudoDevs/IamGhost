@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 09:15:06
-Random Quote: Maybe people are nostalgic about high school 'cause it's, like, the last time in their life that they get to dream. - Cassie Howard
+Last updated: 2024-04-11 09:15:39
+Random Quote: It's not Aerys I rue, it's Robert... Why is it no one names Robert oathbreaker?  He tore the realm apart, yet I am the one with shit for honor.  -  Jaime Lannister
