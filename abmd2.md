@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 08:41:31
-Random Quote: The title was but a courtesy due him as a council member; Varys was lord of nothing but the spiderweb, the master of none but his whispers.  -  Catelyn Stark
+Last updated: 2024-04-11 08:42:07
+Random Quote: In commemoration of Barney's induction into the "Hall of Game", this tie, worn on the seventh night of his perfect week, is hereby retired. - Lily Aldrin
