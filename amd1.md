@@ -1,5 +1,6 @@
-Last updated: 2024-04-11 09:55:34
-Random Quote: Morty: "I'm dying, Rick!"
-Rick: "People who are really dying don't keep bringing it up."
-Morty: "Is that true?"
-Rick: "I don't know. I'm just usually around people that die faster." - Rick Sanchez
+Last updated: 2024-04-11 09:56:08
+Random Quote: You lie to your husband all the time...
+"That shirt looks great on you."
+"I love your mom."
+"I never fantasize about Barney when we're doing it."
+Sound familiar, Pinocchio? - Barney Stinson
