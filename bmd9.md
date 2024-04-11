@@ -1,2 +1,3 @@
-Last updated: 2024-04-11 08:33:25
-Random Quote: This guy he's done everything right. He's been loving and devoted since he was 18 years old. There are only a few truly great people on this planet and he is one of them. - Barney Stinson
+Last updated: 2024-04-11 08:34:02
+Random Quote: Weems: "No doubt you'll find something that tickles your fancy."
+Wednesday: "The last person who tickled me lost a finger." - Wednesday Addams

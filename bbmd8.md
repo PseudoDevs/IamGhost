@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 08:33:25
-Random Quote: Your heart's talking to you, Barney. Do you have the guts to listen to it? - Lily Aldrin
+Last updated: 2024-04-11 08:34:02
+Random Quote: I'm a good boyfriend in my sleep. I can rock a killer foot rub with one hand and brew a kick-ass pot of chamomile in the other, that would make you weep. Hell, I've forgotten more about microwaving fat-free popcorn and watching Sandra Bullock movies than you'll ever know, but: thanks for your concern, rook! - Marshall Eriksen
