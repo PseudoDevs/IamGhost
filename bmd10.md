@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 10:46:00
-Random Quote: I put up a good fight but I lost. For the first time, but not the last. - Rue Bennett
+Last updated: 2024-04-11 10:46:32
+Random Quote: People are oblivious to reality. They only see what they want to see, when all they have to do is shift their perspective to see the full scope of things. - Yuk Je
