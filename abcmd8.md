@@ -1,3 +1,2 @@
-Last updated: 2024-04-11 08:28:32
-Random Quote: Jerry: "Well, traditionally, science faires are a father-son thing."
-Rick: "Well, scientifically, traditions are an idiot thing." - Rick Sanchez
+Last updated: 2024-04-11 08:29:10
+Random Quote: Honey, don't you think the little rocks would hurt your nose, if you're trying to snort crack? I think you mean coke. - Piper Chapman
