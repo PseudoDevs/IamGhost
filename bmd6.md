@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 08:24:04
-Random Quote: It's not like anyone's 100% straight or 100% gay. - Maddy Perez
+Last updated: 2024-04-11 08:24:39
+Random Quote: I never asked for this crown.  Gold is cold and heavy on the head, but so long as I am the king, I have a duty... if I must sacrifice one child to the flames to save a million from the dark... sacrifice... is never easy, Davos.  Or it is no true sacrifice.  -  Stannis Baratheon
