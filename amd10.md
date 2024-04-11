@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 10:46:48
-Random Quote: Young or old, a true knight is sworn to protect those who are weaker than himself, or die in the attempt.  -  Brienne of Tarth
+Last updated: 2024-04-11 10:47:21
+Random Quote: I did the world a favor. People like Dalton shouldn't be allowed to procreate. Getting expelled was just a bonus. - Wednesday Addams
