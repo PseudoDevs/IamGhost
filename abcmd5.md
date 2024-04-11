@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 10:26:45
-Random Quote: Fire in the hole, bitch! - Jesse Pinkman
+Last updated: 2024-04-11 10:27:18
+Random Quote: Winter will never come for the likes of us.  Should we die in battle, they will surely sing of us, and it's always summer in the songs.  In the songs all knights are gallant, all maids are beautiful, and the sun is always shining.  -  Brienne of Tarth
