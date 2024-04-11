@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 09:58:29
-Random Quote: Barney: "How's the single life?"Ted: "I wouldn't know. After this whole Robin thing, I'm laying low."Barney: "Laying low as in sleeping with a really short chick? You guys doing thirty-nine?" - Barney Stinson
+Last updated: 2024-04-11 09:59:03
+Random Quote: You are the love of my life. Everything I have and everything I am is yours. Forever. - Barney Stinson
