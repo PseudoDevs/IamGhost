@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 09:20:16
-Random Quote: A Mandalorian and a Jedi? They'll never see it coming. - Din Djarin
+Last updated: 2024-04-11 09:20:54
+Random Quote: Don't believe everything you hear. Our enemies want to separate us. But Mandalorians are stronger together. - Bo-Katan
