@@ -1,6 +1,2 @@
-Last updated: 2024-04-11 08:03:05
-Random Quote: Polly: "Six."
-John: "Six what?"
-Polly: "Six questions since you walked through that door. Soon you'll have to start being the man with the answers."
-John: "Why?"
-Polly: "Seven." - Polly Gray
+Last updated: 2024-04-11 08:03:39
+Random Quote: Sometimes our best decisions are the ones that don't make any sense at all. - Ted Mosby
