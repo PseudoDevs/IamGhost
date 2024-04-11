@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 10:19:18
-Random Quote: Ted: "Grinch, Grinch, Grinch, Grinch!"[The lights turn out]Lily: "Happy? Now you pissed up the big guy upstairs!"Ted: "Yeah, I'm sure god cares if I..."Man: "You use that language again and I turn off your water!"Lily: "It's my super - he lives above me." - Lily Aldrin
+Last updated: 2024-04-11 10:20:07
+Random Quote: So you're pregnant? Huh, looks like nobody told your boobs. - Barney Stinson
