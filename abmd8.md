@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 10:31:53
-Random Quote: Better the butcher than the meat.  All kings are butchers.  Are queens so different?  -  Daario Naharis
+Last updated: 2024-04-11 10:32:26
+Random Quote: I heard enough to know she saved your a-s. - Mike Ehrmantraut
