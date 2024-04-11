@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 08:06:39
-Random Quote: Nancy Wheeler: "You're supposed to hit the cans, right?"Jonathan Byers: "No, actually - you see the spaces in between the cans? I'm aiming for those." - Jonathan Byers
+Last updated: 2024-04-11 08:07:14
+Random Quote: When a maester donned his collar, he put aside the hope of children, yet Cressen had oft felt a father nonetheless.  Robert, Stannis, Renly: three sons he had raised after the angry sea claimed Lord Steffon.  -  Maester Cressen
