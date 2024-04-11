@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 10:50:15
-Random Quote: Ted: "Want to know what I looked like at age 15? There it is."Robin: "I don't get it, that guy wasn't masturbating."Barney: "Yeah, and the waistband of his undies wasn't pulled up to his Cub Scouts neckerchief." - Robin Scherbatsky
+Last updated: 2024-04-11 10:50:48
+Random Quote: I asked him why he kept her close, if he thought her so grotesque.  He said that all his other knights wanted things of him, castles or honors or riches, but all that Brienne wanted was to die for him.  -  Loras Tyrell
