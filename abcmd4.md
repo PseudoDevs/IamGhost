@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 08:11:06
-Random Quote: Harry and Meghan, move over! This is what fairy tales are made of. They'd been together for two whole weeks, which for teenagers is basically a lifetime of monogamy. Although between us, it had been a surprisingly PG-13 two weeks. - John McEnroe
+Last updated: 2024-04-11 08:12:19
+Random Quote: A king's son, with the power of kingsblood in his veins.  Do you think you've saved this boy, Onion Knight?  When the long night falls, Edric Storm shall die with the rest, wherever he is hidden.  Your own sons as well.  Darkness and cold will cover the earth.  You meddle in matters you do not understand.  -  Melisandre
