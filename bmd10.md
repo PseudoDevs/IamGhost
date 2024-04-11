@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 10:35:59
-Random Quote: I'm a criminal, yo. - Jesse Pinkman
+Last updated: 2024-04-11 10:36:32
+Random Quote: We all have things we keep hidden. Sometimes, keeping secrets is how you survive. Because in High School, one rumor, one picture, one incident, can define you forever. - Hannah Baker
