@@ -1,4 +1,2 @@
-Last updated: 2024-04-11 09:13:25
-Random Quote: Lorna Morello: "I need to start tightening up. You're making me feel like a cave."
-Nicky Nichols: "Baby, it's a c-nt, it stretches!"
-Lorna Morello: "Yeah, sometimes I feel like you're trying to climb inside my womb." - Lorna Morello
+Last updated: 2024-04-11 09:14:02
+Random Quote: There is no such thing as magic, just illusion. Things only change when we change them. But you have to do it skillfully, in secret. Then it seems like magic. - Mikkel Nielsen
