@@ -1,3 +1,2 @@
-Last updated: 2024-04-11 08:26:01
-Random Quote: Bo-Katan: "You are not a Mandalorian."
-Boba: "Never said I was." - Boba Fett
+Last updated: 2024-04-11 08:26:37
+Random Quote: This is my own private domicile and I will not be harassed…bitch! - Jesse Pinkman
