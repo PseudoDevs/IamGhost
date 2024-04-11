@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 09:40:28
-Random Quote: This sacred text was eventually brought to the New World in 1776 by none other than Christopher Brolumbus. And that's why he got to bang Pocahontas. - Barney Stinson
+Last updated: 2024-04-11 09:41:42
+Random Quote: Young I was, and vain, but the sea washed my follies and my vanities away.  That man drowned, nephew.  His lungs filled with seawater, and the fish ate the scales off his eyes.  When I rose again, I saw clearly.  -  Aeron Greyjoy
