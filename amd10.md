@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 09:37:13
-Random Quote: Do you still trust people? Even after what you've been through? - Oh Il-nam
+Last updated: 2024-04-11 09:37:46
+Random Quote: Lies are necessary, when the truth is too difficult to believe. - Pablo Escobar
