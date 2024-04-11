@@ -1,2 +1,3 @@
-Last updated: 2024-04-11 09:06:20
-Random Quote: Where has it gotten me? Nowhere. I can't talk to the person I love. People still don't take me seriously. I wanna be numb again. - Klaus Hargreeves
+Last updated: 2024-04-11 09:06:54
+Random Quote: Freddie: "If you want me out of Birmingham, it'll have to be in a wooden box."
+Polly: "You lay a hand on our Ada, I'll put you in a wooden box myself!" - Polly Gray
