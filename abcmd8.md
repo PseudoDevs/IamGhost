@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 09:15:20
-Random Quote: Because there's no way watching it can be more fun than playing it yourself. - Oh Il-nam
+Last updated: 2024-04-11 09:16:35
+Random Quote: It's not Aerys I rue, it's Robert... Why is it no one names Robert oathbreaker?  He tore the realm apart, yet I am the one with shit for honor.  -  Jaime Lannister
