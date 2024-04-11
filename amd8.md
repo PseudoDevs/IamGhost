@@ -1,2 +1,3 @@
-Last updated: 2024-04-11 08:02:22
-Random Quote: It wasn't the violence that scared her. It was the fact that she knew no matter what he did, she'd still love him. - Rue Bennett
+Last updated: 2024-04-11 08:02:57
+Random Quote: Marylin Thornhill: "I trust Enid has given you the old Nevermore welcome."
+Wednesday: "She's been smothering me with hospitality. I hope to return the favor... in her sleep." - Wednesday Addams
