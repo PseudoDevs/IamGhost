@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 08:09:37
-Random Quote: I hate it when you talk sometimes. No... all the time. - Nicky Nichols
+Last updated: 2024-04-11 08:10:10
+Random Quote: My lady, I have seen how you look at my brother.  Loras is valiant and handsome, and we all love him dearly... but your Imp will make a better husband.  He is a bigger man than he seems, I think.  -  Garlan Tyrell

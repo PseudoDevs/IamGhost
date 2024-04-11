@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 08:09:37
-Random Quote: I’d get 30 years. And to be honest, growing old in a prison cell is not my thing. I’d rather run, in body and soul. And if I can’t take my body with me, at least my soul should run. - Tokyo
+Last updated: 2024-04-11 08:10:10
+Random Quote: Drugs are kind of cool. I mean, they're cool before they wreck your skin. And your life. And your family. That's when they get uncool. It's actually a very narrow window of cool. - Rue Bennett
