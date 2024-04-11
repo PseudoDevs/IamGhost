@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 10:23:28
-Random Quote: Marshall: "Yes, i want a ball-room and I want a band and I want shoes. I've been dreaming about this day since I was... like...Lily: "...a little girl?" - Lily Aldrin
+Last updated: 2024-04-11 10:24:04
+Random Quote: Summer will end soon enough, and childhood as well.  -  Eddard Stark
