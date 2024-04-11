@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 08:47:32
-Random Quote: Larry Bloom: "Are we at least gonna talk about other options?"Piper Chapman: "You mean..."Larry Bloom: "It's not Voldemort, you can say it. Abortion." - Larry Bloom
+Last updated: 2024-04-11 08:48:04
+Random Quote: By what right does the wolf judge the lion?  -  Jaime Lannister
