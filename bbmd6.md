@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 10:02:05
-Random Quote: Hey, it's me again. Look, who are we kidding? You and I are both attracted to each other. We're young, we're drunk, half of us anyway. And we only get one life, so why don't you come over to my apartment and we'll think of something stupid to do together? - Ted Mosby
+Last updated: 2024-04-11 10:02:41
+Random Quote: Yes, Lord Umber, leave me to the king.  He means to give me a scolding before he forgives me.  That's how he deals with treason, our King in the North.  Or should I call you the King Who Lost the North, your Grace?  -  Rickard Karstark
