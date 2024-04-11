@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 09:36:50
-Random Quote: Why should I go running to my aunt as if I were a beggar?  My claim is better than her own.  Let her come to me... in Westeros.  -  Aegon Targaryen
+Last updated: 2024-04-11 09:37:23
+Random Quote: Hey, want to come to my house and play telephone? I got the string, you got the cans. - Barney Stinson
