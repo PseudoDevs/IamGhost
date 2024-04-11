@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 08:04:49
-Random Quote: Oh man, I am so excited that you're here! It has been forever since I have been around anyone even remotely fun![to Lily, Robin, Ted and Marshall] Huh... yes, offense! - Barney Stinson
+Last updated: 2024-04-11 08:07:55
+Random Quote: No, only a boy who dreams.  The greenseers were more than that.  They were wargs as well, as you are, and the greatest of them could wear the skins of any beast that flies or swims or crawls, and could look through the eyes of the weirwoods as well, and see the truth that lies beneath the world.  -  Jojen Reed

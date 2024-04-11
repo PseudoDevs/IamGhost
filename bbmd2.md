@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 08:07:16
-Random Quote: Colombians say, God made our land so beautiful it was unfair to the rest of the world. So to even the score, God populated the land with a race of evil men. - C� sar Gaviria
+Last updated: 2024-04-11 08:07:55
+Random Quote: Take the foundling to the city of Calodan on the forest planet Corvus. There, you will find Ahsoka Tano. Tell her you were sent by Bo-Katan. - Bo-Katan
