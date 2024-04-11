@@ -1,2 +1,3 @@
-Last updated: 2024-04-11 08:58:12
-Random Quote: Congratulations, you’ve just left your family a second-hand Subaru. - Saul Goodman
+Last updated: 2024-04-11 08:58:49
+Random Quote: Freddie Thorne: "What kind of a list would have the name of a communist and the name of a bookmaker side by side?"
+Thomas Shelby: "Perhaps it's a list of men who give false hope to the poor." - Thomas Shelby
