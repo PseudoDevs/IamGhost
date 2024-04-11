@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 08:38:22
-Random Quote: Barney: "How's the single life?"Ted: "I wouldn't know. After this whole Robin thing, I'm laying low."Barney: "Laying low as in sleeping with a really short chick? You guys doing thirty-nine?" - Barney Stinson
+Last updated: 2024-04-11 08:38:59
+Random Quote: Robin: "She was gonna get the last kugel."Ted: "She was 90 years old. It was probably gonna be her last kugel." - Ted Mosby
