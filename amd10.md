@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 10:16:58
-Random Quote: I'm not surviving, I'm just existing. - Brook Soso
+Last updated: 2024-04-11 10:17:32
+Random Quote: I have worked at the downfall of Tywin Lannister since the day they told me of Elia and her children.  -  Doran Martell
