@@ -1,2 +1,6 @@
-Last updated: 2024-04-11 09:14:17
-Random Quote: Ted, no! You never break up a girl fight! Never! - Barney Stinson
+Last updated: 2024-04-11 09:14:50
+Random Quote: Beth: "Do you want homeless people to have homes?"
+Jerry: "Yes."
+Beth: "Are you gonna build them?"
+Jerry: "No."
+Beth: "Then what good was the 'yes'?" - Beth Smith
