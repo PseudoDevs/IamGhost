@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 08:18:00
-Random Quote: Hey, ref, check your voicemail! I think you've missed a few calls! - Ted Mosby
+Last updated: 2024-04-11 08:18:34
+Random Quote: Always keep your foes confused.  If they are never certain who you are or what you want, they cannot know what you are like to do next.  Sometimes the best way to baffle them is to make moves that have no purpose, or even seem to work against you.  Remember that, Sansa, when you come to play the game.  -  Petyr Baelish
