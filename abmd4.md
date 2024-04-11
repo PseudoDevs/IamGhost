@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 10:20:30
-Random Quote: His blood ran black.  Made him my brother as much as yours.  -  Yoren of the Night's Watch
+Last updated: 2024-04-11 10:21:05
+Random Quote: Doesn't matter what you did or what you were, you are an Avenger! - Agatha Harkness
