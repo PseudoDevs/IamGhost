@@ -1,2 +1,3 @@
-Last updated: 2024-04-11 10:39:56
-Random Quote: Freeways have exits, so do relationships. The first exit, my personal favourite, is six hours in: You meet, you talk, you have sex, you exit when she's in the shower. - Barney Stinson
+Last updated: 2024-04-11 10:40:30
+Random Quote: "I thought Mandalorians were honorable."
+Koska Reeves: "We are, kid. All it takes is a few credits." - Din Djarin
