@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 09:12:12
-Random Quote: Bad guys don't play by the rules. That's what makes them bad. - Steve Murphy
+Last updated: 2024-04-11 09:13:26
+Random Quote: Welcome to the church of MathologyToday I'd like to talk about prime numbers and why they give us joy. - Sheldon
