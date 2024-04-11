@@ -1,2 +1,3 @@
-Last updated: 2024-04-11 08:09:49
-Random Quote: Being alone like that shows you what kind of a person you are. - Maura Franklin
+Last updated: 2024-04-11 08:11:43
+Random Quote: Morticia: "That boy's family was going to file attempted murder charges. How would that have looked on your record?"
+Wednesday: "Terrible. Everyone would know I failed to get the job done." - Wednesday Addams
