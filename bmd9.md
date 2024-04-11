@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 10:08:44
-Random Quote: It's easier when you're a kid anyway. You don't have anybody else relying on you. That's the hardest part. - Joel Miller
+Last updated: 2024-04-11 10:09:18
+Random Quote: F*ck you! And your eyebrows! - Walter White
