@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 09:14:42
-Random Quote: Hey, takin' on a challenge is a lot like ridin' a horse. If you're comfortable while you're doin' it, you're probably doin' it wrong. - Jim Hopper
+Last updated: 2024-04-11 09:15:19
+Random Quote: Kids, you may think your only choices are to swallow your anger or throw it in someone's face, but there's a third option: You can just let it go, and only when you do that is it really gone and you can move forward. - Ted Mosby
