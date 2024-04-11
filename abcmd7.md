@@ -1,5 +1,2 @@
-Last updated: 2024-04-11 10:35:58
-Random Quote: Bo-Katan: "I haven't seen battle droids since the Clone Wars."
-Din: "I have."
-Bo-Katan: "Any of 'em look suspicious?"
-Din: "They all look suspicious." - Din Djarin
+Last updated: 2024-04-11 10:36:32
+Random Quote: Doesn't matter what you did or what you were, you are an Avenger! - Agatha Harkness
