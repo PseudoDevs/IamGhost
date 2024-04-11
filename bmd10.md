@@ -1,2 +1,3 @@
-Last updated: 2024-04-11 10:10:10
-Random Quote: I only have one rule. For every three 10's you bang, throw a bone to a 5. They're grateful and hard working and let's face it, sometimes you just want to lay there. - Barney Stinson
+Last updated: 2024-04-11 10:10:44
+Random Quote: I hired a decorator and I asked him: "What would the inside of Tinkerbell's vagina look like?"
+And the kid just ran with it! - Quinn Garvey
