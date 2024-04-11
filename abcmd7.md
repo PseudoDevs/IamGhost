@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 08:19:49
-Random Quote: You sentimentalize property, you can kiss profits goodbye. - Marty Byrde
+Last updated: 2024-04-11 08:20:27
+Random Quote: Robb, who had been more a brother to Theon than any son born of Balon Greyjoy's loins.  Murdered at the Red Wedding, butchered by the Freys.  I should have been with him.  Where was I?  I should have died with him.  -  Theon Greyjoy
