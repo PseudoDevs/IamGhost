@@ -1,2 +1,3 @@
-Last updated: 2024-04-11 09:05:36
-Random Quote: I only have one rule. For every three 10's you bang, throw a bone to a 5. They're grateful and hard working and let's face it, sometimes you just want to lay there. - Barney Stinson
+Last updated: 2024-04-11 09:06:13
+Random Quote: Bro, bro, bro your broat, gently to the bar
+Hit on sluts, then do ten shots and... - Barney Stinson
