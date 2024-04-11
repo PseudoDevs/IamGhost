@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 09:34:51
-Random Quote: Friends tell the truth. - Eleven
+Last updated: 2024-04-11 09:35:27
+Random Quote: The frightened child who sheltered in my manse died on the Dothraki Sea, and was reborn in blood and fire.  This dragon queen who wears her name is a true Targaryen.  -  Illyrio Mopatis
