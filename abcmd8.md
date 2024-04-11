@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 09:20:17
-Random Quote: Because family is forever. - Wanda Maximoff
+Last updated: 2024-04-11 09:20:55
+Random Quote: Marshall: "Yes, i want a ball-room and I want a band and I want shoes. I've been dreaming about this day since I was... like...Lily: "...a little girl?" - Lily Aldrin
