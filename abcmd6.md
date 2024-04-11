@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 08:14:05
-Random Quote: You're a freak, but what? Do you wanna be normal? Do you wanna be just like everyone else? - Jonathan Byers
+Last updated: 2024-04-11 08:14:38
+Random Quote: To go north, you must go south.  To reach the west, you must go east.  To go forward you must go back, and to touch the light you must pass beneath the shadow.  -  Quaithe
