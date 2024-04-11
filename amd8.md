@@ -1,3 +1,2 @@
-Last updated: 2024-04-11 10:55:09
-Random Quote: Billy: "Halloween's a magical holiday. All about family, friends, and the thrill of getting to be someone else for a day."
-Tommy: "Wrong! Halloween's about candy. And scaring people, but mostly candy." - Tommy Maximoff
+Last updated: 2024-04-11 10:55:45
+Random Quote: Kids, you may think your only choices are to swallow your anger or throw it in someone's face, but there's a third option: You can just let it go, and only when you do that is it really gone and you can move forward. - Ted Mosby
