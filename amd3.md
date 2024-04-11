@@ -1,2 +1,7 @@
-Last updated: 2024-04-11 10:40:01
-Random Quote: I am the Watcher. I am your guide through these vast new realities. Follow me, and dare to face the unknown. And ponder the question, "What if...?" - The Watcher
+Last updated: 2024-04-11 10:40:34
+Random Quote: Bo-Katan: "You are a disgrace to your armor."
+Boba Fett: "This armor belonged to my father."
+Bo-Katan: "Don't you mean your donor?"
+Boba Fett: "Careful, princess."
+Bo-Katan: "You are a clone. I've heard your voice thousands of times."
+Boba Fett: "Mine might be the last one you hear." - Boba Fett
