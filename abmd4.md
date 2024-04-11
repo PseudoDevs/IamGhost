@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 08:45:36
-Random Quote: Good men and true will fight for Joffrey, wrongly believing him the true king.  A northman might even say the same of Robb Stark.  But these lords who flocked to my brother's banners knew him for an usurper.  They turned their backs on their rightful king for no better reason than dreams of power and glory, and I have marked them for what they are.  Pardoned them, yes.  Forgiven, but not forgotten.  -  Stannis Baratheon
+Last updated: 2024-04-11 08:46:09
+Random Quote: The Captain: "Guess it's just you, me, and six hours in frigid international waters."Ted: "Or we could stay in dry land, hang out with some witnesses?" - Ted Mosby
