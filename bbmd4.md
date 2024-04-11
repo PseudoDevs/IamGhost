@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 08:23:13
-Random Quote: Joe Caputo: "You ever notice how some dog breeds, they sound kind of dirty? Like, shih tzu, cocker, Jack-something."Susan Fischer: "Poodle."Joe Caputo: "That is good, I didn't think of that one." - Joe Caputo
+Last updated: 2024-04-11 08:23:46
+Random Quote: Strip off their skins.  Lord Bolton, he used to say a naked man has few secrets, but a flayed man's got none.  -  Ramsay Bolton
