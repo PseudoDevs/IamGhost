@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 08:48:53
-Random Quote: In Colombia, when money's involved, blood inevitably flows. - Steve Murphy
+Last updated: 2024-04-11 08:49:30
+Random Quote: Never give power to the big man. - Alfie Solomons
