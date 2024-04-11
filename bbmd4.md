@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 10:12:12
-Random Quote: Robert was the true steel.  Stannis is pure iron, black and hard and strong, yes, but brittle, the way iron gets.  He'll break before he bends.  And Renly, that one, he's copper, bright and shiny, pretty to look at but not worth all that much at the end of the day.  -  Donal Noye
+Last updated: 2024-04-11 10:12:48
+Random Quote: The beautiful thing about getting high is that time ceases to exist. - Rue Bennett
