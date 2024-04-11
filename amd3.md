@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 09:01:16
-Random Quote: The less talk, the better. - Mike Ehrmantraut
+Last updated: 2024-04-11 09:01:52
+Random Quote: Let them keep believing I'm dead. So much the better. It was the chicken man. That coward sat up there in the north while his paramilitaries came into my home. - Lalo Salamanca
