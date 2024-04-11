@@ -1,3 +1,2 @@
-Last updated: 2024-04-11 10:57:41
-Random Quote: Morty: "So, time moves faster in there? Is it like a Narnia thing?"
-Rick: "I'm not a beaver who believes in Jesus Christ, Morty. But yeah, it's pretty much a Narnia thing." - Rick Sanchez
+Last updated: 2024-04-11 10:58:15
+Random Quote: Every time I go after a busty dullard who can't tell time or thinks I'm the ghost of Leonardo DiCaprio, I'm shallow. But somehow it's okay for Robin to date a guy who can't be trusted around outlets. - Barney Stinson
