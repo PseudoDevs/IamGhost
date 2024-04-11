@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 08:34:02
-Random Quote: Yesterday, today and tomorrow are not consecutive, they are connected in a never-ending circle. Everything is connected - The Stranger
+Last updated: 2024-04-11 08:34:38
+Random Quote: Your innocence may be as plain as the scar on your face, but it will not save you.  No more than your father will.  But I might.  Not as your judge.  As your champion.  -  Oberyn Martell
