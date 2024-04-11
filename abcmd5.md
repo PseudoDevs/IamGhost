@@ -1,3 +1,2 @@
-Last updated: 2024-04-11 10:54:55
-Random Quote: Joel: "A deep breath in, slow breath out. You squeeze the trigger like you love it. Gentle, steady, nice and slow."
-Ellie: "You gonna shoot this thing or get it pregnant?" - Ellie Williams
+Last updated: 2024-04-11 10:55:29
+Random Quote: His blood ran black.  Made him my brother as much as yours.  -  Yoren of the Night's Watch
