@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 10:45:53
-Random Quote: Dinner's a very intimate activity. It requires a level of connection and eye contact, that sex just doesn't. Call me old-fashioned, but I need to have sex with a girl at least three times before I'll even consider having dinner with her. - Barney Stinson
+Last updated: 2024-04-11 10:46:26
+Random Quote: F*ck you! And your eyebrows! - Walter White
