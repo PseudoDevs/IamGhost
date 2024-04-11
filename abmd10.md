@@ -1,3 +1,2 @@
-Last updated: 2024-04-11 09:49:30
-Random Quote: Jang Deok-su: "Tell me what you're good at?"
-Han Mi-nyeo: "Everything, except the things I can't do." - Oh Il-nam
+Last updated: 2024-04-11 09:50:06
+Random Quote: Oh, come on. If you don't laugh, it just seems mean. - Barney Stinson
