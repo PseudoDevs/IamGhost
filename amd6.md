@@ -1,3 +1,2 @@
-Last updated: 2024-04-11 08:41:50
-Random Quote: Summer: "I think it's in our best interest to work as a team."
-Morty: "Yeah, most people would call that 'family'." - Morty Smith
+Last updated: 2024-04-11 08:42:22
+Random Quote: Marshall: "Baby, you're like 20 slutty chicks all rolled into one."Lily: "Sweet-talk is not gonna change my mind!" - Lily Aldrin
