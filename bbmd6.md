@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 08:19:10
-Random Quote: Success is 1% inspiration, 98% perspiration, and 2% attention to detail. - Phil Dunphy
+Last updated: 2024-04-11 08:21:40
+Random Quote: Penrose chose to die rather than give him up.  It still angers me.  How could he think I would hurt the boy?  I chose Robert, did I not?  When that hard day came, I chose blood over honor.  -  Stannis Baratheon
