@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 10:56:23
-Random Quote: The less talk, the better. - Mike Ehrmantraut
+Last updated: 2024-04-11 10:56:59
+Random Quote: The longer Cersei waits, the angrier she'll become, and anger makes her stupid.  I much prefer angry and stupid to composed and cunning.  -  Tyrion Lannister
