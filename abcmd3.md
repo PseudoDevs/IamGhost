@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 08:40:15
-Random Quote: Bring on your storm, my lord... and recall, if you do, the name of this castle.  -  Cortnay Penrose
+Last updated: 2024-04-11 08:41:32
+Random Quote: The truth is always there, whether we see it or not - whether we choose to or not. The truth doesn't care about our needs or wants. It doesn't care about our governments, our ideologies, our religions. - Valery Legasov

@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 08:40:55
-Random Quote: The Pork Authority is closed. Looks like it's Hand Central Station for you little buddy. - James Stinson
+Last updated: 2024-04-11 08:41:32
+Random Quote: The longer Cersei waits, the angrier she'll become, and anger makes her stupid.  I much prefer angry and stupid to composed and cunning.  -  Tyrion Lannister
