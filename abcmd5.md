@@ -1,2 +1,3 @@
-Last updated: 2024-04-11 09:57:20
-Random Quote: Some things are more important than doing math problems. - Bode Locke
+Last updated: 2024-04-11 09:58:31
+Random Quote: Morty: "You were a teenager when dad got you pregnant!"
+Beth: "I was 17. That's at least 26 in boy years." - Beth Smith
