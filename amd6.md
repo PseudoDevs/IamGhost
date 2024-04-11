@@ -1,2 +1,4 @@
-Last updated: 2024-04-11 09:42:17
-Random Quote: There must always be a Stark in Winterfell.  -  Catelyn Stark
+Last updated: 2024-04-11 09:42:54
+Random Quote: Tony Stark: "Lieutenant Killmonger? What is that? German?"
+Killmonger: "A nickname."
+Tony Stark: "That's clearly a good fit." - Killmonger
