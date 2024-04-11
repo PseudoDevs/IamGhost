@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 10:41:39
-Random Quote: Talking to a woman that you have already had sex with, is like changing the oil on a rental car! - Barney Stinson
+Last updated: 2024-04-11 10:42:13
+Random Quote: Marshall: "Can we borrow your air mattress? My mom's coming into town for a few days."Ted: "Absolutely not!"Lily: "Bummer, I guess she can't stay with us. Hey, look what I just found! A list of hotels and other creative housing options."Marshall: "Baby, my mom is not staying at a hotel. Or our storage unit." - Lily Aldrin
