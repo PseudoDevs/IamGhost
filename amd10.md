@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 10:50:07
-Random Quote: My name is ASAC Schrader, and you can go f*ck yourself. - Hank Schrader
+Last updated: 2024-04-11 10:50:40
+Random Quote: Once a horse is broken to the saddle, any man can mount him.  Once a beast's been joined to a man, any skinchanger can slip inside and ride him.  Orell was withering inside his feathers, so I took the eagle for my own.  But the joining works both ways, warg.  Orell lives inside me now, whispering how much he hates you.  And I can soar above the Wall, and see with eagle eyes.  -  Varamyr Sixskins
