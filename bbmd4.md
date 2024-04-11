@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 08:53:47
-Random Quote: Oh my god, you have a monocle! Is this real? Is this really happening? Good luck killing James Bond! - Ted Mosby
+Last updated: 2024-04-11 08:54:26
+Random Quote: When you tear out a man's tongue, you are not proving him a liar, you're only telling the world that you fear what he might say.  -  Tyrion Lannister
