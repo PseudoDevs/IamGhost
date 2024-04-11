@@ -1,3 +1,3 @@
-Last updated: 2024-04-11 08:00:42
-Random Quote: The Deep: "What do we do? We can't just kill everyone."
-Billy Butcher: "That's exactly what we're gonna do!" - Billy Butcher
+Last updated: 2024-04-11 08:01:16
+Random Quote: Lily: "We don't wanna burden our little angel with all kinds of gender-specific expectations. Boys can do ballet, girls can play football."
+Marshall: "Hell, the Green Bay Packers have been proving that for years." - Marshall Eriksen
