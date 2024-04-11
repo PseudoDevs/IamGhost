@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 09:39:50
-Random Quote: I like my testicles attached to my body, rather than rolling around next to some eyeliner in Robin's purse. Stinson out! - Barney Stinson
+Last updated: 2024-04-11 09:40:28
+Random Quote: Lily: "We'll all have a wedding dress camp-out. It'll be fun!"Barney: "I can't go. I've got this thing."Lily: "What thing?"Barney: "A penis!" - Barney Stinson
