@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 10:27:30
-Random Quote: I don't remember much between the ages of eight and twelve. Just that the world moved fast and my brain moved slow. And every now and then, if I focused too closely on the way I breathed, I'd die. Until every second of every day, you find yourself trying to outrun your anxiety. - Rue Bennett
+Last updated: 2024-04-11 10:28:06
+Random Quote: Turns out, when you projectile vomit on skates, you roll right into the spray. - Ted Mosby
