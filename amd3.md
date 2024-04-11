@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 08:28:53
-Random Quote: Elia of Dorne.  I killed her screaming whelp.  Then I raped her.  Then I smashed her fucking head in like this.  -  Gregor Clegane
+Last updated: 2024-04-11 08:29:26
+Random Quote: Never bring a knife to a sword fight. Unless it's concealed. - Wednesday Addams
