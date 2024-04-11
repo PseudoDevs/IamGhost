@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 08:24:27
-Random Quote: Knights?  Dondarrion's a knight, but the rest of you are the sorriest lot of outlaws and broken men I've ever seen.  -  Sandor Clegane
+Last updated: 2024-04-11 08:25:00
+Random Quote: What if God doesn’t know what he’s doing? If the plan is wrong? If God is wrong? - 
