@@ -1,4 +1,2 @@
-Last updated: 2024-04-11 08:18:34
-Random Quote: Rick: "Wait a minute! Is that Mountain Dew in my quantum-transport-solution?"
-Morty: "I saw you were marking the level so I had to top it off."
-Rick: "Top it off? Do you know how dangerously toxic this stuff is? And you added it to my portal fluid?" - Rick Sanchez
+Last updated: 2024-04-11 08:19:11
+Random Quote: Come on Ted, it's 2012. What do you expect, to meet some cute travel agent when you're reading a newspaper at a bookstore? None of those things exist anymore! - Barney Stinson
