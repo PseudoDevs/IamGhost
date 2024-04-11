@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 10:24:59
-Random Quote: Alex: "Luke got his head stuck in the banister again."Phil: "I got it. Where's the babyoil?"Claire: "It's on our bedside tip- I Don't know, find it!" - Claire Dunphy
+Last updated: 2024-04-11 10:25:32
+Random Quote: Folly and desperation are ofttimes hard to tell apart.  -  Maester Luwin
