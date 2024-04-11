@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 10:09:51
-Random Quote: Space. Time. Reality. It's more than a linear path. It's a prism of endless possibility. - The Watcher
+Last updated: 2024-04-11 10:10:27
+Random Quote: Edric Storm, they call him.  He is said to be the very image of my brother.  If men were to see him, and then look again at Joffrey and Tommen, they could not help but wonder, I would think.  -  Stannis Baratheon
