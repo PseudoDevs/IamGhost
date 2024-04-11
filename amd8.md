@@ -1,3 +1,2 @@
-Last updated: 2024-04-11 10:48:02
-Random Quote: Jessica: "I miss you."
-Morty: "You miss the old me. You miss someone that loved you so much, you never had to love him back." - Morty Smith
+Last updated: 2024-04-11 10:50:59
+Random Quote: There is only one street where that is normal. Here's a hint: A giant yellow bird lives on it. - Barney Stinson
