@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 09:12:12
-Random Quote: In commemoration of Barney's induction into the "Hall of Game", this tie, worn on the seventh night of his perfect week, is hereby retired. - Lily Aldrin
+Last updated: 2024-04-11 09:13:26
+Random Quote: Oh, Cersei is lovely to look at, truly, but cold... the way she guards her cunt, you'd think she had all the gold of Casterly Rock between her legs.  -  Robert Baratheon

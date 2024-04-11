@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 09:12:47
-Random Quote: Marshall: "Lily dream-banged someone we know."Barney: "Okay, you caught me vermilion-handed. The truth is, I've spent the last five years trying to inception your wife."Marshall: "That movie only came out two years ago."Barney: "What movie?" - Barney Stinson
+Last updated: 2024-04-11 09:13:26
+Random Quote: When I'm king in my own right, I'm going to outlaw beets.  -  Tommen Baratheon

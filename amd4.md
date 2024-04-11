@@ -1,2 +1,3 @@
-Last updated: 2024-04-11 09:12:12
-Random Quote: If you don't push, I will shove that baby up your throat and pull it out of your mouth! - Dr. Sonya
+Last updated: 2024-04-11 09:13:26
+Random Quote: Larissa: "So you automatically assume a Nevermore student is the murderer, even though there's no evidence a crime was even committed."
+Donovan: "I'm sorry. I forgot, you only teach the good outcasts here, right?" - Donovan Galpin
