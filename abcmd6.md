@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 08:50:32
-Random Quote: I asked him why he kept her close, if he thought her so grotesque.  He said that all his other knights wanted things of him, castles or honors or riches, but all that Brienne wanted was to die for him.  -  Loras Tyrell
+Last updated: 2024-04-11 08:51:38
+Random Quote: I was in the desert. But if visiting the sands were a crime, the line of sinners would be longer than the Nile. - Arthur Harrow
