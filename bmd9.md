@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 10:43:56
-Random Quote: Ted, I believe you and I met for a reason. It's like the universe was saying: "Hey Barney, there's this dude, he's pretty cool, but it's your job to make him awesome." - Barney Stinson
+Last updated: 2024-04-11 10:44:30
+Random Quote: I'm going out of this world the same way I came into it: Buck-naked. Yeah. It's gonna be awesome. Open bar for the guys, open casket for the ladies. What up? - Barney Stinson
