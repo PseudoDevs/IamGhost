@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 08:35:55
-Random Quote: And, you know, you just can't be mad at me for wanting you to be okay. - Rue Bennett
+Last updated: 2024-04-11 08:38:23
+Random Quote: The Lord of Light cherishes the innocent.  There is no sacrifice more precious.  From his king's blood and his untainted fire, a dragon shall be born.  -  Melisandre
