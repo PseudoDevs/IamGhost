@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 09:52:29
-Random Quote: All men are fools, if truth be told, but the ones in motley are more amusing than the ones with crowns.  -  Olenna Tyrell
+Last updated: 2024-04-11 09:53:03
+Random Quote: Fine, you guys can have a baby, but only under these conditions:1) You promise to always love me more than the baby.2) Once a month, I get to use the baby to pick up chicks.3) That may involve the baby falling from a two-story window and me heroically catching it.4) No breast-feeding in front of me.5) Forget about 4), you can whip 'em out whenever you want. - Barney Stinson
