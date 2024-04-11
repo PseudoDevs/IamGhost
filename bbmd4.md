@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 10:46:17
-Random Quote: I already told you what you can do with your money. You seem like a guy who can take a hint, so what are we doing? - Mike Ehrmantraut
+Last updated: 2024-04-11 10:46:51
+Random Quote: You don’t love anyone? Of course you don’t, darling. You don’t have the balls for it. To love, you need courage. - Nairobi
