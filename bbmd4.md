@@ -1,2 +1,4 @@
-Last updated: 2024-04-11 08:30:21
-Random Quote: Lily: "Whenever we board a flight, you lick the plane!"Marshall: "Have we crashed even once?" - Marshall Eriksen
+Last updated: 2024-04-11 08:31:34
+Random Quote: Greef: "Nevarro is a very fine planet. And now that the scum and villainy have been washed away, it's very respectable again."
+Mando: "As a bounty hunter hive?"
+Greef: "Some of my favorite people are bounty hunters." - Greef Karga
