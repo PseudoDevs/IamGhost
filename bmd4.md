@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 10:28:17
-Random Quote: If you want my advice? Get out of your own goddamn drama for a minute. - Nicky Nichols
+Last updated: 2024-04-11 10:28:50
+Random Quote: I just want to stand on top of the Wall and piss off the edge of the world.  -  Tyrion Lannister
