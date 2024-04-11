@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 10:45:20
-Random Quote: I am Pablo Emilio Escobar Gaviria. My eyes are everywhere. That means you guys can't move a finger in all of Antioquia without me knowing about it. Do you understand? Not a finger. One day, I'm going to be president of the Republic of Colombia. So look, I make deals for a living. Now, you can stay calm and accept my deal, or accept the consequences. - Pablo Escobar
+Last updated: 2024-04-11 10:45:53
+Random Quote: My arm hasn't been this sore, since I was 13 years old and figured out how to lock a bathroom. - Barney Stinson
