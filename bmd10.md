@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 10:43:14
-Random Quote: Take the foundling to the city of Calodan on the forest planet Corvus. There, you will find Ahsoka Tano. Tell her you were sent by Bo-Katan. - Bo-Katan
+Last updated: 2024-04-11 10:43:47
+Random Quote: There is a time to fight and there is a time to be clever. - Pablo Escobar
