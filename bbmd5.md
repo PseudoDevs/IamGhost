@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 08:10:29
-Random Quote: Ted: "My mother is not one-night-stand material!"Barney: "Yeah, you're right. It wasn't night and we weren't standing." - Barney Stinson
+Last updated: 2024-04-11 08:12:22
+Random Quote: Very nice, Lily. You know, she is a guest in this country. So while you may choose to turn your back on her, I choose... to turn my front on her. What up! - Barney Stinson
