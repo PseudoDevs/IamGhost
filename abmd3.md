@@ -1,2 +1,3 @@
-Last updated: 2024-04-11 09:22:49
-Random Quote: Did the boy charm you?  He has that gift.  He got it from his father, with the blood.  He knows he is a king's son, but chooses to forget that he is bastard - born. 
+Last updated: 2024-04-11 09:23:26
+Random Quote: Lily: "I can't believe I unloaded like that on a high-school senior."
+Robin: "I can't believe a high-school senior unloaded like that on me." - Robin Scherbatsky
