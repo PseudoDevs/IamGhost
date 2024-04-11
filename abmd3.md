@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 09:28:20
-Random Quote: Master Mott said Thoros could outdrink even King Robert.  They were pease in a pod, he told me, both gluttons and sots.  -  Gendry
+Last updated: 2024-04-11 09:29:31
+Random Quote: Here's the thing, kids: When you believe in people, people come through. - Ted Mosby
