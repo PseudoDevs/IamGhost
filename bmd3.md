@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 08:01:55
-Random Quote: Quinn: "I have to pay $2,000 every time I gain a pound?"Barney: "Not every time. Just if it shows up at the weekly weigh-in." - Barney Stinson
+Last updated: 2024-04-11 08:02:27
+Random Quote: Kingthlayer... you are my captifth.  -  Vargo Hoat
