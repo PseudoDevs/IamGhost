@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 08:13:28
-Random Quote: Roose Bolton's cold and cunning, aye, but a man can deal with Roose.  We've all known worse.  But this bastard son of his... they say he's mad and cruel, a monster.  -  Locke
+Last updated: 2024-04-11 08:14:01
+Random Quote: When I'm king in my own right, I'm going to outlaw beets.  -  Tommen Baratheon
