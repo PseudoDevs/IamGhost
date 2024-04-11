@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 10:40:41
-Random Quote: What I'm doing here... is building an empire. - Miguel Angel Felix Gallardo
+Last updated: 2024-04-11 10:41:14
+Random Quote: No.  You were the betrayer.  You turned against me, against your own blood.  They cheated me.  Your horsey husband and his stinking savages.  They were cheats and liars.  They promised me a golden crown and gave me this.  -  Viserys Targaryen
