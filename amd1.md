@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 10:47:27
-Random Quote: Ted: "You're scared of the seven dwarves?"Robin: "Just of Doc. He's creepy... I mean, the guy went to medical school, what is he doing living with six coalminers." - Robin Scherbatsky
+Last updated: 2024-04-11 10:48:02
+Random Quote: You wear your honor like a suit of armor, Stark.  You think it keeps you safe, but all it does is weigh you down and make it hard for you to move.  -  Petyr Baelish
