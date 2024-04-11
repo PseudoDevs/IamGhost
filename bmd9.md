@@ -1,2 +1,4 @@
-Last updated: 2024-04-11 09:37:57
-Random Quote: Nobody exists on purpose. Nobody belongs anywhere. We're all going to die. Come watch TV? - Morty Smith
+Last updated: 2024-04-11 09:38:34
+Random Quote: Lorna Morello: "I need to start tightening up. You're making me feel like a cave."
+Nicky Nichols: "Baby, it's a c-nt, it stretches!"
+Lorna Morello: "Yeah, sometimes I feel like you're trying to climb inside my womb." - Lorna Morello
