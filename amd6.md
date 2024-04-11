@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 10:34:00
-Random Quote: Never buy a girl flowers, 'cause giving her a living thing reminds her of babies. - Barney Stinson
+Last updated: 2024-04-11 10:34:32
+Random Quote: Then perhaps Lord Eddard should have kept you chained to a dungeon wall.  Instead he raised you among his own sons, the sweet boys you have butchered, and to my undying shame I trained you in the arts of war.  Would that I had thrust a sword through your belly instead of placing one in your hand.  -  Rodrik Cassel
