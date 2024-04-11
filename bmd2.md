@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 09:56:45
-Random Quote: Sex now, we'll do the foreplay after. - Lily Aldrin
+Last updated: 2024-04-11 09:57:55
+Random Quote: There are worse ways to die than warm and drunk.  I knew a brother drowned himself in wine once.  It was a poor vintage, though, and his corpse did not improve it.  -  Dolorous Edd Tollett
