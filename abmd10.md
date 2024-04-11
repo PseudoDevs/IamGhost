@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 09:10:24
-Random Quote: Barney: "I was having such a good time greasing 12-year-olds."Ted: "LaserTag."Marshall: "Helpful. Continue." - Marshall Eriksen
+Last updated: 2024-04-11 09:12:12
+Random Quote: In commemoration of Barney's induction into the "Hall of Game", this tie, worn on the seventh night of his perfect week, is hereby retired. - Lily Aldrin
