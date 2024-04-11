@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 09:21:49
-Random Quote: Fine I'll fill her in and I am so angry I am not even goin' to make a joke about "filling her in"... which I did three times last night. Self-five! - Barney Stinson
+Last updated: 2024-04-11 09:22:22
+Random Quote: The other thing about depression is it kind of collapses time. Suddenly, you find your whole days blending together to create one endless and suffocating loop. So you find yourself trying to remember the things that made you happy. But slowly, your brain begins to erase every memory that ever brought you joy. And eventually, all you can think about is how life has always been this way. And will only continue to be this way. - Rue Bennett
