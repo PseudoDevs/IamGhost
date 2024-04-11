@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 08:54:51
-Random Quote: My real father died in King's Landing.  I made a choice, and I chose wrong.  -  Theon Greyjoy
+Last updated: 2024-04-11 08:55:24
+Random Quote: Old stories are like old friends, Old Nan used to say.  You have to visit them from time to time.  -  Bran Stark
