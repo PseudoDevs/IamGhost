@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 08:00:11
-Random Quote: Nuncle always had a fondness for freaks and fools.  My father used to fight with him about it.  Let the wizards call upon their gods.  The Damphair will call on ours, and drown them.  -  Asha Greyjoy
+Last updated: 2024-04-11 08:01:20
+Random Quote: And, you know, you just can't be mad at me for wanting you to be okay. - Rue Bennett
