@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 10:19:55
-Random Quote: The world was full of cravens who pretended to be heroes; it took a queer sort of courage to admit to cowardice as Samwell Tarly had.  -  Jon Snow
+Last updated: 2024-04-11 10:20:30
+Random Quote: I have been called many things, my lord, byt kind is seldom one of them.  -  Maester Aemon

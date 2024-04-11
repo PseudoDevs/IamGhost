@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 10:19:55
-Random Quote: Lily: "Your job is very simple. At the wedding, do not sleep with anyone even remotely related to me."Barney: "Yeah. Lily, you know I can't promise that" - Barney Stinson
+Last updated: 2024-04-11 10:20:30
+Random Quote: His blood ran black.  Made him my brother as much as yours.  -  Yoren of the Night's Watch
