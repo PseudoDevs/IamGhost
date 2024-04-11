@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 09:19:37
-Random Quote: See, lad, that's why he's the king and I'm not.  I can outdrink, outfight, and outsing him, and my member's thrice the size o' his, but Mance has cunning.  -  Tormund Giantsbane
+Last updated: 2024-04-11 09:20:10
+Random Quote: By what right does the wolf judge the lion?  -  Jaime Lannister
