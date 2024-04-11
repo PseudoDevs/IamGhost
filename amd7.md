@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 08:47:49
-Random Quote: The stone is strong... the roots of the trees grow deep, and under the ground the Kings of Winter sit their thrones.  So long as those remained, Winterfell remained.  It was not dead, just broken.  Like me... I'm not dead either.  -  Bran Stark
+Last updated: 2024-04-11 08:48:22
+Random Quote: Whatever happens next, it's not gonna go down the way you think it is. - Mike Ehrmantraut
