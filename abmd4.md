@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 10:41:39
-Random Quote: Clint: "Ted, your mother is a very, very erotic woman."Ted: "Please don't." - Ted Mosby
+Last updated: 2024-04-11 10:42:12
+Random Quote: Who do you think killed all the dragons the last time around?  Gallant dragonslayers armed with swords?  The world the Citadel is building has no place in it for sorcery or prophecy or glass candles, much less for dragons.  Ask yourself why Aemon Targaryen was allowed to waste his life upon the Wall, when by rights he should have been raised to archmaester.  His blood was why.  He could not be trusted.  No more than I can.  -  Archmaester Marwyn
