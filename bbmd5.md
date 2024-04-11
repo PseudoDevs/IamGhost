@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 08:37:59
-Random Quote: We're done when I say we're done. - Walter White
+Last updated: 2024-04-11 08:38:32
+Random Quote: I asked him why he kept her close, if he thought her so grotesque.  He said that all his other knights wanted things of him, castles or honors or riches, but all that Brienne wanted was to die for him.  -  Loras Tyrell
