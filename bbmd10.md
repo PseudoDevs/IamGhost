@@ -1,3 +1,2 @@
-Last updated: 2024-04-11 08:31:31
-Random Quote: Mi-nyeo: "Deok-su. You betray me... I'll kill you. Okay?"
-Deok-su: "You're the reason that I think I might die tonight." - Jang Deok-su
+Last updated: 2024-04-11 08:32:04
+Random Quote: They're minerals, Marie! Jesus! - Hank Schrader
