@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 09:12:18
-Random Quote: When the sun has set, no candle can replace it.  -  Loras Tyrell
+Last updated: 2024-04-11 09:12:51
+Random Quote: You don't parley when you're on the back foot. We'll strike a blow back first. - Thomas Shelby
