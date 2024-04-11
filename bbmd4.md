@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 08:12:08
-Random Quote: What you have to do is show these suckers what you’re capable of. Show them you’re not scared. - Nairobi
+Last updated: 2024-04-11 08:12:41
+Random Quote: There's kids playing hockey in the back. It's like you want us to make fun of you! - Barney Stinson
