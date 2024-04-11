@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 08:42:07
-Random Quote: Have you been arrested in a mall?Dumped in a mall?Turned out you're Canadian in a mall? - Ted Mosby
+Last updated: 2024-04-11 08:42:44
+Random Quote: We were king's men, knights, and heroes... but some knights are dark and full of terror, my lady.  War makes monsters of us all.  -  Thoros of Myr
