@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 09:19:02
-Random Quote: Why have average when you can have extraordinary? - Madelyn Stillwell
+Last updated: 2024-04-11 09:19:37
+Random Quote: See, lad, that's why he's the king and I'm not.  I can outdrink, outfight, and outsing him, and my member's thrice the size o' his, but Mance has cunning.  -  Tormund Giantsbane
