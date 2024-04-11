@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 09:38:32
-Random Quote: I only have one rule. For every three 10's you bang, throw a bone to a 5. They're grateful and hard working and let's face it, sometimes you just want to lay there. - Barney Stinson
+Last updated: 2024-04-11 09:39:06
+Random Quote: You know what they say about relationships. Every waking moment's a battle. - Barney Stinson
