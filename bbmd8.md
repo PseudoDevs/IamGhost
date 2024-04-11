@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 09:57:54
-Random Quote: Barney: "Tell me more. Tell me more. Like did he have a car?"Marshall: "So is he the guy who... how shall I say this like a gentleman? Robin, did he take your maple leaf?"Barney: "Sounds to me like he gave you your first 'O Canada' face!" - Barney Stinson
+Last updated: 2024-04-11 09:58:30
+Random Quote: No, that you think you'll graduate High-School. - Meemaw
