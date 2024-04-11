@@ -1,4 +1,2 @@
-Last updated: 2024-04-11 09:00:02
-Random Quote: Bo-Katan: "I've scugged off a lot of Imperial warlords."
-Din: "They tend to get mad when you hijack their ships."
-Bo-Katan: "Now you tell me." - Bo-Katan
+Last updated: 2024-04-11 09:00:38
+Random Quote: The beauty of a moment, is that it's fleeting. - Ted Mosby
