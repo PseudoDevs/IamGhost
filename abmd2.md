@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 08:25:20
-Random Quote: The end of a rope has been this man's destiny since the night he was born. - Chester Campbell
+Last updated: 2024-04-11 08:27:16
+Random Quote: There is a savage beast in every man, and it stirs when you put a sword in his hand.  -  Jorah Mormont
