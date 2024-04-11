@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 08:23:54
-Random Quote: Out there, I don't stand a chance. I do in here. - Jang Deok-su
+Last updated: 2024-04-11 08:24:27
+Random Quote: Knights?  Dondarrion's a knight, but the rest of you are the sorriest lot of outlaws and broken men I've ever seen.  -  Sandor Clegane
