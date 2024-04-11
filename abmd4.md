@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 10:15:21
-Random Quote: Young or old, a true knight is sworn to protect those who are weaker than himself, or die in the attempt.  -  Brienne of Tarth
+Last updated: 2024-04-11 10:15:54
+Random Quote: Heroes are not born, they're forged in darkness. Shaped in battle. Defined by sacrifice. - The Watcher
