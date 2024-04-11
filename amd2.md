@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 10:15:09
-Random Quote: What is dead may never die, but rises again, harder and stronger  -  Words of the Drowned God
+Last updated: 2024-04-11 10:15:45
+Random Quote: You think you're the only one he whispers secrets to?  He gives each of us just enough to convince us that we'd be helpless without him.  -  Cersei Lannister
