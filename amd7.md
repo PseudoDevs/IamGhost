@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 08:22:16
-Random Quote: Get ready, Cleveland. The last man to screw you that hard and then disappear, was LeBron James! - Barney Stinson
+Last updated: 2024-04-11 08:23:28
+Random Quote: It all goes back and back.  To our mothers and fathers and theirs before them.  We are puppets dancing on the strings of those who came before us, and one day our own children will take up our strings and dance in our steads.  -  Tyrion Lannister
