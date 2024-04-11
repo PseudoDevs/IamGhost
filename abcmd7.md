@@ -1,2 +1,3 @@
-Last updated: 2024-04-11 10:38:12
-Random Quote: You ever touch me again, I will burn your eyes out! - Starlight
+Last updated: 2024-04-11 10:38:45
+Random Quote: Billy: "Halloween's a magical holiday. All about family, friends, and the thrill of getting to be someone else for a day."
+Tommy: "Wrong! Halloween's about candy. And scaring people, but mostly candy." - Tommy Maximoff
