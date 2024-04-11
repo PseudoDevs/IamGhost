@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 09:47:44
-Random Quote: Place was overrun with rats when we moved in.  The spearwives killed the nasty buggers.  Now the place is overrun with spearwives.  There's days I want the rats back.  -  Dolorous Edd Tollett
+Last updated: 2024-04-11 09:48:19
+Random Quote: Just remember who your friends and who your enemies are. - Billy Butcher
