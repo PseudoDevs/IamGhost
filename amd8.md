@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 08:05:46
-Random Quote: Sometimes you gotta do bad things to catch bad people. - Javier Pe�a
+Last updated: 2024-04-11 08:06:19
+Random Quote: When you spend years thinking about something obsessively, that something is your whole world, your perfect world. - Tokyo
