@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 10:07:54
-Random Quote: Jesus was a fag! He said: 'This is my body. Eat me.' - Big Boo
+Last updated: 2024-04-11 10:08:27
+Random Quote: My daughter has taken an axe for a lover.  I will not have my son bedeck himself like a whore.  It is as I feared.  The green lands have made you soft, and the Starks have made you theirs.  -  Balon Greyjoy
