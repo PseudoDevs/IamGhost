@@ -1,4 +1,2 @@
-Last updated: 2024-04-11 09:21:49
-Random Quote: Ellie: "Can I have a gun?"
-Joel: "Absolutely not."
-Ellie: "Okay, Jesus. Fine. I'll have to throw a f-ckin' sandwich at them." - Ellie Williams
+Last updated: 2024-04-11 09:22:22
+Random Quote: Shelly, remember when you thought you had leprosy, and it was just a patch of dry skin? - Mary
