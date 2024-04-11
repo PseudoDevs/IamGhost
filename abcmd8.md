@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 08:29:10
-Random Quote: Honey, don't you think the little rocks would hurt your nose, if you're trying to snort crack? I think you mean coke. - Piper Chapman
+Last updated: 2024-04-11 08:29:46
+Random Quote: A man lives three lives. The first one ends with the loss of naivety, the second, with the loss of innocence and the third… with the loss of life itself. It’s inevitable that we go through all three stages. - Adam
