@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 08:06:54
-Random Quote: You don't get to tell anyone what's sad. You're like a one-man Mount Sadmore. So I guess like a Lincoln Sadmorial. - Rick Sanchez
+Last updated: 2024-04-11 08:07:27
+Random Quote: Why the oldest son, and not the best - fitted?  The crown will suit me, as it never suited Robert and would not suit Stannis. 
