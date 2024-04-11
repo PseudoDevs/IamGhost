@@ -1,2 +1,5 @@
-Last updated: 2024-04-11 09:53:43
-Random Quote: You two suck at peddling meth. - Saul Goodman
+Last updated: 2024-04-11 09:54:54
+Random Quote: Therapist: "You need to stop doing these weird things. Go out sometime."
+Klaus: "I went to the park today."
+Therapist: "There you go! I hope you got something from that."
+Klaus: "[Opens up coat] This duck." - Klaus Hargreeves
