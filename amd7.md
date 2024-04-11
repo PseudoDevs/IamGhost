@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 10:25:14
-Random Quote: Reality is more than neurons firing around in your brain. Reality is not what's on the inside. It's what's happening on the outside. - Daniel Solace
+Last updated: 2024-04-11 10:25:48
+Random Quote: My name is ASAC Schrader, and you can go f*ck yourself. - Hank Schrader
