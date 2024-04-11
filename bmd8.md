@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 10:46:16
-Random Quote: Barney: "I only smoke in certain situations. Postcoital, when I'm with Germans, sometimes those two overlap, coital, birthdays, to annoy my mom, precoital, on a sailboat, the day the Mets are mathematically eliminated every year and pregnancy scares."Ted: "Why are you smoking right now?"Barney: "I'm always precoital, Ted." - Barney Stinson
+Last updated: 2024-04-11 10:47:27
+Random Quote: A guy opens his door and gets shot and you think that of me? No. I am the one who knocks! - Walter White
