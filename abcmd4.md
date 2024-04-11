@@ -1,3 +1,2 @@
-Last updated: 2024-04-11 09:16:35
-Random Quote: Woman: "You know this isn't Vegas, right?"
-Robin: "Well sure, in Vegas the casinos pump in oxygen, in Atlantic City it looks like everyone brought their own." - Robin Scherbatsky
+Last updated: 2024-04-11 09:17:48
+Random Quote: Robert could piss in a cup and men would call it wine, but I offer them cold clear water and they squint in suspicion and mutter to each other about how queer it tastes.  -  Stannis Baratheon
