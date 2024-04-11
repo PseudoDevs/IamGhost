@@ -1,2 +1,3 @@
-Last updated: 2024-04-11 10:41:04
-Random Quote: Morty: "Why don't you admit you don't want anyone else to be happy because you're a sad old fart?"Rick: "How do you saddle a fart?" - Rick Sanchez
+Last updated: 2024-04-11 10:41:38
+Random Quote: Morticia: "That boy's family was going to file attempted murder charges. How would that have looked on your record?"
+Wednesday: "Terrible. Everyone would know I failed to get the job done." - Wednesday Addams
