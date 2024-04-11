@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 08:22:16
-Random Quote: My real father died in King's Landing.  I made a choice, and I chose wrong.  -  Theon Greyjoy
+Last updated: 2024-04-11 08:24:05
+Random Quote: I hate kids. They don't drink, they haven't travelled... - Nicky Nichols
