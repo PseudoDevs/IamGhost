@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 10:31:53
-Random Quote: We all must choose.  Man or woman, young or old, lord or peasant, our choices are the same.  We choose light or we choose darkness.  -  Melisandre
+Last updated: 2024-04-11 10:32:26
+Random Quote: Serve, Obey, Protect.  Simple vows for a simple man.  -  Areo Hotah
