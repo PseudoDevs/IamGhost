@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 09:42:42
-Random Quote: I drank when I was pregnant with you, you turned out fine. There's everybody saying 'don't drink, don't smoke'. I swear - Texas is turning into California. - Meemaw
+Last updated: 2024-04-11 09:43:15
+Random Quote: There's proving and there's knowing. -  Bill Oakley
