@@ -1,3 +1,2 @@
-Last updated: 2024-04-11 09:34:52
-Random Quote: Wyatt Langmore: "This job's my old man's idea. Something about 'calluses and character'."
-Charlotte Byrde: "Yeah, well, you're blowing leaves, not hiding Anne Frank." - Charlotte Byrde
+Last updated: 2024-04-11 09:37:21
+Random Quote: I believe the world's a bad place. And I don't think I'm much better. But we have to try. - Walt Breslin
