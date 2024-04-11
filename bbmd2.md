@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 10:58:48
-Random Quote: Nobody takes an intro class to get on any other path, but the path to not being hungover anymore. I learned that in my intro to something-ology class. - Marshall Eriksen
+Last updated: 2024-04-11 10:59:23
+Random Quote: Time is crucial in a kidnapping. The sooner action's taken, the better your chances of things working out, and everybody coming home in one piece. They put that in the handbook nowadays. - Walt Breslin
