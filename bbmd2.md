@@ -1,3 +1,2 @@
-Last updated: 2024-04-11 08:30:58
-Random Quote: "How do you take your tea?"
-Ted: "Well, normally right back to the counter because there's been a terrible mistake." - Jim Hopper
+Last updated: 2024-04-11 08:31:34
+Random Quote: Shut the f*ck up and let me die in peace. - Mike Ehrmantraut
