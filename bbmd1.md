@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 09:34:29
-Random Quote: You better go to your room before I give you a smack. Smacking is still an acceptable punishment in many minority cultures. - Nalini Vishwakumar
+Last updated: 2024-04-11 09:35:03
+Random Quote: Because they are the knights of summer, and winter is coming.  -  Catelyn Stark
