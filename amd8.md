@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 08:50:07
-Random Quote: A true man does what he will, not what he must.  -  Cersei Lannister
+Last updated: 2024-04-11 08:51:21
+Random Quote: Silver or lead. You decide. - Pablo Escobar
