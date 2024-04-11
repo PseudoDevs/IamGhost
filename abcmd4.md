@@ -1,3 +1,2 @@
-Last updated: 2024-04-11 08:06:59
-Random Quote: HR: "I know this is classic HR to say, but: You're not alone."
-Steven: "Yeah. That's like, part of the problem, innit?" - Arthur Harrow
+Last updated: 2024-04-11 08:07:32
+Random Quote: I feel like love is super dark and no one ever talks about it. - Cassie Howard
