@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 09:52:31
-Random Quote: Robin: "Ted, are you acting out the last scene of 'Sleepless in Seattle' with little dolls?"Ted: "How long have you been out here?"Robin: "Ten seconds."Ted: "Yeah - just the last scene." - Robin Scherbatsky
+Last updated: 2024-04-11 09:53:44
+Random Quote: He would see this country burn if he could be king of the ashes.  -  Varys
