@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 08:10:29
-Random Quote: She's gotta start working on tightening her pussy muscles, 'cause her fiance's dick is so small, it's like a hot dog in a hallway. - Nicky Nichols
+Last updated: 2024-04-11 08:11:07
+Random Quote: A dog who bites every owner he's had can only be disciplined with a firm hand. Or put down. - Gustavo Fring

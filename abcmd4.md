@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 08:09:13
-Random Quote: If you don't push, I will shove that baby up your throat and pull it out of your mouth! - Dr. Sonya
+Last updated: 2024-04-11 08:11:06
+Random Quote: Harry and Meghan, move over! This is what fairy tales are made of. They'd been together for two whole weeks, which for teenagers is basically a lifetime of monogamy. Although between us, it had been a surprisingly PG-13 two weeks. - John McEnroe

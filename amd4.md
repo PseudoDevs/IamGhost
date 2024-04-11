@@ -1,3 +1,2 @@
-Last updated: 2024-04-11 08:10:27
-Random Quote: Jerry: "Well, traditionally, science faires are a father-son thing."
-Rick: "Well, scientifically, traditions are an idiot thing." - Rick Sanchez
+Last updated: 2024-04-11 08:11:06
+Random Quote: Mitchell: "we've decided we really wanted to have a baby so, we initially asked one of our lesbian friends to be a surrogate."Cameron: "Then we figured, they already mean enough, can you imagine one of them pregnant?" - Cameron Tucker
