@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 08:51:54
-Random Quote: We all wear masks. We all pretend. Presenting a perfect illusion on the outside, while we desperately try to hide who we are on the inside. - Ángel
+Last updated: 2024-04-11 08:52:29
+Random Quote: Give me back my spear, Uncle.  Cersei sent us a head.  We should send her back a bag of them.  -  Obara Sand
