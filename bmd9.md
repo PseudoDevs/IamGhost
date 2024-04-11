@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 08:57:33
-Random Quote: Demons made of snow and ice and cold.  The ancient enemy.  The only enemy that matters.  -  Stannis Baratheon
+Last updated: 2024-04-11 08:58:09
+Random Quote: Power resides where men believe it resides... It's a trick, a shadow on the wall.  -  Varys
