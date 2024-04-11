@@ -1,4 +1,2 @@
-Last updated: 2024-04-11 09:07:37
-Random Quote: Ted: "It's freezing out there. Where's your coat?"
-Robin: "Ted, I'm Canadian. I don't need a coat. This kind of weather is nothing for me."
-Marshall: "Yeah. This is like a spring day back in Minnesota." - Marshall Eriksen
+Last updated: 2024-04-11 09:08:10
+Random Quote: The bad guys need to get lucky every time. The good guys just need to get lucky once. - Steve Murphy
