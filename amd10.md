@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 10:02:23
-Random Quote: Rattleshirt, we called him.  Treacherous and bloodthirsty.  If there's honor in him, he hides it down beneath his suit of bones.  -  Jon Snow
+Last updated: 2024-04-11 10:02:56
+Random Quote: If you don't like where you're heading, there's no shame in going back and changing your path. - Chuck McGill
