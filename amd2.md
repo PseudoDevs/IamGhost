@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 10:49:30
-Random Quote: My father won all the battles.  He killed Prince Rhaegar and took the crown, while your father was hiding under Casterly Rock.  A strong king acts boldly, he doesn't just talk.  -  Joffrey Baratheon
+Last updated: 2024-04-11 10:50:03
+Random Quote: No.  You were the betrayer.  You turned against me, against your own blood.  They cheated me.  Your horsey husband and his stinking savages.  They were cheats and liars.  They promised me a golden crown and gave me this.  -  Viserys Targaryen
