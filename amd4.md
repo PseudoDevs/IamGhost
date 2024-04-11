@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 10:04:02
-Random Quote: Family members help each other, no questions asked. Because it makes you happy and your life depends on it. You have your plan, I know. Well, I have one, too. You’ve taught me that we help each other. That’s who we are. - Nairobi
+Last updated: 2024-04-11 10:04:35
+Random Quote: Marshall: "Let the dinnertainment begin!"Barney: "That reminds me there's this other restaurant we should try sometime. What they do is, they cook you a meal, in a little room called a 'kitchen'." - Barney Stinson
