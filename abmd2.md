@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 08:00:40
-Random Quote: So you're pregnant? Huh, looks like nobody told your boobs. - Barney Stinson
+Last updated: 2024-04-11 08:01:13
+Random Quote: I am Bo-Katan of Clan Kryze. I was born on Mandalore and fought in the Purge. I am the last of my line. - Bo-Katan
