@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 08:15:58
-Random Quote: Ted: "Those Robin's boobies?"Barney: "When new nubile hotties lean in to inspect your bundle of joy, you can inspect their bundles of joy. The Broller. God, I come up with a lot of good stuff!" - Barney Stinson
+Last updated: 2024-04-11 08:16:33
+Random Quote: You all know exactly who I am. Say my name. - Walter White
