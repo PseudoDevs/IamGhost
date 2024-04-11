@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 10:05:40
-Random Quote: Heroes are not born, they're forged in darkness. Shaped in battle. Defined by sacrifice. - The Watcher
+Last updated: 2024-04-11 10:06:18
+Random Quote: Why is it always the innocents who suffer most, when you high lords play your game of thrones?  -  Varys
