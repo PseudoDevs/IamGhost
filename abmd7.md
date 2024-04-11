@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 08:02:57
-Random Quote: I don't care if you're so scared you foul your breeches, and I don't care if a thousand wildlings are coming over the walls howling for your blood, you get those birds off, or I swear I'll hunt you through all seven hells and make you damn sorry that you didn't.  -  Jeor Mormont
+Last updated: 2024-04-11 08:03:32
+Random Quote: You wear your honor like a suit of armor, Stark.  You think it keeps you safe, but all it does is weigh you down and make it hard for you to move.  -  Petyr Baelish
