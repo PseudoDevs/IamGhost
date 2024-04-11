@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 10:55:59
-Random Quote: Jesus was a fag! He said: 'This is my body. Eat me.' - Big Boo
+Last updated: 2024-04-11 10:56:32
+Random Quote: Bring on your storm, my lord... and recall, if you do, the name of this castle.  -  Cortnay Penrose
