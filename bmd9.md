@@ -1,2 +1,3 @@
-Last updated: 2024-04-11 10:03:13
-Random Quote: My only aim is to take many lives. The more the better I feel. - 
+Last updated: 2024-04-11 10:03:47
+Random Quote: Morty: "You were a teenager when dad got you pregnant!"
+Beth: "I was 17. That's at least 26 in boy years." - Beth Smith
