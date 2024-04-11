@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 10:35:58
-Random Quote: Barney: "Ted what is my one rule?"Ted: "You can tell how old a girl is by her elbows?"Barney: "My other one rule."Ted: "Flax seed relieves upset stomach?"Barney: "My other one rule."Ted: "Always have a fake pair of concert tickets in your pocket in case Lily invites you to something stupid?"Barney: "My other one rule."Ted: "Labanese girls sprint to third base and then stay there."Barney: "My other one rule."Ted: "New is always better?"Barney: "New is always better!" - Barney Stinson
+Last updated: 2024-04-11 10:37:06
+Random Quote: It's like, I think about sex 24/7, but I don't really know how to do it. In the movies, you always see the girl kiss her way down the guy's body, but then, she moves off-screen. Is she stopping at the penis or kissing all the way to the foot? - Devi Vishwakumar
