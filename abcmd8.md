@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 10:47:27
-Random Quote: Love is poison.  A sweet poison, yes, but it will kill you all the same.  -  Cersei Lannister
+Last updated: 2024-04-11 10:49:13
+Random Quote: The only difference between us is, when I made bad decisions in life, I didn't get caught. - Susan Fischer
