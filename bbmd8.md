@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 09:35:29
-Random Quote: Only Renly could vex me so with a piece of fruit.  He brought his doom on himself with his treason, but I did love him, Davos.  I know that now.  I swear, I will go to my grave thinking of my brother's peach.  -  Stannis Baratheon
+Last updated: 2024-04-11 09:36:44
+Random Quote: Hey, ref, check your voicemail! I think you've missed a few calls! - Ted Mosby
