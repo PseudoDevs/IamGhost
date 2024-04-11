@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 10:18:44
-Random Quote: Life is a long journey where maps were drawn by a fool. - Juan Nepomuceno Guerra
+Last updated: 2024-04-11 10:21:06
+Random Quote: Elia of Dorne.  I killed her screaming whelp.  Then I raped her.  Then I smashed her fucking head in like this.  -  Gregor Clegane
