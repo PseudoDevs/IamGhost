@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 10:13:34
-Random Quote: Kids, you may think your only choices are to swallow your anger or throw it in someone's face, but there's a third option: You can just let it go, and only when you do that is it really gone and you can move forward. - Ted Mosby
+Last updated: 2024-04-11 10:14:07
+Random Quote: Do you know what someone with no money has in common with someone with too much money? Living is no fun for them. If you have too much money, no matter what you buy, eat, or drink, everything gets boring in the end. - Oh Il-nam
