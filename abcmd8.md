@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 09:08:01
-Random Quote: Everyone sounds like Meryl Streep with a gun to their head. - Mike Ehrmantraut
+Last updated: 2024-04-11 09:08:37
+Random Quote: Marshall: "Yes, i want a ball-room and I want a band and I want shoes. I've been dreaming about this day since I was... like...Lily: "...a little girl?" - Lily Aldrin
