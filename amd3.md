@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 09:47:08
-Random Quote: I don't need to be good at Math, I have beautiful hair. - Missy
+Last updated: 2024-04-11 09:47:44
+Random Quote: Place was overrun with rats when we moved in.  The spearwives killed the nasty buggers.  Now the place is overrun with spearwives.  There's days I want the rats back.  -  Dolorous Edd Tollett
