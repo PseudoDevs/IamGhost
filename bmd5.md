@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 08:50:55
-Random Quote: Ted: "Where does this girl live?"Robin: "We're talking about a woman who's gotten Barney to commit. I'm guessing Narnia." - Robin Scherbatsky
+Last updated: 2024-04-11 08:52:01
+Random Quote: Marshall: "Jelly beans, fluffernutter, Gummi Bears, ginger snap... this is a grocery list!"Robin: "For who? A witch building a house in the forest?"Marshall: "Sugar helps me study."Barney: "This is like the shopping a ten-year-old does when his parents leave him alone for the weekend."Lily: "What parent leaves a ten-year-old alone for the weekend?"Barney: "And your mom was perfect." - Barney Stinson
