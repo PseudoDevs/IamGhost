@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 08:16:03
-Random Quote: It's not even the lies that hurt, you know? It's the fact that you're never really emotionally prepared for someone to leave you. - Rue Bennett
+Last updated: 2024-04-11 08:16:37
+Random Quote: You don’t want a criminal lawyer. You want a criminal lawyer. - Jesse Pinkman
