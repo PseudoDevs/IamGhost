@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 08:18:30
-Random Quote: I'm a criminal, yo. - Jesse Pinkman
+Last updated: 2024-04-11 08:21:04
+Random Quote: Only when we’ve freed ourselves of emotion can we be truly free. Only when you’re willing to sacrifice what you hold dearest. - Adam
