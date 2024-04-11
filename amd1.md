@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 09:54:27
-Random Quote: They may separate us, but they'll never be able to destroy us. - Pablo Escobar
+Last updated: 2024-04-11 09:55:00
+Random Quote: Until the Mountain crushed my brother's skull, no Dornishmen had died in this War of the Five Kings.  Tell me, Captain, is that my shame or my glory?  -  Doran Martell
