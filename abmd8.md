@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 08:13:34
-Random Quote: Pennsatucky: "It weren't my fault. I was just doing as the Spirit commanded."Pussey: "Fuck are you? Joan of Arc?"Pennsatucky: "No, I'm from Waynesboro, my name is Tiffany..." - Tiffany 'Pennsatucky' Doggett
+Last updated: 2024-04-11 08:14:09
+Random Quote: Sometimes a truce is the most important part of a war. - Professor
