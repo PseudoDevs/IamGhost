@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 09:45:03
-Random Quote: Lily: "I am gonna have to walk this earth, knowing Barney has touched my boobs."Robin: "Yeah it stays with ya. His e-mail reminders don't help." - Robin Scherbatsky
+Last updated: 2024-04-11 09:45:36
+Random Quote: That's where The Boys come in: Spank the bastards when they get out of line. - Billy Butcher
