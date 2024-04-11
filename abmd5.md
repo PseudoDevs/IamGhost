@@ -1,3 +1,2 @@
-Last updated: 2024-04-11 08:25:11
-Random Quote: Morty: "I have English homework."
-Rick: "You're still learning English? It's the language you speak. How dumb are you?" - Rick Sanchez
+Last updated: 2024-04-11 08:25:45
+Random Quote: In the United States, the Mafia makes witnesses disappear so they can't testify in court. In Colombia, Pablo Escobar made the whole court disappear. - Steve Murphy
