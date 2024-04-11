@@ -1,2 +1,3 @@
-Last updated: 2024-04-11 10:19:20
-Random Quote: If that’s true, if you don’t know who I am, then maybe your best course… would be to tread lightly. - Walter White
+Last updated: 2024-04-11 10:21:40
+Random Quote: Ted: "So this is what you guys do? You invite other couples over for dinner, to judge them and feel superior?"
+Lily: "Oh, grow up, Ted, that's why any couple invites anyone over ever!" - Lily Aldrin
