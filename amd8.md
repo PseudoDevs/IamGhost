@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 10:10:27
-Random Quote: We just don't wanna rush anything, okay? We decided to wait, until she decides to let me have sex with her. - Barney Stinson
+Last updated: 2024-04-11 10:11:03
+Random Quote: Marshall: "I don't care if the dishes aren't done, okay? If you care, you do it."Lily: "Great, then I don't care if you have an orgasm. If you care, you do it." - Lily Aldrin

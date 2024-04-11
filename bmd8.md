@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 10:10:28
-Random Quote: There's no such thing as a bad idea, Morty. It's about execution. - Rick Sanchez
+Last updated: 2024-04-11 10:11:03
+Random Quote: Death.  There will be death, aye.  Your lordship lost a son at the Red Wedding, I lost four upon the Blackwater.  And why?  Because the Lannisters stole the throne.  Go to King's Landing and look upon Tommen with your own eyes, if you doubt me.  A blind man could see it.  What does Stannis offer you?  Vengeance.  Vengeance for my sons and yours, for your husbands and your fathers and your brothers.  Vengeance for your murdered lord, your murdered king, your butchered princes.  Vengeance!  -  Davos Seaworth
