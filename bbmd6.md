@@ -1,3 +1,2 @@
-Last updated: 2024-04-11 09:03:45
-Random Quote: Summer: "I think it's in our best interest to work as a team."
-Morty: "Yeah, most people would call that 'family'." - Morty Smith
+Last updated: 2024-04-11 09:05:36
+Random Quote: Give me back my spear, Uncle.  Cersei sent us a head.  We should send her back a bag of them.  -  Obara Sand
