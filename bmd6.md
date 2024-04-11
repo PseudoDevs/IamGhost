@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 09:22:59
-Random Quote: Kingthlayer... you are my captifth.  -  Vargo Hoat
+Last updated: 2024-04-11 09:23:32
+Random Quote: If we're together long enough I hope that one day you see yourself like I do. - Kevin
