@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 10:33:09
-Random Quote: Have you ever been told you're different, odd, or simply don't belong? In a world full of normies, do you feel like an outcast? Me too. But I'm pleased to tell you there's a very special place for people like us. Nevermore Academy. - Wednesday Addams
+Last updated: 2024-04-11 10:33:42
+Random Quote: When I get sad, I stop being sad and be awesome instead. True Story. - Barney Stinson
