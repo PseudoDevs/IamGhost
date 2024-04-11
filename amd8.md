@@ -1,2 +1,4 @@
-Last updated: 2024-04-11 08:19:09
-Random Quote: Some battles are won with swords and spears, others with quills and ravens.  -  Tywin Lannister
+Last updated: 2024-04-11 08:19:47
+Random Quote: Tony Stark: "Lieutenant Killmonger? What is that? German?"
+Killmonger: "A nickname."
+Tony Stark: "That's clearly a good fit." - Killmonger
