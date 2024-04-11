@@ -1,2 +1,3 @@
-Last updated: 2024-04-11 08:45:12
-Random Quote: People come into our lives exactly when they should. - Nina Locke
+Last updated: 2024-04-11 08:45:47
+Random Quote: Ellie: "Everybody I've cared for, either died or left me."
+Joel: "You have no idea what loss is." - Joel Miller
