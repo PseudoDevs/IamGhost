@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 10:49:13
-Random Quote: You know how sometimes you'll meet a girl and there'll be that one bewitching little detail that'll make you fall in love with her instantly? You know, a little freckle on the nose, the lilt of her laugh, the way she pronounces a certain word or phrase... - Ted Mosby
+Last updated: 2024-04-11 10:50:59
+Random Quote: Fool's blood, king's blood, blood on the maiden's thigh, but chains for the guests and chains for the bridegroom, aye aye aye.  -  Patchface
