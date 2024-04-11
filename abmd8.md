@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 09:19:52
-Random Quote: You can tell a lot about a person from his biography. - Phil Dunphy
+Last updated: 2024-04-11 09:20:26
+Random Quote: Bronn was no knight, that was true.  Bronn was a battle - hardened killer. 
