@@ -1,4 +1,2 @@
-Last updated: 2024-04-11 08:07:08
-Random Quote: It could be for a brother or maybe her sick dad.
-[reads] "And then I want you to do me on the couch."
-Okay, maybe not a sick dad. Or a very sick dad, am I right? - Robin Scherbatsky
+Last updated: 2024-04-11 08:07:41
+Random Quote: I didn't give up on my dream house, because that's the thing about stupid decisions - we all make them, but time is funny and sometimes a little magical. It can take a stupid decision, and turn it into something else entirely. - Ted Mosby
