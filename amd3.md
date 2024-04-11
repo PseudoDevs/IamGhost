@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 09:58:31
-Random Quote: Rhaegar fought valiantly, Rhaegar fought nobly, and Rhaegar died.  -  Jorah Mormont
+Last updated: 2024-04-11 09:59:07
+Random Quote: One does not speak unless one knows. - Din Djarin
