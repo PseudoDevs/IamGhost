@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 09:06:11
-Random Quote: You ought to have no trouble catching our uncles.  One is drunk on seawater, after all, and the other is a great grey bullock so dim he'll probably get lost.  -  Asha Greyjoy
+Last updated: 2024-04-11 09:06:46
+Random Quote: I dream of a tree sometimes.  A weirwood, like the one in the godswood.  It calls to me.  The wolf dreams are better.  I smell things, and sometimes I can taste the blood.  -  Bran Stark
