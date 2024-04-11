@@ -1,2 +1,5 @@
-Last updated: 2024-04-11 09:20:47
-Random Quote: Think of the pickup plays we can run as a father-son duo. There's the "Father Knows Breast", there's the "Bush Dynasty", the "Lick Father, Lick Son". - Barney Stinson
+Last updated: 2024-04-11 09:21:20
+Random Quote: Dina: "You're infuriating."
+Ellie: "Have you met you?"
+Dina: "You make me want to go back outside into that blizzard."
+Ellie: "No one is stopping you." - Joel Miller
