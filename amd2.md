@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 10:44:29
-Random Quote: She had seen Bronn fight on the high road; it was no accident that he had survived the journey while other men had died.  He moved like a panther, and that ugly sword of his seemed a part of his arm.  -  Catelyn Stark
+Last updated: 2024-04-11 10:45:03
+Random Quote: We all make our choices and those choices they put us on a road. And sometimes those choices seem small but they put you on the road. You think about getting off but eventually, you're back on it. - Mike Ehrmantraut
