@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 10:04:53
-Random Quote: Ted: "Those Robin's boobies?"Barney: "When new nubile hotties lean in to inspect your bundle of joy, you can inspect their bundles of joy. The Broller. God, I come up with a lot of good stuff!" - Barney Stinson
+Last updated: 2024-04-11 10:05:26
+Random Quote: I'm KFC baby - you don't mess with the Colonel's recipe! - Barney Stinson
