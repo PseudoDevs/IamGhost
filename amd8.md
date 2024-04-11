@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 08:29:46
-Random Quote: Old gods or new, it makes no matter, no man is so accursed as the kinslayer.  -  Rickard Karstark
+Last updated: 2024-04-11 08:30:21
+Random Quote: Do you remember that cave?  We should have stayed in that cave.  I told you so.  -  Ygritte
