@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 08:27:47
-Random Quote: Fire in the hole, bitch! - Jesse Pinkman
+Last updated: 2024-04-11 08:28:20
+Random Quote: Dismissing Selmy, where was the sense in that?  Yes, the man was old, but the name of Barristan the Bold still has meaning in the realm.  He lent honor to any man he served.  -  Tywin Lannister
