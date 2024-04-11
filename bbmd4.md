@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 10:32:28
-Random Quote: The Boltons have always been as cruel as they are cunning, but this one seems a beast in human skin.  -  Robett Glover
+Last updated: 2024-04-11 10:33:01
+Random Quote: I was wed three times and my wives gave me daughters.  Now only Beth remains to me.  My brother Martyn fathered four strong sons, yet only Jory lived to be a man.  When he was slain, Martyn's line died with him.  When we speak of the morrow nothing is ever certain.  -  Rodrik Cassel

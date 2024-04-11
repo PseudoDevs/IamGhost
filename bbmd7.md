@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 10:32:28
-Random Quote: Every man's a piece to start with, and every maid as well.  Even some who think they are players.  Cersei, for one.  She thinks herself sly, but in truth she is utterly predictable.  Her strength rests on her beauty, birth, and riches.  Only the first of those is truly her own, and it will soon desert her.  I pity her then.  She wants power, but has no notion what to do with it when she gets it.  -  Petyr Baelish
+Last updated: 2024-04-11 10:33:01
+Random Quote: Forgotten? Oh, Wanda, I'm incapable of forgetfulness. I remember everything. That's not an exaggeration. In fact... I'm incapable of exaggeration. - Vision
