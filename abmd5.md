@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 08:56:19
-Random Quote: Tell the Crow's Eye he's afraid of kinslaying and he'll murder one of his own sons just to prove you wrong.  -  Asha Greyjoy
+Last updated: 2024-04-11 08:56:58
+Random Quote: You sentimentalize property, you can kiss profits goodbye. - Marty Byrde
