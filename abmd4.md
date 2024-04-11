@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 10:45:39
-Random Quote: Euron Greyjoy is no man's notion of a king, if half of what Theon said of him was true.  -  Robb Stark
+Last updated: 2024-04-11 10:46:14
+Random Quote: Archeology. One big mess of obsessive bookworms. - Arthur Harrow
