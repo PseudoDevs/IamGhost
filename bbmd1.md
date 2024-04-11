@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 09:53:53
-Random Quote: You're mine.  Mine, as I'm yours.  And if we die, we die.  All men must die, Jon Snow.  But first, we'll live.  -  Ygritte
+Last updated: 2024-04-11 09:54:26
+Random Quote: You want to know the horrible truth?  I can't even remember what she looked like.  I only know she was the one thing I ever wanted, and seven kingdoms couldn't fill the hole she left behind.  -  Robert Baratheon
