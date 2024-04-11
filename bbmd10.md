@@ -1,5 +1,2 @@
-Last updated: 2024-04-11 08:33:11
-Random Quote: Morty: "Mom, I have a friend coming over. Is that cool?"
-Beth: "I told your sister no parties."
-Morty: "It's one friend."
-Beth: "That's a party to you." - Beth Smith
+Last updated: 2024-04-11 08:33:44
+Random Quote: You move at the speed of sound and I can make a pen float through the air. Who needs to abbreviate? - Wanda Maximoff
