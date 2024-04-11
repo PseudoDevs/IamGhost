@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 09:07:49
-Random Quote: Either get out early, or you get out too late. - Pacho Herrera
+Last updated: 2024-04-11 09:08:22
+Random Quote: I will see, and hear, and learn, and when I have I will carry the word back to the Wall.  The wildlings had taken him for an oathbreaker, but in his heart he was still a man of the Night's Watch, doing the last duty that Qhorin Halfhand had laid on him.  Before I killed him.  -  Jon Snow
