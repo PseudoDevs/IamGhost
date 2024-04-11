@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 08:14:01
-Random Quote: The farther you go, the sharper their blade. Just don't ever give them an opening. - Cal Jacobs
+Last updated: 2024-04-11 08:14:33
+Random Quote: In the United States, the Mafia makes witnesses disappear so they can't testify in court. In Colombia, Pablo Escobar made the whole court disappear. - Steve Murphy
