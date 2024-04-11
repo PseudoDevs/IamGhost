@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 10:39:21
-Random Quote: You cannot change the nature of things. I am who I am. And you are who you are. Nothing will change that. - Ángel
+Last updated: 2024-04-11 10:39:55
+Random Quote: Everyone wants something, Alayne.  And when you know what a man wants you know who he is, and how to move him.  -  Petyr Baelish
