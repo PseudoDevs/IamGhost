@@ -1,3 +1,2 @@
-Last updated: 2024-04-11 10:42:11
-Random Quote: Joel: "A deep breath in, slow breath out. You squeeze the trigger like you love it. Gentle, steady, nice and slow."
-Ellie: "You gonna shoot this thing or get it pregnant?" - Ellie Williams
+Last updated: 2024-04-11 10:42:45
+Random Quote: There's proving and there's knowing. -  Bill Oakley
