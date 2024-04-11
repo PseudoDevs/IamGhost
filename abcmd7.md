@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 09:44:13
-Random Quote: There are moments in life we should just be able to have a damn remote control, so you could pause it. Even if just for five minutes. But sometimes things happen with irreverent obscenity and there’s nothing you can do to help it. - Tokyo
+Last updated: 2024-04-11 09:44:47
+Random Quote: When your enemies defy you, you must serve them steel and fire.  When they go to their knees, however, you must help them back to their feet.  Elsewise no man will ever bend the knee to you.  And any man who must say "I am the king" is no true king at all.  Aerys never understood that, but you will.  When I've won your war for you, we will restore the king's peace and the king's justice.  -  Tywin Lannister
