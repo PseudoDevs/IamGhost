@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 10:42:54
-Random Quote: Robin, if you asked a hundred people: "Who's the worst person you could possibly date?" They'd all say "your therapist", except the ones saying "Barney". - Ted Mosby
+Last updated: 2024-04-11 10:43:27
+Random Quote: I did it for me. I liked it. I was good at it. And I was really... I was alive. - Walter White
