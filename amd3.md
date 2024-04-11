@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 10:05:39
-Random Quote: When you play the game of thrones, you win or you die.  There is no middle ground.  -  Cersei Lannister
+Last updated: 2024-04-11 10:06:54
+Random Quote: What I'm doing here... is building an empire. - Miguel Angel Felix Gallardo
