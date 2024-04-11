@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 09:19:04
-Random Quote: I never wanted any of it to change, but that's not how life works. - Ted Mosby
+Last updated: 2024-04-11 09:19:40
+Random Quote: It's not even the lies that hurt, you know? It's the fact that you're never really emotionally prepared for someone to leave you. - Rue Bennett
