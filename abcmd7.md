@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 09:17:35
-Random Quote: I needed to get on the shuttle so I could escape this ridiculous planetSpoiler alert, I'm still here. - Sheldon
+Last updated: 2024-04-11 09:18:08
+Random Quote: Men say Tywin never smiled, but he smiled when he wed your mother, and when Aerys made him Hand.  When Tarbeck Hall came crashing down on Lady Ellyn, that scheming bitch, Tyg claimed he smiled then, and he smiled at your birth, Jaime, I saw with my own eyes.  -  Genna Lannister
