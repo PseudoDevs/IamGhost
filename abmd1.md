@@ -1,2 +1,3 @@
-Last updated: 2024-04-11 08:06:21
-Random Quote: She hated her life, not because it was bad, but because when you hate your brain and your body, it's hard to enjoy the rest. - Rue Bennett
+Last updated: 2024-04-11 08:06:54
+Random Quote: George: "I love what you done with the place. Did you do it yourself, or did you get some pouf to help ya?"
+Rebecca: "I could ask the same of your hair." - Rebecca Welton
