@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 10:53:57
-Random Quote: Have you seen Mace Tyrell's boy?  The Knight of Flowers, they call him.  Now there's a son any man would be proud to own to.  Last tourney, he dumped the Kingslayer on his golden rump, you ought to have seen the look on Cersei's face.  I laughed till my sides hurt.  -  Robert Baratheon
+Last updated: 2024-04-11 10:54:33
+Random Quote: I will see, and hear, and learn, and when I have I will carry the word back to the Wall.  The wildlings had taken him for an oathbreaker, but in his heart he was still a man of the Night's Watch, doing the last duty that Qhorin Halfhand had laid on him.  Before I killed him.  -  Jon Snow
