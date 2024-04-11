@@ -1,3 +1,2 @@
-Last updated: 2024-04-11 10:34:51
-Random Quote: Enid Sinclair: "Want to take a stab at being social?"
-Wednesday: "I do like stabbing. The social part, not so much." - Wednesday Addams
+Last updated: 2024-04-11 10:35:25
+Random Quote: Good and evil are a question of perspective - Mikkel
