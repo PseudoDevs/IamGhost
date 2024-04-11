@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 10:36:45
-Random Quote: Kill the boy, Jon Snow.  Winter is almost upon us.  Kill the boy and let the man be born.  -  Aemon Targaryen
+Last updated: 2024-04-11 10:37:18
+Random Quote: It was the white cloak that soiled me, not the other way around.  -  Jaime Lannister
