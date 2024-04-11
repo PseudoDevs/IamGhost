@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 08:12:54
-Random Quote: When you meet someone special, suddenly life is full of firsts: The first kiss, the first night together, the first weekend together. - Ted Mosby
+Last updated: 2024-04-11 08:13:28
+Random Quote: Roose Bolton's cold and cunning, aye, but a man can deal with Roose.  We've all known worse.  But this bastard son of his... they say he's mad and cruel, a monster.  -  Locke
