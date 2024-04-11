@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 08:13:41
-Random Quote: I'm the Homelander. And I can do whatever the f-ck I want. - Homelander
+Last updated: 2024-04-11 08:14:15
+Random Quote: The only way to keep your people loyal is to make certain they fear you more than they do the enemy.  -  Cersei Lannister
