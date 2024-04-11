@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 08:38:02
-Random Quote: There are no true knights, no more than there are gods.  If you can't protect yourself, die and get out of the way of those who can.  Sharp steel and strong arms rule this world, don't ever believe any different.  -  Sandor Clegane
+Last updated: 2024-04-11 08:38:35
+Random Quote: Sticky's even sent me a boob-shaped hand-sanitizer dispenser. It's clean and dirty at the same time. - Barney Stinson

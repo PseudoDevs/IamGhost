@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 08:38:09
-Random Quote: The "no more surprises"-thing is the best part of being married. - Lily Aldrin
+Last updated: 2024-04-11 08:38:42
+Random Quote: Lord Balon's eldest brother had never given up the Old Way, even for a day.  His Silence, with its black sails and dark red hull, was infamous in every port from Ibben to Asshai, it was said.  -  Theon Greyjoy
