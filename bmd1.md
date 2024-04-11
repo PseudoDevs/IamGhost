@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 08:23:26
-Random Quote: There must always be a Stark in Winterfell.  -  Catelyn Stark
+Last updated: 2024-04-11 08:24:01
+Random Quote: The farther you go, the sharper their blade. Just don't ever give them an opening. - Cal Jacobs
