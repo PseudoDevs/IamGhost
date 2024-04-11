@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 08:06:03
-Random Quote: Ted: "Victoria was great."Robin: "Exactly, and you threw it all away to chase after some hot piece of ass."Ted: "You mean you?"Robin: "Thank you!" - Robin Scherbatsky
+Last updated: 2024-04-11 08:06:39
+Random Quote: Quinn: "In the event of divorce, Miss Garvey shall get full custody of Mr. Stinson's suits."Barney: "Why? What would you do with them?"Quinn: "Nothing. I'd just sit around and watch them go out of style." - Quinn Garvey
