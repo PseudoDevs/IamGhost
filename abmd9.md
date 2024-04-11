@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 09:45:57
-Random Quote: Eight years ago I made an ass of myself chasing after you and I made an ass of myself chasing after you a bunch of times since then. And I have no regrets because it led me to something I wouldn't trade for the world, it led to you being my friend. So as your friend and a leading expert in the field of making an ass of yourself. I say to you, from the heart, get the hell out of this car! - Ted Mosby
+Last updated: 2024-04-11 09:46:34
+Random Quote: All living things, from complex mammals to single-celled organisms, instinctively respond to danger. Expose a bacterium to a toxic chemical and it will flee, or deploy some other defense mechanism. We're very much the same. When we encounter danger, our hearts start pounding. Our palms start to sweat. These are the signs of the physical and emotional state we call 'fear.' - Scott Clarke

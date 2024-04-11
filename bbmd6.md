@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 09:45:22
-Random Quote: Every Halloween I bring a spare costume. In case I strike out with the hottest girl at the party. That way I have a second chance to make a first impression. - Barney Stinson
+Last updated: 2024-04-11 09:46:34
+Random Quote: Once, at the Citadel, I came into an empty room and saw an empty chair.  Yet I knew a woman had been there, only a moment before.  The cushion was dented where she'd sat, the cloth was still warm, and her scent lingered in the air.  If we leave our smells behind us when we leave a room, surely something of our souls must remain when we leave this life?  The archmaesters did not like my thinking, though.  Well, Marwyn did, but he was the only one.  -  Qyburn
