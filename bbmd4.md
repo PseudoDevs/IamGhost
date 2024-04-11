@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 08:45:12
-Random Quote: This is Stannis Baratheon.  The man will fight to the bitter end and then some.  -  Tywin Lannister
+Last updated: 2024-04-11 08:45:48
+Random Quote: Spare me your empty little compliments, girl... and your ser's.  I am no knight.  I spit on them and their vows.  My brother is a knight.  -  Sandor Clegane
