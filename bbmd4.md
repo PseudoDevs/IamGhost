@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 10:24:05
-Random Quote: There have always been men who found it easier to speak vows than to keep them.  -  Arys Oakheart
+Last updated: 2024-04-11 10:25:14
+Random Quote: I don't want to die, I've only kissed one boy so far. - Missy
