@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 08:06:21
-Random Quote: No more half-measures, Walter. - Mike Ehrmantraut
+Last updated: 2024-04-11 08:06:54
+Random Quote: We go home with an army, sweet sister.  With Khal Drogo's army, that is how we go home.  And if you must wed him and bed him for that, you will.  I'd let his whole khalasar fuck you if need be, sweet sister, all forty thousand men, and their horses too if that was what it took to get my army.  -  Viserys Targaryen
