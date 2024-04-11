@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 10:17:46
-Random Quote: You're wrong.  Need Stark was my gaoler, but my blood is still salt and iron.  -  Theon Greyjoy
+Last updated: 2024-04-11 10:18:19
+Random Quote: I am Bo-Katan of Clan Kryze. I was born on Mandalore and fought in the Purge. I am the last of my line. - Bo-Katan
