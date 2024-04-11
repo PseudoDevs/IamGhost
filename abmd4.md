@@ -1,2 +1,3 @@
-Last updated: 2024-04-11 09:22:10
-Random Quote: You shouldn't like things because people tell you you're supposed to. - Jonathan Byers
+Last updated: 2024-04-11 09:22:49
+Random Quote: "Everybody else can see Ben, right?"
+"Yeah, and he's a complete d-ckhead." - Allison Hargreeves
