@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 08:30:45
-Random Quote: Being a Mandalorian is not just learning about how to fight. You also have to know how to navigate the Galaxy. That way you'll never be lost. - Din Djarin
+Last updated: 2024-04-11 08:31:18
+Random Quote: A lie is just a great story that someone ruined with the truth. - Barney Stinson
