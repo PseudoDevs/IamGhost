@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 10:58:13
-Random Quote: Every time I go after a busty dullard who can't tell time or thinks I'm the ghost of Leonardo DiCaprio, I'm shallow. But somehow it's okay for Robin to date a guy who can't be trusted around outlets. - Barney Stinson
+Last updated: 2024-04-11 10:58:47
+Random Quote: I don't want to be good. I am going to be great. - Pablo Escobar
