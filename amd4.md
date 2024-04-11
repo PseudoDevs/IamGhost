@@ -1,3 +1,2 @@
-Last updated: 2024-04-11 10:33:32
-Random Quote: Freddie Thorne: "What kind of a list would have the name of a communist and the name of a bookmaker side by side?"
-Thomas Shelby: "Perhaps it's a list of men who give false hope to the poor." - Thomas Shelby
+Last updated: 2024-04-11 10:34:38
+Random Quote: Barney: "Before you know it, you'll be marrying a man who once ate a vanilla-scented candle!"Robin: "That was on me. I shouldn't have left it in the kitchen. Though, it was lit. Man, he dumb." - Robin Scherbatsky
