@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 10:58:45
-Random Quote: Kids, morals usually come at the end of stories, but this one is so important, I'm gonna tell you now. Don't ever, ever invite an ex to your wedding. - Ted Mosby
+Last updated: 2024-04-11 10:59:19
+Random Quote: I liked the way I dressed you, but I'm worried I f'ed with your gender expression. - Jules Vaughn
