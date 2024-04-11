@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 09:57:11
-Random Quote: There are moments when we must understand that the decisions we make influence more than just our own fates. - Claudia
+Last updated: 2024-04-11 09:58:17
+Random Quote: You're Reek.  You'll always be Reek, no matter how sweet you smell.  Your nose may lie to you.  Remember your name.  Remember who you are.  -  Ramsay Bolton
