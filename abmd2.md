@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 08:05:43
-Random Quote: Apart, we're okay. But together we're poison. - Kim Wexler
+Last updated: 2024-04-11 08:06:16
+Random Quote: His blood is bad.  He needs to be leeched.  The leeches suck away the bad blood, all the rage and pain.  No man can think so full of anger.  Ramsay, though... his tainted blood would poison even leeches, I fear.  -  Roose Bolton
