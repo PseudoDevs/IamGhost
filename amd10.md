@@ -1,3 +1,2 @@
-Last updated: 2024-04-11 08:50:43
-Random Quote: Stark: "Can I give you a piece of advice?"
-Carter: "I'd rather you didn't." - Peggy Carter
+Last updated: 2024-04-11 08:51:19
+Random Quote: Nobody takes an intro class to get on any other path, but the path to not being hungover anymore. I learned that in my intro to something-ology class. - Marshall Eriksen
