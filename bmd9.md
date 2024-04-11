@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 08:44:37
-Random Quote: You ever touch me again, I will burn your eyes out! - Starlight
+Last updated: 2024-04-11 08:45:12
+Random Quote: Dismissing Selmy, where was the sense in that?  Yes, the man was old, but the name of Barristan the Bold still has meaning in the realm.  He lent honor to any man he served.  -  Tywin Lannister
