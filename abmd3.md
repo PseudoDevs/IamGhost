@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 10:38:47
-Random Quote: The average American consumes 55 pounds of beef per year. And then there's Texas, where we can knock that off in a couple of months. Maybe faster if we're talking about smoked brisket. - Sheldon Cooper
+Last updated: 2024-04-11 10:39:20
+Random Quote: The god took me deep beneath the waves and drowned the worthless thing I was.  When he cast me forth again he gave me eyes to see, ears to hear, and a voice to spread his word, that I might be his prophet and teach his truth to those who have forgotten.  I was not made to sit upon the Seastone Chair... no more than Euron Crow's Eye.  For I have heard the god, who says, no godless man may sit my Seastone Chair.  -  Aeron Greyjoy
