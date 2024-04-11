@@ -1,2 +1,5 @@
-Last updated: 2024-04-11 09:55:00
-Random Quote: Until the Mountain crushed my brother's skull, no Dornishmen had died in this War of the Five Kings.  Tell me, Captain, is that my shame or my glory?  -  Doran Martell
+Last updated: 2024-04-11 09:55:34
+Random Quote: Morty: "I'm dying, Rick!"
+Rick: "People who are really dying don't keep bringing it up."
+Morty: "Is that true?"
+Rick: "I don't know. I'm just usually around people that die faster." - Rick Sanchez
