@@ -1,3 +1,2 @@
-Last updated: 2024-04-11 09:12:38
-Random Quote: Men and their d-cks never cease to amaze me. John, Lizzie Stark never did a day's work vertical.
-Brave is going where no man has gone before. And with Lizzie Stark, John, that's not what you'll be doing. - Polly Gray
+Last updated: 2024-04-11 09:13:11
+Random Quote: Here's what's gonna happen. One day you're gonna wake up, eat your breakfast, brush your teeth, go about your business. And sooner or later, you're gonna realize you haven't thought about it. None of it. And that's the moment you realize you can forget. When you know that's possible, it all gets easier. - Mike Ehrmantraut
