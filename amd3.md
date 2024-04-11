@@ -1,6 +1,2 @@
-Last updated: 2024-04-11 08:07:27
-Random Quote: Rick: "Just do a Die Hard!"
-Summer: "What does that mean?"
-Rick: "Sneak around! Use air vents! You've never seen Die Hard?"
-Summer: "I'm 17. No, I've never seen Die Hard."
-Rick: "Well, neither did the guy in Die Hard." - Rick Sanchez
+Last updated: 2024-04-11 08:08:00
+Random Quote: If you don't make it back, there's one thing that I need to tell you... - Klaus Hargreeves

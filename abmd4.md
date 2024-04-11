@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 08:07:27
-Random Quote: Why the oldest son, and not the best - fitted?  The crown will suit me, as it never suited Robert and would not suit Stannis. 
+Last updated: 2024-04-11 08:08:00
+Random Quote: If you want my advice? Get out of your own goddamn drama for a minute. - Nicky Nichols
