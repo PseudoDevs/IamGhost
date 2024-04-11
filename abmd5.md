@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 10:15:09
-Random Quote: Speak into the mic, bitch. - Jesse Pinkman
+Last updated: 2024-04-11 10:15:44
+Random Quote: Grey Wind ate two of his fingers, and he laughed about it.  -  Robb Stark on Greatjon Umber
