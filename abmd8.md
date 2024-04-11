@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 08:25:56
-Random Quote: You cannot change the nature of things. I am who I am. And you are who you are. Nothing will change that. - Ángel
+Last updated: 2024-04-11 08:26:32
+Random Quote: You have courage.  Not battle courage perhaps but... I don't know... a kind of woman's courage.  -  Brienne of Tarth
