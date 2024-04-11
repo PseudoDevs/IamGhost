@@ -1,4 +1,2 @@
-Last updated: 2024-04-11 08:06:49
-Random Quote: Joel: "Where'd you get the money for this?"
-Sarah: "Drugs. I sell hardcore drugs."
-Joel: "It's better than what I do." - Joel Miller
+Last updated: 2024-04-11 08:07:22
+Random Quote: Why is it always the innocents who suffer most, when you high lords play your game of thrones?  -  Varys
