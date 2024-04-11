@@ -1,3 +1,2 @@
-Last updated: 2024-04-11 09:44:09
-Random Quote: Jessica: "I miss you."
-Morty: "You miss the old me. You miss someone that loved you so much, you never had to love him back." - Morty Smith
+Last updated: 2024-04-11 09:44:45
+Random Quote: If you love something, you can never let it go. Not even for a second. Or it's gone forever. - Ted Mosby
