@@ -1,2 +1,3 @@
-Last updated: 2024-04-11 08:22:51
-Random Quote: At least I know they didn't spot you. No one could stay that aroused with your mug peeking through the window. - Saul Goodman
+Last updated: 2024-04-11 08:23:26
+Random Quote: Freddie: "If you want me out of Birmingham, it'll have to be in a wooden box."
+Polly: "You lay a hand on our Ada, I'll put you in a wooden box myself!" - Polly Gray
