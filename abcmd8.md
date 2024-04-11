@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 08:41:32
-Random Quote: The longer Cersei waits, the angrier she'll become, and anger makes her stupid.  I much prefer angry and stupid to composed and cunning.  -  Tyrion Lannister
+Last updated: 2024-04-11 08:43:24
+Random Quote: As the twig is bent, so grows the tree. - Pacho Herrera
