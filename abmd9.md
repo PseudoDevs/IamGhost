@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 10:18:44
-Random Quote: Catelyn would sooner Lord Umber had seen fit to stay sober, but telling the Greatjon not to drink was like telling him not to breathe for a few hours.  -  Catelyn Stark
+Last updated: 2024-04-11 10:19:55
+Random Quote: The god took me deep beneath the waves and drowned the worthless thing I was.  When he cast me forth again he gave me eyes to see, ears to hear, and a voice to spread his word, that I might be his prophet and teach his truth to those who have forgotten.  I was not made to sit upon the Seastone Chair... no more than Euron Crow's Eye.  For I have heard the god, who says, no godless man may sit my Seastone Chair.  -  Aeron Greyjoy
