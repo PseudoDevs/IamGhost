@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 09:28:13
-Random Quote: I don't have a phone. I refuse to be a slave to technology. - Wednesday Addams
+Last updated: 2024-04-11 09:28:46
+Random Quote: This is Hawkins, okay? You wanna know the worst thing that's ever happened here in the four years I've been working here? It was when an owl attacked Eleanor Gillespie's head because it though that her hair was a nest. - Jim Hopper
