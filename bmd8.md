@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 08:01:56
-Random Quote: Marshall: "Jelly beans, fluffernutter, Gummi Bears, ginger snap... this is a grocery list!"Robin: "For who? A witch building a house in the forest?"Marshall: "Sugar helps me study."Barney: "This is like the shopping a ten-year-old does when his parents leave him alone for the weekend."Lily: "What parent leaves a ten-year-old alone for the weekend?"Barney: "And your mom was perfect." - Barney Stinson
+Last updated: 2024-04-11 08:02:29
+Random Quote: Sometimes our best decisions are the ones that don't make any sense at all. - Ted Mosby
