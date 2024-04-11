@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 09:46:35
-Random Quote: Put me on your magical boat, man, and sail me down your chocolaty river of meth! - Badger
+Last updated: 2024-04-11 09:47:09
+Random Quote: If you had to fall into a woman's arms, my son, why couldn't they have been Margaery Tyrell's?  -  Catelyn Stark
