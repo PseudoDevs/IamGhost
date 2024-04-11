@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 08:32:57
-Random Quote: I'm only nine years oldMost evil doesn't start till puberty. - Sheldon
+Last updated: 2024-04-11 08:33:30
+Random Quote: Love is poison.  A sweet poison, yes, but it will kill you all the same.  -  Cersei Lannister
