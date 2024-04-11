@@ -1,2 +1,3 @@
-Last updated: 2024-04-11 10:29:51
-Random Quote: By "entertainment" they mean "table-shuffle-board", Makramee classes and other non-stimulating activities which are only used in Manhatten to calm down drug-addicts and the criminaly insane. - Robin Scherbatsky
+Last updated: 2024-04-11 10:30:24
+Random Quote: Mr. Nimbus: "Say goodbye to your precious dry land! For soon it will be wet!"
+Rick: "Yeah, global warming is already doing that. But sure, yeah, go for it. Make us slightly more wet." - Rick Sanchez
