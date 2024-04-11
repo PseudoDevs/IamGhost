@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 09:04:27
-Random Quote: Kids, sometimes the universe sends exactly what you ask for. Other times... it sends Lily's dad. - Ted Mosby
+Last updated: 2024-04-11 09:05:01
+Random Quote: Ted: "You're not gonna do it at your wedding?"Lily: "Hell, yeah! I'm gonna take that flower-grenade and chuck it to the crowd and scream, 'Crawl for it, bitches!'" - Lily Aldrin
