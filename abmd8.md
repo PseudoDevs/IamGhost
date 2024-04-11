@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 08:56:56
-Random Quote: When I'm king in my own right, I'm going to outlaw beets.  -  Tommen Baratheon
+Last updated: 2024-04-11 08:57:32
+Random Quote: Robert could piss in a cup and men would call it wine, but I offer them cold clear water and they squint in suspicion and mutter to each other about how queer it tastes.  -  Stannis Baratheon
