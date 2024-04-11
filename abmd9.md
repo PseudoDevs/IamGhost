@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 11:00:34
-Random Quote: Believe me, I’ve had five divorces. Do you know what five divorces are? Five times I believed in love. - Berlin
+Last updated: 2024-04-11 11:01:44
+Random Quote: You think you're the only one he whispers secrets to?  He gives each of us just enough to convince us that we'd be helpless without him.  -  Cersei Lannister
