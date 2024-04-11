@@ -1,3 +1,2 @@
-Last updated: 2024-04-11 09:50:43
-Random Quote: Tommy: "I'll have some men watch her house 'til the danger passes."
-Polly: "'Til the danger passes. That'll be the bloody day." - Polly Gray
+Last updated: 2024-04-11 09:52:31
+Random Quote: Mitchell: "we've decided we really wanted to have a baby so, we initially asked one of our lesbian friends to be a surrogate."Cameron: "Then we figured, they already mean enough, can you imagine one of them pregnant?" - Cameron Tucker
