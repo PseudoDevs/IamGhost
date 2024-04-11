@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 10:41:04
-Random Quote: Ted: "The road to this day has had a few twists and turns, hasn't it?"Marshall: "Yeah... just a few. In a weird way, it all makes sense though, doesn't it?" - Marshall Eriksen
+Last updated: 2024-04-11 10:41:39
+Random Quote: Talking to a woman that you have already had sex with, is like changing the oil on a rental car! - Barney Stinson
