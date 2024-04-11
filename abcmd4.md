@@ -1,2 +1,4 @@
-Last updated: 2024-04-11 08:07:32
-Random Quote: I feel like love is super dark and no one ever talks about it. - Cassie Howard
+Last updated: 2024-04-11 08:08:05
+Random Quote: Joel: "I need you to tell us where we are."
+Man: "If you got a map, why you lost?"
+Ellie: "Must've missed all the street signs in the enormous f-cking forest." - Ellie Williams
