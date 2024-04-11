@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 08:31:50
-Random Quote: When you tear out a man's tongue, you are not proving him a liar, you're only telling the world that you fear what he might say.  -  Tyrion Lannister
+Last updated: 2024-04-11 08:32:57
+Random Quote: I'm only nine years oldMost evil doesn't start till puberty. - Sheldon
