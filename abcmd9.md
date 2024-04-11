@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 08:53:23
-Random Quote: Ted, no! You never break up a girl fight! Never! - Barney Stinson
+Last updated: 2024-04-11 08:53:55
+Random Quote: A hall to die in, and men to bury me.  I thank you, my lords... but I spit on your pity... I am a knight... I shall die a knight.  -  Barristan Selmy
