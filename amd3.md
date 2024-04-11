@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 09:28:55
-Random Quote: Did I leave the oven on, or is it just you, hot stuff? - Agatha Harkness
+Last updated: 2024-04-11 09:29:31
+Random Quote: We all have things we keep hidden. Sometimes, keeping secrets is how you survive. Because in High School, one rumor, one picture, one incident, can define you forever. - Hannah Baker
