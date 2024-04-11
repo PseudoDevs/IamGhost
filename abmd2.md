@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 08:00:04
-Random Quote: Lily: "It's nine weeks 'til the wedding, at this point, I'd say yes to just about anything."Barney: "Well..."Lily: "No, Barney." - Lily Aldrin
+Last updated: 2024-04-11 08:00:40
+Random Quote: So you're pregnant? Huh, looks like nobody told your boobs. - Barney Stinson
