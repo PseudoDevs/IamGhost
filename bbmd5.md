@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 08:03:40
-Random Quote: Young or old, a true knight is sworn to protect those who are weaker than himself, or die in the attempt.  -  Brienne of Tarth
+Last updated: 2024-04-11 08:04:14
+Random Quote: It's not what you think, he just wants to have sex. Kidding. Just a little hand stuff. Ha, kidding again. Ted's more of a boob man. I seriously can't stop. - Robin Scherbatsky
