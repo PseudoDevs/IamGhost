@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 10:49:50
-Random Quote: Freeways have exits, so do relationships. The first exit, my personal favourite, is six hours in: You meet, you talk, you have sex, you exit when she's in the shower. - Barney Stinson
+Last updated: 2024-04-11 10:52:11
+Random Quote: You're Reek.  You'll always be Reek, no matter how sweet you smell.  Your nose may lie to you.  Remember your name.  Remember who you are.  -  Ramsay Bolton
