@@ -1,2 +1,3 @@
-Last updated: 2024-04-11 08:44:21
-Random Quote: Little did I know that I would be stepping into a nightmare full of mystery, mayhem and murder. I think I'm going to love it here. - Wednesday Addams
+Last updated: 2024-04-11 08:44:54
+Random Quote: Summer: "I think it's in our best interest to work as a team."
+Morty: "Yeah, most people would call that 'family'." - Morty Smith
