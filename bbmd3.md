@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 08:02:33
-Random Quote: Sometimes I don't know if I love how much I fear Claire, or fear how much I love her. - Phil Dunphy
+Last updated: 2024-04-11 08:03:06
+Random Quote: In my head, it's like If I can conquer men, then I can conquer femininity. - Jules Vaughn
