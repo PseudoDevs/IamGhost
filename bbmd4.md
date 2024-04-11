@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 10:29:42
-Random Quote: I watched Jane die. I was there. And I watched her die. - Walter White
+Last updated: 2024-04-11 10:30:16
+Random Quote: You have courage.  Not battle courage perhaps but... I don't know... a kind of woman's courage.  -  Brienne of Tarth
