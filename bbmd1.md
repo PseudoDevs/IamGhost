@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 10:53:59
-Random Quote: I am not "with" Nora. Wrong Preposition! Later tonight I'm hoping to be "on" Nora, right? Or "under" Nora. Am I right? Or, we're all adults, so I'll just say it: "behind" Nora. - Barney Stinson
+Last updated: 2024-04-11 10:54:34
+Random Quote: The Citadel took my chain, but they could not take my knowledge.  -  Qyburn
