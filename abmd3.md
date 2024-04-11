@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 08:35:55
-Random Quote: Ted: "The road to this day has had a few twists and turns, hasn't it?"Marshall: "Yeah... just a few. In a weird way, it all makes sense though, doesn't it?" - Marshall Eriksen
+Last updated: 2024-04-11 08:37:09
+Random Quote: I let each man cut me once, before I kill him.  Count the cuts and you will know how many Strong Belwas has slain.  -  Strong Belwas
