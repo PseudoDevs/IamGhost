@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 09:04:58
-Random Quote: I want you to allow yourself to aknowledge the pain that you so clearly feel. - Fabiola Torres
+Last updated: 2024-04-11 09:05:36
+Random Quote: You think you're the only one he whispers secrets to?  He gives each of us just enough to convince us that we'd be helpless without him.  -  Cersei Lannister
