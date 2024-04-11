@@ -1,3 +1,2 @@
-Last updated: 2024-04-11 08:32:33
-Random Quote: Bo-Katan: "You are not a Mandalorian."
-Boba: "Never said I was." - Boba Fett
+Last updated: 2024-04-11 08:33:06
+Random Quote: Dismissing Selmy, where was the sense in that?  Yes, the man was old, but the name of Barristan the Bold still has meaning in the realm.  He lent honor to any man he served.  -  Tywin Lannister
