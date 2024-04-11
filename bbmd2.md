@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 10:10:27
-Random Quote: Lily: "Ted, you did this all yourself?"Ted: "Just like Ryan Gosling in 'The Notebook'. It was pretty manly 'til I mentioned Ryan Gosling in 'The Notebook', huh?" - Ted Mosby
+Last updated: 2024-04-11 10:11:02
+Random Quote: In my body, where the shame gland should be, there is a second awesome gland. True story! - Barney Stinson
