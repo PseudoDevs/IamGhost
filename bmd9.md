@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 10:51:13
-Random Quote: What is lost, will be found. - Maura Franklin
+Last updated: 2024-04-11 10:52:19
+Random Quote: What do you think a knight is for, girl?  You think it's all taking favors from ladies and looking fine in gold plate?  Knights are for killing.  I killed my first man at twelve.  I've lost count of how many I've killed since then.  High lords with old names, fat rich men dressed in velvet, knights puffed up like bladders with their honors, yes, and women and children too... they're all meat, and I'm the butcher.  -  Sandor Clegane
