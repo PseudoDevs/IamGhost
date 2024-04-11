@@ -1,2 +1,4 @@
-Last updated: 2024-04-11 09:09:24
-Random Quote: You're not gonna believe this because it usually never happens, but I made a mistake! - Rick Sanchez
+Last updated: 2024-04-11 09:09:57
+Random Quote: Joel: "You keep going for family."
+Ellie: "I'm not family?"
+Joel: "No. You're cargo." - Joel Miller
