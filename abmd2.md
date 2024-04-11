@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 08:28:31
-Random Quote: Oberyn was ever the viper.  Deadly, dangerous, unpredictable.  No man dared tread on him.  I was the grass.  Pleasant, complaisant, sweet - smelling, swaying with every breeze.  Who fears to walk upon the grass?  But it is the grass that hides the viper from his enemies and shelters him until he strikes. 
+Last updated: 2024-04-11 08:29:08
+Random Quote: You all know exactly who I am. Say my name. - Walter White
