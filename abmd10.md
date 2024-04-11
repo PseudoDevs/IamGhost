@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 10:13:59
-Random Quote: What I find interesting, is how so many supervillains are scientistsIf the world doesn't respect me, I might change sides. - Sheldon
+Last updated: 2024-04-11 10:14:33
+Random Quote: Qhorin was my enemy.  But also my brother, once.  So... shall I thank you for killing him, Jon Snow?  Or curse you?  -  Mance Rayder
