@@ -1,2 +1,9 @@
-Last updated: 2024-04-11 10:06:45
-Random Quote: Obara would make Oldtown our father's funeral pyre, but I am not so greedy.  Four lives will suffice for me.  Lord Tywin's golden twins, as payment for Elia's children.  The old lion, for Elia herself.  And last of all the little king, for my father... only royal blood can wash out my father's murder.  -  Nymeria Sand
+Last updated: 2024-04-11 10:07:18
+Random Quote: If my love were an ocean,
+there would be no more land.
+If my love were a desert,
+you would see only sand.
+If my love were a star-
+late at night, only light.
+And if my love could grow wings,
+I'd be soaring in flight. - Jay Asher
