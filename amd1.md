@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 09:04:20
-Random Quote: Things never work out the way you imagine they will. - Lucien
+Last updated: 2024-04-11 09:04:58
+Random Quote: We are not husband and wife... anymore. We're just business partners. And our job is to raise those kids. - Marty Byrde
