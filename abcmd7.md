@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 09:46:34
-Random Quote: The Lord of Light cherishes the innocent.  There is no sacrifice more precious.  From his king's blood and his untainted fire, a dragon shall be born.  -  Melisandre
+Last updated: 2024-04-11 09:48:55
+Random Quote: They're all running away from something. Why else would someone want to go somewhere different? - Virginia Wilson
