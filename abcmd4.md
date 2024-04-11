@@ -1,4 +1,2 @@
-Last updated: 2024-04-11 09:07:58
-Random Quote: Joel: "You keep going for family."
-Ellie: "I'm not family?"
-Joel: "No. You're cargo." - Joel Miller
+Last updated: 2024-04-11 09:08:31
+Random Quote: I was weaned on venom, Dalt.  Any viper takes a bite of me will rue it.  -  Gerold Dayne
