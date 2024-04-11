@@ -1,3 +1,2 @@
-Last updated: 2024-04-11 09:00:40
-Random Quote: Joel: "A deep breath in, slow breath out. You squeeze the trigger like you love it. Gentle, steady, nice and slow."
-Ellie: "You gonna shoot this thing or get it pregnant?" - Ellie Williams
+Last updated: 2024-04-11 09:01:17
+Random Quote: When you meet someone special, suddenly life is full of firsts: The first kiss, the first night together, the first weekend together. - Ted Mosby
