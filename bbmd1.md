@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 10:39:17
-Random Quote: You're a beautiful, sweet girl. Fuck this guy! - Nicky Nichols
+Last updated: 2024-04-11 10:39:50
+Random Quote: The common people pray for rain, healthy children, and a summer that never ends.  It is no matter to them if the high lords play their game of thrones, so long as they are left in peace.  They never are.  -  Jorah Mormont
