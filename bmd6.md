@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 09:44:04
-Random Quote: Folly and desperation are ofttimes hard to tell apart.  -  Maester Luwin
+Last updated: 2024-04-11 09:44:37
+Random Quote: Did the boy charm you?  He has that gift.  He got it from his father, with the blood.  He knows he is a king's son, but chooses to forget that he is bastard - born. 
