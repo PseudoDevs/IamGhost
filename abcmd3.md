@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 08:46:25
-Random Quote: Robin, if you asked a hundred people: "Who's the worst person you could possibly date?" They'd all say "your therapist", except the ones saying "Barney". - Ted Mosby
+Last updated: 2024-04-11 08:47:02
+Random Quote: If you wish to give up on playing, the 25.5 billion won will be sent to the bereaved families of the late players. - Jang Deok-su
