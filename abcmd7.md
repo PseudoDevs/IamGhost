@@ -1,2 +1,4 @@
-Last updated: 2024-04-11 08:02:25
-Random Quote: I am the storm, my lord, the first storm, and the last.  -  Euron Greyjoy
+Last updated: 2024-04-11 08:02:59
+Random Quote: Joel: "You keep going for family."
+Ellie: "I'm not family?"
+Joel: "No. You're cargo." - Joel Miller
