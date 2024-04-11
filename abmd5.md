@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 09:02:29
-Random Quote: My lady, I have seen how you look at my brother.  Loras is valiant and handsome, and we all love him dearly... but your Imp will make a better husband.  He is a bigger man than he seems, I think.  -  Garlan Tyrell
+Last updated: 2024-04-11 09:03:06
+Random Quote: Nerds who aren't good at math?Life is going to be rough boys! - Robin Scherbatsky
