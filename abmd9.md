@@ -1,2 +1,3 @@
-Last updated: 2024-04-11 09:31:52
-Random Quote: There is no such thing as magic, just illusion. Things only change when we change them. But you have to do it skillfully, in secret. Then it seems like magic. - Mikkel Nielsen
+Last updated: 2024-04-11 09:34:16
+Random Quote: Morty: "I don't like how meta this is getting, Rick."
+Rick: "Shut up, Morty, you're 14. You watch videos of people on YouTube reacting to fing YouTube. I'll be the judge of when we get too meta." - Rick Sanchez
