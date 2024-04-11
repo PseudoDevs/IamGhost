@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 08:00:18
-Random Quote: Have no fear, sers, your king is safe... no thanks to you.  Even know, I could cut through the five of you as easy as a dagger cuts cheese.  If you would serve under the Kingslayer, not a one of you is fit to wear the white.  Here, boy.  Melt it down and add it to the others, if you like.  It will do you more good than the swords in the hands of these five.  Perhaps Lord Stannis will chance to sit on it when he takes your throne.  -  Barristan Selmy
+Last updated: 2024-04-11 08:00:52
+Random Quote: And that, kids, is the kind of stupid thing you say, before you've met the person who hits the reset button on the world. Who makes everything new again. Who makes it seem ridiculous that you ever considered settling. - Ted Mosby
