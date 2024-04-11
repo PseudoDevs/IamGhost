@@ -1,2 +1,4 @@
-Last updated: 2024-04-11 08:29:46
-Random Quote: A man lives three lives. The first one ends with the loss of naivety, the second, with the loss of innocence and the third… with the loss of life itself. It’s inevitable that we go through all three stages. - Adam
+Last updated: 2024-04-11 08:30:22
+Random Quote: Oh Il-nam: "As a kid, I'm willing to bet you got spanked a lot."
+Seong Gi-hun: "How did you know?"
+Oh Il-nam: "My son did too. He was just like you, friend." - Oh Il-nam
