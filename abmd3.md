@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 09:30:07
-Random Quote: Robb Stark won the war on the battlefield and lost it in a bedchamber.  -  Jaime Lannister
+Last updated: 2024-04-11 09:31:52
+Random Quote: I feel like her sobriety is completely dependent on how available I am to her. - Jules Vaughn
