@@ -1,3 +1,2 @@
-Last updated: 2024-04-11 09:59:07
-Random Quote: Dragon: "My name is Balthromaw. Breaker of skies, slayer of mountain."
-Rick: "Rule 1: You're now scooper of your own poops, or I will take you down like the black-light poster you are." - Rick Sanchez
+Last updated: 2024-04-11 10:00:19
+Random Quote: For the night is dark and full of terrors.  -  Words of R'hllor
