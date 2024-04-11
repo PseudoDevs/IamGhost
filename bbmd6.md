@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 08:00:20
-Random Quote: I have worked at the downfall of Tywin Lannister since the day they told me of Elia and her children.  -  Doran Martell
+Last updated: 2024-04-11 08:00:54
+Random Quote: If we're together long enough I hope that one day you see yourself like I do. - Kevin
