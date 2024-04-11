@@ -1,2 +1,3 @@
-Last updated: 2024-04-11 08:14:20
-Random Quote: Where some choose to look at this bra half-empty, I choose to look at this bra half-full. - Barney Stinson
+Last updated: 2024-04-11 08:14:53
+Random Quote: Marylin Thornhill: "I trust Enid has given you the old Nevermore welcome."
+Wednesday: "She's been smothering me with hospitality. I hope to return the favor... in her sleep." - Wednesday Addams
