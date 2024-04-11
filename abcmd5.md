@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 10:36:39
-Random Quote: His blood is bad.  He needs to be leeched.  The leeches suck away the bad blood, all the rage and pain.  No man can think so full of anger.  Ramsay, though... his tainted blood would poison even leeches, I fear.  -  Roose Bolton
+Last updated: 2024-04-11 10:37:12
+Random Quote: A Mandalorian and a Jedi? They'll never see it coming. - Din Djarin
