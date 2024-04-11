@@ -1,3 +1,2 @@
-Last updated: 2024-04-11 09:35:21
-Random Quote: Dragon: "My name is Balthromaw. Breaker of skies, slayer of mountain."
-Rick: "Rule 1: You're now scooper of your own poops, or I will take you down like the black-light poster you are." - Rick Sanchez
+Last updated: 2024-04-11 09:35:55
+Random Quote: Nerds who aren't good at math?Life is going to be rough boys! - Robin Scherbatsky
