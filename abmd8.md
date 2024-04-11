@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 10:43:27
-Random Quote: Be proud of your penis and your heritage. 'Cause neither are going anywhere. You should work with what you've got. - Otis Milburn
+Last updated: 2024-04-11 10:44:01
+Random Quote: Folly and desperation are ofttimes hard to tell apart.  -  Maester Luwin
