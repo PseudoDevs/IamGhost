@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 08:53:09
-Random Quote: Early drinkin’ means quick drunken. - Jim Hopper
+Last updated: 2024-04-11 08:53:47
+Random Quote: You grew up with actors.  You learned their craft and you learned it well.  I grew up with soldiers.  I learned how to die a long time ago.  -  Eddard Stark
