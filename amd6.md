@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 09:46:57
-Random Quote: Sorry Peter, we're grown-ups now, we can't fly to Netherland with you anymore. - Ted Mosby
+Last updated: 2024-04-11 09:47:31
+Random Quote: I was weaned on venom, Dalt.  Any viper takes a bite of me will rue it.  -  Gerold Dayne
