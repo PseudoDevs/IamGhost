@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 08:32:47
-Random Quote: Kids, you may think your only choices are to swallow your anger or throw it in someone's face, but there's a third option: You can just let it go, and only when you do that is it really gone and you can move forward. - Ted Mosby
+Last updated: 2024-04-11 08:33:25
+Random Quote: Either get out early, or you get out too late. - Pacho Herrera
