@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 10:11:12
-Random Quote: Jesus was a fag! He said: 'This is my body. Eat me.' - Big Boo
+Last updated: 2024-04-11 10:11:46
+Random Quote: His blood ran black.  Made him my brother as much as yours.  -  Yoren of the Night's Watch
