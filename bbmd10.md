@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 08:29:45
-Random Quote: Thank the Force! This little thing has had me worried sick. Come here, you little womp rat. Looks like it remembers me. How much do you want for it? Just kidding. But not really. - Peli Motto
+Last updated: 2024-04-11 08:30:20
+Random Quote: Red: "Black girls hear about a chicken, of course this will happen."Piper: "Why, because all black people love chicken?"Red: "Don't be racist. Because they're all on heroin, and somebody's been telling them there's heroin in the chicken." - Galina 'Red' Reznikov
