@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 10:59:32
-Random Quote: You want to know what's really interesting? Aristotle thought that the sound of thunder was due to a collision between two cloudsHe believed the clouds were expelling air, in the way a log on a fire crackles. - Sheldon
+Last updated: 2024-04-11 11:00:05
+Random Quote: My father never bellowed like the Greatjon, but he was no less dangerous in his wroth.  -  Alys Karstark
