@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 09:10:24
-Random Quote: Watch a sunrise at least once a day. - Phil Dunphy
+Last updated: 2024-04-11 09:11:37
+Random Quote: Did the boy charm you?  He has that gift.  He got it from his father, with the blood.  He knows he is a king's son, but chooses to forget that he is bastard - born. 
