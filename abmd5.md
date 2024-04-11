@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 09:39:12
-Random Quote: Sometimes it lasts all night. And I lie here and I listen to the shovels, and the picks against that wall there. And I pray the sun will come up at the curtains before they break through. No, I don't pray. I hope. And sometimes it happens. The sun beats them. But mostly the shovels beat the sun. - Thomas Shelby
+Last updated: 2024-04-11 09:39:49
+Random Quote: There is entirely too much tut - tutting in this realm, if you ask me.  All these kings would do a deal better if they put down their swords and listended to their mothers. 
