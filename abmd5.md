@@ -1,2 +1,3 @@
-Last updated: 2024-04-11 08:24:38
-Random Quote: When dead men come hunting us in the night, do you think it matters who sits the Iron Throne?  -  Jeor Mormont
+Last updated: 2024-04-11 08:25:11
+Random Quote: Morty: "I have English homework."
+Rick: "You're still learning English? It's the language you speak. How dumb are you?" - Rick Sanchez
