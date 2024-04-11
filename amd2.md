@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 09:17:12
-Random Quote: Player play on - high V! - Ted Mosby
+Last updated: 2024-04-11 09:18:28
+Random Quote: Your innocence may be as plain as the scar on your face, but it will not save you.  No more than your father will.  But I might.  Not as your judge.  As your champion.  -  Oberyn Martell
