@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 10:47:14
-Random Quote: There is one difference between you and me: I'm not saying any of this to get in your pants. - How I Met Your Mother
+Last updated: 2024-04-11 10:47:47
+Random Quote: Aunties are older Indian women who have no blood-relation to you. But are allowed to have opinions about your life and all your shortcomings. And you have to be nice to them because you're Indian. - John McEnroe
