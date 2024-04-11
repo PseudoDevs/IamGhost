@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 08:40:15
-Random Quote: In this world, a man must learn to seize whatever gifts the gods chose to send him.  That was a lesson I learned at some cost.  -  The Tattered Prince
+Last updated: 2024-04-11 08:40:54
+Random Quote: Best way to catch the smart ones? Get an idiot working for them. - Jaime Kuykendall
