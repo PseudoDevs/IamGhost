@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 08:28:29
-Random Quote: She really had a fat but: her fat butt! - Barney Stinson
+Last updated: 2024-04-11 08:29:05
+Random Quote: I swear to you, I was never so alive as when I was winning this throne, or so dead as now that I've won it.  -  Robert Baratheon
