@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 10:40:28
-Random Quote: She had seen Bronn fight on the high road; it was no accident that he had survived the journey while other men had died.  He moved like a panther, and that ugly sword of his seemed a part of his arm.  -  Catelyn Stark
+Last updated: 2024-04-11 10:41:02
+Random Quote: Never forget what you are, for surely the world will not.  Make it your strength.  Then it can never be your weakness.  Armor yourself in it, and it will never be used to hurt you.  -  Tyrion Lannister
