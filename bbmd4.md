@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 10:36:20
-Random Quote: Too many crazies had my old number, so now I'm all about disposable cell phones. I'll use one for a while, have my fun, then dump it and get a new one. And then I'll do the same with my phone. - Barney Stinson
+Last updated: 2024-04-11 10:36:53
+Random Quote: I asked him why he kept her close, if he thought her so grotesque.  He said that all his other knights wanted things of him, castles or honors or riches, but all that Brienne wanted was to die for him.  -  Loras Tyrell
