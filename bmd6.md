@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 09:07:25
-Random Quote: More beast than boy, that one, puffed up with pride and bloodlust... Robb Stark betrayed us all.  He abandoned the north to the cruel mercies of the ironmen to carve out a fairer kingdom for himself along the Trident.  Then he abandoned the riverlords who had risked much and more for him, breaking his marriage pact with my grandfather to wed the first western wench who caught his eye.  The Young Wolf?  He was a vile dog and died like one.  -  Rhaegar Frey
+Last updated: 2024-04-11 09:08:01
+Random Quote: It's like, I think about sex 24/7, but I don't really know how to do it. In the movies, you always see the girl kiss her way down the guy's body, but then, she moves off-screen. Is she stopping at the penis or kissing all the way to the foot? - Devi Vishwakumar
