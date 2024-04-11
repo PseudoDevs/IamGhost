@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 10:24:05
-Random Quote: No one had expected the broken boy to live.  The gods could not kill Bran, no more than I could.  It was a strange thought, and stranger still to remember that Bran might still be alive.  -  Theon Greyjoy
+Last updated: 2024-04-11 10:24:38
+Random Quote: I cost a girl her life because I was afraid to love her - Clay Jensen
