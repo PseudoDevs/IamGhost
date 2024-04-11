@@ -1,3 +1,2 @@
-Last updated: 2024-04-11 10:08:39
-Random Quote: Summer: "I think it's in our best interest to work as a team."
-Morty: "Yeah, most people would call that 'family'." - Morty Smith
+Last updated: 2024-04-11 10:09:14
+Random Quote: Please.  A sword, that's all I ask.  Let me die as Theon, not as Reek.  -  Theon Greyjoy
