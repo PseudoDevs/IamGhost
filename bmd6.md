@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 09:28:47
-Random Quote: Barney, check it! Three blond babies drinking bad-decision-juice at eight o'clock. - Lily Aldrin
+Last updated: 2024-04-11 09:29:20
+Random Quote: See, lad, that's why he's the king and I'm not.  I can outdrink, outfight, and outsing him, and my member's thrice the size o' his, but Mance has cunning.  -  Tormund Giantsbane
