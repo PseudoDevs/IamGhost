@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 10:55:10
-Random Quote: I don't know anything about norse gods, but I do know how to bring the thunder. - Thor
+Last updated: 2024-04-11 10:56:23
+Random Quote: You are not the guy. You're not capable of being the guy. I had a guy but now I don't. You are not the guy. - Mike Ehrmantraut
