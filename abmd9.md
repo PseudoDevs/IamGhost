@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 10:59:22
-Random Quote: They get in your head. People tell lies about you, and other people believe them. And it gets to the point where the lies might as well be the truth. - Tyler Down
+Last updated: 2024-04-11 10:59:58
+Random Quote: Whatever happens next, it's not gonna go down the way you think it is. - Mike Ehrmantraut
