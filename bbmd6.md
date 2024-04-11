@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 09:09:48
-Random Quote: She had seen Bronn fight on the high road; it was no accident that he had survived the journey while other men had died.  He moved like a panther, and that ugly sword of his seemed a part of his arm.  -  Catelyn Stark
+Last updated: 2024-04-11 09:10:23
+Random Quote: Client: "Please lower your blaster."Mando: "Tell them to lower theirs first."Stormtrooper: "We have you four to one."Mando: "I like those odds." - Din Djarin
