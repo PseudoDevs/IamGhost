@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 10:02:43
-Random Quote: Young I was, and vain, but the sea washed my follies and my vanities away.  That man drowned, nephew.  His lungs filled with seawater, and the fish ate the scales off his eyes.  When I rose again, I saw clearly.  -  Aeron Greyjoy
+Last updated: 2024-04-11 10:03:17
+Random Quote: Sometimes distance is the only way to find peace. So you can heal your wound. - Berlin
