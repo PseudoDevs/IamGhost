@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 08:50:31
-Random Quote: Ted: "Where does this girl live?"Robin: "We're talking about a woman who's gotten Barney to commit. I'm guessing Narnia." - Robin Scherbatsky
+Last updated: 2024-04-11 08:51:04
+Random Quote: Of course, nobody I knew in East-Texas in 1989 cared about Newtonian Physics. The only Newtons they cared about were Wayne and Fig. - Sheldon Cooper
