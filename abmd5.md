@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 08:12:59
-Random Quote: I am afraid of panic. Turns out it's bad for business. - Miguel Angel Felix Gallardo
+Last updated: 2024-04-11 08:14:13
+Random Quote: Elia Martell, Princess of Dorne.  You raped her!  You murdered her!  You killed her children!  -  Oberyn Martell
