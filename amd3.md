@@ -1,6 +1,2 @@
-Last updated: 2024-04-11 10:20:16
-Random Quote: Polly: "Six."
-John: "Six what?"
-Polly: "Six questions since you walked through that door. Soon you'll have to start being the man with the answers."
-John: "Why?"
-Polly: "Seven." - Polly Gray
+Last updated: 2024-04-11 10:20:50
+Random Quote: Eventually, Nick's groin will heal and you'll be back in Sexville, where all the crossword puzzles only have one box to fill. - Lily Aldrin
