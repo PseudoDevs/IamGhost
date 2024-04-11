@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 08:57:54
-Random Quote: Real love is when you can't exist without someone, when you'd rather die than be apart. And the whole world goes dark and nothing else matters but the person standing in front of you. - Rue Bennett
+Last updated: 2024-04-11 08:58:27
+Random Quote: Jaime, sweetling, I have known you since you were a babe at Joanna's breast.  You smile like Gerion and fight like Tyg and there's some of Keven in you, else you would not wear that cloak... but Tyrion is Tywin's son, not you.  I said that once to your father's face, and he would not speak to me for half a year.  -  Genna Lannister
