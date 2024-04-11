@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 08:23:03
-Random Quote: A mind needs books as a sword needs a whetstone, if it is to keep its edge.  -  Tyrion Lannister
+Last updated: 2024-04-11 08:24:43
+Random Quote: There is no such thing as magic, just illusion. Things only change when we change them. But you have to do it skillfully, in secret. Then it seems like magic. - Mikkel Nielsen

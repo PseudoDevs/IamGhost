@@ -1,2 +1,3 @@
-Last updated: 2024-04-11 08:23:36
-Random Quote: Marshall: "Dude, if we fail this econ final, for the rest of our lives we're not gonna be able to... we won't know how to... do you even know what 'econ' is?"Ted: "No idea. We're screwed." - Ted Mosby
+Last updated: 2024-04-11 08:24:43
+Random Quote: Jessica: "I miss you."
+Morty: "You miss the old me. You miss someone that loved you so much, you never had to love him back." - Morty Smith
