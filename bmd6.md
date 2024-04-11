@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 08:49:59
-Random Quote: You want to know the horrible truth?  I can't even remember what she looked like.  I only know she was the one thing I ever wanted, and seven kingdoms couldn't fill the hole she left behind.  -  Robert Baratheon
+Last updated: 2024-04-11 08:50:32
+Random Quote: I think it would put us at a disadvantage if we just choose one. There's this saying in investing, "Try not to keep your eggs in the same basket." - Cho Sang-woo
