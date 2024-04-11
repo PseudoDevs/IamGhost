@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 09:06:50
-Random Quote: More beast than boy, that one, puffed up with pride and bloodlust... Robb Stark betrayed us all.  He abandoned the north to the cruel mercies of the ironmen to carve out a fairer kingdom for himself along the Trident.  Then he abandoned the riverlords who had risked much and more for him, breaking his marriage pact with my grandfather to wed the first western wench who caught his eye.  The Young Wolf?  He was a vile dog and died like one.  -  Rhaegar Frey
+Last updated: 2024-04-11 09:08:37
+Random Quote: I have never liked you, Cersei, but you were my own sister, so I never did you harm.  You've ended that.  I will hurt you for this.  I don't know how yet, but give me time.  A day will come when you think yourself safe and happy, and suddenly your joy will turn to ashes in your mouth, and you'll know the debt is paid.  -  Tyrion Lannister
