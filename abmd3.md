@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 09:02:28
-Random Quote: Our thinking is shaped by dualism. Entrance, exit. Black, white. Good, evil. Everything appears as opposite pairs. But that’s wrong. - H.G. Tannhaus
+Last updated: 2024-04-11 09:03:02
+Random Quote: I am IRONBORN!  I laugh at death.  -  Victarion Greyjoy
