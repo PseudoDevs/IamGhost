@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 09:57:54
-Random Quote: Lord Balon's eldest brother had never given up the Old Way, even for a day.  His Silence, with its black sails and dark red hull, was infamous in every port from Ibben to Asshai, it was said.  -  Theon Greyjoy
+Last updated: 2024-04-11 09:58:30
+Random Quote: Pictures can be twisted and used against you and haunt you forever. - Hannah Baker
