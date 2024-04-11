@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 10:18:43
-Random Quote: People are oblivious to reality. They only see what they want to see, when all they have to do is shift their perspective to see the full scope of things. - Yuk Je
+Last updated: 2024-04-11 10:19:20
+Random Quote: Robb Stark has won more battles in a year than the Lord of Highgarden had in twenty.  -  Tyrion Lannister
