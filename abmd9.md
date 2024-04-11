@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 08:02:59
-Random Quote: Until the Mountain crushed my brother's skull, no Dornishmen had died in this War of the Five Kings.  Tell me, Captain, is that my shame or my glory?  -  Doran Martell
+Last updated: 2024-04-11 08:03:35
+Random Quote: I'd invite you to stay as well, Gustavo, but I don't want my breakfast ruined by all the "ding, ding ding." - Don Eladio
