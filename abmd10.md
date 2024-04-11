@@ -1,3 +1,2 @@
-Last updated: 2024-04-11 10:07:31
-Random Quote: Peter Parker: "Splitting up? Do you guys just not have horror movies in Wakanda?"
-Okoye: "We don't need them. We have American reality shows." - Okoye
+Last updated: 2024-04-11 10:09:16
+Random Quote: It doesn't matter how tough you are, you're not going to win in this place. Not on your own. - Jang Deok-su
