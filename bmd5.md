@@ -1,3 +1,2 @@
-Last updated: 2024-04-11 10:44:31
-Random Quote: Wyatt Langmore: "This job's my old man's idea. Something about 'calluses and character'."
-Charlotte Byrde: "Yeah, well, you're blowing leaves, not hiding Anne Frank." - Charlotte Byrde
+Last updated: 2024-04-11 10:45:04
+Random Quote: Robin: "She was gonna get the last kugel."Ted: "She was 90 years old. It was probably gonna be her last kugel." - Ted Mosby
