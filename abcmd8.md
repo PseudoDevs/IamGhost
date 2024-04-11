@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 11:01:02
-Random Quote: Asha Greyjoy did not intend to be taken alive.  She would die as she had lived, with an axe in her hand and a laugh upon her lips.  -  Asha Greyjoy
+Last updated: 2024-04-11 11:01:35
+Random Quote: I dreamt a wolf howling in the rain, but no one heard his grief.  I dreamt such a clangor I thought my head myght burst, drums and horns and pipes and screams, but the saddest sound was the little bells.  I dreamt of a maid at a feast with purple serpents in her hair, venom dripping from their fangs.  And later I dreamt that maid again, slaying a savage giant in a castle built of snow.  -  The Ghost of High Heart
