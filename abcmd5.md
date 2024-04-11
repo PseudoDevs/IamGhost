@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 10:50:58
-Random Quote: This story is about to take a dark turn. Usually, I love dark turns. Like when the carousel brakes myteriously failed at my eighth birthdays party. - Wednesday Addams
+Last updated: 2024-04-11 10:51:34
+Random Quote: The man who passes the sentence should swing the sword.  If you would take a man's life, you owe it to him to look into his eyes and hear his final words.  And if you cannot bear to do that, then perhaps the man does not deserve to die.  -  Eddard Stark
