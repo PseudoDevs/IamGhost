@@ -1,3 +1,2 @@
-Last updated: 2024-04-11 09:13:26
-Random Quote: Larissa: "So you automatically assume a Nevermore student is the murderer, even though there's no evidence a crime was even committed."
-Donovan: "I'm sorry. I forgot, you only teach the good outcasts here, right?" - Donovan Galpin
+Last updated: 2024-04-11 09:14:03
+Random Quote: Morty, he's not gonna donate. You're pitching the police men's ball to a black teenager here. - Rick Sanchez
