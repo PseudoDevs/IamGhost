@@ -1,6 +1,2 @@
-Last updated: 2024-04-11 10:32:53
-Random Quote: Beth: "Do you want homeless people to have homes?"
-Jerry: "Yes."
-Beth: "Are you gonna build them?"
-Jerry: "No."
-Beth: "Then what good was the 'yes'?" - Beth Smith
+Last updated: 2024-04-11 10:33:27
+Random Quote: Sometimes our best decisions are the ones that don't make any sense at all. - Ted Mosby
