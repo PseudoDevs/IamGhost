@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 10:35:25
-Random Quote: You came in the door like thunder, Then hit the floor like thunder, Laying me down you wonder, Shaking the walls like thunder - 
+Last updated: 2024-04-11 10:37:06
+Random Quote: Cara: "It's gonna break his little heart."Mando: "He'll get over it. We all do." - Din Djarin
