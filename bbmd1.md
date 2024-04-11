@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 09:03:20
-Random Quote: Come on Ted, it's 2012. What do you expect, to meet some cute travel agent when you're reading a newspaper at a bookstore? None of those things exist anymore! - Barney Stinson
+Last updated: 2024-04-11 09:03:54
+Random Quote: Only their shadows, One most of all.  A tall and twisted thing with one black eye and ten long arms, sailing on a sea of blood.  -  Moqorro
