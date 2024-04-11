@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 08:38:42
-Random Quote: Lord Balon's eldest brother had never given up the Old Way, even for a day.  His Silence, with its black sails and dark red hull, was infamous in every port from Ibben to Asshai, it was said.  -  Theon Greyjoy
+Last updated: 2024-04-11 08:39:15
+Random Quote: Ted, honey, I want you to go outside and bite the curb. I'll be out in a minute. - Lily Aldrin
