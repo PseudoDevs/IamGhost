@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 08:20:00
-Random Quote: I know this hurts little buddy, but you'll love again someday. Because time will heal a broken heart, but not that bitch's window. - Barney Stinson
+Last updated: 2024-04-11 08:20:33
+Random Quote: Catelyn would sooner Lord Umber had seen fit to stay sober, but telling the Greatjon not to drink was like telling him not to breathe for a few hours.  -  Catelyn Stark
