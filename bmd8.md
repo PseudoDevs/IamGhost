@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 10:04:24
-Random Quote: The wolf will prove the boy is who we say he is, should the Dreadfort attempt to deny him.  That is my price, Lord Davos.  Smuggle me back my liege lord, and I will take Stannis Baratheon as my king.  -  Wyman Manderly
+Last updated: 2024-04-11 10:04:57
+Random Quote: Summer will end soon enough, and childhood as well.  -  Eddard Stark
