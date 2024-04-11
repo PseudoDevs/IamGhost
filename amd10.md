@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 08:37:42
-Random Quote: Only their shadows, One most of all.  A tall and twisted thing with one black eye and ten long arms, sailing on a sea of blood.  -  Moqorro
+Last updated: 2024-04-11 08:38:15
+Random Quote: They threw him off the goddamn railing. There's no way someone survives that. And yet, here he is. How is that possible? - Eyk Larsen
