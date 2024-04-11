@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 10:52:11
-Random Quote: You need to stop focusing on the darkness behind you. The past is the past. Nothing can change what we’ve done. - Walter White
+Last updated: 2024-04-11 10:52:46
+Random Quote: The bride weeps... dressing her in grey and white serves no good if the girl is left to sob.  The Freys might not care, but the northmen... they fear the Dreadfort, but they love the Starks.  Not me, but the rest, yes.  Old Whoresbane is only here because the Freys hold the Greatjon captive.  And do you imagine the Hornwood men have forgotten the Bastard's last marriage, and how his lady wife was left to starve, chewing her own fingers?  What do you think passes through their heads when they hear the new bride weeping?  Valiant Ned's precious little girl.  Lady Arya's sobs do us more harm than all of Lord Stannis's swords and spears.  -  Barbrey Dustin
