@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 09:32:50
-Random Quote: Doctor: "Don't worry, it's totally safe. Unless part of your big date involves connecting yourself to a car battery."Barney: "Well, now it doesn't." - Barney Stinson
+Last updated: 2024-04-11 09:33:23
+Random Quote: Khaleesi, better a man should swallow scorpions than trust in the spawn of shadows, who dare not show their face beneath the sun.  It is known.  -  Rakharo
