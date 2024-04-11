@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 08:00:42
-Random Quote: Rick: "If it's all the same, could we still get our stories straight? Because you're a terrible liar."Jerry: "You called me a master convincer!"Rick: "You believed me?" - Rick Sanchez
+Last updated: 2024-04-11 08:01:15
+Random Quote: When treating with liars, even an honest man must lie.  -  Wyman Manderly
