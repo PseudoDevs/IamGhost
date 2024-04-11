@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 08:05:48
-Random Quote: We have to control this fing world, or it will control you. And if you don't protect yourself, it makes a mess and breaks you. - Miguel Angel Felix Gallardo
+Last updated: 2024-04-11 08:06:21
+Random Quote: She hated her life, not because it was bad, but because when you hate your brain and your body, it's hard to enjoy the rest. - Rue Bennett
