@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 10:13:01
-Random Quote: Lord Pea Pod.  If you were a man, I would kill you for that, but my sword is made of too fine a steel to besmirch with craven's blood.  Aye, men are dying.  More will die before we see Winterfell.  What of it?  This is war.  Men die in war.  That is as it should be.  As it has always been.  -  Hugo Wull
+Last updated: 2024-04-11 10:13:34
+Random Quote: Kids, you may think your only choices are to swallow your anger or throw it in someone's face, but there's a third option: You can just let it go, and only when you do that is it really gone and you can move forward. - Ted Mosby
