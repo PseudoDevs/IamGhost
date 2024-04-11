@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 08:45:47
-Random Quote: I'm going to tell you something curious about prisons. You're never alone. But you always have the feeling that you are. - Don Neto
+Last updated: 2024-04-11 08:46:23
+Random Quote: We all must choose.  Man or woman, young or old, lord or peasant, our choices are the same.  We choose light or we choose darkness.  -  Melisandre
