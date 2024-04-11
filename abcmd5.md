@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 10:44:30
-Random Quote: When something seems too perfect, it's usually anything but. - Allison Hargreeves
+Last updated: 2024-04-11 10:45:04
+Random Quote: Everyone was yelling stuff.  Hot Pie yelled hot pie.  He must have yelled it a hundred times.  -  Arya Stark
