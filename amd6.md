@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 08:52:44
-Random Quote: A craven's knife can slay a queen as easily as a hero's.  -  Xaro Xhoan Daxos
+Last updated: 2024-04-11 08:53:17
+Random Quote: Past a certain point, all the dates grow hazy and confused, and the clarity of history becomes the fog of legend.  -  Hoster Blackwood
