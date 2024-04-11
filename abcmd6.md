@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 08:52:11
-Random Quote: Years ago, I bought a Betamax, good product, top of the line. Experts said it was better than a VHS. Turned out to be a complete waste of time and money. - Mike Ehrmantraut
+Last updated: 2024-04-11 08:52:44
+Random Quote: My daughter has taken an axe for a lover.  I will not have my son bedeck himself like a whore.  It is as I feared.  The green lands have made you soft, and the Starks have made you theirs.  -  Balon Greyjoy
