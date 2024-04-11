@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 08:13:51
-Random Quote: Mike: "Where are you going? You just said, 'stick to the plan'."Dustin: "I am. I'm just gonna go get some chocolate pudding." - Dustin Henderson
+Last updated: 2024-04-11 08:14:24
+Random Quote: For the night is dark and full of terrors.  -  Words of R'hllor
