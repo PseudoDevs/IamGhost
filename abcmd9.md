@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 08:29:07
-Random Quote: Lucas: "Mike's not gonna like it."Dustin: "Last time I checked our party is not a dictatorship, it's a democracy." - Dustin Henderson
+Last updated: 2024-04-11 08:29:42
+Random Quote: The singers of the forest had no books.  No ink, no parchment, no written language.  Instead they had the trees, and the weirwoods above all.  When they died, they went into the wood, into leaf and limb and root, and the trees remembered.  All their songs and spells, their histories and prayers, everything they knew about this world.  Maesters will tell you that the weirwoods are sacred to the old gods.  The singers believe they are the old gods.  When singers die they become part of that godhood.  -  Jojen Reed
