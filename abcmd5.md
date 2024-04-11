@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 10:01:30
-Random Quote: You were supposed to be my wife, to bear me children with silver hair and purple eyes, to keep the blood of the dragon pure.  I took care of you.  I taught you who you were.  I fed you.  I sold our mother's crown to keep you fed.  -  Viserys Targaryen
+Last updated: 2024-04-11 10:02:05
+Random Quote: Despite the stupidity, the lies, you're compelled. The problem has been assigned and you'll stop at nothing until you find an answer. Because that is who you are. - Valery Legasov
