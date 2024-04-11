@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 09:56:07
-Random Quote: Friends... they tell each other things. Things that parents don't know. - Mike Wheeler
+Last updated: 2024-04-11 09:57:54
+Random Quote: Lord Balon's eldest brother had never given up the Old Way, even for a day.  His Silence, with its black sails and dark red hull, was infamous in every port from Ibben to Asshai, it was said.  -  Theon Greyjoy
