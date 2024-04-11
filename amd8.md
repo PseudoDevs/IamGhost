@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 10:39:05
-Random Quote: Little did I know that I would be stepping into a nightmare full of mystery, mayhem and murder. I think I'm going to love it here. - Wednesday Addams
+Last updated: 2024-04-11 10:40:11
+Random Quote: Ted: "Robin, this show is so dirty, I don't know whether to hug you, or run a shower for you, so you can sit there alone, crying and clenching your knees."Robin: "It's just bad camera work, okay? Wayne, our camera guy - he wasn't that great."Marshall: "I don't know. I think he did a pretty good job, considering he was probably only using one hand." - Marshall Eriksen
