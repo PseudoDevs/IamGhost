@@ -1,2 +1,3 @@
-Last updated: 2024-04-11 10:47:27
-Random Quote: Since when did "hopeful" and "naive" become the same thing? I mean, why would you get into this business if not to save the world? That’s all I have ever wanted. - Starlight
+Last updated: 2024-04-11 10:49:48
+Random Quote: Wyatt Langmore: "This job's my old man's idea. Something about 'calluses and character'."
+Charlotte Byrde: "Yeah, well, you're blowing leaves, not hiding Anne Frank." - Charlotte Byrde

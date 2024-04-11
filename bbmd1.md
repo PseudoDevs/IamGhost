@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 10:49:13
-Random Quote: Roose Bolton's cold and cunning, aye, but a man can deal with Roose.  We've all known worse.  But this bastard son of his... they say he's mad and cruel, a monster.  -  Locke
+Last updated: 2024-04-11 10:49:48
+Random Quote: When you get too close to the sun, your dreams may melt away. - Steve Murphy
