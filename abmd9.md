@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 11:01:44
-Random Quote: You think you're the only one he whispers secrets to?  He gives each of us just enough to convince us that we'd be helpless without him.  -  Cersei Lannister
+Last updated: 2024-04-11 11:02:20
+Random Quote: It doesn't matter how tough you are, you're not going to win in this place. Not on your own. - Jang Deok-su
