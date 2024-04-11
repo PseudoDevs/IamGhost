@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 10:43:23
-Random Quote: I have my own ghosts, Bran.  A brother that I loved, a brother that I hated, a woman I desired.  Through the trees, I see them still, but no word of mine has ever reached them.  The past remains the past.  We can learn from it, but we cannot change it.  -  Bloodraven
+Last updated: 2024-04-11 10:44:31
+Random Quote: The most beautiful woman in the world has urgent need of my axe.  -  Victarion Greyjoy.
