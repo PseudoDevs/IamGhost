@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 10:12:35
-Random Quote: Whats your prescription, Dr. Estrogen? Eat Haagen-Dazs and watch "Love... actually" until your periods sync up? - Barney Stinson
+Last updated: 2024-04-11 10:13:09
+Random Quote: Any time, a girl wants to get back at her ex-bodyfriends, we'll be there.Any time, a girl wants to solve her father-issues through promiscuity and binge drinking we will be there.Any time a bachelorette party drives through the city in a limo, sticking their heads out the sunroof, shouting 'what's up New York?', we will be what is 'up' New York! - Barney Stinson
