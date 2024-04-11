@@ -1,4 +1,2 @@
-Last updated: 2024-04-11 10:21:46
-Random Quote: Marshall: "Except the flames of Lucifer keep singein our back bumper as we drive through this hellish, cheese-infected wasteland."
-Lily: "Wisconsin?"
-Marshall: "Wisconsin!" - Marshall Eriksen
+Last updated: 2024-04-11 10:22:19
+Random Quote: Lucas: "Mike's not gonna like it."Dustin: "Last time I checked our party is not a dictatorship, it's a democracy." - Dustin Henderson
