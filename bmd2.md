@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 10:01:29
-Random Quote: For some women it was the ashes of my parents. For others it was the trophy from Wimbledon and believe it or not, for one busty dullard, it was both. Game, enormous set and match! - Barney Stinson
+Last updated: 2024-04-11 10:02:04
+Random Quote: Now don't be a p-ssy, laser my f-cking t-ts! - Stormfront
