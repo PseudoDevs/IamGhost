@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 10:48:53
-Random Quote: Make it easier for those whose vote you can count on. Make it harder for those you can't. That's how you rig an election without leaving a lick of evidence. - Walt Breslin
+Last updated: 2024-04-11 10:49:26
+Random Quote: Lily: "A big package just arrived."Marshall: "Yeah, it did."Lily: "No, no. It's a real package from your dad."Marshall: "Well, that's a little weird, but yeah, it is." - Marshall Eriksen
