@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 09:47:09
-Random Quote: If you had to fall into a woman's arms, my son, why couldn't they have been Margaery Tyrell's?  -  Catelyn Stark
+Last updated: 2024-04-11 09:47:45
+Random Quote: If you think this has a happy ending, you haven't been paying attention.  -  Ramsay Bolton
