@@ -1,3 +1,2 @@
-Last updated: 2024-04-11 09:42:55
-Random Quote: Gor Koresh: "This is no place for a child."
-Mando: "Wherever I go, he goes. I've been quested to bring him to his kind." - Din Djarin
+Last updated: 2024-04-11 09:43:32
+Random Quote: What men want does not matter.  Winter is almost upon us, boy.  And winter is death.  I would sooner my men die fighting for the Ned's little girl than alone and hungry in the snow, weeping tears that freeze upon their cheeks.  No one sings songs of men who die like that.  As for me, I am old.  This will be my last winter.  Let me bathe in Bolton blood before I die.  I want to feel it splatter across my face when my axe bites deep into a Bolton skull.  I want to lick it off my lips and die with the taste of it on my tongue.  -  Hugo Wull
