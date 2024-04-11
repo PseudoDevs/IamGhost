@@ -1,3 +1,2 @@
-Last updated: 2024-04-11 09:34:16
-Random Quote: Morty: "I don't like how meta this is getting, Rick."
-Rick: "Shut up, Morty, you're 14. You watch videos of people on YouTube reacting to fing YouTube. I'll be the judge of when we get too meta." - Rick Sanchez
+Last updated: 2024-04-11 09:34:52
+Random Quote: If you think this has a happy ending, you haven't been paying attention.  -  Ramsay Bolton
