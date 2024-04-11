@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 09:48:37
-Random Quote: I’d get 30 years. And to be honest, growing old in a prison cell is not my thing. I’d rather run, in body and soul. And if I can’t take my body with me, at least my soul should run. - Tokyo
+Last updated: 2024-04-11 09:49:10
+Random Quote: In my head, it's like If I can conquer men, then I can conquer femininity. - Jules Vaughn
