@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 09:10:24
-Random Quote: I cost a girl her life because I was afraid to love her - Clay Jensen
+Last updated: 2024-04-11 09:11:00
+Random Quote: So I will only ask you once, Lord Snow.  Are you a brother of the Night's Watch, or a bastard boy who wants to play at war?  -  Jeor Mormont
