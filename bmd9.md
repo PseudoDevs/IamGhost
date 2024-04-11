@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 09:26:32
-Random Quote: The Wall can stop an army, but not a man alone.  -  Mance Rayder
+Last updated: 2024-04-11 09:27:08
+Random Quote: When the sun rises in the west and sets in the east.  When the seas go dry and mountains blow in the wind like leaves.  When your womb quickens again, and you bear a living child.  Then he will return, and not before.  -  Mirri Maz Duur
