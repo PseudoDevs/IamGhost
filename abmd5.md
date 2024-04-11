@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 09:27:45
-Random Quote: First times are special. Unique. But the last times are beyond comparison. They are priceless. But people don’t know it’s their last time. - Berlin
+Last updated: 2024-04-11 09:28:55
+Random Quote: Dismissing Selmy, where was the sense in that?  Yes, the man was old, but the name of Barristan the Bold still has meaning in the realm.  He lent honor to any man he served.  -  Tywin Lannister
