@@ -1,3 +1,2 @@
-Last updated: 2024-04-11 08:12:22
-Random Quote: Ellie: "Everybody I've cared for, either died or left me."
-Joel: "You have no idea what loss is." - Joel Miller
+Last updated: 2024-04-11 08:12:59
+Random Quote: Breast-feeding... hot!When those things swell up to three times their normal size, so do I. - Barney Stinson
