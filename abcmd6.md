@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 09:35:30
-Random Quote: Don't go chasing waterfalls. Stick to the rivers and the lakes that you're used to. - Klaus Hargreeves
+Last updated: 2024-04-11 09:36:06
+Random Quote: When dead men come hunting us in the night, do you think it matters who sits the Iron Throne?  -  Jeor Mormont
