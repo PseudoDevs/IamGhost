@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 08:00:48
-Random Quote: I'm pretty much the master of handling things completely wrong. - Alex Vause
+Last updated: 2024-04-11 08:01:21
+Random Quote: You and I are opposites but also just the same. Like an image in a mirror. We hate people and they in turn hate us. And fear us. - Chester Campbell
