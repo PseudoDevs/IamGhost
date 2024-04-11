@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 08:10:23
-Random Quote: Shagg, son of Dolf will chop off their manhoods and feed them to the crows.  -  Shagga, son of Dolf
+Last updated: 2024-04-11 08:10:56
+Random Quote: We’re wanderers in the darkness. - 
