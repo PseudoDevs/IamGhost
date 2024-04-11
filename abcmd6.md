@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 10:32:14
-Random Quote: Barney: "I only smoke in certain situations. Postcoital, when I'm with Germans, sometimes those two overlap, coital, birthdays, to annoy my mom, precoital, on a sailboat, the day the Mets are mathematically eliminated every year and pregnancy scares."Ted: "Why are you smoking right now?"Barney: "I'm always precoital, Ted." - Barney Stinson
+Last updated: 2024-04-11 10:32:47
+Random Quote: Because were baseball, strippers and guns can't help, the only thing that can really heal a broken heart, is time. - Ted Mosby
