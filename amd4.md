@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 10:31:20
-Random Quote: Marshall Eriksen, put a baby in my belly. - Lily Aldrin
+Last updated: 2024-04-11 10:31:53
+Random Quote: We all must choose.  Man or woman, young or old, lord or peasant, our choices are the same.  We choose light or we choose darkness.  -  Melisandre
