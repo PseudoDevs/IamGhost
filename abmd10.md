@@ -1,2 +1,3 @@
-Last updated: 2024-04-11 10:06:55
-Random Quote: The gods be damned.  It was a hollow victory they gave me.  A crown... it was the girl I prayed them for.  Your sister, safe... and mine again, as she was meant to be.  I ask you, Need, what good is it to wear a crown?  The gods mock the prayers of kings and cowherds alike.  -  Robert Baratheon
+Last updated: 2024-04-11 10:07:31
+Random Quote: Peter Parker: "Splitting up? Do you guys just not have horror movies in Wakanda?"
+Okoye: "We don't need them. We have American reality shows." - Okoye
