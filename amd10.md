@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 08:44:31
-Random Quote: Do you know what it is like to be sold, squire?  I do.  My brother sold me to Khal Drogo for the promise of a golden crown.  Well, Drogo crowned him in gold, though not as he had wished, and I... my sun - and
+Last updated: 2024-04-11 08:45:04
+Random Quote: Balon was mad, Aeron is madder, and Euron is maddest of them all.  -  Baelor Blacktyde
