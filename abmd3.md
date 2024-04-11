@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 10:06:17
-Random Quote: Nerds who aren't good at math?Life is going to be rough boys! - Robin Scherbatsky
+Last updated: 2024-04-11 10:07:31
+Random Quote: Never forget what you are, for surely the world will not.  Make it your strength.  Then it can never be your weakness.  Armor yourself in it, and it will never be used to hurt you.  -  Tyrion Lannister

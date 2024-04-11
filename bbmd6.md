@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 10:06:54
-Random Quote: Pennsatucky: "It weren't my fault. I was just doing as the Spirit commanded."Pussey: "Fuck are you? Joan of Arc?"Pennsatucky: "No, I'm from Waynesboro, my name is Tiffany..." - Tiffany 'Pennsatucky' Doggett
+Last updated: 2024-04-11 10:07:31
+Random Quote: Marshall: "Can we borrow your air mattress? My mom's coming into town for a few days."Ted: "Absolutely not!"Lily: "Bummer, I guess she can't stay with us. Hey, look what I just found! A list of hotels and other creative housing options."Marshall: "Baby, my mom is not staying at a hotel. Or our storage unit." - Lily Aldrin
