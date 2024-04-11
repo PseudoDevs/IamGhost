@@ -1,6 +1,3 @@
-Last updated: 2024-04-11 10:39:31
-Random Quote: Beth: "Do you want homeless people to have homes?"
-Jerry: "Yes."
-Beth: "Are you gonna build them?"
-Jerry: "No."
-Beth: "Then what good was the 'yes'?" - Beth Smith
+Last updated: 2024-04-11 10:40:04
+Random Quote: Ellie: "There's not gonna be anything bad in here?"
+Joel: "Just you." - Joel Miller
