@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 08:58:49
-Random Quote: The average American consumes 55 pounds of beef per year. And then there’s Texas, where we can knock that off in a couple of months. Maybe faster if we’re talking about smoked brisket. - Sheldon
+Last updated: 2024-04-11 09:00:40
+Random Quote: It is not a question of wanting.  The throne is mine, as Robert's heir.  That is law.  After me, it must pass to my daughter, unless Selyse should finally give me a son.  I am king.  Wants do not enter into it.  I have a duty to my daughter.  To the realm.  Even to Robert.  He loved me but little, I know, yet he was my brother.  The Lannister woman gave him horns and made a motley fool of him.  She may have murdered him as well, as she murdered Jon Arryn and Need Stark.  For such crimes there must be justice.  Starting with Cersei and her abominations.  But only starting.  I mean to scour that court clean.  As Robert should have done after the Trident.  -  Stannis Baratheon
