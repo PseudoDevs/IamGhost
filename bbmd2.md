@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 09:07:19
-Random Quote: You have courage.  Not battle courage perhaps but... I don't know... a kind of woman's courage.  -  Brienne of Tarth
+Last updated: 2024-04-11 09:07:52
+Random Quote: Ted: "Robin, this show is so dirty, I don't know whether to hug you, or run a shower for you, so you can sit there alone, crying and clenching your knees."Robin: "It's just bad camera work, okay? Wayne, our camera guy - he wasn't that great."Marshall: "I don't know. I think he did a pretty good job, considering he was probably only using one hand." - Marshall Eriksen
