@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 10:13:58
-Random Quote: A thousand eyes, a hundred skins, wisdom deep as the roots of ancient trees.  Greenseers.  -  Bloodraven
+Last updated: 2024-04-11 10:14:34
+Random Quote: If that’s true, if you don’t know who I am, then maybe your best course… would be to tread lightly. - Walter White
