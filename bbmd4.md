@@ -1,3 +1,2 @@
-Last updated: 2024-04-11 09:09:32
-Random Quote: Jay: "I got you a little gift to celebrate. I know it’s not much...-"
-Gloria: "It’s practically nothing!" - Gloria Pritchett
+Last updated: 2024-04-11 09:11:11
+Random Quote: The more you move up in the world, the more enemies you make. - Rue Bennett
