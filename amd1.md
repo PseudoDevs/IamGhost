@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 10:58:46
-Random Quote: Reality is more than neurons firing around in your brain. Reality is not what's on the inside. It's what's happening on the outside. - Daniel Solace
+Last updated: 2024-04-11 10:59:22
+Random Quote: Lily, you just gave those children a stapler, a pair of sharp scissors and a pretty decent Pinot Noir. - Marshall Eriksen
