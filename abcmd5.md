@@ -1,2 +1,6 @@
-Last updated: 2024-04-11 10:53:17
-Random Quote: Nobody exists on purpose. Nobody belongs anywhere. We're all going to die. Come watch TV? - Morty Smith
+Last updated: 2024-04-11 10:53:50
+Random Quote: Rick: "Just do a Die Hard!"
+Summer: "What does that mean?"
+Rick: "Sneak around! Use air vents! You've never seen Die Hard?"
+Summer: "I'm 17. No, I've never seen Die Hard."
+Rick: "Well, neither did the guy in Die Hard." - Rick Sanchez
