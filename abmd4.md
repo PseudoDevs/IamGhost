@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 10:53:01
-Random Quote: New York! Home of the Mets, the Chrysler Building, those ladies from Sex and the City and now, the zombie apocalypse. If you can make it here, you can make it anywhere - but first, you have to not get eaten. - Spider-Man
+Last updated: 2024-04-11 10:53:34
+Random Quote: Tarly, when I was a lad half your age, my lady mother told me that if I stood about with my mouth open, a weasel was like to mistake it for his lair and run down my throat.  If you have something to say, say it.  Otherwise, beware of weasels.  -  Jeor Mormont
