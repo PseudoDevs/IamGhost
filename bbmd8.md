@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 10:22:19
-Random Quote: Lucas: "Mike's not gonna like it."Dustin: "Last time I checked our party is not a dictatorship, it's a democracy." - Dustin Henderson
+Last updated: 2024-04-11 10:22:54
+Random Quote: I don't have a phone. I refuse to be a slave to technology. - Wednesday Addams
