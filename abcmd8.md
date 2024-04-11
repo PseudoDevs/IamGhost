@@ -1,2 +1,2 @@
-Last updated: 2024-04-10 05:01:07
-Random Quote: Men say Tywin never smiled, but he smiled when he wed your mother, and when Aerys made him Hand.  When Tarbeck Hall came crashing down on Lady Ellyn, that scheming bitch, Tyg claimed he smiled then, and he smiled at your birth, Jaime, I saw with my own eyes.  -  Genna Lannister
+Last updated: 2024-04-11 08:00:11
+Random Quote: Nuncle always had a fondness for freaks and fools.  My father used to fight with him about it.  Let the wizards call upon their gods.  The Damphair will call on ours, and drown them.  -  Asha Greyjoy
