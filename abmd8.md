@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 10:35:43
-Random Quote: I feel like you ruined me forever. - Maddy Perez
+Last updated: 2024-04-11 10:36:16
+Random Quote: Sometimes, the cure is a little taste of the disease. The difference between medicine and poison sometimes is only dosage. - Arthur Harrow
