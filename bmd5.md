@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 08:12:46
-Random Quote: Marshall: "Excuse me, miss. When you get a chance, could you bring over a hundred shots of tequila please?"Barney: "I'll have the same." - Marshall Eriksen
+Last updated: 2024-04-11 08:13:18
+Random Quote: Any man who steps between a father and his vengeance asks for death.  -  Rickard Karstark
