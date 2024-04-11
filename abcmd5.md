@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 09:07:16
-Random Quote: I know the poison that my father used, and there is none slower or more agonizing.  Soon we may hear the Mountain screaming, even here in Sunspear.  -  Tyene Sand
+Last updated: 2024-04-11 09:07:49
+Random Quote: Either get out early, or you get out too late. - Pacho Herrera
