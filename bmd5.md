@@ -1,3 +1,3 @@
-Last updated: 2024-04-11 09:37:56
-Random Quote: Marylin Thornhill: "I trust Enid has given you the old Nevermore welcome."
-Wednesday: "She's been smothering me with hospitality. I hope to return the favor... in her sleep." - Wednesday Addams
+Last updated: 2024-04-11 09:38:28
+Random Quote: Jerry: "Well, traditionally, science faires are a father-son thing."
+Rick: "Well, scientifically, traditions are an idiot thing." - Rick Sanchez
