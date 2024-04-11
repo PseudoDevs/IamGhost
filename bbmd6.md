@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 10:17:13
-Random Quote: Sitting around, smoking marijuana, eating Cheetos and masturbating do not constitute "plans". - Walter White
+Last updated: 2024-04-11 10:17:46
+Random Quote: You're wrong.  Need Stark was my gaoler, but my blood is still salt and iron.  -  Theon Greyjoy
