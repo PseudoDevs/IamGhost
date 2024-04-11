@@ -1,3 +1,2 @@
-Last updated: 2024-04-11 10:57:35
-Random Quote: Freddie: "If you want me out of Birmingham, it'll have to be in a wooden box."
-Polly: "You lay a hand on our Ada, I'll put you in a wooden box myself!" - Polly Gray
+Last updated: 2024-04-11 10:58:11
+Random Quote: Come on, we gotta rally. Make some memories. - Piper Chapman
