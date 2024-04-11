@@ -1,3 +1,2 @@
-Last updated: 2024-04-11 08:01:47
-Random Quote: Man: "Hello, sir. Can I talk to you?"
-Gi-hun: "I don't believe in Jesus." - Seong Gi-hun
+Last updated: 2024-04-11 08:02:22
+Random Quote: It's not Aerys I rue, it's Robert... Why is it no one names Robert oathbreaker?  He tore the realm apart, yet I am the one with shit for honor.  -  Jaime Lannister

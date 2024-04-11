@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 08:01:48
-Random Quote: We can only die.  Why else do we don these black cloaks, but to die in defense of the realm?  -  Qhorin Halfhand
+Last updated: 2024-04-11 08:02:22
+Random Quote: In the end, we will all get just what we deserve. - 
