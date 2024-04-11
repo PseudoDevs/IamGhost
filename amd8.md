@@ -1,3 +1,2 @@
-Last updated: 2024-04-11 09:25:54
-Random Quote: Freddie: "If you want me out of Birmingham, it'll have to be in a wooden box."
-Polly: "You lay a hand on our Ada, I'll put you in a wooden box myself!" - Polly Gray
+Last updated: 2024-04-11 09:28:56
+Random Quote: My lady, I have seen how you look at my brother.  Loras is valiant and handsome, and we all love him dearly... but your Imp will make a better husband.  He is a bigger man than he seems, I think.  -  Garlan Tyrell
