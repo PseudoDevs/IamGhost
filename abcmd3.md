@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 08:35:55
-Random Quote: A hall to die in, and men to bury me.  I thank you, my lords... but I spit on your pity... I am a knight... I shall die a knight.  -  Barristan Selmy
+Last updated: 2024-04-11 08:36:33
+Random Quote: You know, I always thought that tea was going to taste like hot brown water, and you know what? I was right. It's horrible. - Rebecca Welton
