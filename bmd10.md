@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 10:19:53
-Random Quote: So you're half cold, unfeeling reptile, half also cold, equally unfeeling machine? Wow, so your origin is what? You fell into a vat of redundancy? - Rick Sanchez
+Last updated: 2024-04-11 10:20:28
+Random Quote: The longer Cersei waits, the angrier she'll become, and anger makes her stupid.  I much prefer angry and stupid to composed and cunning.  -  Tyrion Lannister
