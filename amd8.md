@@ -1,4 +1,2 @@
-Last updated: 2024-04-11 08:57:36
-Random Quote: Bo-Katan: "I've scugged off a lot of Imperial warlords."
-Din: "They tend to get mad when you hijack their ships."
-Bo-Katan: "Now you tell me." - Bo-Katan
+Last updated: 2024-04-11 08:58:46
+Random Quote: The legacy of that shield is... complicated. - Sam Wilson
