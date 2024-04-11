@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 10:20:50
-Random Quote: Eventually, Nick's groin will heal and you'll be back in Sexville, where all the crossword puzzles only have one box to fill. - Lily Aldrin
+Last updated: 2024-04-11 10:21:23
+Random Quote: I don't wanna be choosing between two girls, I wanna be a complete head over heels idiot for one! - Ted Mosby
