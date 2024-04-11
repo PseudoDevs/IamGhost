@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 10:16:56
-Random Quote: Lily: "Sorry this is taking so long. He kicked for everybody else."Marshall: "It's hard for the little guy to perform under pressure."Barney: "Top ten things Marshall said on his wedding night."Kevin: "Wow! It was small, but I think I felt something."Robin: "Top ten things Lily said on her wedding night." - Robin Scherbatsky
+Last updated: 2024-04-11 10:17:32
+Random Quote: To live is to risk it all. Otherwise you're just an inert chunk of randomly assembled molecules drifting wherever the universe blows you. - Rick Sanchez
