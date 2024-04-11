@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 09:10:18
-Random Quote: Many hands make light work. And many mouths make good gossip. - Agatha Harkness
+Last updated: 2024-04-11 09:10:52
+Random Quote: The title was but a courtesy due him as a council member; Varys was lord of nothing but the spiderweb, the master of none but his whispers.  -  Catelyn Stark
