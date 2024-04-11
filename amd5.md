@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 08:03:31
-Random Quote: Guard: "Inmate, step away from the machine."Larry: "He just called you 'inmate'."Guard: "You too, sir."Larry: "Sorry." - Larry Bloom
+Last updated: 2024-04-11 08:04:04
+Random Quote: I liked the way I dressed you, but I'm worried I f'ed with your gender expression. - Jules Vaughn
