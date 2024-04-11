@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 10:26:23
-Random Quote: The beauty of a moment, is that it's fleeting. - Ted Mosby
+Last updated: 2024-04-11 10:26:56
+Random Quote: Marshall: "Neither of you guys has any game, right? Or else you'd be married. Like me. If dating is the game, then marriage is winning the game."Ted: "Yeah, if you're playing in the women's league!" - Ted Mosby
