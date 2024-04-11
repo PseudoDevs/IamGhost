@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 08:30:15
-Random Quote: And, you know, you just can't be mad at me for wanting you to be okay. - Rue Bennett
+Last updated: 2024-04-11 08:30:48
+Random Quote: There is entirely too much tut - tutting in this realm, if you ask me.  All these kings would do a deal better if they put down their swords and listended to their mothers. 
