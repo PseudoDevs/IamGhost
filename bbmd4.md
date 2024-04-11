@@ -1,2 +1,4 @@
-Last updated: 2024-04-11 08:50:43
-Random Quote: There is no stronger bond than that of the family you choose. - Miguel Angel Felix Gallardo
+Last updated: 2024-04-11 08:51:21
+Random Quote: Greef: "Nevarro is a very fine planet. And now that the scum and villainy have been washed away, it's very respectable again."
+Mando: "As a bounty hunter hive?"
+Greef: "Some of my favorite people are bounty hunters." - Greef Karga
