@@ -1,3 +1,3 @@
-Last updated: 2024-04-11 10:48:28
-Random Quote: Morticia: "That boy's family was going to file attempted murder charges. How would that have looked on your record?"
-Wednesday: "Terrible. Everyone would know I failed to get the job done." - Wednesday Addams
+Last updated: 2024-04-11 10:49:01
+Random Quote: Layla: "Summon the suit!"
+Steven: "Summon the soup? What are you saying?" - Arthur Harrow
