@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 09:34:16
-Random Quote: Don’t take it so personally, okay? I don’t like most people. He’s in the vast majority. - Jonathan Byers
+Last updated: 2024-04-11 09:36:04
+Random Quote: A war is coming. I'm afraid your friends at Hawkins are very much in the eye of the storm. I don't know how to say this other than just to say it: without you, we can't win this war. - Sam Owens
