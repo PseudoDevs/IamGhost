@@ -1,5 +1,2 @@
-Last updated: 2024-04-11 10:25:14
-Random Quote: Morty: "I'm dying, Rick!"
-Rick: "People who are really dying don't keep bringing it up."
-Morty: "Is that true?"
-Rick: "I don't know. I'm just usually around people that die faster." - Rick Sanchez
+Last updated: 2024-04-11 10:25:48
+Random Quote: What is dead may never die, but rises again, harder and stronger  -  Words of the Drowned God
