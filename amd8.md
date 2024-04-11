@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 08:20:59
-Random Quote: Lord Varys, sometimes I feel as though you are the best friend I have in King's Landing and sometimes I feel you are my worst enemy.  -  Tyrion Lannister
+Last updated: 2024-04-11 08:21:32
+Random Quote: I hide in plain sight, same as you. - Gustavo Fring
