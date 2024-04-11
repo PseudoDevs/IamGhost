@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 09:46:33
-Random Quote: I wasn't there when the meth was cooked. I wasn't there when it was sold. I didn't witness any of the murders, but I damn well knew what was happening. I was more than a willing participant. I was indispensable. I kept Walter White out of Jail. I laundered his money. I lied for him. I conspired with him and I made millions. - Saul Goodman
+Last updated: 2024-04-11 09:47:08
+Random Quote: Since when did "hopeful" and "naive" become the same thing? I mean, why would you get into this business if not to save the world? That’s all I have ever wanted. - Starlight
