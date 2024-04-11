@@ -1,3 +1,2 @@
-Last updated: 2024-04-11 09:52:13
-Random Quote: "How do you take your tea?"
-Ted: "Well, normally right back to the counter because there's been a terrible mistake." - Jim Hopper
+Last updated: 2024-04-11 09:52:46
+Random Quote: Stannis Baratheon with a grievance was like a mastiff with a bone; he gnawed it down to splinters.  -  Jon Snow
