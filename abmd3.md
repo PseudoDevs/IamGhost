@@ -1,2 +1,2 @@
-Last updated: 2024-04-10 04:38:50
-Random Quote: Oh, boy, so you actually learned something today? What is this, Full House? - Rick Sanchez
+Last updated: 2024-04-11 08:00:05
+Random Quote: Know the men who follow you and let them know you.  Don't ask your men to die for a stranger.  -  Eddard Stark
