@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 10:31:20
-Random Quote: Such a large bounty for such a small package. - The Client
+Last updated: 2024-04-11 10:31:53
+Random Quote: My daughter has taken an axe for a lover.  I will not have my son bedeck himself like a whore.  It is as I feared.  The green lands have made you soft, and the Starks have made you theirs.  -  Balon Greyjoy
