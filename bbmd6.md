@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 10:02:41
-Random Quote: Yes, Lord Umber, leave me to the king.  He means to give me a scolding before he forgives me.  That's how he deals with treason, our King in the North.  Or should I call you the King Who Lost the North, your Grace?  -  Rickard Karstark
+Last updated: 2024-04-11 10:03:16
+Random Quote: Discouraging premarital sex is against my religion. - Barney Stinson
