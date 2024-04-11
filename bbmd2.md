@@ -1,2 +1,3 @@
-Last updated: 2024-04-11 08:09:51
-Random Quote: Zoey: "Don't worry Ted, she's cute."Barney: "'Cute' means 'fat'!"Zoey: "She's not fat."Barney: "'Not fat' means 'ugly'." - Barney Stinson
+Last updated: 2024-04-11 08:11:07
+Random Quote: This woman has a hold on my heart that I could not break if I wanted to, and there have been times that I wanted to.
+It has been overwhelming and humbling and even painful at times, but I could not stop loving her any more than I could stop breathing. - Barney Stinson
