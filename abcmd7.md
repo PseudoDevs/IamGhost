@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 09:22:48
-Random Quote: So young.  Though mayhaps this was a blessing.  Had he lived, he would have grown up to be a Frey.  -  Wyman Manderly
+Last updated: 2024-04-11 09:23:24
+Random Quote: Archeology. One big mess of obsessive bookworms. - Arthur Harrow
