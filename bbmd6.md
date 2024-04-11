@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 09:16:27
-Random Quote: Marshall: "Where is your playbook?"Robin: "My playbook? Bro, uh, two-volume set, right here.Ted: "It's a great read, actually."Lily: "Yeah, I'm reading it right now." - Robin Scherbatsky
+Last updated: 2024-04-11 09:17:33
+Random Quote: We are not husband and wife... anymore. We're just business partners. And our job is to raise those kids. - Marty Byrde
