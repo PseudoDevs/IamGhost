@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 09:15:11
-Random Quote: My father never bellowed like the Greatjon, but he was no less dangerous in his wroth.  -  Alys Karstark
+Last updated: 2024-04-11 09:15:44
+Random Quote: As the twig is bent, so grows the tree. - Pacho Herrera
