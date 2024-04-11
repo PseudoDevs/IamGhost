@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 08:19:43
-Random Quote: Kids, morals usually come at the end of stories, but this one is so important, I'm gonna tell you now. Don't ever, ever invite an ex to your wedding. - Ted Mosby
+Last updated: 2024-04-11 08:20:16
+Random Quote: I understand that if any more words come pouring out of your cunt mouth I'm going to have to eat every fucking chicken in this room.  -  Sandor Clegane
