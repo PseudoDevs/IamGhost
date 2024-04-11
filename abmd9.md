@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 08:49:54
-Random Quote: A lie is just a great story that someone ruined with the truth. - Barney Stinson
+Last updated: 2024-04-11 08:50:27
+Random Quote: I was wed three times and my wives gave me daughters.  Now only Beth remains to me.  My brother Martyn fathered four strong sons, yet only Jory lived to be a man.  When he was slain, Martyn's line died with him.  When we speak of the morrow nothing is ever certain.  -  Rodrik Cassel
