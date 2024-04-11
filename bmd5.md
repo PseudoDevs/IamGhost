@@ -1,3 +1,2 @@
-Last updated: 2024-04-11 10:38:12
-Random Quote: This woman has a hold on my heart that I could not break if I wanted to, and there have been times that I wanted to.
-It has been overwhelming and humbling and even painful at times, but I could not stop loving her any more than I could stop breathing. - Barney Stinson
+Last updated: 2024-04-11 10:38:46
+Random Quote: The stone is strong... the roots of the trees grow deep, and under the ground the Kings of Winter sit their thrones.  So long as those remained, Winterfell remained.  It was not dead, just broken.  Like me... I'm not dead either.  -  Bran Stark
