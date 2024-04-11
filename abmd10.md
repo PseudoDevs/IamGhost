@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 08:58:11
-Random Quote: The Horned Lord once said that sorcery is a sword without a hilt.  There is no safe way to grasp it.  -  Dalla
+Last updated: 2024-04-11 08:59:25
+Random Quote: Best-available idea doesn't make something a good idea. - Kinsey Locke
