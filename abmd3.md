@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 09:16:35
-Random Quote: Ted: "Grinch, Grinch, Grinch, Grinch!"[The lights turn out]Lily: "Happy? Now you pissed up the big guy upstairs!"Ted: "Yeah, I'm sure god cares if I..."Man: "You use that language again and I turn off your water!"Lily: "It's my super - he lives above me." - Lily Aldrin
+Last updated: 2024-04-11 09:17:12
+Random Quote: My order serves the realm, not the ruler.  Once I counseled King Aerys as loyally as I council King Robert now, so I bear this girl child of his no ill will.  Yet I ask you this, should war come again, how many soldiers will die?  How many towns will burn?  How many children will be ripped from their mothers to perish on the end of a spear?  Is it not wiser, even kinder, that Daenerys Targaryen should die now so that tens of thousands might live?  -  Grand Maester Pycelle
