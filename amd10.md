@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 08:16:36
-Random Quote: You want to rule?  This is what ruling is; lying on a bed of weeds, ripping them out by the root, one by one, before they strangle you in your sleep.  -  Cersei Lannister
+Last updated: 2024-04-11 08:17:11
+Random Quote: Do it. If you ever want to see these boobs again, crawl, you son of a me. - Lily Aldrin
