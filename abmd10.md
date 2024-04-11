@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 09:13:26
-Random Quote: Oh, Cersei is lovely to look at, truly, but cold... the way she guards her cunt, you'd think she had all the gold of Casterly Rock between her legs.  -  Robert Baratheon
+Last updated: 2024-04-11 09:14:04
+Random Quote: Rule Number One: Don't ever fall in love with a straight girl. - Alex Vause
