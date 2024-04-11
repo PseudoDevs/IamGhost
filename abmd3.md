@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 08:43:07
-Random Quote: Some had been heroes, some weaklings, knaves, or cravens.  Most were only men, quicker and stronger than most, more skilled with sword and shield, but still prey to pride, ambition, lust, love, anger, jealousy, greed for gold, hunger for power, and all the other failings that afflicted lesser mortals.  The best of them overcame their flaws, did their duty, and died with their swords in their hands.  The worst... the worst were those who played the game of thrones.  -  Barristan Selmy
+Last updated: 2024-04-11 08:43:41
+Random Quote: There's three rules of cheating:1st: It's not cheating if you're not the one who's married.2nd: It's not cheating if her name has two adjacent vowels.3rd: And it's not cheating if she's from a different area code. You're fine on all three counts. - Barney Stinson
