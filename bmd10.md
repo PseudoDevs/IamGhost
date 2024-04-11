@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 09:44:08
-Random Quote: Just because you shot Jesse James doesn't mean you are Jesse James. - Mike Ehrmantraut
+Last updated: 2024-04-11 09:44:45
+Random Quote: He would have killed me but for Howland Reed.  -  Eddard Stark
