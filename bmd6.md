@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 10:11:17
-Random Quote: Lily: "We'll all have a wedding dress camp-out. It'll be fun!"Barney: "I can't go. I've got this thing."Lily: "What thing?"Barney: "A penis!" - Barney Stinson
+Last updated: 2024-04-11 10:11:50
+Random Quote: There have always been men who found it easier to speak vows than to keep them.  -  Arys Oakheart
