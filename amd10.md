@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 10:00:44
-Random Quote: I feel like her sobriety is completely dependent on how available I am to her. - Jules Vaughn
+Last updated: 2024-04-11 10:01:17
+Random Quote: Edric Storm, they call him.  He is said to be the very image of my brother.  If men were to see him, and then look again at Joffrey and Tommen, they could not help but wonder, I would think.  -  Stannis Baratheon
