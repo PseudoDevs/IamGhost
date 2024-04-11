@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 10:41:18
-Random Quote: Euron Greyjoy is no man's notion of a king, if half of what Theon said of him was true.  -  Robb Stark
+Last updated: 2024-04-11 10:41:51
+Random Quote: You can tell a lot about a person from his biography. - Phil Dunphy
