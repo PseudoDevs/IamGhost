@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 08:24:39
-Random Quote: I never asked for this crown.  Gold is cold and heavy on the head, but so long as I am the king, I have a duty... if I must sacrifice one child to the flames to save a million from the dark... sacrifice... is never easy, Davos.  Or it is no true sacrifice.  -  Stannis Baratheon
+Last updated: 2024-04-11 08:25:13
+Random Quote: Lies are necessary, when the truth is too difficult to believe. - Pablo Escobar
