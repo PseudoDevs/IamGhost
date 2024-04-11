@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 09:19:40
-Random Quote: No sword is strong until it's been tempered.  The Stark boy is a child.  No doubt he likes the sound of warhorns well enough, and the sight of his banners fluttering in the wind, but in the end it comes down to butcher's work.  I doubt he has the stomach for it.  -  Tywin Lannister
+Last updated: 2024-04-11 09:20:17
+Random Quote: Turns out, when you projectile vomit on skates, you roll right into the spray. - Ted Mosby
