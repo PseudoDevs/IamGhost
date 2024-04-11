@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 10:25:14
-Random Quote: I don't want to die, I've only kissed one boy so far. - Missy
+Last updated: 2024-04-11 10:26:22
+Random Quote: You must be blind as well as maimed, Set.  Lift your eyes, and you will see the direwolf still flies above our walls.  -  Brynden Tully
