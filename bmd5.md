@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 08:31:54
-Random Quote: I don't have a phone. I refuse to be a slave to technology. - Wednesday Addams
+Last updated: 2024-04-11 08:32:27
+Random Quote: Robert was the true steel.  Stannis is pure iron, black and hard and strong, yes, but brittle, the way iron gets.  He'll break before he bends.  And Renly, that one, he's copper, bright and shiny, pretty to look at but not worth all that much at the end of the day.  -  Donal Noye
