@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 08:20:17
-Random Quote: Knowledge is a weapon, Jon.  Arm yourself well before you ride forth to battle.  -  Maester Aemon
+Last updated: 2024-04-11 08:20:50
+Random Quote: A reader lives a thousand lives before he dies.  The man who never reads lives only one.  -  Jojen Reed
