@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 10:38:11
-Random Quote: Balon was mad, Aeron is madder, and Euron is maddest of them all.  -  Baelor Blacktyde
+Last updated: 2024-04-11 10:38:46
+Random Quote: Believe me, I’ve had five divorces. Do you know what five divorces are? Five times I believed in love. - Berlin
