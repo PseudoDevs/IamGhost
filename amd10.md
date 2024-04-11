@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 09:46:24
-Random Quote: The distinction between past, present, and future is only a stubbornly persistent illusion. - 
+Last updated: 2024-04-11 09:46:57
+Random Quote: Young or old, a true knight is sworn to protect those who are weaker than himself, or die in the attempt.  -  Brienne of Tarth
