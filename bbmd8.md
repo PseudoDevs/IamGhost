@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 10:53:20
-Random Quote: I have served six kings, but here before us lies the greatest man I ever knew.  Lord Tywin wore no crown, yet he was all a king should be.  -  Grand Maester Pycelle
+Last updated: 2024-04-11 10:53:54
+Random Quote: You want to be a bounty hunter? Make the best deal for yourself and survive! - Fennec Shand
