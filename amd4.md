@@ -1,2 +1,3 @@
-Last updated: 2024-04-11 10:39:02
-Random Quote: After all, what’s more human than the fight for survival? - Tokyo
+Last updated: 2024-04-11 10:39:35
+Random Quote: George: "I love what you done with the place. Did you do it yourself, or did you get some pouf to help ya?"
+Rebecca: "I could ask the same of your hair." - Rebecca Welton
