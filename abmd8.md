@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 09:58:17
-Random Quote: Just because I don't have fear, doesn't make me irrational. - Kinsey Locke
+Last updated: 2024-04-11 09:58:50
+Random Quote: They'll bend the knee or I'll destroy them.  -  Stannis Baratheon
