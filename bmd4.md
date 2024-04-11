@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 08:59:24
-Random Quote: You think you're the only one he whispers secrets to?  He gives each of us just enough to convince us that we'd be helpless without him.  -  Cersei Lannister
+Last updated: 2024-04-11 09:00:01
+Random Quote: If I got serious with Nora, it would be like if Mother Teresa focused all her attention on one really hot orphan. With great penis comes great responsibility. - Barney Stinson
