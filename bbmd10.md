@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 08:05:28
-Random Quote: I don't have a phone. I refuse to be a slave to technology. - Wednesday Addams
+Last updated: 2024-04-11 08:06:04
+Random Quote: Until the Mountain crushed my brother's skull, no Dornishmen had died in this War of the Five Kings.  Tell me, Captain, is that my shame or my glory?  -  Doran Martell
