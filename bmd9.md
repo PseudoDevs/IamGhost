@@ -1,4 +1,2 @@
-Last updated: 2024-04-11 09:38:34
-Random Quote: Lorna Morello: "I need to start tightening up. You're making me feel like a cave."
-Nicky Nichols: "Baby, it's a c-nt, it stretches!"
-Lorna Morello: "Yeah, sometimes I feel like you're trying to climb inside my womb." - Lorna Morello
+Last updated: 2024-04-11 09:39:12
+Random Quote: We are smart. And idiots are banging all the time. We can learn how to do it, too. - Fabiola Torres
