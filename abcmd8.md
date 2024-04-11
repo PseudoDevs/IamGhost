@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 10:45:39
-Random Quote: And Stannis has always felt he was cheated of Storm's End.  The ancestral seat of House Baratheon, his by rights... if you knew how many times he came to Robert singing that same dull song in that gloomy aggrieved tone he has.  When Robert gave the place to Renly, Stannis clenched his jaw so tight I thought his teeth would shatter.  -  Cersei Lannister
+Last updated: 2024-04-11 10:46:15
+Random Quote: You're wrong.  Need Stark was my gaoler, but my blood is still salt and iron.  -  Theon Greyjoy

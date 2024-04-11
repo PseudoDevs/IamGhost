@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 10:45:40
-Random Quote: I will go to my grave thinking of my brother's peach.  -  Stannis Baratheon
+Last updated: 2024-04-11 10:46:15
+Random Quote: It all goes back and back.  To our mothers and fathers and theirs before them.  We are puppets dancing on the strings of those who came before us, and one day our own children will take up our strings and dance in our steads.  -  Tyrion Lannister
