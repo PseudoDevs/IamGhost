@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 09:43:32
-Random Quote: Jon, did you ever wonder why the men of the Night's Watch take no wives and father no children?  So they will not love, for love is the bane of honor, the death of duty.  -  Maester Aemon
+Last updated: 2024-04-11 09:45:20
+Random Quote: Time is different for a tree than for a man.  Sun and soil and water, these are the things a weirwood understands, not days and years and centuries.  For men, time is a river.  We are trapped in its flow, hurtling from past to present, always in the same direction.  The lives of trees are different.  They root and grow and die in one place, and that river does not move them.  The oak is the acorn, the acorn is the oak.  And the weirwood... a thousand human years are a moment to a weirwood, and through such gates you and I may gaze into the past.  -  Bloodraven
