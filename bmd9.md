@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 08:56:57
-Random Quote: The plan was to kill you and take the kid. But after what happened last night, I couldn't go through with it. - Greef Karga
+Last updated: 2024-04-11 08:57:33
+Random Quote: Demons made of snow and ice and cold.  The ancient enemy.  The only enemy that matters.  -  Stannis Baratheon
