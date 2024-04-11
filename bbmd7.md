@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 08:03:39
-Random Quote: In Colombia, when money's involved, blood inevitably flows. - Steve Murphy
+Last updated: 2024-04-11 08:04:14
+Random Quote: Jaime and I are more than brother and sister.  We are one person in two bodies.  We shared a womb together.  He came into this world holding my foot, our old maester said.  When he is in me, I feel... whole.  -  Cersei Lannister
