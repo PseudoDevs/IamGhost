@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 10:08:41
-Random Quote: Lily Aldrin: "Guys, The Captain just made me a very interesting offer."Barney Stinson: "Finally we get around to the real reason he hired you. Just promise you film it, and please use a tripod. There's nothing artistic about shaky-cam, it just looks sloppy." - Barney Stinson
+Last updated: 2024-04-11 10:09:16
+Random Quote: I will kill your wife, I will kill your son, I will kill your infant daughter. - Gustavo Fring
