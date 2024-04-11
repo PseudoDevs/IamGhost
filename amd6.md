@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 09:36:02
-Random Quote: Every time I go after a busty dullard who can't tell time or thinks I'm the ghost of Leonardo DiCaprio, I'm shallow. But somehow it's okay for Robin to date a guy who can't be trusted around outlets. - Barney Stinson
+Last updated: 2024-04-11 09:36:36
+Random Quote: Lily Aldrin: "Guys, The Captain just made me a very interesting offer."Barney Stinson: "Finally we get around to the real reason he hired you. Just promise you film it, and please use a tripod. There's nothing artistic about shaky-cam, it just looks sloppy." - Barney Stinson
