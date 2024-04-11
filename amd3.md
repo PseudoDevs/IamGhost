@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 10:18:38
-Random Quote: Jesus! Just grow some fucking balls! - Walter White
+Last updated: 2024-04-11 10:19:10
+Random Quote: In my head, it's like If I can conquer men, then I can conquer femininity. - Jules Vaughn
