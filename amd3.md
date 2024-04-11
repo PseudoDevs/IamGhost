@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 10:19:10
-Random Quote: In my head, it's like If I can conquer men, then I can conquer femininity. - Jules Vaughn
+Last updated: 2024-04-11 10:19:44
+Random Quote: It's easier when you're a kid anyway. You don't have anybody else relying on you. That's the hardest part. - Joel Miller

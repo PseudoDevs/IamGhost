@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 10:19:11
-Random Quote: The only thing The Umbrella Academy knows about love is how to screw it up. - Klaus Hargreeves
+Last updated: 2024-04-11 10:19:44
+Random Quote: We've always been a trio! We're right up there with Batman and Robin and Alfred. Romeo and Juliet and the apothecary. Salt and pepper and cumin. - Ted Mosby
