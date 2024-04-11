@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 09:12:14
-Random Quote: Weddings are basically funerals with cake. - Rick Sanchez
+Last updated: 2024-04-11 09:12:48
+Random Quote: Bronn was no knight, that was true.  Bronn was a battle - hardened killer. 
