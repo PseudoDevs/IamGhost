@@ -1,3 +1,2 @@
-Last updated: 2024-04-12 07:13:32
-Random Quote: Freddie: "Are you mad?"
-Ada: "Yeah. Mad as hell with all of them." - Ada Thorne
+Last updated: 2024-04-12 07:14:07
+Random Quote: The Freys slashed her throat from ear to ear.  When we found her by the river she was three days dead.  Harwin begged me to give her the kiss of life, but it had been too long.  I would not do it, so Lord Beric put his lips to hers instead, and the flame of life passed from him to her.  And... she rose.  May the Lord of Light protect us.  She rose.  -  Thoros of Myr
