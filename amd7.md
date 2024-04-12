@@ -1,2 +1,2 @@
-Last updated: 2024-04-12 05:44:11
-Random Quote: Never bring a knife to a sword fight. Unless it's concealed. - Wednesday Addams
+Last updated: 2024-04-12 05:44:47
+Random Quote: The greatest fools are ofttimes more clever than the men who laugh at them.  -  Tywin Lannister
