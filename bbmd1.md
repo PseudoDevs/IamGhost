@@ -1,3 +1,2 @@
-Last updated: 2024-04-12 04:58:12
-Random Quote: What do you call a fish with no eyes?
-Fsh. - Marshall Eriksen
+Last updated: 2024-04-12 04:58:45
+Random Quote: I have a tender spot in my heart for cripples, bastards, and broken things.  -  Tyrion Lannister
