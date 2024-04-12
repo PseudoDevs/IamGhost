@@ -1,2 +1,2 @@
-Last updated: 2024-04-12 05:23:00
-Random Quote: I watched Jane die. I was there. And I watched her die. - Walter White
+Last updated: 2024-04-12 05:23:33
+Random Quote: They shall come day and night to see the wonder that has been born again into the world, and when they see they shall lust.  For dragons are fire made flesh, and fire is power.  -  Quaithe
