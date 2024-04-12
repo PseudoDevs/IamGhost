@@ -1,2 +1,2 @@
-Last updated: 2024-04-12 05:27:06
-Random Quote: Get the keys and remove those chains from him, before you make me rue the day I raped your mother.  -  Roose Bolton
+Last updated: 2024-04-12 05:28:13
+Random Quote: The "no more surprises"-thing is the best part of being married. - Lily Aldrin
