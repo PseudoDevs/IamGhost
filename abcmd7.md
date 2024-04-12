@@ -1,2 +1,2 @@
-Last updated: 2024-04-12 05:09:49
-Random Quote: The men of Westeros are ever rushing.  What good is this, I ask you?  He who hurries through life hurries to his grave.  -  Salladhor Saan
+Last updated: 2024-04-12 05:10:22
+Random Quote: I am the storm, my lord, the first storm, and the last.  -  Euron Greyjoy
