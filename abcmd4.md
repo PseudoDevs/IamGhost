@@ -1,2 +1,3 @@
-Last updated: 2024-04-12 05:23:43
-Random Quote: Guard: "Inmate, step away from the machine."Larry: "He just called you 'inmate'."Guard: "You too, sir."Larry: "Sorry." - Larry Bloom
+Last updated: 2024-04-12 05:24:16
+Random Quote: Steven Grant: "I'm not trying to slag off marketing, but there's been a major blunder. Because they've got seven gods here, and the Ennead has nine."
+Donna: "I fired two of them for bein' late. Listen, if you don't stop natterin' at me, I swear I'll shove you in a sarcophagus. You can tell the pharaoh in there what's wrong with them and all." - Arthur Harrow
