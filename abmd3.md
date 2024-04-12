@@ -1,2 +1,2 @@
-Last updated: 2024-04-12 07:12:59
-Random Quote: Barney: "Fine, we'll just have a nice, tasteful rehearsal dinner. Maybe at a French restaurant, I know just the place."Robin: "What's the name of the restaurant?"Barney: "La Sertag." - Barney Stinson
+Last updated: 2024-04-12 07:13:33
+Random Quote: Men say Tywin never smiled, but he smiled when he wed your mother, and when Aerys made him Hand.  When Tarbeck Hall came crashing down on Lady Ellyn, that scheming bitch, Tyg claimed he smiled then, and he smiled at your birth, Jaime, I saw with my own eyes.  -  Genna Lannister
