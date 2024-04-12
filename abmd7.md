@@ -1,2 +1,2 @@
-Last updated: 2024-04-12 06:38:59
-Random Quote: Do you know what it is like to be sold, squire?  I do.  My brother sold me to Khal Drogo for the promise of a golden crown.  Well, Drogo crowned him in gold, though not as he had wished, and I... my sun - and
+Last updated: 2024-04-12 06:39:34
+Random Quote: Oh, come on. If you don't laugh, it just seems mean. - Barney Stinson
