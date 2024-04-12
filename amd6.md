@@ -1,2 +1,2 @@
-Last updated: 2024-04-12 06:38:21
-Random Quote: Is it your fault that Bronn's an insolent black - hearted rogue?  He's always been an insolent black
+Last updated: 2024-04-12 06:38:55
+Random Quote: Put me on your magical boat, man, and sail me down your chocolaty river of meth! - Badger
