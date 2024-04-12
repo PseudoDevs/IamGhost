@@ -1,2 +1,2 @@
-Last updated: 2024-04-12 05:13:42
-Random Quote: Stella's sister: "I'm a vegan. I wish I could tune out that moral voice inside me, that says eating animals is murder. But I guess I'm just not as strong as you are."Ted: "That's 'cause you need protein. I'll have the lamb." - Ted Mosby
+Last updated: 2024-04-12 05:14:14
+Random Quote: Yes, it's you who ought to run, you and Lord Tywin and the Mountain and Set Addam and Set Amory and stupid Set Lyonel whoever he is, all of you better run or my brother will kill you, he's a Stark, he's more wolf than man, and so am I.  -  Arya Stark
