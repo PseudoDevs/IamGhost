@@ -1,2 +1,2 @@
-Last updated: 2024-04-12 06:50:19
-Random Quote: Nobody exists on purpose. Nobody belongs anywhere. We're all going to die. Come watch TV? - Morty Smith
+Last updated: 2024-04-12 06:50:53
+Random Quote: We all must choose.  Man or woman, young or old, lord or peasant, our choices are the same.  We choose light or we choose darkness.  -  Melisandre
