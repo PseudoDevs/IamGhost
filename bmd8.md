@@ -1,2 +1,2 @@
-Last updated: 2024-04-12 06:27:32
-Random Quote: It's nice that they found each other. Sometimes you fall for someone you'd never expect, but that doesn't make it wrong. Doesn't everyone deserve to be happy? - Barney Stinson
+Last updated: 2024-04-12 06:28:43
+Random Quote: In the game of thrones, even the humblest pieces have wills of their own.  Sometimes they refuse to make the moves you've planned for them.  Mark that well, Alayne.  It's a lesson that Cersei Lannister still has yet to learn.  -  Petyr Baelish
