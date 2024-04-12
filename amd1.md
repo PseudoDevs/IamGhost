@@ -1,2 +1,2 @@
-Last updated: 2024-04-12 05:18:33
-Random Quote: Who do you think killed all the dragons the last time around?  Gallant dragonslayers armed with swords?  The world the Citadel is building has no place in it for sorcery or prophecy or glass candles, much less for dragons.  Ask yourself why Aemon Targaryen was allowed to waste his life upon the Wall, when by rights he should have been raised to archmaester.  His blood was why.  He could not be trusted.  No more than I can.  -  Archmaester Marwyn
+Last updated: 2024-04-12 05:19:08
+Random Quote: I am the Greyjoy, Lord Reaper of Pyke, King of Salt and Rock, Son of the Sea Wind, and no man gives me a crown.  I pay the iron price.  I will take my crown, as Urron Redhand did five thousand years ago.  -  Balon Greyjoy
