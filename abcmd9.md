@@ -1,2 +1,2 @@
-Last updated: 2024-04-12 04:54:11
-Random Quote: What if everything that came from the past was influenced by the future. - H.G. Tannhaus
+Last updated: 2024-04-12 04:55:17
+Random Quote: The only way to keep your people loyal is to make certain they fear you more than they do the enemy.  -  Cersei Lannister
