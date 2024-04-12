@@ -1,2 +1,2 @@
-Last updated: 2024-04-12 06:16:43
-Random Quote: That's the thing with guys like Nate. They don't actually want a person. They want something they can own and possess. - Rue Bennett
+Last updated: 2024-04-12 06:19:05
+Random Quote: Rhaegar fought valiantly, Rhaegar fought nobly, and Rhaegar died.  -  Jorah Mormont
