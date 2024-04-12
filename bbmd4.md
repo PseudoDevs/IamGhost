@@ -1,2 +1,2 @@
-Last updated: 2024-04-12 06:41:16
-Random Quote: Young or old, a true knight is sworn to protect those who are weaker than himself, or die in the attempt.  -  Brienne of Tarth
+Last updated: 2024-04-12 06:41:50
+Random Quote: There's no shame in fear, my father told me, what matters is how we face it.  -  Jon Snow
