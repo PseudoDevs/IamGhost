@@ -1,2 +1,2 @@
-Last updated: 2024-04-12 04:52:53
-Random Quote: Dismissing Selmy, where was the sense in that?  Yes, the man was old, but the name of Barristan the Bold still has meaning in the realm.  He lent honor to any man he served.  -  Tywin Lannister
+Last updated: 2024-04-12 04:54:00
+Random Quote: A bag of dragons buys a man's silence for a while, but a well - placed quarrel buys it forever. 
