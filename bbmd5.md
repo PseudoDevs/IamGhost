@@ -1,2 +1,2 @@
-Last updated: 2024-04-12 06:40:40
-Random Quote: Life hurts. The moment you think you've got it all, it smacks you in the face. - Lucien
+Last updated: 2024-04-12 06:41:15
+Random Quote: You don’t want a criminal lawyer. You want a criminal lawyer. - Jesse Pinkman
