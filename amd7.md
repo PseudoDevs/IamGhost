@@ -1,2 +1,2 @@
-Last updated: 2024-04-12 06:13:24
-Random Quote: Marshall really took a two-flusher on that one! - Ted Mosby
+Last updated: 2024-04-12 06:13:57
+Random Quote: I have served six kings, but here before us lies the greatest man I ever knew.  Lord Tywin wore no crown, yet he was all a king should be.  -  Grand Maester Pycelle
