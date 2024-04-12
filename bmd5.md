@@ -1,4 +1,2 @@
-Last updated: 2024-04-12 06:43:32
-Random Quote: Marshall: "Except the flames of Lucifer keep singein our back bumper as we drive through this hellish, cheese-infected wasteland."
-Lily: "Wisconsin?"
-Marshall: "Wisconsin!" - Marshall Eriksen
+Last updated: 2024-04-12 06:44:07
+Random Quote: I find Social Media to be a soul-sucking void of meaningless affirmation. - Wednesday Addams
