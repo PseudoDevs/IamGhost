@@ -1,2 +1,2 @@
-Last updated: 2024-04-12 04:57:06
-Random Quote: This is New York City, don't get close to the neighbours. You nod at them politely in the hall, you call the cops if you haven't seen them in a while and you smell something funny and that's it! - Ted Mosby
+Last updated: 2024-04-12 04:58:12
+Random Quote: I'll have to take a page from Robert's book, not that he ever read one.  -  Stannis Baratheon
