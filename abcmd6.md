@@ -1,2 +1,2 @@
-Last updated: 2024-04-12 05:07:28
-Random Quote: Robin, girls are like cartons of milk. Each one has a hotness expiration date and you've hit yours. I'm not saying the occasional guy won't still open the fridge, pick you up, give a sniff, shrug and take a sip anyway, but it's all downhill from here. - Barney Stinson
+Last updated: 2024-04-12 05:08:02
+Random Quote: Why is it always the innocents who suffer most, when you high lords play your game of thrones?  -  Varys
