@@ -1,2 +1,2 @@
-Last updated: 2024-04-12 05:25:47
-Random Quote: When you play the game of thrones, you win or you die.  There is no middle ground.  -  Cersei Lannister
+Last updated: 2024-04-12 05:26:21
+Random Quote: Ted it's fine, I'm a child of divorce. You guys keep fighting all you want - as long as the expensive gifts keep coming. - Lily Aldrin
