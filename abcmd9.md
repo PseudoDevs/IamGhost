@@ -1,2 +1,2 @@
-Last updated: 2024-04-12 05:13:08
-Random Quote: Pictures can be twisted and used against you and haunt you forever. - Hannah Baker
+Last updated: 2024-04-12 05:13:41
+Random Quote: Do you know what it is like to be sold, squire?  I do.  My brother sold me to Khal Drogo for the promise of a golden crown.  Well, Drogo crowned him in gold, though not as he had wished, and I... my sun - and
