@@ -1,2 +1,2 @@
-Last updated: 2024-04-12 06:20:16
-Random Quote: Did you think your dad was the only Mandalorian? - Bo-Katan
+Last updated: 2024-04-12 06:20:53
+Random Quote: It wasn't the violence that scared her. It was the fact that she knew no matter what he did, she'd still love him. - Rue Bennett
