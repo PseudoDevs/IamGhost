@@ -1,2 +1,2 @@
-Last updated: 2024-04-12 05:02:56
-Random Quote: If you want my advice? Get out of your own goddamn drama for a minute. - Nicky Nichols
+Last updated: 2024-04-12 05:03:29
+Random Quote: Marshall: "Lily, you snooped through her stuff?"Lily: "No, it's like the first thing you see when you jimmy open her desk-drawer with the letter opener her grandfather left her, according to her diary." - Lily Aldrin
