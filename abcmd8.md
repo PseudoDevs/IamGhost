@@ -1,2 +1,2 @@
-Last updated: 2024-04-12 06:58:23
-Random Quote: Because family is forever. - Wanda Maximoff
+Last updated: 2024-04-12 06:58:58
+Random Quote: A hall to die in, and men to bury me.  I thank you, my lords... but I spit on your pity... I am a knight... I shall die a knight.  -  Barristan Selmy
