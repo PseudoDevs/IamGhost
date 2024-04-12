@@ -1,2 +1,2 @@
-Last updated: 2024-04-12 07:25:26
-Random Quote: In all the world, violent men are the easiest to deal with. - Irene O'Donnell
+Last updated: 2024-04-12 07:25:59
+Random Quote: Barney: "Or it's a chance to mess with her head by showing up with someone hotter. Even better. Triple-threat: hotter and bigger boobs."Ted: "That's only two?"Barney: "Count again!" - Barney Stinson
