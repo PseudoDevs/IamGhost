@@ -1,3 +1,2 @@
-Last updated: 2024-04-12 05:34:41
-Random Quote: Man: "Hello, sir. Can I talk to you?"
-Gi-hun: "I don't believe in Jesus." - Seong Gi-hun
+Last updated: 2024-04-12 05:36:21
+Random Quote: When you date someone, it's like you're taking one long course in who that person is and then, when you break up, all that stuff becomes useless. It's the emotional equivalent of an English degree... - Ted Mosby
