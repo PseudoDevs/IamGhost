@@ -1,3 +1,2 @@
-Last updated: 2024-04-12 05:46:23
-Random Quote: Wyatt Langmore: "This job's my old man's idea. Something about 'calluses and character'."
-Charlotte Byrde: "Yeah, well, you're blowing leaves, not hiding Anne Frank." - Charlotte Byrde
+Last updated: 2024-04-12 05:47:02
+Random Quote: When you date someone, it's like you're taking one long course in who that person is and then, when you break up, all that stuff becomes useless. It's the emotional equivalent of an English degree... - Ted Mosby
