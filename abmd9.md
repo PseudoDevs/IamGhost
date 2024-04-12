@@ -1,2 +1,2 @@
-Last updated: 2024-04-12 06:08:50
-Random Quote: Love's not always wise, I've learned.  It can lead us to great folly, but we follow our hearts... wherever they take us.  -  Robb Stark
+Last updated: 2024-04-12 06:09:23
+Random Quote: What you have to do is show these suckers what you’re capable of. Show them you’re not scared. - Nairobi
