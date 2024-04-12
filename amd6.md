@@ -1,9 +1,2 @@
-Last updated: 2024-04-12 05:29:07
-Random Quote: If my love were an ocean,
-there would be no more land.
-If my love were a desert,
-you would see only sand.
-If my love were a star-
-late at night, only light.
-And if my love could grow wings,
-I'd be soaring in flight. - Jay Asher
+Last updated: 2024-04-12 05:29:40
+Random Quote: Larry Bloom: "Piper, you put a pee stick in my rinsing cup."Piper Chapman: "Well, you put your pee stick in my vagina. And that's why we're in this situation." - Piper Chapman
