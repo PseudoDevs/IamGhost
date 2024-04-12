@@ -1,2 +1,2 @@
-Last updated: 2024-04-12 06:09:06
-Random Quote: Come on, baby, do the magic hand thing! - Greef Karga
+Last updated: 2024-04-12 06:09:40
+Random Quote: We all have things we keep hidden. Sometimes, keeping secrets is how you survive. Because in High School, one rumor, one picture, one incident, can define you forever. - Hannah Baker
