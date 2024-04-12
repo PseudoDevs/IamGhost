@@ -1,2 +1,2 @@
-Last updated: 2024-04-12 05:44:41
-Random Quote: Of course, nobody I knew in East-Texas in 1989 cared about Newtonian Physics. The only Newtons they cared about were Wayne and Fig. - Sheldon Cooper
+Last updated: 2024-04-12 05:45:15
+Random Quote: What a man wants does not define him. What a man needs is what defines him. - Juan Nepomuceno Guerra
