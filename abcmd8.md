@@ -1,2 +1,2 @@
-Last updated: 2024-04-12 05:01:36
-Random Quote: A ruler who hides behind paid executioners soon forgets what death is.  -  Eddard Stark
+Last updated: 2024-04-12 05:02:09
+Random Quote: What is the cost of lies? It's not that we mistake them for the truth. The real danger is that if we hear enough lies, then we no longer recognize the truth at all. - Valery Legasov
