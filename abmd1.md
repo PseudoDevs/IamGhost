@@ -1,2 +1,2 @@
-Last updated: 2024-04-12 05:50:16
-Random Quote: Ted: "I just thought he needed to listen to common sense and reasonable discourse."Robin: "Oh, God. Tell me those aren't the names of your fists."Ted: "They're my feet. I'm actually more of a kicker." - Ted Mosby
+Last updated: 2024-04-12 05:50:54
+Random Quote: What do you think a knight is for, girl?  You think it's all taking favors from ladies and looking fine in gold plate?  Knights are for killing.  I killed my first man at twelve.  I've lost count of how many I've killed since then.  High lords with old names, fat rich men dressed in velvet, knights puffed up like bladders with their honors, yes, and women and children too... they're all meat, and I'm the butcher.  -  Sandor Clegane
