@@ -1,2 +1,2 @@
-Last updated: 2024-04-12 04:57:59
-Random Quote: My skin has gone from porcelain, to ivory, to steel.  -  Sansa Stark
+Last updated: 2024-04-12 04:58:33
+Random Quote: The biggest case of my life and I'd already lost the jury. I mean, I've heard of "Twelve Angry Men",  but this was more like "Twelve Horny Women". - Marshall Eriksen
