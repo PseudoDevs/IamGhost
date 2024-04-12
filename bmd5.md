@@ -1,2 +1,2 @@
-Last updated: 2024-04-12 05:27:28
-Random Quote: The blood of the First Men flows in my veins as much as yours, boy.  You would do well to remember that.  I was named for your grandfather.  I raised my banners against King Aerys for your father, and against King Joffrey for you.  At Oxcross and the Whispering Wood and in the Battle of the Camps, I rode beside you, and I stood with Lord Eddard on the Trident.  We are kin, Stark and Karstark.  -  Rickard Karstark
+Last updated: 2024-04-12 05:28:01
+Random Quote: Turns out, when you projectile vomit on skates, you roll right into the spray. - Ted Mosby

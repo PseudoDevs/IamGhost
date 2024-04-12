@@ -1,2 +1,2 @@
-Last updated: 2024-04-12 05:27:28
-Random Quote: He would have killed me but for Howland Reed.  -  Eddard Stark
+Last updated: 2024-04-12 05:28:01
+Random Quote: I just want to say to whoever is voting for me that I would certainly make an awful Lord Commander.  But so would all these others.  -  Dolorous Edd Tollett
