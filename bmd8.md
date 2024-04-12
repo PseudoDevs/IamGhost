@@ -1,2 +1,2 @@
-Last updated: 2024-04-12 04:57:36
-Random Quote: I know the poison that my father used, and there is none slower or more agonizing.  Soon we may hear the Mountain screaming, even here in Sunspear.  -  Tyene Sand
+Last updated: 2024-04-12 04:58:42
+Random Quote: Weddings are basically funerals with cake. - Rick Sanchez
