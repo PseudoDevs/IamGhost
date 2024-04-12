@@ -1,2 +1,2 @@
-Last updated: 2024-04-12 05:50:56
-Random Quote: Our secrecy is our survival. our survival is our strength. - The Armorer
+Last updated: 2024-04-12 05:51:34
+Random Quote: The greatest fools are ofttimes more clever than the men who laugh at them.  -  Tywin Lannister
