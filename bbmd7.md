@@ -1,2 +1,2 @@
-Last updated: 2024-04-12 07:02:02
-Random Quote: One of the 24 similarities between women and fish are they're both attracted to shiny objects. - Barney Stinson
+Last updated: 2024-04-12 07:02:35
+Random Quote: People are oblivious to reality. They only see what they want to see, when all they have to do is shift their perspective to see the full scope of things. - Yuk Je
