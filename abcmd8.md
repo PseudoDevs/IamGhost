@@ -1,2 +1,2 @@
-Last updated: 2024-04-12 04:55:49
-Random Quote: There are no true knights, no more than there are gods.  If you can't protect yourself, die and get out of the way of those who can.  Sharp steel and strong arms rule this world, don't ever believe any different.  -  Sandor Clegane
+Last updated: 2024-04-12 04:56:22
+Random Quote: I’m just a tiny section of a huge tumor that is much bigger than any of us can imagine. - 
