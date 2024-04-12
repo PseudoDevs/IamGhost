@@ -1,2 +1,2 @@
-Last updated: 2024-04-12 07:08:33
-Random Quote: Barney: "Your challenge is accepted Lil, there is no girl too prettyFor I am Barney Stinson, Player King of New York City."Ted: "You can't anoint yourself the king, just like that jerk, LeBron."Barney: "He left the Cavs three years ago. Bro, give it up, move on." - Barney Stinson
+Last updated: 2024-04-12 07:09:06
+Random Quote: The man who passes the sentence should swing the sword.  If you would take a man's life, you owe it to him to look into his eyes and hear his final words.  And if you cannot bear to do that, then perhaps the man does not deserve to die.  -  Eddard Stark
