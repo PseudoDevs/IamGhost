@@ -1,2 +1,2 @@
-Last updated: 2024-04-12 05:54:52
-Random Quote: Ted: "All my friends from high-school, they're here with their wifes or kids. My date for the night is a sticky magazine..."Robin: "Sounds like high-school all over again!" - Robin Scherbatsky
+Last updated: 2024-04-12 05:55:32
+Random Quote: My Lords!  Here is what I say to these two kings!  Renly Baratheon is nothing to me, nor Stannis neither.  Why should they rule over me and mine, from some flowery seat in Highgarden or Dorne?  What do they know of the Wall or the wolfswood or the barrows of the First Men?  Even their gods are wrong.  The Others take the Lannisters too, I've had a bellyful of them.  Why shouldn't we rule ourselves again?  It was the dragons we married, and the dragons are all dead!  There sits the only king I mean to bow my knee to, m'lords.  The King in the North!  -  Greatjon Umber
