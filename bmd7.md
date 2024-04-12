@@ -1,2 +1,2 @@
-Last updated: 2024-04-12 06:10:17
-Random Quote: Robin: "You mean the whiny, bottomless pit of neediness? He was bugging me so I spiked his echinacea tea with codeine."Ted: "You would be a great mom." - Ted Mosby
+Last updated: 2024-04-12 06:12:37
+Random Quote: No man has ever died from bending his knee.  He who kneels may rise again, blade in hand.  He who will not kneel stays dead, stiff legs and all.  -  Balon Greyjoy

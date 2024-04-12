@@ -1,2 +1,2 @@
-Last updated: 2024-04-12 06:12:02
-Random Quote: Just in case either of us can actually make it out of this hellhole somehow, we'll look after each other's loved ones, okay? - Oh Il-nam
+Last updated: 2024-04-12 06:12:37
+Random Quote: Phil: "Little heads up - there's no way I'm not crying at this wedding."Claire: "Phil, you cried on the way here."Phil: "I was on the brink already. I watched 'Dirty Dancing' before we left." - Phil Dunphy
