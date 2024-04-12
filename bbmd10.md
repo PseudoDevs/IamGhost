@@ -1,2 +1,2 @@
-Last updated: 2024-04-12 05:40:49
-Random Quote: His size, Gregor is a very large man.  Also a very stupid one.  Too stupid to know when he should die, it seems.  -  Cersei Lannister
+Last updated: 2024-04-12 05:41:23
+Random Quote: You Westerosi are all the same.  You sew some beast upon a scrap of silk, and suddenly you are all lions or dragons or eagles.  -  Illyrio Mopatis
