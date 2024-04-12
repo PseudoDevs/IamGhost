@@ -1,2 +1,2 @@
-Last updated: 2024-04-12 05:21:21
-Random Quote: Give me back my spear, Uncle.  Cersei sent us a head.  We should send her back a bag of them.  -  Obara Sand
+Last updated: 2024-04-12 05:21:54
+Random Quote: Most people are nothing but pawns on a chessboard led by an unknown hand - Noah
