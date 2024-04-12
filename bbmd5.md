@@ -1,2 +1,2 @@
-Last updated: 2024-04-12 06:00:00
-Random Quote: I guess, if we're splitting hairs, then technically... there was a plurality to the times I've lied to women for sex-having-purposes. - Barney Stinson
+Last updated: 2024-04-12 06:00:36
+Random Quote: A lie is just a great story that someone ruined with the truth. - Barney Stinson
