@@ -1,2 +1,2 @@
-Last updated: 2024-04-12 05:38:49
-Random Quote: You wear your honor like a suit of armor, Stark.  You think it keeps you safe, but all it does is weigh you down and make it hard for you to move.  -  Petyr Baelish
+Last updated: 2024-04-12 05:39:22
+Random Quote: Is it your fault that Bronn's an insolent black - hearted rogue?  He's always been an insolent black
