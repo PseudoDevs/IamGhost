@@ -1,4 +1,2 @@
-Last updated: 2024-04-12 06:52:53
-Random Quote: Rick: "Guests are fans, Morty, which we are not. We'd like professional badges."
-"Do you have a crew?"
-Rick: "Yes. He's a getaway driver with Asperger's and my butt is a demolitions expert." - Rick Sanchez
+Last updated: 2024-04-12 06:53:26
+Random Quote: Per the student dress and grooming code, this boy's hair is too longThis boy's wearing sports attire outside a designated areaAnd this girl's blouse is diaphanous, which means I can see her brassiere. - Sheldon
