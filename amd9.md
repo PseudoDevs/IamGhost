@@ -1,2 +1,2 @@
-Last updated: 2024-04-12 05:34:49
-Random Quote: Oberyn was ever the viper.  Deadly, dangerous, unpredictable.  No man dared tread on him.  I was the grass.  Pleasant, complaisant, sweet - smelling, swaying with every breeze.  Who fears to walk upon the grass?  But it is the grass that hides the viper from his enemies and shelters him until he strikes. 
+Last updated: 2024-04-12 05:35:23
+Random Quote: That's where The Boys come in: Spank the bastards when they get out of line. - Billy Butcher
