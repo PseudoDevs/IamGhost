@@ -1,2 +1,2 @@
-Last updated: 2024-04-12 06:51:27
-Random Quote: Is it your fault that Bronn's an insolent black - hearted rogue?  He's always been an insolent black
+Last updated: 2024-04-12 06:52:00
+Random Quote: Italy doesn't need something that is wrinkled, red and leaky, and smells like booze and narcotics. They've already got former Prime Minister Silvio Berlusconi. - Marshall Eriksen
