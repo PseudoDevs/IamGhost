@@ -1,2 +1,2 @@
-Last updated: 2024-04-12 06:12:31
-Random Quote: Young or old, a true knight is sworn to protect those who are weaker than himself, or die in the attempt.  -  Brienne of Tarth
+Last updated: 2024-04-12 06:13:04
+Random Quote: Don't go chasing waterfalls. Stick to the rivers and the lakes that you're used to. - Klaus Hargreeves
