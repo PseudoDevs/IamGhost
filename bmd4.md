@@ -1,2 +1,2 @@
-Last updated: 2024-04-12 06:08:11
-Random Quote: Time without purpose is a prison. - Jessica
+Last updated: 2024-04-12 06:08:44
+Random Quote: You want to rule?  This is what ruling is; lying on a bed of weeds, ripping them out by the root, one by one, before they strangle you in your sleep.  -  Cersei Lannister
