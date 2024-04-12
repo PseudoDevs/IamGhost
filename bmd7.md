@@ -1,2 +1,2 @@
-Last updated: 2024-04-12 07:10:23
-Random Quote: Being alone like that shows you what kind of a person you are. - Maura Franklin
+Last updated: 2024-04-12 07:10:56
+Random Quote: Marshall: "The last time I lived this far from him, was my semester abroad."Lily: "You never did a semester abroad?"Marshall: "That's what I called it, when we lived on opposite sides of the campus." - Marshall Eriksen
