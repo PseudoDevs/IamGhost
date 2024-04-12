@@ -1,2 +1,2 @@
-Last updated: 2024-04-12 06:52:08
-Random Quote: It all goes back and back.  To our mothers and fathers and theirs before them.  We are puppets dancing on the strings of those who came before us, and one day our own children will take up our strings and dance in our steads.  -  Tyrion Lannister
+Last updated: 2024-04-12 06:52:47
+Random Quote: If we miss Hawaii because of this, guess who's not doing "The Disappearing Salami" anytime soon? - Quinn Garvey
