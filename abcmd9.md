@@ -1,2 +1,2 @@
-Last updated: 2024-04-12 05:23:10
-Random Quote: It's not even the lies that hurt, you know? It's the fact that you're never really emotionally prepared for someone to leave you. - Rue Bennett
+Last updated: 2024-04-12 05:23:44
+Random Quote: I'm a Mandalorian. Weapons are part of my religion. - Din Djarin
