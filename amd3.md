@@ -1,2 +1,2 @@
-Last updated: 2024-04-12 05:12:59
-Random Quote: So young.  Though mayhaps this was a blessing.  Had he lived, he would have grown up to be a Frey.  -  Wyman Manderly
+Last updated: 2024-04-12 05:13:33
+Random Quote: Walter Jr., you’re my big man. There are going to be some things that you’ll come to learn about me in the next few days. But just know that no matter how it may look, I only had you in my heart. Goodbye! - Walter White
