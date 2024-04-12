@@ -1,2 +1,2 @@
-Last updated: 2024-04-12 05:00:29
-Random Quote: Pain is always there cause life is freaking painful, okay? - Tiffany 'Pennsatucky' Doggett
+Last updated: 2024-04-12 05:01:05
+Random Quote: Never forget what you are, for surely the world will not.  Make it your strength.  Then it can never be your weakness.  Armor yourself in it, and it will never be used to hurt you.  -  Tyrion Lannister
