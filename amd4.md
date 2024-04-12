@@ -1,2 +1,2 @@
-Last updated: 2024-04-12 05:55:22
-Random Quote: And at some point you make a choice about who you are and what you want. - Rue Bennett
+Last updated: 2024-04-12 05:57:10
+Random Quote: Demons made of snow and ice and cold.  The ancient enemy.  The only enemy that matters.  -  Stannis Baratheon
