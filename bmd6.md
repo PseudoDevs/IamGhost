@@ -1,2 +1,2 @@
-Last updated: 2024-04-12 05:49:39
-Random Quote: Ted: "Where does this girl live?"Robin: "We're talking about a woman who's gotten Barney to commit. I'm guessing Narnia." - Robin Scherbatsky
+Last updated: 2024-04-12 05:50:53
+Random Quote: People say Hawkins is cursed. They're not way off. - Dustin Henderson
