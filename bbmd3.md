@@ -1,2 +1,2 @@
-Last updated: 2024-04-12 05:40:36
-Random Quote: Some of you cared. None of you cared enough. - Hannah Baker
+Last updated: 2024-04-12 05:41:09
+Random Quote: I'm not him, I'm not the turncloak, he died at Winterfell.  My name is Reek.  It rhymes with freak.  -  Reek
