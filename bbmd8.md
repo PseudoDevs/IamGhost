@@ -1,3 +1,2 @@
-Last updated: 2024-04-12 07:09:14
-Random Quote: Woman: "You know this isn't Vegas, right?"
-Robin: "Well sure, in Vegas the casinos pump in oxygen, in Atlantic City it looks like everyone brought their own." - Robin Scherbatsky
+Last updated: 2024-04-12 07:09:48
+Random Quote: You need to stop focusing on the darkness behind you. The past is the past. Nothing can change what we’ve done. - Walter White
