@@ -1,2 +1,2 @@
-Last updated: 2024-04-12 05:44:33
-Random Quote: I was weaned on venom, Dalt.  Any viper takes a bite of me will rue it.  -  Gerold Dayne
+Last updated: 2024-04-12 05:47:02
+Random Quote: There are moments when we must understand that the decisions we make influence more than just our own fates. - 
