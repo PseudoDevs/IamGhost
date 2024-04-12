@@ -1,2 +1,2 @@
-Last updated: 2024-04-12 07:06:20
-Random Quote: That girl was just crying. She's so sad and defenseless... anyone have a condom? - Barney Stinson
+Last updated: 2024-04-12 07:06:53
+Random Quote: I have worked at the downfall of Tywin Lannister since the day they told me of Elia and her children.  -  Doran Martell
