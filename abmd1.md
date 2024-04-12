@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 08:08:00
-Random Quote: The truth is always there, whether we see it or not - whether we choose to or not. The truth doesn't care about our needs or wants. It doesn't care about our governments, our ideologies, our religions. - Valery Legasov
+Last updated: 2024-04-12 04:52:17
+Random Quote: Though I would treasure your friendship, I'm mainly interested in your facility with murder.  And if the day ever comes when you're tempted to sell me out, remember this; whatever their price, I'll beat it.  I like living.  -  Tyrion Lannister
