@@ -1,3 +1,2 @@
-Last updated: 2024-04-12 06:00:49
-Random Quote: Jang Deok-su: "Tell me what you're good at?"
-Han Mi-nyeo: "Everything, except the things I can't do." - Oh Il-nam
+Last updated: 2024-04-12 06:03:48
+Random Quote: Apart, we're okay. But together we're poison. - Kim Wexler
