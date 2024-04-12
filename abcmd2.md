@@ -1,2 +1,2 @@
-Last updated: 2024-04-12 06:51:46
-Random Quote: I have worked at the downfall of Tywin Lannister since the day they told me of Elia and her children.  -  Doran Martell
+Last updated: 2024-04-12 06:52:19
+Random Quote: The longer Cersei waits, the angrier she'll become, and anger makes her stupid.  I much prefer angry and stupid to composed and cunning.  -  Tyrion Lannister
