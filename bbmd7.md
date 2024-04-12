@@ -1,2 +1,2 @@
-Last updated: 2024-04-12 06:40:02
-Random Quote: Here are a few fun facts about Long Island... Number 1: It's Brooklyn's fart-trail. - Robin Scherbatsky
+Last updated: 2024-04-12 06:40:38
+Random Quote: You grew up with actors.  You learned their craft and you learned it well.  I grew up with soldiers.  I learned how to die a long time ago.  -  Eddard Stark
