@@ -1,2 +1,2 @@
-Last updated: 2024-04-12 05:06:54
-Random Quote: Dragons old and young, true and false, bright and dark.  And you.  A small man with a big shadow, snarling in the midst of it all.  -  Moqorro
+Last updated: 2024-04-12 05:07:27
+Random Quote: I dreamed of the man who came today, the one they call Reek.  You and your brother lay dead at his feet, and he was skinning off your faces with a long red blade.  -  Jojen Reed
