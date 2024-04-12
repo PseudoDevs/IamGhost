@@ -1,2 +1,2 @@
-Last updated: 2024-04-12 05:38:57
-Random Quote: Until the Mountain crushed my brother's skull, no Dornishmen had died in this War of the Five Kings.  Tell me, Captain, is that my shame or my glory?  -  Doran Martell
+Last updated: 2024-04-12 05:39:30
+Random Quote: It's the greatest samurai, who lets his sword rust in its scabbard. - Barney Stinson
