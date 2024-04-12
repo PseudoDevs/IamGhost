@@ -1,2 +1,2 @@
-Last updated: 2024-04-12 06:49:54
-Random Quote: Minds are like swords, I do fear.  The old ones go to rust.  -  Grand Maester Pycelle
+Last updated: 2024-04-12 06:50:36
+Random Quote: No man has ever died from bending his knee.  He who kneels may rise again, blade in hand.  He who will not kneel stays dead, stiff legs and all.  -  Balon Greyjoy
