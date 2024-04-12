@@ -1,2 +1,2 @@
-Last updated: 2024-04-12 05:07:57
-Random Quote: Is it your fault that Bronn's an insolent black - hearted rogue?  He's always been an insolent black
+Last updated: 2024-04-12 05:08:31
+Random Quote: Sometimes we have to let things go because we can't keep them forever. - Maura Franklin
