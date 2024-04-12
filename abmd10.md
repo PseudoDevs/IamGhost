@@ -1,2 +1,3 @@
-Last updated: 2024-04-12 06:25:07
-Random Quote: Many years later, my brother would use the same argument in front of a judge. He was still convicted for urinating in a phone booth. - Sheldon Cooper
+Last updated: 2024-04-12 06:25:44
+Random Quote: Ellie: "Everybody I've cared for, either died or left me."
+Joel: "You have no idea what loss is." - Joel Miller
