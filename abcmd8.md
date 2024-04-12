@@ -1,2 +1,2 @@
-Last updated: 2024-04-12 05:18:41
-Random Quote: Come on Ted, it's 2012. What do you expect, to meet some cute travel agent when you're reading a newspaper at a bookstore? None of those things exist anymore! - Barney Stinson
+Last updated: 2024-04-12 05:19:49
+Random Quote: When a maester donned his collar, he put aside the hope of children, yet Cressen had oft felt a father nonetheless.  Robert, Stannis, Renly: three sons he had raised after the angry sea claimed Lord Steffon.  -  Maester Cressen
