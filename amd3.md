@@ -1,2 +1,2 @@
-Last updated: 2024-04-12 05:38:03
-Random Quote: Did I leave the oven on, or is it just you, hot stuff? - Agatha Harkness
+Last updated: 2024-04-12 05:38:36
+Random Quote: Robert was the true steel.  Stannis is pure iron, black and hard and strong, yes, but brittle, the way iron gets.  He'll break before he bends.  And Renly, that one, he's copper, bright and shiny, pretty to look at but not worth all that much at the end of the day.  -  Donal Noye
