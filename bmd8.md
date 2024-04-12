@@ -1,3 +1,2 @@
-Last updated: 2024-04-12 06:41:16
-Random Quote: Morty: "I have English homework."
-Rick: "You're still learning English? It's the language you speak. How dumb are you?" - Rick Sanchez
+Last updated: 2024-04-12 06:41:50
+Random Quote: Welcome to the church of MathologyToday I'd like to talk about prime numbers and why they give us joy. - Sheldon
