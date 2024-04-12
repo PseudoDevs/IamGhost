@@ -1,2 +1,2 @@
-Last updated: 2024-04-12 06:07:18
-Random Quote: The blood of the First Men flows in my veins as much as yours, boy.  You would do well to remember that.  I was named for your grandfather.  I raised my banners against King Aerys for your father, and against King Joffrey for you.  At Oxcross and the Whispering Wood and in the Battle of the Camps, I rode beside you, and I stood with Lord Eddard on the Trident.  We are kin, Stark and Karstark.  -  Rickard Karstark
+Last updated: 2024-04-12 06:08:24
+Random Quote: Once a horse is broken to the saddle, any man can mount him.  Once a beast's been joined to a man, any skinchanger can slip inside and ride him.  Orell was withering inside his feathers, so I took the eagle for my own.  But the joining works both ways, warg.  Orell lives inside me now, whispering how much he hates you.  And I can soar above the Wall, and see with eagle eyes.  -  Varamyr Sixskins
