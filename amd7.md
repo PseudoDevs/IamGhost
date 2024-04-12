@@ -1,2 +1,2 @@
-Last updated: 2024-04-12 06:13:57
-Random Quote: I have served six kings, but here before us lies the greatest man I ever knew.  Lord Tywin wore no crown, yet he was all a king should be.  -  Grand Maester Pycelle
+Last updated: 2024-04-12 06:14:30
+Random Quote: Every man's a piece to start with, and every maid as well.  Even some who think they are players.  Cersei, for one.  She thinks herself sly, but in truth she is utterly predictable.  Her strength rests on her beauty, birth, and riches.  Only the first of those is truly her own, and it will soon desert her.  I pity her then.  She wants power, but has no notion what to do with it when she gets it.  -  Petyr Baelish
