@@ -1,2 +1,2 @@
-Last updated: 2024-04-12 05:15:54
-Random Quote: Just because you shot Jesse James doesn't mean you are Jesse James. - Mike Ehrmantraut
+Last updated: 2024-04-12 05:16:28
+Random Quote: You have courage.  Not battle courage perhaps but... I don't know... a kind of woman's courage.  -  Brienne of Tarth
