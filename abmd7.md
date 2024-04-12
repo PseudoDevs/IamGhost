@@ -1,2 +1,2 @@
-Last updated: 2024-04-12 07:05:02
-Random Quote: Everything will be okay in the end. If it's not okay, it's not the end. - Yuk Je
+Last updated: 2024-04-12 07:06:10
+Random Quote: Asha Greyjoy did not intend to be taken alive.  She would die as she had lived, with an axe in her hand and a laugh upon her lips.  -  Asha Greyjoy
