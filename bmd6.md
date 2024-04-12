@@ -1,2 +1,2 @@
-Last updated: 2024-04-12 07:26:19
-Random Quote: You give me one hour of phone-free bro time, during which we, and by we I mean you, get magnificently, mythologically drunk. I'm talking needing-subtitles-when-you-speak drunk. - Barney Stinson
+Last updated: 2024-04-12 07:26:53
+Random Quote: Even brave men blind themselves sometimes, when they are afraid to see.  -  Beric Dondarrian
