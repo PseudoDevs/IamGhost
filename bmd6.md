@@ -1,2 +1,2 @@
-Last updated: 2024-04-12 07:23:28
-Random Quote: As the twig is bent, so grows the tree. - Pacho Herrera
+Last updated: 2024-04-12 07:24:04
+Random Quote: You are not the guy. You're not capable of being the guy. I had a guy but now I don't. You are not the guy. - Mike Ehrmantraut
