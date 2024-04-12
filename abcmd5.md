@@ -1,2 +1,2 @@
-Last updated: 2024-04-12 05:37:42
-Random Quote: A Dothraki wedding without at least three deaths is considered a dull affair.  -  Illyrio Mopatis
+Last updated: 2024-04-12 05:38:16
+Random Quote: When the snows fall and the white winds blow, the lone wolf dies, but the pack survives.  -  Eddard Stark
