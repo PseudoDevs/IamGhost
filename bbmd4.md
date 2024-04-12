@@ -1,2 +1,3 @@
-Last updated: 2024-04-12 06:48:27
-Random Quote: During incarceration, defendant Goodman to receive one pint Blue Bell mint chocolate chip ice cream every Friday for the duration. - Saul Goodman
+Last updated: 2024-04-12 06:48:59
+Random Quote: I hired a decorator and I asked him: "What would the inside of Tinkerbell's vagina look like?"
+And the kid just ran with it! - Quinn Garvey
