@@ -1,2 +1,3 @@
-Last updated: 2024-04-12 06:05:35
-Random Quote: I wish you could live to see the world we make. - Arthur Harrow
+Last updated: 2024-04-12 06:06:10
+Random Quote: Wanda: "I had a brother. His name was Pietro."
+Geraldine: "He was killed by Ultron, wasn't he?" - Monica "Geraldine" Rambeau
