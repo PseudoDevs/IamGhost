@@ -1,2 +1,2 @@
-Last updated: 2024-04-12 07:07:49
-Random Quote: Grey Wind ate two of his fingers, and he laughed about it.  -  Robb Stark on Greatjon Umber
+Last updated: 2024-04-12 07:09:29
+Random Quote: Ted: "You're scared of the seven dwarves?"Robin: "Just of Doc. He's creepy... I mean, the guy went to medical school, what is he doing living with six coalminers." - Robin Scherbatsky
