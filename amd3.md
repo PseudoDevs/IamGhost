@@ -1,2 +1,2 @@
-Last updated: 2024-04-12 05:12:26
-Random Quote: A true man does what he will, not what he must.  -  Cersei Lannister
+Last updated: 2024-04-12 05:12:59
+Random Quote: So young.  Though mayhaps this was a blessing.  Had he lived, he would have grown up to be a Frey.  -  Wyman Manderly
