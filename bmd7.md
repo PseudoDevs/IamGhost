@@ -1,2 +1,2 @@
-Last updated: 2024-04-12 05:41:57
-Random Quote: Saul Goodman is the last line of defense for the little guy. Are you getting sold down the river? He's a life raft. You getting stepped on? He's a sharp stick. You got Goliath on your back - Saul's the guy with the slingshot. He's the righter of wrongs. He's friend to the friendless. - Saul Goodman
+Last updated: 2024-04-12 05:43:04
+Random Quote: A man will tell you poison is dishonorable, but a woman's honor is different.  The Mother shaped us to protect our children, and our only dishonor is failure.  -  Lysa Arryn
