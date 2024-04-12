@@ -1,2 +1,2 @@
-Last updated: 2024-04-12 05:09:49
-Random Quote: Science fact: Sisters are the worst. - Sheldon
+Last updated: 2024-04-12 05:10:22
+Random Quote: We were king's men, knights, and heroes... but some knights are dark and full of terror, my lady.  War makes monsters of us all.  -  Thoros of Myr
