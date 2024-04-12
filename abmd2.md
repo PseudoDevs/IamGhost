@@ -1,2 +1,2 @@
-Last updated: 2024-04-12 06:03:31
-Random Quote: She studied Theon Greyjoy's sly smile, wondering what it meant.  That young man had a way of looking as though he knew some secret jest that only he was privy to; Catelyn had never liked it.  -  Catelyn Stark
+Last updated: 2024-04-12 06:04:06
+Random Quote: The last play you'll ever run. - Barney Stinson
