@@ -1,2 +1,2 @@
-Last updated: 2024-04-12 05:59:38
-Random Quote: I am Maura Franklin. Born in Morefield. Today is October 19th, 1899. I am not crazy. - Maura Franklin
+Last updated: 2024-04-12 06:00:16
+Random Quote: A craven's knife can slay a queen as easily as a hero's.  -  Xaro Xhoan Daxos
