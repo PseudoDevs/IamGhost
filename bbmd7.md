@@ -1,2 +1,2 @@
-Last updated: 2024-04-12 06:38:15
-Random Quote: Bulls are strong.  Bears.  I have seen my bastard fight.  He is not entirely to blame.  Reek was his tutor, the first Reek, and Reek was never trained at arms.  Ramsay is ferocious, I will grant you, but he swings that sword like a butcher hacking meat.  -  Roose Bolton
+Last updated: 2024-04-12 06:38:49
+Random Quote: I waited, and so can he.  I waited half my life.  She had played the dutiful daughter, the blushing bride, the pliant wife.  She had suffered Robert's drunken groping, Jaime's jealousy, Renly's mockery, Varys with his titters, Stannis endlessly grinding his teeth.  She had contended with Jon Arryn, Need Stark, and her vile, treacherous, murderous dwarf brother, all the while promising herself that one day it would be her turn.  If Margaery Tyrell thinks to cheat me of my hour in the sun, she had bloody well think again.  -  Cersei Lannister
