@@ -1,2 +1,2 @@
-Last updated: 2024-04-12 05:43:51
-Random Quote: Ted: "You know, as your best friend, if called upon, I'd be honored to raise Marvin."Robin: "If you want him to be raised by his underwear on a flagpole, Ted's your guy. If you want him pulling the chord on some other nerd's panties, I'm your guy."Barney: "I'll teach that kid how to be awesome in ways you and Lily never could. It's going to be legend- wait for it... no, I won't wait for it and neither should little baby Marvin, so maybe it's better if you two just die right now... -dary!" - Barney Stinson
+Last updated: 2024-04-12 05:45:10
+Random Quote: I'm a good boyfriend in my sleep. I can rock a killer foot rub with one hand and brew a kick-ass pot of chamomile in the other, that would make you weep. Hell, I've forgotten more about microwaving fat-free popcorn and watching Sandra Bullock movies than you'll ever know, but: thanks for your concern, rook! - Marshall Eriksen

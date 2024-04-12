@@ -1,2 +1,2 @@
-Last updated: 2024-04-12 05:44:30
-Random Quote: What do a bunch o' bloody peasants know about a lord's honor?  We know some about murder, though.  -  Lem Lemoncloak
+Last updated: 2024-04-12 05:45:10
+Random Quote: Elia of Dorne.  I killed her screaming whelp.  Then I raped her.  Then I smashed her fucking head in like this.  -  Gregor Clegane
