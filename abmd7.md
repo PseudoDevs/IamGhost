@@ -1,2 +1,2 @@
-Last updated: 2024-04-12 06:43:53
-Random Quote: It is for my prince to command, for Hotah to obey.  -  Areo Hotah
+Last updated: 2024-04-12 06:44:31
+Random Quote: Quentyn had never felt so much a boy as when he'd stood before Daenerys Targaryen, pleading for her hand.  The thought of bedding her terrified him almost as much as her dragons had.  -  Quentyn Martell
