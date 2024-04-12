@@ -1,2 +1,2 @@
-Last updated: 2024-04-12 06:40:41
-Random Quote: You are the love of my life. Everything I have and everything I am is yours. Forever. - Barney Stinson
+Last updated: 2024-04-12 06:41:16
+Random Quote: Power resides where men believe it resides... It's a trick, a shadow on the wall.  -  Varys

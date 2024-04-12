@@ -1,2 +1,2 @@
-Last updated: 2024-04-12 06:40:40
-Random Quote: I can't believe I'm taking sexual advice from Ted Mosby.That's like taking fashion advice from... well, Ted Mosby. - Barney Stinson
+Last updated: 2024-04-12 06:41:16
+Random Quote: Young or old, a true knight is sworn to protect those who are weaker than himself, or die in the attempt.  -  Brienne of Tarth
