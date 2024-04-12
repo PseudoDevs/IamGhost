@@ -1,2 +1,2 @@
-Last updated: 2024-04-12 05:07:52
-Random Quote: I have worked at the downfall of Tywin Lannister since the day they told me of Elia and her children.  -  Doran Martell
+Last updated: 2024-04-12 05:08:26
+Random Quote: If you don't push, I will shove that baby up your throat and pull it out of your mouth! - Dr. Sonya
