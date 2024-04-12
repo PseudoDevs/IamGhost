@@ -1,4 +1,2 @@
-Last updated: 2024-04-12 06:06:15
-Random Quote: Joel: "Where'd you get the money for this?"
-Sarah: "Drugs. I sell hardcore drugs."
-Joel: "It's better than what I do." - Joel Miller
+Last updated: 2024-04-12 06:06:47
+Random Quote: Ted: "She was 15?!"Barney: "No. A 15. Like in blackjack."Ted: "As in.. not sure whether you'd hit it?"Barney: "Exactly!" - Barney Stinson
