@@ -1,2 +1,2 @@
-Last updated: 2024-04-12 05:41:57
-Random Quote: You don't get to blame your problems on anyone but yourself. - Allison Hargreeves
+Last updated: 2024-04-12 05:42:30
+Random Quote: Red: "Black girls hear about a chicken, of course this will happen."Piper: "Why, because all black people love chicken?"Red: "Don't be racist. Because they're all on heroin, and somebody's been telling them there's heroin in the chicken." - Galina 'Red' Reznikov
