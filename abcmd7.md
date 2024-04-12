@@ -1,2 +1,2 @@
-Last updated: 2024-04-12 05:15:33
-Random Quote: See, lad, that's why he's the king and I'm not.  I can outdrink, outfight, and outsing him, and my member's thrice the size o' his, but Mance has cunning.  -  Tormund Giantsbane
+Last updated: 2024-04-12 05:16:06
+Random Quote: You two suck at peddling meth. - Saul Goodman
