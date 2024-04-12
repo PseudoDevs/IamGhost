@@ -1,2 +1,2 @@
-Last updated: 2024-04-12 07:01:29
-Random Quote: I'm just saying, love is a million things. - Maddy Perez
+Last updated: 2024-04-12 07:02:02
+Random Quote: Jon, did you ever wonder why the men of the Night's Watch take no wives and father no children?  So they will not love, for love is the bane of honor, the death of duty.  -  Maester Aemon
