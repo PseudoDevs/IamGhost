@@ -1,2 +1,2 @@
-Last updated: 2024-04-12 06:41:16
-Random Quote: The only thing The Umbrella Academy knows about love is how to screw it up. - Klaus Hargreeves
+Last updated: 2024-04-12 06:42:24
+Random Quote: Lord Varys, sometimes I feel as though you are the best friend I have in King's Landing and sometimes I feel you are my worst enemy.  -  Tyrion Lannister
