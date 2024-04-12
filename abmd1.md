@@ -1,3 +1,2 @@
-Last updated: 2024-04-12 05:55:22
-Random Quote: "Everybody else can see Ben, right?"
-"Yeah, and he's a complete d-ckhead." - Allison Hargreeves
+Last updated: 2024-04-12 05:55:58
+Random Quote: If somehow the Lord gave me a second chance at that moment... I would do it all over again. - Joel Miller
