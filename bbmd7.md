@@ -1,2 +1,2 @@
-Last updated: 2024-04-12 05:45:47
-Random Quote: The Citadel took my chain, but they could not take my knowledge.  -  Qyburn
+Last updated: 2024-04-12 05:46:24
+Random Quote: Don Eladio, look into Fring's eyes. There you will see the truth. The Chicken Man hates you. He is our enemy. He plots against us. I demand blood for blood. - Hector Salamanca
