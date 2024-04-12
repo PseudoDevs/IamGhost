@@ -1,2 +1,2 @@
-Last updated: 2024-04-12 07:01:02
-Random Quote: They are children, Sansa thought.  They are silly little girls, even Elinor.  They've never seen a battle, they've never seen a man die, they know nothing.  Their dreams were full of songs and stories, the way hers had been before Joffrey cut her father's head off.  Sansa pitied them.  Sansa envied them.  -  Sansa Stark
+Last updated: 2024-04-12 07:01:40
+Random Quote: The bad guys need to get lucky every time. The good guys just need to get lucky once. - Steve Murphy
