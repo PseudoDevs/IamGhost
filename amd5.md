@@ -1,2 +1,2 @@
-Last updated: 2024-04-12 06:34:10
-Random Quote: You will never walk again... but you will fly.  -  Bloodraven
+Last updated: 2024-04-12 06:37:09
+Random Quote: There are no true knights, no more than there are gods.  If you can't protect yourself, die and get out of the way of those who can.  Sharp steel and strong arms rule this world, don't ever believe any different.  -  Sandor Clegane
