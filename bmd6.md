@@ -1,2 +1,2 @@
-Last updated: 2024-04-12 07:14:50
-Random Quote: I have sinned and must atone, must parade my shame before the eyes of every beggar in the city.  They think that this will break my pride, that it will make an end to me, but they are wrong.  -  Cersei Lannister
+Last updated: 2024-04-12 07:15:24
+Random Quote: We all have things we keep hidden. Sometimes, keeping secrets is how you survive. Because in High School, one rumor, one picture, one incident, can define you forever. - Hannah Baker
