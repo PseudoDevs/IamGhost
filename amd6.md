@@ -1,2 +1,2 @@
-Last updated: 2024-04-12 07:12:38
-Random Quote: Rattleshirt, we called him.  Treacherous and bloodthirsty.  If there's honor in him, he hides it down beneath his suit of bones.  -  Jon Snow
+Last updated: 2024-04-12 07:13:12
+Random Quote: Yes Barney, your submissions were recieved and no, we will not be attending any parties in your pants. - Ted Mosby
