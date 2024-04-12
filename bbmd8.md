@@ -1,2 +1,2 @@
-Last updated: 2024-04-12 04:58:45
-Random Quote: You must be the self-appointed Queen Bee. Interesting thing about bees. Pull out their stingers, they drop dead. - Wednesday Addams
+Last updated: 2024-04-12 04:59:52
+Random Quote: I am Pablo Emilio Escobar Gaviria. My eyes are everywhere. That means you guys can't move a finger in all of Antioquia without me knowing about it. Do you understand? Not a finger. One day, I'm going to be president of the Republic of Colombia. So look, I make deals for a living. Now, you can stay calm and accept my deal, or accept the consequences. - Pablo Escobar
