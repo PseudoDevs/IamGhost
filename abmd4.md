@@ -1,2 +1,2 @@
-Last updated: 2024-04-12 05:39:16
-Random Quote: Sometimes one has to adjust to a situation as it unfolds. With every calamity comes opportunity. - Virginia Wilson
+Last updated: 2024-04-12 05:39:50
+Random Quote: In this world, a man must learn to seize whatever gifts the gods chose to send him.  That was a lesson I learned at some cost.  -  The Tattered Prince
