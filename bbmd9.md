@@ -1,2 +1,2 @@
-Last updated: 2024-04-12 06:07:20
-Random Quote: In commemoration of Barney's induction into the "Hall of Game", this tie, worn on the seventh night of his perfect week, is hereby retired. - Lily Aldrin
+Last updated: 2024-04-12 06:07:56
+Random Quote: If ever a man deserved to die screaming, it was Gregor Clegane.  -  Doran Martell
