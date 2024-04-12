@@ -1,2 +1,2 @@
-Last updated: 2024-04-12 05:05:08
-Random Quote: That is nostalgia: finding out that things from the past you didn’t even expectwere happiness…. actually were - Tokyo
+Last updated: 2024-04-12 05:06:15
+Random Quote: Do you know what it is like to be sold, squire?  I do.  My brother sold me to Khal Drogo for the promise of a golden crown.  Well, Drogo crowned him in gold, though not as he had wished, and I... my sun - and
