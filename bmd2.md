@@ -1,2 +1,2 @@
-Last updated: 2024-04-12 05:30:53
-Random Quote: In short, the god mankind has prayed to for thousands of years the god that everything is bound with, this god exists as nothing other than time itself. - 
+Last updated: 2024-04-12 05:32:01
+Random Quote: My old septon used to say that books are dead men talking.  Dead men should keep quiet, is what I say.  No one wants to hear a dead man's yabber.  -  Dolorous Edd Tollett
