@@ -1,2 +1,2 @@
-Last updated: 2024-04-12 07:23:45
-Random Quote: Marshall: "Jelly beans, fluffernutter, Gummi Bears, ginger snap... this is a grocery list!"Robin: "For who? A witch building a house in the forest?"Marshall: "Sugar helps me study."Barney: "This is like the shopping a ten-year-old does when his parents leave him alone for the weekend."Lily: "What parent leaves a ten-year-old alone for the weekend?"Barney: "And your mom was perfect." - Barney Stinson
+Last updated: 2024-04-12 07:24:18
+Random Quote: Marshall: "I was once with this chick, who liked to do hand stuff underneath a jacket, while we were all sitting around our favorite booth at MacLaren's."Ted: "Gross."Robin: "We share appetizers!" - Robin Scherbatsky
