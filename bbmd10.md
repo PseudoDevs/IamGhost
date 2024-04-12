@@ -1,2 +1,2 @@
-Last updated: 2024-04-12 06:14:08
-Random Quote: Penrose chose to die rather than give him up.  It still angers me.  How could he think I would hurt the boy?  I chose Robert, did I not?  When that hard day came, I chose blood over honor.  -  Stannis Baratheon
+Last updated: 2024-04-12 06:15:14
+Random Quote: What a man wants does not define him. What a man needs is what defines him. - Juan Nepomuceno Guerra
