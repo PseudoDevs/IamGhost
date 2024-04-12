@@ -1,2 +1,2 @@
-Last updated: 2024-04-12 04:57:21
-Random Quote: No, only a boy who dreams.  The greenseers were more than that.  They were wargs as well, as you are, and the greatest of them could wear the skins of any beast that flies or swims or crawls, and could look through the eyes of the weirwoods as well, and see the truth that lies beneath the world.  -  Jojen Reed
+Last updated: 2024-04-12 04:57:55
+Random Quote: Missy Cooper: I don't want to die, I've only kissed one boy so far. - Missy Cooper
