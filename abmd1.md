@@ -1,2 +1,2 @@
-Last updated: 2024-04-12 06:29:54
-Random Quote: Nuncle always had a fondness for freaks and fools.  My father used to fight with him about it.  Let the wizards call upon their gods.  The Damphair will call on ours, and drown them.  -  Asha Greyjoy
+Last updated: 2024-04-12 06:31:06
+Random Quote: A ruler who hides behind paid executioners soon forgets what death is.  -  Eddard Stark

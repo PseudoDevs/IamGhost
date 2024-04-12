@@ -1,2 +1,3 @@
-Last updated: 2024-04-12 06:30:29
-Random Quote: We are smart. And idiots are banging all the time. We can learn how to do it, too. - Fabiola Torres
+Last updated: 2024-04-12 06:31:06
+Random Quote: Larissa: "So you automatically assume a Nevermore student is the murderer, even though there's no evidence a crime was even committed."
+Donovan: "I'm sorry. I forgot, you only teach the good outcasts here, right?" - Donovan Galpin
