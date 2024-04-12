@@ -1,2 +1,2 @@
-Last updated: 2024-04-12 04:58:01
-Random Quote: 'Damn, you look like hell, Chief."Jim Hopper: "Oh yeah? Well, I looked better than your wife when I left her this morning." - Jim Hopper
+Last updated: 2024-04-12 04:58:34
+Random Quote: I will kill your wife, I will kill your son, I will kill your infant daughter. - Gustavo Fring
