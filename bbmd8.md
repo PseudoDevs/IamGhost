@@ -1,2 +1,3 @@
-Last updated: 2024-04-12 06:42:16
-Random Quote: I swear on my name. And the names of the Ancestors, that I shall walk the way of the Mand'alor and the words of the Creed shall be forever forged in my heart. - Din Djarin
+Last updated: 2024-04-12 06:42:52
+Random Quote: The Deep: "What do we do? We can't just kill everyone."
+Billy Butcher: "That's exactly what we're gonna do!" - Billy Butcher
