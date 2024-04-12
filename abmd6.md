@@ -1,2 +1,4 @@
-Last updated: 2024-04-12 05:37:42
-Random Quote: Hey, want to come to my house and play telephone? I got the string, you got the cans. - Barney Stinson
+Last updated: 2024-04-12 05:38:15
+Random Quote: Rick: "F you, Summer! And f the government. And f me for letting my car down, which I will never do again."
+Morty: "Jeez, Rick. You can't say FU to your grand-daughter!"
+Rick: "I just did, Morty. Here's dessert: F you!" - Rick Sanchez
