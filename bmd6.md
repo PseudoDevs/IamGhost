@@ -1,2 +1,2 @@
-Last updated: 2024-04-12 07:00:37
-Random Quote: You wear your honor like a suit of armor, Stark.  You think it keeps you safe, but all it does is weigh you down and make it hard for you to move.  -  Petyr Baelish
+Last updated: 2024-04-12 07:01:10
+Random Quote: Let's hit a motel, jam in a quickie and get you back to your wedding. - Ted Mosby
