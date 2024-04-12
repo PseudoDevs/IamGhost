@@ -1,2 +1,2 @@
-Last updated: 2024-04-12 06:31:44
-Random Quote: You know how they say 'it's been a pleasure'? Well... it hasn't. - Mike Ehrmantraut
+Last updated: 2024-04-12 06:32:20
+Random Quote: Give me back my spear, Uncle.  Cersei sent us a head.  We should send her back a bag of them.  -  Obara Sand
