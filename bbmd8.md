@@ -1,2 +1,2 @@
-Last updated: 2024-04-12 06:44:03
-Random Quote: Marshall: "Are you sure this poo-poo didn't happen on your watch and you just ran out the clock until it was my problem?"Lily: "Oh, yeah. Yeah, yeah, right. What kind of mother lets her son sit in his own filth for an extra nine minutes and 42 seconds?" - Lily Aldrin
+Last updated: 2024-04-12 06:44:39
+Random Quote: If you mean when will Chernobyl be completly save - the half-life of Plutonium 239 is 24,000 years. Perhaps we should just say, 'not in our lifetimes'. - Valery Legasov
