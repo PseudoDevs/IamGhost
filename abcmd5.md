@@ -1,2 +1,2 @@
-Last updated: 2024-04-12 06:50:53
-Random Quote: We all must choose.  Man or woman, young or old, lord or peasant, our choices are the same.  We choose light or we choose darkness.  -  Melisandre
+Last updated: 2024-04-12 06:51:27
+Random Quote: The Bro Code has been around for centuries. Nay... whatever's more than centuries. - Barney Stinson
