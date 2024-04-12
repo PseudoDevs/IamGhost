@@ -1,2 +1,2 @@
-Last updated: 2024-04-12 05:52:34
-Random Quote: Every time I go after a busty dullard who can't tell time or thinks I'm the ghost of Leonardo DiCaprio, I'm shallow. But somehow it's okay for Robin to date a guy who can't be trusted around outlets. - Barney Stinson
+Last updated: 2024-04-12 05:53:09
+Random Quote: All I know is, he's not in the same grade as me anymoreAnd I'm thrilled. - Missy
