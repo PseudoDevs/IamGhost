@@ -1,2 +1,2 @@
-Last updated: 2024-04-12 05:15:54
-Random Quote: Fool's blood, king's blood, blood on the maiden's thigh, but chains for the guests and chains for the bridegroom, aye aye aye.  -  Patchface
+Last updated: 2024-04-12 05:16:27
+Random Quote: I hate it when you talk sometimes. No... all the time. - Nicky Nichols
