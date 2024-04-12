@@ -1,2 +1,2 @@
-Last updated: 2024-04-12 05:53:47
-Random Quote: .OkaySomebody's got to teach this kid to swear, it's embarrassing. - Meemaw
+Last updated: 2024-04-12 05:54:27
+Random Quote: I knew Brienne when she was no more than a girl playing at her father's feet in Evenfall Hall, and I knew her still better when the Evenstar sent her here to Storm's End.  She loved Renly Baratheon from the first moment she laid eyes on him, a blind man could see it.  -  Cortnay Penrose
