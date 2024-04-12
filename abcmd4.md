@@ -1,2 +1,2 @@
-Last updated: 2024-04-12 05:27:02
-Random Quote: I have my voice, and the god is with me.  Mine is the strength of the sea, a strength the Crow's Eye cannot hope to withstand.  The waves may break upon the mountain, yet still they come, wave upon wave, and in the end only pebbles remain where once the mountain stood.  And soon even the pebbles are swept away, to be ground beneath the sea for all eternity.  -  Aeron Greyjoy
+Last updated: 2024-04-12 05:27:35
+Random Quote: Edric Storm, they call him.  He is said to be the very image of my brother.  If men were to see him, and then look again at Joffrey and Tommen, they could not help but wonder, I would think.  -  Stannis Baratheon
