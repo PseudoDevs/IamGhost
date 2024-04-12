@@ -1,2 +1,2 @@
-Last updated: 2024-04-12 05:19:08
-Random Quote: I am the Greyjoy, Lord Reaper of Pyke, King of Salt and Rock, Son of the Sea Wind, and no man gives me a crown.  I pay the iron price.  I will take my crown, as Urron Redhand did five thousand years ago.  -  Balon Greyjoy
+Last updated: 2024-04-12 05:19:41
+Random Quote: So a guy with cancer can't be an asshole?? Believe me, I speak from experience. - Saul Goodman
