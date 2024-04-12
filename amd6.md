@@ -1,2 +1,2 @@
-Last updated: 2024-04-12 06:18:27
-Random Quote: When I get sad, I stop being sad and be awesome instead. True Story. - Barney Stinson
+Last updated: 2024-04-12 06:19:02
+Random Quote: Dragons old and young, true and false, bright and dark.  And you.  A small man with a big shadow, snarling in the midst of it all.  -  Moqorro
