@@ -1,2 +1,2 @@
-Last updated: 2024-04-12 05:59:18
-Random Quote: Nuncle always had a fondness for freaks and fools.  My father used to fight with him about it.  Let the wizards call upon their gods.  The Damphair will call on ours, and drown them.  -  Asha Greyjoy
+Last updated: 2024-04-12 05:59:52
+Random Quote: A godly man got no cause to fear such.  I said as much to that Mance Rayder once, when he come sniffing round.  He never listened, no more'n you crows with your swords and your bloody fires.  That won't help you none when the white cold comes.  Only the gods will help you then.  You best get right with the gods.  -  Craster
