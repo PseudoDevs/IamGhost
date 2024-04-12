@@ -1,2 +1,2 @@
-Last updated: 2024-04-12 05:29:27
-Random Quote: Sometimes I don't know if I love how much I fear Claire, or fear how much I love her. - Phil Dunphy
+Last updated: 2024-04-12 05:30:00
+Random Quote: If the cancer doesn't get him, it'll be the cops or a bullet to the head. - Mike Ehrmantraut
