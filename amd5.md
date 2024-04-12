@@ -1,2 +1,2 @@
-Last updated: 2024-04-12 07:21:17
-Random Quote: They shall come day and night to see the wonder that has been born again into the world, and when they see they shall lust.  For dragons are fire made flesh, and fire is power.  -  Quaithe
+Last updated: 2024-04-12 07:21:51
+Random Quote: Among all the games that kids played back then, it was the most physical and violent. - Seong Gi-hun

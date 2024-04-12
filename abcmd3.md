@@ -1,3 +1,2 @@
-Last updated: 2024-04-12 07:21:17
-Random Quote: Miguel: "Would you have really fed me to those hippos?"
-Pablo: "No. Hippos don't like Mexicans either." - Pablo Escobar
+Last updated: 2024-04-12 07:21:51
+Random Quote: Because they are the knights of summer, and winter is coming.  -  Catelyn Stark
