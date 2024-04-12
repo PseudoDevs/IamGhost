@@ -1,2 +1,2 @@
-Last updated: 2024-04-12 07:20:06
-Random Quote: When I knew him, he was. - Kim Wexler
+Last updated: 2024-04-12 07:20:42
+Random Quote: We all must choose.  Man or woman, young or old, lord or peasant, our choices are the same.  We choose light or we choose darkness.  -  Melisandre
