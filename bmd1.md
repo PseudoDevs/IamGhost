@@ -1,2 +1,2 @@
-Last updated: 2024-04-12 05:38:15
-Random Quote: Since when do vegans eat fried chicken? - Hank Schrader
+Last updated: 2024-04-12 05:38:48
+Random Quote: You grew up with actors.  You learned their craft and you learned it well.  I grew up with soldiers.  I learned how to die a long time ago.  -  Eddard Stark
