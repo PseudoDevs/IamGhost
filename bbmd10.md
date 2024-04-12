@@ -1,2 +1,2 @@
-Last updated: 2024-04-12 07:00:48
-Random Quote: No matter how tough things get, children always turn out okay. - Berlin
+Last updated: 2024-04-12 07:01:21
+Random Quote: Mando: "I was not born on Mandalore."Greef Karga: "But you're Mandalorian?"Cara Dune: "Mandalorian isn't a race."Mando: "It's a Creed." - Din Djarin
