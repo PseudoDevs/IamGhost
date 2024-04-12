@@ -1,2 +1,2 @@
-Last updated: 2024-04-12 06:12:37
-Random Quote: Barney: "Tell me more. Tell me more. Like did he have a car?"Marshall: "So is he the guy who... how shall I say this like a gentleman? Robin, did he take your maple leaf?"Barney: "Sounds to me like he gave you your first 'O Canada' face!" - Barney Stinson
+Last updated: 2024-04-12 06:13:11
+Random Quote: You ever touch me again, I will burn your eyes out! - Starlight
