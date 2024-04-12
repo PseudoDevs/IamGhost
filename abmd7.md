@@ -1,3 +1,2 @@
-Last updated: 2024-04-12 06:13:46
-Random Quote: Jerry: "Well, traditionally, science faires are a father-son thing."
-Rick: "Well, scientifically, traditions are an idiot thing." - Rick Sanchez
+Last updated: 2024-04-12 06:14:20
+Random Quote: We're going to Buffalo... and I've seen women from there; the city's aptly named. - Barney Stinson
