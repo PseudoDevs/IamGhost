@@ -1,2 +1,2 @@
-Last updated: 2024-04-12 04:55:12
-Random Quote: During incarceration, defendant Goodman to receive one pint Blue Bell mint chocolate chip ice cream every Friday for the duration. - Saul Goodman
+Last updated: 2024-04-12 04:56:52
+Random Quote: My father won all the battles.  He killed Prince Rhaegar and took the crown, while your father was hiding under Casterly Rock.  A strong king acts boldly, he doesn't just talk.  -  Joffrey Baratheon
