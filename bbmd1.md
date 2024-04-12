@@ -1,2 +1,3 @@
-Last updated: 2024-04-12 05:43:21
-Random Quote: At first, these keys were fun, but now we know they're more than that. They're important. They're part of our family and we need to protect them. - Bode Locke
+Last updated: 2024-04-12 05:43:55
+Random Quote: Alex: "What's Jagermeister?"
+Phil: "Well, you know how in a fairytale there's always a potion that makes the princess fall asleep and then the guys start kissing her? Well, this is like that, except you don't wake up in a castle, you wake up in a frat house with a bad reputation." - Phil Dunphy
