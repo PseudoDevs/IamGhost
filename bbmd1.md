@@ -1,2 +1,2 @@
-Last updated: 2024-04-12 05:20:03
-Random Quote: Most people are nothing but pawns on a chessboard led by an unknown hand - Noah
+Last updated: 2024-04-12 05:20:36
+Random Quote: She don't speak.  You bloody bastards cut her throat too deep for that.  But she remembers.  -  Lem Lemoncloack
