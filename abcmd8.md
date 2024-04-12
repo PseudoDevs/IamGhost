@@ -1,2 +1,2 @@
-Last updated: 2024-04-12 06:37:45
-Random Quote: Man cannot tame what God wishes to be wild. - Jacob Snell
+Last updated: 2024-04-12 06:38:20
+Random Quote: Make it easier for those whose vote you can count on. Make it harder for those you can't. That's how you rig an election without leaving a lick of evidence. - Walt Breslin
