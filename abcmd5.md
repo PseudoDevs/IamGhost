@@ -1,2 +1,2 @@
-Last updated: 2024-04-12 05:30:59
-Random Quote: We were king's men, knights, and heroes... but some knights are dark and full of terror, my lady.  War makes monsters of us all.  -  Thoros of Myr
+Last updated: 2024-04-12 05:31:33
+Random Quote: Would the five of us always live within a few minutes of that booth? No, that's life, kids, but here's what I discovered: Our booth was wherever the five of us were together. - Ted Mosby
