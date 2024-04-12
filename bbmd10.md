@@ -1,2 +1,2 @@
-Last updated: 2024-04-12 06:42:08
-Random Quote: Best way to catch the smart ones? Get an idiot working for them. - Jaime Kuykendall
+Last updated: 2024-04-12 06:42:49
+Random Quote: Grief never gets any smaller, so you have to make yourself bigger around it. The best way to do that is to open up. Let people in. - Rendell Locke
