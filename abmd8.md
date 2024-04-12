@@ -1,2 +1,2 @@
-Last updated: 2024-04-12 05:40:57
-Random Quote: I don't feel so good. It's like my testicals mixed poprocks and soda. - Ted Mosby
+Last updated: 2024-04-12 05:42:04
+Random Quote: Edric Storm, they call him.  He is said to be the very image of my brother.  If men were to see him, and then look again at Joffrey and Tommen, they could not help but wonder, I would think.  -  Stannis Baratheon
