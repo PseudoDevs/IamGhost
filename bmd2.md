@@ -1,2 +1,2 @@
-Last updated: 2024-04-12 05:24:11
-Random Quote: Do you think I can't tell Lord Stannis from Lord Tywin?  They're both bungholes who think they're too noble to shit, but never mind about that, I know the difference.  -  Walder Frey
+Last updated: 2024-04-12 05:24:44
+Random Quote: Are you allowed to say that to people in my tax bracket? - Iron Man
