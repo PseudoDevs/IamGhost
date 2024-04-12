@@ -1,2 +1,2 @@
-Last updated: 2024-04-12 05:18:41
-Random Quote: I don't know what kind of fed up sht you got going inside of your head. I don't know how to help, but I could tell you one thing: This drug sht - it's not the answer. - Fezco
+Last updated: 2024-04-12 05:19:15
+Random Quote: I got thirty this time, men and boys all bound for the Wall, and don't be thinking they're like that bastard brother o' yours.  Lord Eddard gave me pick o' the dungeons, and I didn't find no little lordlings down there.  This log, half o' them would turn you over to the queen quick as spit for a pardon and maybe a few silvers.  The other half'd do the same, only they'd rape you first.  -  Yoren of the Night's Watch
