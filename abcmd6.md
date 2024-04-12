@@ -1,2 +1,2 @@
-Last updated: 2024-04-12 04:52:26
-Random Quote: Ted: "It's the Drunk Train! You crossed out all the stops and wrote Vagina-Ville."Barney: "That's not true. That one says Boner Gardens." - Barney Stinson
+Last updated: 2024-04-12 04:53:34
+Random Quote: You can tell a lot about a person from his biography. - Phil Dunphy
