@@ -1,2 +1,2 @@
-Last updated: 2024-04-12 05:37:27
-Random Quote: Ted: "Luckily, you are friends with a former Boy Scout and a Boy Scout is always what?"Robin: "Unpopular?"Lily: "Beaten up?"Barney: "Going to the movies with his mom?"Ted: "A Boy Scout is always prepared..."Robin: "...prepared to spend lunch in his locker?"Marshall: "...prepared to die a virgin?"Barney: "...prepared to paint his sister's nails?" - Ted Mosby
+Last updated: 2024-04-12 05:38:00
+Random Quote: The pain is his vessel, desire his compass. It is all that man is capable of. - 
