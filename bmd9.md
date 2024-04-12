@@ -1,2 +1,2 @@
-Last updated: 2024-04-12 07:24:39
-Random Quote: You wear your honor like a suit of armor, Stark.  You think it keeps you safe, but all it does is weigh you down and make it hard for you to move.  -  Petyr Baelish
+Last updated: 2024-04-12 07:25:46
+Random Quote: Weakness is not in us, it is what we have outside. - Professor
