@@ -1,2 +1,2 @@
-Last updated: 2024-04-12 06:28:42
-Random Quote: Larry Bloom: "Are we at least gonna talk about other options?"Piper Chapman: "You mean..."Larry Bloom: "It's not Voldemort, you can say it. Abortion." - Larry Bloom
+Last updated: 2024-04-12 06:29:18
+Random Quote: The most beautiful woman in the world has urgent need of my axe.  -  Victarion Greyjoy.
