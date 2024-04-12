@@ -1,2 +1,2 @@
-Last updated: 2024-04-12 05:21:54
-Random Quote: The men of always aren't interested in the children of never. - Pablo Escobar
+Last updated: 2024-04-12 05:22:27
+Random Quote: This is Hawkins, okay? You wanna know the worst thing that's ever happened here in the four years I've been working here? It was when an owl attacked Eleanor Gillespie's head because it though that her hair was a nest. - Jim Hopper
