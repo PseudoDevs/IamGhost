@@ -1,2 +1,2 @@
-Last updated: 2024-04-12 06:38:56
-Random Quote: That's it. Three rules. I call 'em the 'Don't be stupid'-rules. 'Cause we're not stupid, alright? - Jim Hopper
+Last updated: 2024-04-12 06:39:30
+Random Quote: Pornstache: "You are not an agent of God, okay? God can do so much better than you. You must know that, right?"Pennsatucky: "Know what?"Pornstache: "Jesus Christ, how the fuck did you survive infancy?"Pennsatucky: "My auntie helped my momma..."Pornstache: "That's a rhetorical question! Do you not understand what a fucking rhetorical question is?" - George 'Pornstache' Mendez
