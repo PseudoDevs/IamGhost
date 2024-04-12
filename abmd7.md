@@ -1,2 +1,2 @@
-Last updated: 2024-04-12 06:19:20
-Random Quote: Now you may be asking yourself why is sports icon John McEnroe narrating this tale? It'll make sense later I promise. - John McEnroe
+Last updated: 2024-04-12 06:19:53
+Random Quote: Sometimes you gotta do bad things to catch bad people. - Javier Pe�a
