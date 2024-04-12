@@ -1,3 +1,2 @@
-Last updated: 2024-04-12 04:59:11
-Random Quote: Freddie: "If you want me out of Birmingham, it'll have to be in a wooden box."
-Polly: "You lay a hand on our Ada, I'll put you in a wooden box myself!" - Polly Gray
+Last updated: 2024-04-12 04:59:46
+Random Quote: A hall to die in, and men to bury me.  I thank you, my lords... but I spit on your pity... I am a knight... I shall die a knight.  -  Barristan Selmy
