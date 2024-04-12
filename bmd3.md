@@ -1,2 +1,3 @@
-Last updated: 2024-04-12 05:57:57
-Random Quote: I don't wanna be choosing between two girls, I wanna be a complete head over heels idiot for one! - Ted Mosby
+Last updated: 2024-04-12 05:58:31
+Random Quote: Gor Koresh: "This is no place for a child."
+Mando: "Wherever I go, he goes. I've been quested to bring him to his kind." - Din Djarin
