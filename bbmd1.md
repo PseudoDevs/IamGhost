@@ -1,6 +1,2 @@
-Last updated: 2024-04-12 06:18:53
-Random Quote: Sam: "They might be a part of the big three."
-Bucky: "What big three?"
-Sam: "Androids, aliens and wizards."
-Bucky: "That's not a thing."
-Sam: "That's definitely a thing." - Sam Wilson
+Last updated: 2024-04-12 06:19:26
+Random Quote: I'm not in the meth business. I'm in the empire business. - Walter White
