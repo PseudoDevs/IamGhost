@@ -1,2 +1,2 @@
-Last updated: 2024-04-12 05:02:15
-Random Quote: Ted: "Where does this girl live?"Robin: "We're talking about a woman who's gotten Barney to commit. I'm guessing Narnia." - Robin Scherbatsky
+Last updated: 2024-04-12 05:03:24
+Random Quote: It was the white cloak that soiled me, not the other way around.  -  Jaime Lannister
