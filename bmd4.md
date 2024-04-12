@@ -1,3 +1,2 @@
-Last updated: 2024-04-12 05:48:47
-Random Quote: Wyatt Langmore: "This job's my old man's idea. Something about 'calluses and character'."
-Charlotte Byrde: "Yeah, well, you're blowing leaves, not hiding Anne Frank." - Charlotte Byrde
+Last updated: 2024-04-12 05:49:20
+Random Quote: Pictures can be twisted and used against you and haunt you forever. - Hannah Baker
