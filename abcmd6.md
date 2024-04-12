@@ -1,2 +1,2 @@
-Last updated: 2024-04-12 06:31:05
-Random Quote: Talking to a woman that you have already had sex with, is like changing the oil on a rental car! - Barney Stinson
+Last updated: 2024-04-12 06:31:43
+Random Quote: This story is about to take a dark turn. Usually, I love dark turns. Like when the carousel brakes myteriously failed at my eighth birthdays party. - Wednesday Addams
