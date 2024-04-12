@@ -1,2 +1,2 @@
-Last updated: 2024-04-12 05:42:27
-Random Quote: Robin, if you asked a hundred people: "Who's the worst person you could possibly date?" They'd all say "your therapist", except the ones saying "Barney". - Ted Mosby
+Last updated: 2024-04-12 05:43:00
+Random Quote: People are oblivious to reality. They only see what they want to see, when all they have to do is shift their perspective to see the full scope of things. - Yuk Je
