@@ -1,2 +1,2 @@
-Last updated: 2024-04-12 06:37:45
-Random Quote: Time is different for a tree than for a man.  Sun and soil and water, these are the things a weirwood understands, not days and years and centuries.  For men, time is a river.  We are trapped in its flow, hurtling from past to present, always in the same direction.  The lives of trees are different.  They root and grow and die in one place, and that river does not move them.  The oak is the acorn, the acorn is the oak.  And the weirwood... a thousand human years are a moment to a weirwood, and through such gates you and I may gaze into the past.  -  Bloodraven
+Last updated: 2024-04-12 06:38:21
+Random Quote: Little did I know that I would be stepping into a nightmare full of mystery, mayhem and murder. I think I'm going to love it here. - Wednesday Addams
