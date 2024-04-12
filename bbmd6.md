@@ -1,2 +1,2 @@
-Last updated: 2024-04-12 04:55:23
-Random Quote: God has a plan for every human being. - 
+Last updated: 2024-04-12 04:55:56
+Random Quote: The title was but a courtesy due him as a council member; Varys was lord of nothing but the spiderweb, the master of none but his whispers.  -  Catelyn Stark
