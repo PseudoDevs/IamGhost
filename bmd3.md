@@ -1,2 +1,2 @@
-Last updated: 2024-04-12 05:56:45
-Random Quote: I will put you under the jail. - Hank Schrader
+Last updated: 2024-04-12 05:57:21
+Random Quote: The Old Gods have no power in the south.  The weirwoods there were all cut down, thousands of years ago.  -  Osha
