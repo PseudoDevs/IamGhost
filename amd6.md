@@ -1,2 +1,2 @@
-Last updated: 2024-04-12 04:56:14
-Random Quote: Breast-feeding... hot!When those things swell up to three times their normal size, so do I. - Barney Stinson
+Last updated: 2024-04-12 04:56:48
+Random Quote: I was wed three times and my wives gave me daughters.  Now only Beth remains to me.  My brother Martyn fathered four strong sons, yet only Jory lived to be a man.  When he was slain, Martyn's line died with him.  When we speak of the morrow nothing is ever certain.  -  Rodrik Cassel
