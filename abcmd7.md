@@ -1,2 +1,2 @@
-Last updated: 2024-04-12 07:27:51
-Random Quote: Nerds who aren't good at math?Life is going to be rough boys! - Robin Scherbatsky
+Last updated: 2024-04-12 07:28:24
+Random Quote: Brandon Stark was never shy about taking what he wanted.  I am old now, a dried - up thing, too long a widow, but I still remember the look of my maiden's blood on his cock the night he claimed me.  I think Brandon liked the sight as well.  A bloody sword is a beautiful thing, yes.  It hurt, but it was a sweet pain. 
