@@ -1,2 +1,2 @@
-Last updated: 2024-04-12 07:22:38
-Random Quote: Every journey has a beginning. But change one step along the way, and you could end up at a very different destination. - The Watcher
+Last updated: 2024-04-12 07:23:11
+Random Quote: Please.  A sword, that's all I ask.  Let me die as Theon, not as Reek.  -  Theon Greyjoy
