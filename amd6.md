@@ -1,2 +1,2 @@
-Last updated: 2024-04-12 06:09:44
-Random Quote: Robert... he is in my dreams as well.  Laughing.  Drinking.  Boasting.  Those were the things he was best at.  Those, and fighting.  I never bested him at anything.  -  Stannis Baratheon
+Last updated: 2024-04-12 06:10:18
+Random Quote: I'm a good boyfriend in my sleep. I can rock a killer foot rub with one hand and brew a kick-ass pot of chamomile in the other, that would make you weep. Hell, I've forgotten more about microwaving fat-free popcorn and watching Sandra Bullock movies than you'll ever know, but: thanks for your concern, rook! - Marshall Eriksen
