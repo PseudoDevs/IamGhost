@@ -1,2 +1,2 @@
-Last updated: 2024-04-12 05:19:10
-Random Quote: I feel like I've framed my entire womanhood around men. - Jules Vaughn
+Last updated: 2024-04-12 05:19:43
+Random Quote: Many good men have been bad kings, and some bad men have been good kings.  -  Maester Aemon
