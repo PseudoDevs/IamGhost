@@ -1,2 +1,2 @@
-Last updated: 2024-04-12 04:52:36
-Random Quote: Lily: "We'll all have a wedding dress camp-out. It'll be fun!"Barney: "I can't go. I've got this thing."Lily: "What thing?"Barney: "A penis!" - Barney Stinson
+Last updated: 2024-04-12 04:53:11
+Random Quote: If we're together long enough I hope that one day you see yourself like I do. - Kevin
