@@ -1,2 +1,3 @@
-Last updated: 2024-04-12 04:53:42
-Random Quote: I think sometimes we aren't keeping secrets to hide from other people. I think sometimes we're keeping them to protect those people. - Tony Padilla
+Last updated: 2024-04-12 04:54:49
+Random Quote: Freddie: "You think I can't handle Tommy Shelby?"
+Polly: "You can't. I am having trouble these days and I'm twice the man you are." - Polly Gray
