@@ -1,2 +1,2 @@
-Last updated: 2024-04-12 06:28:07
-Random Quote: Robin: "Sometimes in life you have to be assertive and stand up for yourself."Ted: "You called her a whore!"Robin: "Who wears that much make up?"Ted: "Old ladies!"Robin: "Who take money for sex, exactly!" - Robin Scherbatsky
+Last updated: 2024-04-12 06:29:54
+Random Quote: When treating with liars, even an honest man must lie.  -  Wyman Manderly
