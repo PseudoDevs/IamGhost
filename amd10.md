@@ -1,2 +1,2 @@
-Last updated: 2024-04-12 06:29:18
-Random Quote: What I'm doing here... is building an empire. - Miguel Angel Felix Gallardo
+Last updated: 2024-04-12 06:29:54
+Random Quote: A hall to die in, and men to bury me.  I thank you, my lords... but I spit on your pity... I am a knight... I shall die a knight.  -  Barristan Selmy
