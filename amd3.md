@@ -1,2 +1,2 @@
-Last updated: 2024-04-12 05:21:21
-Random Quote: Shagg, son of Dolf will chop off their manhoods and feed them to the crows.  -  Shagga, son of Dolf
+Last updated: 2024-04-12 05:21:54
+Random Quote: We all know what my brother would do.  Robert would gallop up to the gates of Winterfell alone, break them with his warhammer, and ride through the rubble to slay Roose Bolton with his left hand and the Bastard with his right.  I am no Robert.  But we will march, and we will free Winterfell... or die in the attempt.  -  Stannis Baratheon
