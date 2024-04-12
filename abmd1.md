@@ -1,2 +1,2 @@
-Last updated: 2024-04-12 04:57:23
-Random Quote: Look at this setup! What, you two drive around like Mister Softee, and scooping out drugs for all the good boys and girls? - Saul Goodman
+Last updated: 2024-04-12 04:57:56
+Random Quote: Not all final girls make it to the end by fighting the monster. Some of them hide. They stay quiet when their family needs them. They're not waiting for their moment. They don't even know if another moment's coming. They just close their eyes and wait for it to be over. Truth is, some final girls are cowards. - Kinsey Locke
