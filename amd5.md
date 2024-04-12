@@ -1,2 +1,2 @@
-Last updated: 2024-04-12 06:21:28
-Random Quote: A Mandalorian and a Jedi? They'll never see it coming. - Din Djarin
+Last updated: 2024-04-12 06:22:04
+Random Quote: When a maester donned his collar, he put aside the hope of children, yet Cressen had oft felt a father nonetheless.  Robert, Stannis, Renly: three sons he had raised after the angry sea claimed Lord Steffon.  -  Maester Cressen
