@@ -1,2 +1,2 @@
-Last updated: 2024-04-12 06:16:02
-Random Quote: My metabolism is all messed up. See, I can moose down a pint of fudge ripple for a midnight snack and wake up having lost weight. Well, everywhere except for my boobs. So annoying. - Robin Scherbatsky
+Last updated: 2024-04-12 06:16:35
+Random Quote: When the sun has set, no candle can replace it.  -  Loras Tyrell
