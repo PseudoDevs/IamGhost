@@ -1,2 +1,2 @@
-Last updated: 2024-04-12 05:01:19
-Random Quote: If you want my advice? Get out of your own goddamn drama for a minute. - Nicky Nichols
+Last updated: 2024-04-12 05:01:53
+Random Quote: You have courage.  Not battle courage perhaps but... I don't know... a kind of woman's courage.  -  Brienne of Tarth
