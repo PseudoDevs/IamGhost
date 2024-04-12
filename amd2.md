@@ -1,2 +1,4 @@
-Last updated: 2024-04-12 06:59:02
-Random Quote: No matter how tough things get, children always turn out okay. - Berlin
+Last updated: 2024-04-12 06:59:40
+Random Quote: Greef: "Nevarro is a very fine planet. And now that the scum and villainy have been washed away, it's very respectable again."
+Mando: "As a bounty hunter hive?"
+Greef: "Some of my favorite people are bounty hunters." - Greef Karga
