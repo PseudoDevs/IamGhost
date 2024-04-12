@@ -1,2 +1,3 @@
-Last updated: 2024-04-12 05:07:02
-Random Quote: Our power comes from the perception of our power. - Mikhail Gorbachev
+Last updated: 2024-04-12 05:07:35
+Random Quote: The Deep: "What do we do? We can't just kill everyone."
+Billy Butcher: "That's exactly what we're gonna do!" - Billy Butcher
