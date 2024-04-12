@@ -1,2 +1,2 @@
-Last updated: 2024-04-12 05:27:30
-Random Quote: I guess we all have things we try to hide. But they can't stay hidden forever. - Hannah Baker
+Last updated: 2024-04-12 05:28:03
+Random Quote: The children are gone from the world, and their wisdom with them.  It had to do with the faces in the trees, we think.  The First Men believed that the greenseers could see through the eyes of the weirwoods.  That was why they cut down the trees whenever they warred upon the children.  Supposedly the greenseers also had the power over the beasts of the wood and the birds in the trees.  Even fish.  -  Maester Luwin
