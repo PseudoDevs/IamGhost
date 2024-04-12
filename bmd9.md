@@ -1,2 +1,2 @@
-Last updated: 2024-04-12 07:16:30
-Random Quote: Wherein I suggested that you take your head and store it within yourself, in a fashion that, while space-saving, might limit its exposure to sunshine. - Marshall Eriksen
+Last updated: 2024-04-12 07:17:03
+Random Quote: Good and evil are a question of perspective - Mikkel
