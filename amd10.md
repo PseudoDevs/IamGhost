@@ -1,6 +1,2 @@
-Last updated: 2024-04-12 05:04:39
-Random Quote: Polly: "Six."
-John: "Six what?"
-Polly: "Six questions since you walked through that door. Soon you'll have to start being the man with the answers."
-John: "Why?"
-Polly: "Seven." - Polly Gray
+Last updated: 2024-04-12 05:05:14
+Random Quote: My only aim is to take many lives. The more the better I feel. - 
