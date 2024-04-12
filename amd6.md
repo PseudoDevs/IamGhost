@@ -1,2 +1,2 @@
-Last updated: 2024-04-12 06:02:33
-Random Quote: My lady, I have seen how you look at my brother.  Loras is valiant and handsome, and we all love him dearly... but your Imp will make a better husband.  He is a bigger man than he seems, I think.  -  Garlan Tyrell
+Last updated: 2024-04-12 06:03:07
+Random Quote: The last play you'll ever run. - Barney Stinson
