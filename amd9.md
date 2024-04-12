@@ -1,2 +1,2 @@
-Last updated: 2024-04-12 04:55:42
-Random Quote: Red Rahloo means nothing here  You will only make the old gods angry.  They are watching from their island.  -  Hugo Wull
+Last updated: 2024-04-12 04:56:15
+Random Quote: When you're younger, everything feels so permanent. But as you get older, you begin to realize nothing is and everyone you love can drift away. - Rue Bennett
