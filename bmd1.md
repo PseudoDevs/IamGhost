@@ -1,2 +1,2 @@
-Last updated: 2024-04-12 07:17:36
-Random Quote: The man who passes the sentence should swing the sword.  If you would take a man's life, you owe it to him to look into his eyes and hear his final words.  And if you cannot bear to do that, then perhaps the man does not deserve to die.  -  Eddard Stark
+Last updated: 2024-04-12 07:18:11
+Random Quote: Jerry: "You don't, by any chance, have some sort of crazy science thing you could wrap up, that might help make this dog a little smarter?"Rick: "I thought the whole point of having a dog was to feel superior, Jerry. If I were you, I wouldn't pull that thread." - Rick Sanchez
