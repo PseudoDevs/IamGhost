@@ -1,2 +1,2 @@
-Last updated: 2024-04-12 05:49:33
-Random Quote: Brother, you're driving the "I-wanna-have-sex-with-her-truck" and its got a huge blind spot. - Marshall Eriksen
+Last updated: 2024-04-12 05:50:06
+Random Quote: When you date someone, it's like you're taking one long course in who that person is and then, when you break up, all that stuff becomes useless. It's the emotional equivalent of an English degree... - Ted Mosby
