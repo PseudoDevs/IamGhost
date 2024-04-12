@@ -1,2 +1,2 @@
-Last updated: 2024-04-12 05:25:19
-Random Quote: Jerry: "I wish that shotgun was my penis."Beth: "If it were, you could call me Ernest Hemingway." - Beth Smith
+Last updated: 2024-04-12 05:25:52
+Random Quote: You are slow to learn, Lord Eddard.  Distrusting me was the wisest thing you've don since you climbed down off your horse.  -  Petyr Baelish
