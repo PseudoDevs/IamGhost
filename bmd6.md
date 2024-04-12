@@ -1,2 +1,2 @@
-Last updated: 2024-04-12 07:25:12
-Random Quote: Stella: "Ted, you're staring at my breasts."Ted: "In fairness... they were staring at me." - Ted Mosby
+Last updated: 2024-04-12 07:25:45
+Random Quote: No man has ever died from bending his knee.  He who kneels may rise again, blade in hand.  He who will not kneel stays dead, stiff legs and all.  -  Balon Greyjoy
