@@ -1,2 +1,2 @@
-Last updated: 2024-04-12 06:15:41
-Random Quote: I am Mr. Charity. I frequently sleep with sixes, chubsters, over thirty's. I am the Bill and Melinda Gates of the sympathy bang. - Barney Stinson
+Last updated: 2024-04-12 06:16:14
+Random Quote: Whisky's good proofing water. Tells you who's real and who isn't. - Thomas Shelby
