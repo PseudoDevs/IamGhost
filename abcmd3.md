@@ -1,2 +1,2 @@
-Last updated: 2024-04-12 05:00:24
-Random Quote: Have you ever lost someone? It's like you're dying with them. They can move on. And you're stuck. - Eyk Larsen
+Last updated: 2024-04-12 05:00:56
+Random Quote: When you date someone, it's like you're taking one long course in who that person is and then, when you break up, all that stuff becomes useless. It's the emotional equivalent of an English degree... - Ted Mosby
