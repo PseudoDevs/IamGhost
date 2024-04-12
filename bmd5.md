@@ -1,2 +1,2 @@
-Last updated: 2024-04-12 05:07:57
-Random Quote: Our thinking is shaped by dualism. Entrance, exit. Black, white. Good, evil. Everything appears as opposite pairs. But that’s wrong. - H.G. Tannhaus
+Last updated: 2024-04-12 05:09:04
+Random Quote: There is no creature on earth half so terrifying as a truly just man.  -  Varys
