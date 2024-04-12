@@ -1,2 +1,2 @@
-Last updated: 2024-04-12 05:06:18
-Random Quote: You were supposed to be my wife, to bear me children with silver hair and purple eyes, to keep the blood of the dragon pure.  I took care of you.  I taught you who you were.  I fed you.  I sold our mother's crown to keep you fed.  -  Viserys Targaryen
+Last updated: 2024-04-12 05:06:51
+Random Quote: Here's what's gonna happen. One day you're gonna wake up, eat your breakfast, brush your teeth, go about your business. And sooner or later, you're gonna realize you haven't thought about it. None of it. And that's the moment you realize you can forget. When you know that's possible, it all gets easier. - Mike Ehrmantraut
