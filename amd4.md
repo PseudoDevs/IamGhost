@@ -1,2 +1,2 @@
-Last updated: 2024-04-12 07:15:05
-Random Quote: There is no such thing as magic, just illusion. Things only change when we change them. But you have to do it skillfully, in secret. Then it seems like magic. - Mikkel Nielsen
+Last updated: 2024-04-12 07:15:38
+Random Quote: Haley: "Dad, can you just please tell mom, that I can take a two hour break and go to a party?"Phil: "No Ma'am, I'm not stepping into that one. We're not playing 'good cop - mom'.'" - Phil Dunphy
