@@ -1,2 +1,2 @@
-Last updated: 2024-04-12 06:14:18
-Random Quote: It doesn't matter how much you push the envelope, it'll still be stationery. - Will Livingston
+Last updated: 2024-04-12 06:14:52
+Random Quote: My son lies here broken and dying, Luwin, and you wish to discuss a new master of horse?  Do you think I care what happens in the stables?  Do you think it matters to me one whit?  I would gladly butcher every horse in Winterfell with my own hands if it would open Bran's eyes, do you understand that?  Do you?  -  Catelyn Stark
