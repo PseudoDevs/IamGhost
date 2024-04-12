@@ -1,2 +1,2 @@
-Last updated: 2024-04-12 05:31:32
-Random Quote: I dreamed of the man who came today, the one they call Reek.  You and your brother lay dead at his feet, and he was skinning off your faces with a long red blade.  -  Jojen Reed
+Last updated: 2024-04-12 05:32:06
+Random Quote: I'm pretty much the master of handling things completely wrong. - Alex Vause
