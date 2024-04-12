@@ -1,3 +1,2 @@
-Last updated: 2024-04-12 05:42:16
-Random Quote: Jerry: "Well, traditionally, science faires are a father-son thing."
-Rick: "Well, scientifically, traditions are an idiot thing." - Rick Sanchez
+Last updated: 2024-04-12 05:42:50
+Random Quote: I know this hurts little buddy, but you'll love again someday. Because time will heal a broken heart, but not that bitch's window. - Barney Stinson
