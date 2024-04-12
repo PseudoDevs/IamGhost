@@ -1,2 +1,2 @@
-Last updated: 2024-04-12 06:39:35
-Random Quote: You all know exactly who I am. Say my name. - Walter White
+Last updated: 2024-04-12 06:40:09
+Random Quote: You grew up with actors.  You learned their craft and you learned it well.  I grew up with soldiers.  I learned how to die a long time ago.  -  Eddard Stark
