@@ -1,2 +1,3 @@
-Last updated: 2024-04-12 06:36:16
-Random Quote: I know our relationship isn't exactly what you want it to be. And I know I may not love you the way you love me, but I DO love you. Isn't that worth hanging on to? - Robin Scherbatsky
+Last updated: 2024-04-12 06:36:49
+Random Quote: Jay: "I got you a little gift to celebrate. I know it’s not much...-"
+Gloria: "It’s practically nothing!" - Gloria Pritchett
