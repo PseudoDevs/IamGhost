@@ -1,2 +1,2 @@
-Last updated: 2024-04-12 07:18:45
-Random Quote: I wish you could live to see the world we make. - Arthur Harrow
+Last updated: 2024-04-12 07:19:19
+Random Quote: You are not the guy. You're not capable of being the guy. I had a guy but now I don't. You are not the guy. - Mike Ehrmantraut
