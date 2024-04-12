@@ -1,3 +1,2 @@
-Last updated: 2024-04-12 06:07:56
-Random Quote: Jay: "I got you a little gift to celebrate. I know it’s not much...-"
-Gloria: "It’s practically nothing!" - Gloria Pritchett
+Last updated: 2024-04-12 06:08:31
+Random Quote: Little did I know that I would be stepping into a nightmare full of mystery, mayhem and murder. I think I'm going to love it here. - Wednesday Addams
