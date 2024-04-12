@@ -1,2 +1,2 @@
-Last updated: 2024-04-12 04:54:44
-Random Quote: Sometimes you gotta do bad things to catch bad people. - Javier Pe�a
+Last updated: 2024-04-12 04:55:50
+Random Quote: We’re not free in what we do because we’re not free in what we want. We can’t overcome what’s deep within us - The Stranger
