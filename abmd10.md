@@ -1,2 +1,2 @@
-Last updated: 2024-04-12 06:38:54
-Random Quote: Do you think I can't tell Lord Stannis from Lord Tywin?  They're both bungholes who think they're too noble to shit, but never mind about that, I know the difference.  -  Walder Frey
+Last updated: 2024-04-12 06:39:28
+Random Quote: There is only one god, and his name is Death.  And there is only one thing we say to Death: not today.  -  Syrio Forel
