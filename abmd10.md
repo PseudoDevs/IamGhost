@@ -1,2 +1,2 @@
-Last updated: 2024-04-12 04:53:32
-Random Quote: There are worse ways to die than warm and drunk.  I knew a brother drowned himself in wine once.  It was a poor vintage, though, and his corpse did not improve it.  -  Dolorous Edd Tollett
+Last updated: 2024-04-12 04:54:05
+Random Quote: When the sun has set, no candle can replace it.  -  Loras Tyrell
