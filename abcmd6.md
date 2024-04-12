@@ -1,2 +1,2 @@
-Last updated: 2024-04-12 05:39:17
-Random Quote: Until the Mountain crushed my brother's skull, no Dornishmen had died in this War of the Five Kings.  Tell me, Captain, is that my shame or my glory?  -  Doran Martell
+Last updated: 2024-04-12 05:39:50
+Random Quote: We're going to Buffalo... and I've seen women from there; the city's aptly named. - Barney Stinson
