@@ -1,2 +1,2 @@
-Last updated: 2024-04-12 05:06:18
-Random Quote: We all wanted to be loved by a man incapable of giving love. - Number Five
+Last updated: 2024-04-12 05:06:51
+Random Quote: Gloria: "It seemd like all what we did was fight and make love. One time, I'm not kidding you, we fell out of the window together."Jay: "Which one were you doing?" - Jay Pritchett
