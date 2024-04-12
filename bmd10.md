@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 11:02:55
-Random Quote: One minute we're just laying into each other, and then the next minute... well, same thing. - Ted Mosby
+Last updated: 2024-04-12 04:52:33
+Random Quote: I asked him why he kept her close, if he thought her so grotesque.  He said that all his other knights wanted things of him, castles or honors or riches, but all that Brienne wanted was to die for him.  -  Loras Tyrell
