@@ -1,2 +1,2 @@
-Last updated: 2024-04-12 06:03:28
-Random Quote: Marshall: "You're really telling me, that when you watch 'The Karate Kid', you don't root for Daniel-san?"Barney: "Nope."Ted: "Who do you root for in 'Die Hard'?"Barney: "Hans Gruber. Charming international bandit. At the end, he died hard. He's the title character."Lily: "Okay, 'The Breakfast Club'?"Barney: "The teacher running detention. He's the only guy in the whole movie wearing a suit."Robin: "I got one. 'Terminator'."Barney: "What's the name of the movie, Robin? Who among us didn't shed a tear when his little red eye went out at the end, and he didn't get to kill these people?" - Barney Stinson
+Last updated: 2024-04-12 06:04:03
+Random Quote: Have you ever thought that if you could go back in time, you might still make the same decisions? We all make our own snowballs out of our bad decisions. Balls that become massive, like the Indiana Jones boulder, chasing you down-hill only to crush you in the end. - Tokyo
