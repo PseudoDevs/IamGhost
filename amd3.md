@@ -1,2 +1,2 @@
-Last updated: 2024-04-12 05:13:33
-Random Quote: Walter Jr., you’re my big man. There are going to be some things that you’ll come to learn about me in the next few days. But just know that no matter how it may look, I only had you in my heart. Goodbye! - Walter White
+Last updated: 2024-04-12 05:14:38
+Random Quote: I have people waiting for me. They don't know what I do, they never will. They're protected. But I do what I do so they can have a better life. And if I live or if I die, it really doesn't make a difference to me as long as they have what they need. So when it's my time to go, I will go knowing I did everything I could for them. Now, you ask me how I keep going? That's how. - Mike Ehrmantraut
