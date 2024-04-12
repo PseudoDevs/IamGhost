@@ -1,2 +1,2 @@
-Last updated: 2024-04-12 05:14:15
-Random Quote: Never bring a knife to a sword fight. Unless it's concealed. - Wednesday Addams
+Last updated: 2024-04-12 05:14:47
+Random Quote: What do a bunch o' bloody peasants know about a lord's honor?  We know some about murder, though.  -  Lem Lemoncloak
