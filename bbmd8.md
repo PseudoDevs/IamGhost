@@ -1,2 +1,2 @@
-Last updated: 2024-04-12 06:51:28
-Random Quote: Marshall: "During that time, I have been, how do I put this delicately, saving all my love for you."Lily: "I have read eleven books on conception, I have cut out alcohol, caffeine and sugar. I take my temperature every hour. But good for you for not playing with yourself!" - Lily Aldrin
+Last updated: 2024-04-12 06:52:02
+Random Quote: We go home with an army, sweet sister.  With Khal Drogo's army, that is how we go home.  And if you must wed him and bed him for that, you will.  I'd let his whole khalasar fuck you if need be, sweet sister, all forty thousand men, and their horses too if that was what it took to get my army.  -  Viserys Targaryen
