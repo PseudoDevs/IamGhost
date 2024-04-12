@@ -1,2 +1,2 @@
-Last updated: 2024-04-12 05:10:06
-Random Quote: Some had been heroes, some weaklings, knaves, or cravens.  Most were only men, quicker and stronger than most, more skilled with sword and shield, but still prey to pride, ambition, lust, love, anger, jealousy, greed for gold, hunger for power, and all the other failings that afflicted lesser mortals.  The best of them overcame their flaws, did their duty, and died with their swords in their hands.  The worst... the worst were those who played the game of thrones.  -  Barristan Selmy
+Last updated: 2024-04-12 05:10:39
+Random Quote: Mitchell: "It's been five years now and he still does this thing were he announces himself before walking into any room we're in, just to make sure he doesn't ever see us kiss."Cameron: "Wish my mother had that system. Remember?" - Cameron Tucker
