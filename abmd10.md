@@ -1,3 +1,2 @@
-Last updated: 2024-04-12 07:02:02
-Random Quote: Morty: "You're really this pissed about my mum making sure I'm okay with our adventures?"
-Rick: "What's next, Morty? What if I want you to jump off the Empire State Building? I have to ask?" - Rick Sanchez
+Last updated: 2024-04-12 07:02:36
+Random Quote: This guy he's done everything right. He's been loving and devoted since he was 18 years old. There are only a few truly great people on this planet and he is one of them. - Barney Stinson
