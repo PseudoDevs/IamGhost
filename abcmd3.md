@@ -1,2 +1,2 @@
-Last updated: 2024-04-12 04:52:24
-Random Quote: Too many crazies had my old number, so now I'm all about disposable cell phones. I'll use one for a while, have my fun, then dump it and get a new one. And then I'll do the same with my phone. - Barney Stinson
+Last updated: 2024-04-12 04:53:00
+Random Quote: Many good men have been bad kings, and some bad men have been good kings.  -  Maester Aemon
