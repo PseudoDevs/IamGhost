@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 09:14:44
-Random Quote: You know how they say 'it's been a pleasure'? Well... it hasn't. - Mike Ehrmantraut
+Last updated: 2024-04-12 04:52:39
+Random Quote: Can I dwell on what I scarce remember?  I held a castle on the Marches once, and there was a woman I was pledged to marry, but I could not find that castle today, nor tell you the color of that woman's hair.  Who knighted me, old friend?  What were my favorite foods?  It all fades.  Sometimes I think I was born on the bloody grass in that grove of ash, with the taste of fire in my mouth and a hole in my chest.  Are you my mother, Thoros?  -  Beric Dondarrion
