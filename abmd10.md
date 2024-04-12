@@ -1,4 +1,2 @@
-Last updated: 2024-04-12 06:41:46
-Random Quote: Tony Stark: "Lieutenant Killmonger? What is that? German?"
-Killmonger: "A nickname."
-Tony Stark: "That's clearly a good fit." - Killmonger
+Last updated: 2024-04-12 06:42:19
+Random Quote: All due respect, sir, isn't that a lot of firepower to aim at a country most Americans can't find on a map? - Pepper Potts
