@@ -1,2 +1,3 @@
-Last updated: 2024-04-12 05:52:11
-Random Quote: Catelyn would sooner Lord Umber had seen fit to stay sober, but telling the Greatjon not to drink was like telling him not to breathe for a few hours.  -  Catelyn Stark
+Last updated: 2024-04-12 05:52:48
+Random Quote: Freddie: "Are you mad?"
+Ada: "Yeah. Mad as hell with all of them." - Ada Thorne
