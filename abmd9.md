@@ -1,2 +1,2 @@
-Last updated: 2024-04-12 07:24:27
-Random Quote: Strip off their skins.  Lord Bolton, he used to say a naked man has few secrets, but a flayed man's got none.  -  Ramsay Bolton
+Last updated: 2024-04-12 07:25:04
+Random Quote: I want you to wanna kiss me so bad that you don't even ask. - Jules Vaughn
