@@ -1,2 +1,2 @@
-Last updated: 2024-04-12 05:00:56
-Random Quote: When you date someone, it's like you're taking one long course in who that person is and then, when you break up, all that stuff becomes useless. It's the emotional equivalent of an English degree... - Ted Mosby
+Last updated: 2024-04-12 05:01:30
+Random Quote: My lords, when Donal Noye was slain, it was this young man Jon Snow who took the Wall and held it, against all the fury of the north.  He has proved himself valiant, loyal, and resourceful.  Were it not for him, you would have found Mance Rayder sitting here when you arrived, Lord Slynt.  You are doing him a great wrong.  Jon Snow was Lord Mormont's own steward and squire.  He was chosen for that duty because the Lord Commander saw much promise in him.  As do I.  -  Maester Aemon
