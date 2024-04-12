@@ -1,2 +1,2 @@
-Last updated: 2024-04-12 05:46:07
-Random Quote: Robert wanted smiles and cheers, always, so he went where he found them, to his friends and his whores.  Robert wanted to be loved.  My brother Tyrion has the same disease.  -  Cersei Lannister
+Last updated: 2024-04-12 05:46:40
+Random Quote: We all make our choices and those choices they put us on a road. And sometimes those choices seem small but they put you on the road. You think about getting off but eventually, you're back on it. - Mike Ehrmantraut
