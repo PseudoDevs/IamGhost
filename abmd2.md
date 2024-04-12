@@ -1,2 +1,2 @@
-Last updated: 2024-04-12 06:04:06
-Random Quote: The last play you'll ever run. - Barney Stinson
+Last updated: 2024-04-12 06:04:39
+Random Quote: Do you know what it is like to be sold, squire?  I do.  My brother sold me to Khal Drogo for the promise of a golden crown.  Well, Drogo crowned him in gold, though not as he had wished, and I... my sun - and
