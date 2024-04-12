@@ -1,2 +1,2 @@
-Last updated: 2024-04-12 04:55:41
-Random Quote: They say the king loved to hunt.  The things we love destroy us every time, lad.  Remember that.  -  Jeor Mormont
+Last updated: 2024-04-12 04:56:14
+Random Quote: Breast-feeding... hot!When those things swell up to three times their normal size, so do I. - Barney Stinson
