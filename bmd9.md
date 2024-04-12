@@ -1,2 +1,2 @@
-Last updated: 2024-04-12 06:28:42
-Random Quote: So young.  Though mayhaps this was a blessing.  Had he lived, he would have grown up to be a Frey.  -  Wyman Manderly
+Last updated: 2024-04-12 06:29:53
+Random Quote: Make it easier for those whose vote you can count on. Make it harder for those you can't. That's how you rig an election without leaving a lick of evidence. - Walt Breslin
