@@ -1,2 +1,3 @@
-Last updated: 2024-04-12 06:37:56
-Random Quote: No more half-measures, Walter. - Mike Ehrmantraut
+Last updated: 2024-04-12 06:38:29
+Random Quote: Gor Koresh: "This is no place for a child."
+Mando: "Wherever I go, he goes. I've been quested to bring him to his kind." - Din Djarin
