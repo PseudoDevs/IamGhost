@@ -1,3 +1,2 @@
-Last updated: 2024-04-12 05:10:34
-Random Quote: Steven Grant: "I'm not trying to slag off marketing, but there's been a major blunder. Because they've got seven gods here, and the Ennead has nine."
-Donna: "I fired two of them for bein' late. Listen, if you don't stop natterin' at me, I swear I'll shove you in a sarcophagus. You can tell the pharaoh in there what's wrong with them and all." - Arthur Harrow
+Last updated: 2024-04-12 05:11:07
+Random Quote: If you don’t know who I am, then maybe your best course would be to tread lightly. - Walter White
