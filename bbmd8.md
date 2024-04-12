@@ -1,2 +1,3 @@
-Last updated: 2024-04-12 05:20:13
-Random Quote: I'm going to tell you something curious about prisons. You're never alone. But you always have the feeling that you are. - Don Neto
+Last updated: 2024-04-12 05:20:47
+Random Quote: Ellie: "There's not gonna be anything bad in here?"
+Joel: "Just you." - Joel Miller
