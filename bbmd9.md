@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 08:20:27
-Random Quote: You have to be as bad as them above in order to survive. - Polly Gray
+Last updated: 2024-04-12 04:52:38
+Random Quote: Saul Goodman is the last line of defense for the little guy. Are you getting sold down the river? He's a life raft. You getting stepped on? He's a sharp stick. You got Goliath on your back - Saul's the guy with the slingshot. He's the righter of wrongs. He's friend to the friendless. - Saul Goodman
