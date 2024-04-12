@@ -1,2 +1,2 @@
-Last updated: 2024-04-12 07:06:29
-Random Quote: Men say Tywin never smiled, but he smiled when he wed your mother, and when Aerys made him Hand.  When Tarbeck Hall came crashing down on Lady Ellyn, that scheming bitch, Tyg claimed he smiled then, and he smiled at your birth, Jaime, I saw with my own eyes.  -  Genna Lannister
+Last updated: 2024-04-12 07:07:02
+Random Quote: Keys, scumbag. It's the universal symbol for keys. - Mike Ehrmantraut
