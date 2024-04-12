@@ -1,2 +1,2 @@
-Last updated: 2024-04-12 04:58:42
-Random Quote: Master Mott said Thoros could outdrink even King Robert.  They were pease in a pod, he told me, both gluttons and sots.  -  Gendry
+Last updated: 2024-04-12 04:59:14
+Random Quote: Ted: "Oh hey, where are you guys?"Barney: "We're in a fundraiser, helping young women raise money for community college."Ted: "Stripclub... nice!" - Barney Stinson
