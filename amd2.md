@@ -1,3 +1,2 @@
-Last updated: 2024-04-12 05:47:44
-Random Quote: Jerry: "Well, traditionally, science faires are a father-son thing."
-Rick: "Well, scientifically, traditions are an idiot thing." - Rick Sanchez
+Last updated: 2024-04-12 05:50:17
+Random Quote: Because there's no way watching it can be more fun than playing it yourself. - Oh Il-nam
