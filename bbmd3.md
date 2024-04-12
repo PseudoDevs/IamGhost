@@ -1,2 +1,2 @@
-Last updated: 2024-04-12 05:14:34
-Random Quote: Pennsatucky: "It weren't my fault. I was just doing as the Spirit commanded."Pussey: "Fuck are you? Joan of Arc?"Pennsatucky: "No, I'm from Waynesboro, my name is Tiffany..." - Tiffany 'Pennsatucky' Doggett
+Last updated: 2024-04-12 05:15:07
+Random Quote: Female acrobats from Montreal, super flexible... we're gonna get Cirque du so-laid! - Barney Stinson
