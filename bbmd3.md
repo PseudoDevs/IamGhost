@@ -1,4 +1,2 @@
-Last updated: 2024-04-12 04:59:19
-Random Quote: Rebecca: "So, I spoke to the owner of The Sun."
-Ted: "You spoke to God?!"
-Rebecca: "No, the newspaper." - Rebecca Welton
+Last updated: 2024-04-12 04:59:52
+Random Quote: Your heart's talking to you, Barney. Do you have the guts to listen to it? - Lily Aldrin
