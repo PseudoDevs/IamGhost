@@ -1,2 +1,2 @@
-Last updated: 2024-04-12 05:28:13
-Random Quote: I've killed a lot more than him, I promise you.  You think that makes me some monster.  Well, maybe it does, but I saved your sister's life too.  The day the mob pulled her off her horse, I cut through them and brought her back to the castle, else she would have gotten what Lollys Stokeworth got.  And she sang for me.  You didn't know that, did you?  Your sister sang me a sweet little song.  -  Sandor Clegane
+Last updated: 2024-04-12 05:29:19
+Random Quote: Underneath all of those lies is one true thing. One true thing that can support the weight of all the lies in the world, and that's the fact that I love you. - Barney Stinson
