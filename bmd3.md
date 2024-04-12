@@ -1,2 +1,4 @@
-Last updated: 2024-04-12 05:19:14
-Random Quote: I think I literally have a better understanding of who killed Kennedy than what is offside. - Rebecca Welton
+Last updated: 2024-04-12 05:19:48
+Random Quote: Joel: "I need you to tell us where we are."
+Man: "If you got a map, why you lost?"
+Ellie: "Must've missed all the street signs in the enormous f-cking forest." - Ellie Williams
