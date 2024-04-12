@@ -1,2 +1,2 @@
-Last updated: 2024-04-12 07:09:17
-Random Quote: Lily: "Your job is very simple. At the wedding, do not sleep with anyone even remotely related to me."Barney: "Yeah. Lily, you know I can't promise that" - Barney Stinson
+Last updated: 2024-04-12 07:09:50
+Random Quote: I have been called many things, my lord, byt kind is seldom one of them.  -  Maester Aemon
