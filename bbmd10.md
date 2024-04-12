@@ -1,2 +1,2 @@
-Last updated: 2024-04-12 06:13:35
-Random Quote: Ted it's fine, I'm a child of divorce. You guys keep fighting all you want - as long as the expensive gifts keep coming. - Lily Aldrin
+Last updated: 2024-04-12 06:14:08
+Random Quote: Penrose chose to die rather than give him up.  It still angers me.  How could he think I would hurt the boy?  I chose Robert, did I not?  When that hard day came, I chose blood over honor.  -  Stannis Baratheon
