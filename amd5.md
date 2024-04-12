@@ -1,2 +1,2 @@
-Last updated: 2024-04-12 05:41:53
-Random Quote: Ted: "Uh, the time Lily went into labor!"Lily: "That's now!"Ted: "Sorry, I'm running out of stories." - Ted Mosby
+Last updated: 2024-04-12 05:42:27
+Random Quote: And there's this other band, led by this woman Stoneheart... Lord Beric's lover, according to one tale.  Supposedly she was hanged by the Freys, but Dondarrion kissed her and brought her back to life, and now she cannot die, no more than he.  -  Set Hyle Hunt
