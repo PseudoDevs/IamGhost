@@ -1,2 +1,2 @@
-Last updated: 2024-04-12 05:57:26
-Random Quote: There are moments when we must understand that the decisions we make influence more than just our own fates. - 
+Last updated: 2024-04-12 05:58:00
+Random Quote: I just want to say to whoever is voting for me that I would certainly make an awful Lord Commander.  But so would all these others.  -  Dolorous Edd Tollett
