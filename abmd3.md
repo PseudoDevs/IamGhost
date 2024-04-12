@@ -1,2 +1,2 @@
-Last updated: 2024-04-12 05:20:39
-Random Quote: I wasn't there when the meth was cooked. I wasn't there when it was sold. I didn't witness any of the murders, but I damn well knew what was happening. I was more than a willing participant. I was indispensable. I kept Walter White out of Jail. I laundered his money. I lied for him. I conspired with him and I made millions. - Saul Goodman
+Last updated: 2024-04-12 05:21:12
+Random Quote: No matter how much we fight it we are connected by our blood. We can feel estranged from our families and not understand what they do. And still, in the end, we will do anything for them. - Adam
