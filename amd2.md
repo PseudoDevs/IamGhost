@@ -1,2 +1,2 @@
-Last updated: 2024-04-12 04:54:00
-Random Quote: All living things, from complex mammals to single-celled organisms, instinctively respond to danger. Expose a bacterium to a toxic chemical and it will flee, or deploy some other defense mechanism. We're very much the same. When we encounter danger, our hearts start pounding. Our palms start to sweat. These are the signs of the physical and emotional state we call 'fear.' - Scott Clarke
+Last updated: 2024-04-12 04:54:34
+Random Quote: Birds are lost, messages stolen or sold... there are things I might tell you of that eunuch that would chill your blood...  -  Grand Maester Pycelle
