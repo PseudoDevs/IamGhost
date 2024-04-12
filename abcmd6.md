@@ -1,2 +1,2 @@
-Last updated: 2024-04-12 07:17:39
-Random Quote: I think mothers and fathers made up the gods because they wanted their children to sleep through the night.  -  Davos Seaworth
+Last updated: 2024-04-12 07:18:13
+Random Quote: I never met a real Mandalorian. Heard stories. I know you're good at killing. - Cobb Vanth
