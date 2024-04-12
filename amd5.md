@@ -1,2 +1,2 @@
-Last updated: 2024-04-12 06:26:16
-Random Quote: If you die before you say her name, Set, I will hunt you through the seven hells.  -  Oberyn Martell
+Last updated: 2024-04-12 06:26:49
+Random Quote: For a joke to work, it has to have part of truth and part of pain. - Berlin
