@@ -1,2 +1,2 @@
-Last updated: 2024-04-12 06:00:36
-Random Quote: A lie is just a great story that someone ruined with the truth. - Barney Stinson
+Last updated: 2024-04-12 06:01:09
+Random Quote: The only way to keep your people loyal is to make certain they fear you more than they do the enemy.  -  Cersei Lannister
