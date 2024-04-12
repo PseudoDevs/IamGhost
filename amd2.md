@@ -1,2 +1,2 @@
-Last updated: 2024-04-12 06:37:54
-Random Quote: You have a passing clever father, Devan.  He makes me wish I had more smugglers in my service.  And fewer lords.  -  Stannis Baratheon
+Last updated: 2024-04-12 06:38:30
+Random Quote: Have you seen Mace Tyrell's boy?  The Knight of Flowers, they call him.  Now there's a son any man would be proud to own to.  Last tourney, he dumped the Kingslayer on his golden rump, you ought to have seen the look on Cersei's face.  I laughed till my sides hurt.  -  Robert Baratheon
