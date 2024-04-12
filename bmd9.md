@@ -1,2 +1,2 @@
-Last updated: 2024-04-12 06:57:34
-Random Quote: You think you're the only one he whispers secrets to?  He gives each of us just enough to convince us that we'd be helpless without him.  -  Cersei Lannister
+Last updated: 2024-04-12 06:58:08
+Random Quote: The children are gone from the world, and their wisdom with them.  It had to do with the faces in the trees, we think.  The First Men believed that the greenseers could see through the eyes of the weirwoods.  That was why they cut down the trees whenever they warred upon the children.  Supposedly the greenseers also had the power over the beasts of the wood and the birds in the trees.  Even fish.  -  Maester Luwin
