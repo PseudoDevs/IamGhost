@@ -1,2 +1,2 @@
-Last updated: 2024-04-11 11:03:09
-Random Quote: Red: "Black girls hear about a chicken, of course this will happen."Piper: "Why, because all black people love chicken?"Red: "Don't be racist. Because they're all on heroin, and somebody's been telling them there's heroin in the chicken." - Galina 'Red' Reznikov
+Last updated: 2024-04-12 04:52:31
+Random Quote: Mitchell: "We didn't just go to Vietnam for pleasure. We kinda have some big news."Jay: "Oh God, if Cam comes out there with boobs, I'm leaving." - Jay Pritchett
