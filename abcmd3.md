@@ -1,3 +1,2 @@
-Last updated: 2024-04-12 06:49:45
-Random Quote: Dragon: "My name is Balthromaw. Breaker of skies, slayer of mountain."
-Rick: "Rule 1: You're now scooper of your own poops, or I will take you down like the black-light poster you are." - Rick Sanchez
+Last updated: 2024-04-12 06:50:19
+Random Quote: Among all the games that kids played back then, it was the most physical and violent. - Seong Gi-hun
