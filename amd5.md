@@ -1,2 +1,2 @@
-Last updated: 2024-04-12 05:21:20
-Random Quote: Is it your fault that Bronn's an insolent black - hearted rogue?  He's always been an insolent black
+Last updated: 2024-04-12 05:21:53
+Random Quote: If we're together long enough I hope that one day you see yourself like I do. - Kevin
