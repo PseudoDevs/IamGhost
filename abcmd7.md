@@ -1,2 +1,2 @@
-Last updated: 2024-04-12 06:22:16
-Random Quote: I have sinned and must atone, must parade my shame before the eyes of every beggar in the city.  They think that this will break my pride, that it will make an end to me, but they are wrong.  -  Cersei Lannister
+Last updated: 2024-04-12 06:22:49
+Random Quote: The absolute worst part of depression is that even though you know you're depressed, You're unable to stop yourself from getting worse. - Rue Bennett
