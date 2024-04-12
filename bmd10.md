@@ -1,2 +1,2 @@
-Last updated: 2024-04-12 05:21:43
-Random Quote: Jesus! Just grow some fucking balls! - Walter White
+Last updated: 2024-04-12 05:22:49
+Random Quote: Roose Bolton's cold and cunning, aye, but a man can deal with Roose.  We've all known worse.  But this bastard son of his... they say he's mad and cruel, a monster.  -  Locke
