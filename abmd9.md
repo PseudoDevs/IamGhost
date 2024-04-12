@@ -1,2 +1,2 @@
-Last updated: 2024-04-12 06:27:28
-Random Quote: We're done when I say we're done. - Walter White
+Last updated: 2024-04-12 06:28:04
+Random Quote: Birds are lost, messages stolen or sold... there are things I might tell you of that eunuch that would chill your blood...  -  Grand Maester Pycelle
