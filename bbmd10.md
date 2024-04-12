@@ -1,2 +1,2 @@
-Last updated: 2024-04-12 06:43:25
-Random Quote: So young.  Though mayhaps this was a blessing.  Had he lived, he would have grown up to be a Frey.  -  Wyman Manderly
+Last updated: 2024-04-12 06:43:59
+Random Quote: I hate it when you talk sometimes. No... all the time. - Nicky Nichols
