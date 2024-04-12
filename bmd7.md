@@ -1,2 +1,2 @@
-Last updated: 2024-04-12 05:25:49
-Random Quote: It all goes back and back.  To our mothers and fathers and theirs before them.  We are puppets dancing on the strings of those who came before us, and one day our own children will take up our strings and dance in our steads.  -  Tyrion Lannister
+Last updated: 2024-04-12 05:26:56
+Random Quote: Geniuses are always branded as crazy. - Pablo Escobar
