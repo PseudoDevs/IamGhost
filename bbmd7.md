@@ -1,2 +1,2 @@
-Last updated: 2024-04-12 07:05:23
-Random Quote: I only have one rule. For every three 10's you bang, throw a bone to a 5. They're grateful and hard working and let's face it, sometimes you just want to lay there. - Barney Stinson
+Last updated: 2024-04-12 07:05:57
+Random Quote: If you waste time trying to get people to love you, you'll end up the most popular dead man in town.  -  Bronn
