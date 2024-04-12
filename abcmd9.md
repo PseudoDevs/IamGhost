@@ -1,2 +1,2 @@
-Last updated: 2024-04-12 05:06:30
-Random Quote: Robert was never the same after he put on that crown.  Some men are like swords, made for fighting.  Hang them up and they go to rust.  -  Donal Noye
+Last updated: 2024-04-12 05:07:03
+Random Quote: There are no men like me.  There's only me.  -  Jaime Lannister
