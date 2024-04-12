@@ -1,2 +1,2 @@
-Last updated: 2024-04-12 04:53:39
-Random Quote: Lies are necessary, when the truth is too difficult to believe. - Pablo Escobar
+Last updated: 2024-04-12 04:54:46
+Random Quote: You were supposed to be my wife, to bear me children with silver hair and purple eyes, to keep the blood of the dragon pure.  I took care of you.  I taught you who you were.  I fed you.  I sold our mother's crown to keep you fed.  -  Viserys Targaryen
