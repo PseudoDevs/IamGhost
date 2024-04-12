@@ -1,2 +1,2 @@
-Last updated: 2024-04-12 04:53:40
-Random Quote: I have let you come wash my dishes. I said my oven needed cleaning, I invited you to a p-rno! - Victoria
+Last updated: 2024-04-12 04:54:13
+Random Quote: If you die before you say her name, Set, I will hunt you through the seven hells.  -  Oberyn Martell
