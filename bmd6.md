@@ -1,2 +1,2 @@
-Last updated: 2024-04-12 07:14:19
-Random Quote: They say the king loved to hunt.  The things we love destroy us every time, lad.  Remember that.  -  Jeor Mormont
+Last updated: 2024-04-12 07:14:50
+Random Quote: I have sinned and must atone, must parade my shame before the eyes of every beggar in the city.  They think that this will break my pride, that it will make an end to me, but they are wrong.  -  Cersei Lannister
