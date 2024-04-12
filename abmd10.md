@@ -1,2 +1,2 @@
-Last updated: 2024-04-12 06:50:19
-Random Quote: Your pain defines who you are but it no longer holds power on you - Noah
+Last updated: 2024-04-12 06:51:27
+Random Quote: Is it your fault that Bronn's an insolent black - hearted rogue?  He's always been an insolent black
