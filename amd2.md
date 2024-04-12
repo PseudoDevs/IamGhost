@@ -1,2 +1,3 @@
-Last updated: 2024-04-12 05:34:07
-Random Quote: He has got to go. You need to be like:You are the weakest link goodbye!Punchy, the tribe has spoken.Please pack up your knives and go.Your work of art, didn't work for me.You're times up.I have to ask you to leave the mansion.You must leave the chateau.Your tour ends here.You've been chopped!You've been evicted from the Big Brother house.Your desert just didn't measure up.Sashay away!Give me your jacket and leave Hell's kitchen!You did not get a rose.You have been eliminated from the race.You are no longer in the running to be America's Next Top Model.You're fired.Auf Wiedersehen. - Barney Stinson
+Last updated: 2024-04-12 05:34:41
+Random Quote: Man: "Hello, sir. Can I talk to you?"
+Gi-hun: "I don't believe in Jesus." - Seong Gi-hun
