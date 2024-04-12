@@ -1,3 +1,2 @@
-Last updated: 2024-04-12 05:56:20
-Random Quote: Sal: "Does Lily have any other plates? I don't let Sammy eat off this plastic."
-Pepper: "How does she breastfeed him if she doesn't let him near plastic?" - Pepper Saltzman
+Last updated: 2024-04-12 05:56:56
+Random Quote: A drum roll?! That's it? So what, you just said good night, came home and... performed a drum solo? - Marshall Eriksen
