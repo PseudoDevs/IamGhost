@@ -1,2 +1,3 @@
-Last updated: 2024-04-12 06:49:10
-Random Quote: For the first time in my life, I don't want to find myself in three years with some random girl. No matter how many boobs she has. - Barney Stinson
+Last updated: 2024-04-12 06:49:44
+Random Quote: Tommy: "I'll have some men watch her house 'til the danger passes."
+Polly: "'Til the danger passes. That'll be the bloody day." - Polly Gray
