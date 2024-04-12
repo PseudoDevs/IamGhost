@@ -1,2 +1,2 @@
-Last updated: 2024-04-12 05:25:53
-Random Quote: No voting, no debate. It's not a democracy - it's a Rickpublic! - Summer Smith
+Last updated: 2024-04-12 05:26:26
+Random Quote: Come with me to the House of the Undying, and you shall drink of truth and wisdom.  -  Pyat Pree
