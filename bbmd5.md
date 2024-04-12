@@ -1,2 +1,3 @@
-Last updated: 2024-04-12 07:13:24
-Random Quote: Quinn: "I have to pay $2,000 every time I gain a pound?"Barney: "Not every time. Just if it shows up at the weekly weigh-in." - Barney Stinson
+Last updated: 2024-04-12 07:13:58
+Random Quote: Lily: "Swear on the lifes of your unborn boy and girl!"
+Ted: "I swear... on Luke and Leia!" - Ted Mosby
