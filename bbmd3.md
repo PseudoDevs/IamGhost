@@ -1,2 +1,2 @@
-Last updated: 2024-04-12 06:58:41
-Random Quote: I think the word you're looking for is 'audacious'. - Kim Wexler
+Last updated: 2024-04-12 06:59:15
+Random Quote: I have served six kings, but here before us lies the greatest man I ever knew.  Lord Tywin wore no crown, yet he was all a king should be.  -  Grand Maester Pycelle

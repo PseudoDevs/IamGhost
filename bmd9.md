@@ -1,2 +1,2 @@
-Last updated: 2024-04-12 06:58:41
-Random Quote: Freeways have exits, so do relationships. The first exit, my personal favourite, is six hours in: You meet, you talk, you have sex, you exit when she's in the shower. - Barney Stinson
+Last updated: 2024-04-12 06:59:15
+Random Quote: Jerry: "I wish that shotgun was my penis."Beth: "If it were, you could call me Ernest Hemingway." - Beth Smith
