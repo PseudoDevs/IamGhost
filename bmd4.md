@@ -1,2 +1,5 @@
-Last updated: 2024-04-12 05:06:13
-Random Quote: When your enemies defy you, you must serve them steel and fire.  When they go to their knees, however, you must help them back to their feet.  Elsewise no man will ever bend the knee to you.  And any man who must say "I am the king" is no true king at all.  Aerys never understood that, but you will.  When I've won your war for you, we will restore the king's peace and the king's justice.  -  Tywin Lannister
+Last updated: 2024-04-12 05:06:47
+Random Quote: "What's love to you?"
+Flaca: "It's like getting into a bath, but the water is like warm chocolate pudding. And the Smiths are playing. There Is A Light That Never Goes Out.' There's mood lighting all over, and there's like five dudes massaging you."
+Maritza: "And you have a pizza!"
+Flaca: "She's right. You also have a pizza." - Marisol 'Flaca' Gonzales & Maritza Ramos
