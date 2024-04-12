@@ -1,2 +1,2 @@
-Last updated: 2024-04-12 07:05:56
-Random Quote: Ah, Arya.  You have a wildness in you, child.  The 'wolf blood', my father used to call it.  Lyanna had a touch of it, and my brother Brandon more than a touch.  It brought them both to an early grave.  Lyanna might have carried a sword, if my lord father had allowed it.  You remind me of her sometimes.  You even look like her.  -  Eddard Stark
+Last updated: 2024-04-12 07:06:29
+Random Quote: Yes! Tonight is gonna be Legen... wait, are we sure it's a good idea to go to a strip club? Shut up, Lily! I'm in charge now... Dary! - Barney Stinson
