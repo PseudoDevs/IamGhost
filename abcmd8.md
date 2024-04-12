@@ -1,2 +1,2 @@
-Last updated: 2024-04-12 06:35:55
-Random Quote: I'm not him, I'm not the turncloak, he died at Winterfell.  My name is Reek.  It rhymes with freak.  -  Reek
+Last updated: 2024-04-12 06:37:45
+Random Quote: Man cannot tame what God wishes to be wild. - Jacob Snell
