@@ -1,2 +1,2 @@
-Last updated: 2024-04-12 05:36:01
-Random Quote: The title was but a courtesy due him as a council member; Varys was lord of nothing but the spiderweb, the master of none but his whispers.  -  Catelyn Stark
+Last updated: 2024-04-12 05:36:34
+Random Quote: That girl was just crying. She's so sad and defenseless... anyone have a condom? - Barney Stinson
