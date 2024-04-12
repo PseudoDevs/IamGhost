@@ -1,2 +1,3 @@
-Last updated: 2024-04-12 06:51:00
-Random Quote: America, Freddie. They've already had their revolution, you won't have to bother. - Ada Thorne
+Last updated: 2024-04-12 06:51:41
+Random Quote: Robin: "I'm drinking 'til I forget the 1999 NFC Championship?"
+Marshall: "The Vikings were two minutes away from going to the Super Bowl, when our kicker, who hadn't missed all year, shanked a field goal, and we lost in overtime. Damn!" - Marshall Eriksen
