@@ -1,2 +1,2 @@
-Last updated: 2024-04-12 06:37:44
-Random Quote: Do you think I can't tell Lord Stannis from Lord Tywin?  They're both bungholes who think they're too noble to shit, but never mind about that, I know the difference.  -  Walder Frey
+Last updated: 2024-04-12 06:38:21
+Random Quote: Is it your fault that Bronn's an insolent black - hearted rogue?  He's always been an insolent black
