@@ -1,3 +1,2 @@
-Last updated: 2024-04-12 05:17:34
-Random Quote: Stark: "Can I give you a piece of advice?"
-Carter: "I'd rather you didn't." - Peggy Carter
+Last updated: 2024-04-12 05:18:07
+Random Quote: Ramsay.  Snow, my wife called me before she ate her fingers, but I say Bolton.  -  Ramsay Bolton
