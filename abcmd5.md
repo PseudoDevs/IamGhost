@@ -1,2 +1,2 @@
-Last updated: 2024-04-12 07:03:22
-Random Quote: Know the men who follow you and let them know you.  Don't ask your men to die for a stranger.  -  Eddard Stark
+Last updated: 2024-04-12 07:03:56
+Random Quote: You are the love of my life. Everything I have and everything I am is yours. Forever. - Barney Stinson
