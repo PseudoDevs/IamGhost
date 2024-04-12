@@ -1,2 +1,2 @@
-Last updated: 2024-04-12 06:50:24
-Random Quote: My real father died in King's Landing.  I made a choice, and I chose wrong.  -  Theon Greyjoy
+Last updated: 2024-04-12 06:50:59
+Random Quote: For the night is dark and full of terrors.  -  Words of R'hllor
