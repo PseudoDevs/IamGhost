@@ -1,2 +1,2 @@
-Last updated: 2024-04-12 06:06:12
-Random Quote: You're my free pass... bitch! - Jesse Pinkman
+Last updated: 2024-04-12 06:06:46
+Random Quote: I only have one rule. For every three 10's you bang, throw a bone to a 5. They're grateful and hard working and let's face it, sometimes you just want to lay there. - Barney Stinson
