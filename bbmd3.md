@@ -1,2 +1,2 @@
-Last updated: 2024-04-12 06:44:06
-Random Quote: Barney: "I'm dating a stripper."Ted: "Yes, I've seen your bus ad." - Ted Mosby
+Last updated: 2024-04-12 06:44:41
+Random Quote: I prefer my history dead.  Dead history is writ in ink, the living sort in blood.  -  Rodrik Harlaw
