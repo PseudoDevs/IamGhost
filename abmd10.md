@@ -1,2 +1,2 @@
-Last updated: 2024-04-12 06:47:31
-Random Quote: I will kill your wife, I will kill your son, I will kill your infant daughter. - Gustavo Fring
+Last updated: 2024-04-12 06:48:04
+Random Quote: I understand that if any more words come pouring out of your cunt mouth I'm going to have to eat every fucking chicken in this room.  -  Sandor Clegane
