@@ -1,2 +1,2 @@
-Last updated: 2024-04-12 07:20:44
-Random Quote: I dreamed of the man who came today, the one they call Reek.  You and your brother lay dead at his feet, and he was skinning off your faces with a long red blade.  -  Jojen Reed
+Last updated: 2024-04-12 07:21:17
+Random Quote: They shall come day and night to see the wonder that has been born again into the world, and when they see they shall lust.  For dragons are fire made flesh, and fire is power.  -  Quaithe
