@@ -1,2 +1,2 @@
-Last updated: 2024-04-12 07:15:09
-Random Quote: Gods help you, Theon Greyjoy.  Now you are truly lost.  -  Rodrik Cassel
+Last updated: 2024-04-12 07:15:46
+Random Quote: The Bro Code has been around for centuries. Nay... whatever's more than centuries. - Barney Stinson
