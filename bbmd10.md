@@ -1,2 +1,2 @@
-Last updated: 2024-04-12 05:23:34
-Random Quote: I stayed up all night wondering where the sun went. Then it dawned on me. - Will Livingston
+Last updated: 2024-04-12 05:24:08
+Random Quote: So I will only ask you once, Lord Snow.  Are you a brother of the Night's Watch, or a bastard boy who wants to play at war?  -  Jeor Mormont
