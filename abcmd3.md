@@ -1,2 +1,2 @@
-Last updated: 2024-04-12 06:43:27
-Random Quote: You have to be as bad as them above in order to survive. - Polly Gray
+Last updated: 2024-04-12 06:44:00
+Random Quote: She studied Theon Greyjoy's sly smile, wondering what it meant.  That young man had a way of looking as though he knew some secret jest that only he was privy to; Catelyn had never liked it.  -  Catelyn Stark
