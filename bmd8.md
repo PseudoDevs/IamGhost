@@ -1,2 +1,2 @@
-Last updated: 2024-04-12 04:53:42
-Random Quote: It is R'hllor who brings you back, my lord.  The Lord of Light.  I am only his instrument.  -  Thoros of Myr
+Last updated: 2024-04-12 04:54:16
+Random Quote: That's where The Boys come in: Spank the bastards when they get out of line. - Billy Butcher
