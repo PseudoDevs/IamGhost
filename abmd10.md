@@ -1,2 +1,2 @@
-Last updated: 2024-04-12 05:02:37
-Random Quote: For the night is dark and full of terrors.  -  Words of R'hllor
+Last updated: 2024-04-12 05:03:10
+Random Quote: Free folk don't follow names, or little cloth animals sewn on a tunic.  They won't dance for coins, they don't care how you style yourself or what that chain of office means or who your grandsire was.  They follow strength.  They follow the man.  -  Mance Rayder
