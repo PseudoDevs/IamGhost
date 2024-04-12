@@ -1,2 +1,2 @@
-Last updated: 2024-04-12 05:10:34
-Random Quote: Barney: "Tell me more. Tell me more. Like did he have a car?"Marshall: "So is he the guy who... how shall I say this like a gentleman? Robin, did he take your maple leaf?"Barney: "Sounds to me like he gave you your first 'O Canada' face!" - Barney Stinson
+Last updated: 2024-04-12 05:11:40
+Random Quote: Ted: "Our point guard's a 52-year-old virgin, happy as a clam."Barney: "I'm sure he's quite a ball handler." - Barney Stinson
