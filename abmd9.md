@@ -1,2 +1,2 @@
-Last updated: 2024-04-12 06:31:57
-Random Quote: Rhaegar fought valiantly, Rhaegar fought nobly, and Rhaegar died.  -  Jorah Mormont
+Last updated: 2024-04-12 06:32:29
+Random Quote: In all the world, violent men are the easiest to deal with. - Irene O'Donnell
