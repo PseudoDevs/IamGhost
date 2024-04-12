@@ -1,2 +1,2 @@
-Last updated: 2024-04-12 04:57:33
-Random Quote: Never give power to the big man. - Alfie Solomons
+Last updated: 2024-04-12 04:58:06
+Random Quote: You must be blind as well as maimed, Set.  Lift your eyes, and you will see the direwolf still flies above our walls.  -  Brynden Tully
