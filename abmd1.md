@@ -1,2 +1,2 @@
-Last updated: 2024-04-12 07:21:51
-Random Quote: The men of Westeros are ever rushing.  What good is this, I ask you?  He who hurries through life hurries to his grave.  -  Salladhor Saan
+Last updated: 2024-04-12 07:22:25
+Random Quote: Ramsay.  Snow, my wife called me before she ate her fingers, but I say Bolton.  -  Ramsay Bolton

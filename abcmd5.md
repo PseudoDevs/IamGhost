@@ -1,2 +1,2 @@
-Last updated: 2024-04-12 07:21:51
-Random Quote: If we miss Hawaii because of this, guess who's not doing "The Disappearing Salami" anytime soon? - Quinn Garvey
+Last updated: 2024-04-12 07:22:25
+Random Quote: Knights?  Dondarrion's a knight, but the rest of you are the sorriest lot of outlaws and broken men I've ever seen.  -  Sandor Clegane
