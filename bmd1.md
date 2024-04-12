@@ -1,2 +1,2 @@
-Last updated: 2024-04-12 06:35:19
-Random Quote: In this fall - this is tough. In this fall I'm going to take my talents to Mouth Beach. - Barney Stinson
+Last updated: 2024-04-12 06:35:55
+Random Quote: Quentyn had never felt so much a boy as when he'd stood before Daenerys Targaryen, pleading for her hand.  The thought of bedding her terrified him almost as much as her dragons had.  -  Quentyn Martell
