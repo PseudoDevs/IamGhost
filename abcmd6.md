@@ -1,2 +1,2 @@
-Last updated: 2024-04-12 06:45:32
-Random Quote: When one chooses to walk the way of the Mandalore, you are both hunter and prey. How can one be a coward if one chooses this way of life? - The Armorer
+Last updated: 2024-04-12 06:46:11
+Random Quote: Your heart's talking to you, Barney. Do you have the guts to listen to it? - Lily Aldrin
