@@ -1,2 +1,3 @@
-Last updated: 2024-04-12 05:15:12
-Random Quote: She's gotta start working on tightening her pussy muscles, 'cause her fiance's dick is so small, it's like a hot dog in a hallway. - Nicky Nichols
+Last updated: 2024-04-12 05:15:45
+Random Quote: Summer: "I think it's in our best interest to work as a team."
+Morty: "Yeah, most people would call that 'family'." - Morty Smith
