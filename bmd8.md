@@ -1,2 +1,2 @@
-Last updated: 2024-04-12 05:06:13
-Random Quote: All religion is a foolish answer to a foolish question. - Thomas Shelby
+Last updated: 2024-04-12 05:06:46
+Random Quote: Everyone wants something, Alayne.  And when you know what a man wants you know who he is, and how to move him.  -  Petyr Baelish
