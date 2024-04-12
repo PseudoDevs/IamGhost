@@ -1,2 +1,2 @@
-Last updated: 2024-04-12 07:15:22
-Random Quote: You don't bring a date to a wedding, that's like taking a deer carcass on a hunting trip. - Barney Stinson
+Last updated: 2024-04-12 07:15:55
+Random Quote: It's easier when you're a kid anyway. You don't have anybody else relying on you. That's the hardest part. - Joel Miller
