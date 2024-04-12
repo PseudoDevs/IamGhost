@@ -1,2 +1,4 @@
-Last updated: 2024-04-12 05:36:43
-Random Quote: Come on, baby, do the magic hand thing! - Greef Karga
+Last updated: 2024-04-12 05:37:16
+Random Quote: Joel: "You keep going for family."
+Ellie: "I'm not family?"
+Joel: "No. You're cargo." - Joel Miller
