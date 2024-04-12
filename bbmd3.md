@@ -1,2 +1,2 @@
-Last updated: 2024-04-12 05:23:24
-Random Quote: The Red God has his due, sweet girl, and only death may pay for life.  This girl took three that were his.  This girl must give three in their places.  Speak the names, and a man will do the rest.  -  Jaqen H'ghar
+Last updated: 2024-04-12 05:23:58
+Random Quote: Balon was mad, Aeron is madder, and Euron is maddest of them all.  -  Baelor Blacktyde
