@@ -1,2 +1,2 @@
-Last updated: 2024-04-12 07:00:36
-Random Quote: That everything’s repeating That this has all happened before Like a massive déjĂ  Vu - 
+Last updated: 2024-04-12 07:01:10
+Random Quote: The Red God has his due, sweet girl, and only death may pay for life.  This girl took three that were his.  This girl must give three in their places.  Speak the names, and a man will do the rest.  -  Jaqen H'ghar
