@@ -1,2 +1,2 @@
-Last updated: 2024-04-12 05:13:01
-Random Quote: Marshall: "Excuse me, miss. When you get a chance, could you bring over a hundred shots of tequila please?"Barney: "I'll have the same." - Marshall Eriksen
+Last updated: 2024-04-12 05:13:34
+Random Quote: Name one thing in this world that is non negotiable. - Walter White
