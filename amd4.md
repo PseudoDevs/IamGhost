@@ -1,2 +1,2 @@
-Last updated: 2024-04-12 06:44:07
-Random Quote: The truth can free you, if you let it. - Hannah Baker
+Last updated: 2024-04-12 06:44:42
+Random Quote: Once, she had loved Prince Joffrey with all her heart, and admired and trusted his mother, the queen.  They had repaid that love and trust with her father's head.  Sansa would never make that mistake again.  -  Sansa Stark
