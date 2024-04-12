@@ -1,2 +1,6 @@
-Last updated: 2024-04-12 05:43:37
-Random Quote: No matter how tough things get, children always turn out okay. - Berlin
+Last updated: 2024-04-12 05:44:11
+Random Quote: Morty: "Rick, when you say you made an exact replica of the house, did you mean, like, an exact replica?"
+Rick: "I know about the Yosemite T-Shirt, Morty."
+Morty: "Shit."
+Rick: "You know you can use tissues, right?"
+Morty: "I can't finish without it!" - Morty Smith
