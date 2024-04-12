@@ -1,2 +1,2 @@
-Last updated: 2024-04-12 05:23:01
-Random Quote: Dude, ditch Tiffany and join the Barnacle in the Pharma-Girl-Free-For-All. Side effects may include: loss of clothing, rug burns, shortness of breath and soar abdominals the next morning. What in the world is up! - Barney Stinson
+Last updated: 2024-04-12 05:24:08
+Random Quote: Because they are the knights of summer, and winter is coming.  -  Catelyn Stark
