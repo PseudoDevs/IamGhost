@@ -1,2 +1,2 @@
-Last updated: 2024-04-12 05:33:37
-Random Quote: Nick: "So, I went to this fortune teller today and she said there was a curse on me."Robin: "Did she sell you something to ward off the curse?"Nick: "It's like you're a fortune teller, too." - Nick
+Last updated: 2024-04-12 05:34:10
+Random Quote: I watched Jane die. I was there. And I watched her die. - Walter White
