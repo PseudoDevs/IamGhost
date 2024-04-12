@@ -1,2 +1,2 @@
-Last updated: 2024-04-12 05:43:11
-Random Quote: Past a certain point, all the dates grow hazy and confused, and the clarity of history becomes the fog of legend.  -  Hoster Blackwood
+Last updated: 2024-04-12 05:43:44
+Random Quote: Wylla.  Did you see how brave she was.  Even when I threatened to have her tongue out, she reminded me of the debt White Harbor owes to the Starks of Winterfell, a debt that can never be repaid.  Wylla spoke from the heart... not every woman can be as brave as my Wylla.  -  Wyman Manderly
