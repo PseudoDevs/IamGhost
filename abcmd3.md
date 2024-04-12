@@ -1,2 +1,2 @@
-Last updated: 2024-04-12 05:30:58
-Random Quote: You are slow to learn, Lord Eddard.  Distrusting me was the wisest thing you've don since you climbed down off your horse.  -  Petyr Baelish
+Last updated: 2024-04-12 05:31:32
+Random Quote: I dreamed of the man who came today, the one they call Reek.  You and your brother lay dead at his feet, and he was skinning off your faces with a long red blade.  -  Jojen Reed
