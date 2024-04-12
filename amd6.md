@@ -1,2 +1,2 @@
-Last updated: 2024-04-12 05:39:40
-Random Quote: Nick: "So, I went to this fortune teller today and she said there was a curse on me."Robin: "Did she sell you something to ward off the curse?"Nick: "It's like you're a fortune teller, too." - Nick
+Last updated: 2024-04-12 05:41:53
+Random Quote: You wanna know what line doesn't work on a harp player? "Hey baby, wanna pluck?" - Barney Stinson
