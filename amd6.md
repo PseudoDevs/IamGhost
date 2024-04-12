@@ -1,2 +1,2 @@
-Last updated: 2024-04-12 05:16:52
-Random Quote: The men of Westeros are ever rushing.  What good is this, I ask you?  He who hurries through life hurries to his grave.  -  Salladhor Saan
+Last updated: 2024-04-12 05:17:26
+Random Quote: If we're together long enough I hope that one day you see yourself like I do. - Kevin
