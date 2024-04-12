@@ -1,2 +1,2 @@
-Last updated: 2024-04-12 04:59:02
-Random Quote: I knew quite a few Jedi, you know. I don't know what they taught you about us, but there was a time we actually got along quite well. Fought side by side. - Bo-Katan
+Last updated: 2024-04-12 04:59:35
+Random Quote: Tormund Giantsbane seemed to me the sort of man who would make a good friend and a bad enemy, your Grace.  -  Jon Snow
