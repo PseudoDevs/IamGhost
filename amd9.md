@@ -1,2 +1,2 @@
-Last updated: 2024-04-12 04:59:07
-Random Quote: Some of you cared. None of you cared enough. - Hannah Baker
+Last updated: 2024-04-12 04:59:40
+Random Quote: It's not Aerys I rue, it's Robert... Why is it no one names Robert oathbreaker?  He tore the realm apart, yet I am the one with shit for honor.  -  Jaime Lannister
