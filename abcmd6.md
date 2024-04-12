@@ -1,2 +1,2 @@
-Last updated: 2024-04-12 06:51:23
-Random Quote: From this day forth, you will not call yourself a craven.  You've faced more things this past year than most men face in a lifetime.  You can face the Citadel, but you'll face it as a Sworn Brother of the Night's Watch.  I can't command you to be brave, but I can command you to hide your fears.  -  Jon Snow
+Last updated: 2024-04-12 06:51:58
+Random Quote: Marshall: "Robin, I need you to delete the last text that Lily got before she sees it."Robin: "Bro, it's my wedding weekend. Just because you didn't know better than to take a naked selfie while you were in the coldest part of the country..."Marshall: "...first, I'm an Eriksen. Cold has a plumping effect." - Marshall Eriksen
