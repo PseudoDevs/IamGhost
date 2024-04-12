@@ -1,2 +1,2 @@
-Last updated: 2024-04-12 07:08:22
-Random Quote: More beast than boy, that one, puffed up with pride and bloodlust... Robb Stark betrayed us all.  He abandoned the north to the cruel mercies of the ironmen to carve out a fairer kingdom for himself along the Trident.  Then he abandoned the riverlords who had risked much and more for him, breaking his marriage pact with my grandfather to wed the first western wench who caught his eye.  The Young Wolf?  He was a vile dog and died like one.  -  Rhaegar Frey
+Last updated: 2024-04-12 07:08:56
+Random Quote: If you don’t know who I am, then maybe your best course would be to tread lightly. - Walter White
