@@ -1,2 +1,2 @@
-Last updated: 2024-04-12 05:37:13
-Random Quote: Why should I go running to my aunt as if I were a beggar?  My claim is better than her own.  Let her come to me... in Westeros.  -  Aegon Targaryen
+Last updated: 2024-04-12 05:37:46
+Random Quote: If you die before you say her name, Set, I will hunt you through the seven hells.  -  Oberyn Martell
