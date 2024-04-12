@@ -1,2 +1,2 @@
-Last updated: 2024-04-12 07:17:21
-Random Quote: Did the boy charm you?  He has that gift.  He got it from his father, with the blood.  He knows he is a king's son, but chooses to forget that he is bastard - born. 
+Last updated: 2024-04-12 07:17:55
+Random Quote: I'm KFC baby - you don't mess with the Colonel's recipe! - Barney Stinson
