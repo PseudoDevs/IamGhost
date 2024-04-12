@@ -1,2 +1,2 @@
-Last updated: 2024-04-12 05:24:40
-Random Quote: You want to dismantle an empire? Divide it! - Guillermo Gonzalez Calderoni
+Last updated: 2024-04-12 05:25:14
+Random Quote: You were supposed to be my wife, to bear me children with silver hair and purple eyes, to keep the blood of the dragon pure.  I took care of you.  I taught you who you were.  I fed you.  I sold our mother's crown to keep you fed.  -  Viserys Targaryen
