@@ -1,3 +1,2 @@
-Last updated: 2024-04-12 06:08:17
-Random Quote: Dragon: "My name is Balthromaw. Breaker of skies, slayer of mountain."
-Rick: "Rule 1: You're now scooper of your own poops, or I will take you down like the black-light poster you are." - Rick Sanchez
+Last updated: 2024-04-12 06:09:23
+Random Quote: I don't know what kind of fed up sht you got going inside of your head. I don't know how to help, but I could tell you one thing: This drug sht - it's not the answer. - Fezco
