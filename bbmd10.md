@@ -1,2 +1,2 @@
-Last updated: 2024-04-12 05:53:30
-Random Quote: I don't need to be good at Math, I have beautiful hair. - Missy
+Last updated: 2024-04-12 05:54:45
+Random Quote: Marshall: "The last time I lived this far from him, was my semester abroad."Lily: "You never did a semester abroad?"Marshall: "That's what I called it, when we lived on opposite sides of the campus." - Marshall Eriksen
