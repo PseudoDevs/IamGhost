@@ -1,2 +1,4 @@
-Last updated: 2024-04-12 06:49:45
-Random Quote: Baby, can we grow sandwiches behind the garage? - Marshall Eriksen
+Last updated: 2024-04-12 06:50:20
+Random Quote: Ellie: "Can I have a gun?"
+Joel: "Absolutely not."
+Ellie: "Okay, Jesus. Fine. I'll have to throw a f-ckin' sandwich at them." - Ellie Williams
