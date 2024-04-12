@@ -1,2 +1,2 @@
-Last updated: 2024-04-12 05:46:44
-Random Quote: Once a horse is broken to the saddle, any man can mount him.  Once a beast's been joined to a man, any skinchanger can slip inside and ride him.  Orell was withering inside his feathers, so I took the eagle for my own.  But the joining works both ways, warg.  Orell lives inside me now, whispering how much he hates you.  And I can soar above the Wall, and see with eagle eyes.  -  Varamyr Sixskins
+Last updated: 2024-04-12 05:47:18
+Random Quote: Oh, boy, so you actually learned something today? What is this, Full House? - Rick Sanchez
