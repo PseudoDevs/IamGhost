@@ -1,5 +1,2 @@
-Last updated: 2024-04-12 07:10:24
-Random Quote: John Flynn: "Rogers, get in there!"
-Peggy Carter: "He can't."
-John Flynn: "Stark, you go in!"
-Howard Stark: "What? Are you crazy? I push the buttons. I'm the buttons guy." - Howard Stark
+Last updated: 2024-04-12 07:11:05
+Random Quote: So that's it? A couple of white Urkels offer you sausages and you're gone? - Robin Scherbatsky
