@@ -1,2 +1,2 @@
-Last updated: 2024-04-12 06:33:35
-Random Quote: God. It's me, Barney. What up? I know we don't talk much, but I know a lot of girls call out your name because of me. Awesome! - Barney Stinson
+Last updated: 2024-04-12 06:34:10
+Random Quote: You will never walk again... but you will fly.  -  Bloodraven
