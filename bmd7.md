@@ -1,2 +1,2 @@
-Last updated: 2024-04-12 04:58:06
-Random Quote: You must be blind as well as maimed, Set.  Lift your eyes, and you will see the direwolf still flies above our walls.  -  Brynden Tully
+Last updated: 2024-04-12 04:58:40
+Random Quote: There have always been men who found it easier to speak vows than to keep them.  -  Arys Oakheart
