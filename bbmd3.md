@@ -1,2 +1,2 @@
-Last updated: 2024-04-12 05:47:44
-Random Quote: Oh man, I am so excited that you're here! It has been forever since I have been around anyone even remotely fun![to Lily, Robin, Ted and Marshall] Huh... yes, offense! - Barney Stinson
+Last updated: 2024-04-12 05:49:39
+Random Quote: Until the Mountain crushed my brother's skull, no Dornishmen had died in this War of the Five Kings.  Tell me, Captain, is that my shame or my glory?  -  Doran Martell
