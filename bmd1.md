@@ -1,2 +1,2 @@
-Last updated: 2024-04-12 07:12:27
-Random Quote: Ted, I believe you and I met for a reason. It's like the universe was saying: "Hey Barney, there's this dude, he's pretty cool, but it's your job to make him awesome." - Barney Stinson
+Last updated: 2024-04-12 07:13:05
+Random Quote: Minds are like swords, I do fear.  The old ones go to rust.  -  Grand Maester Pycelle
