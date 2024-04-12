@@ -1,2 +1,2 @@
-Last updated: 2024-04-12 05:38:23
-Random Quote: Elia Martell, Princess of Dorne.  You raped her!  You murdered her!  You killed her children!  -  Oberyn Martell
+Last updated: 2024-04-12 05:38:56
+Random Quote: Are you aware, that breaking a broath can have deadly- even fatal repercussions? - Barney Stinson
