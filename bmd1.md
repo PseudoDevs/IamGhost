@@ -1,6 +1,2 @@
-Last updated: 2024-04-12 06:43:58
-Random Quote: Rick: "Just do a Die Hard!"
-Summer: "What does that mean?"
-Rick: "Sneak around! Use air vents! You've never seen Die Hard?"
-Summer: "I'm 17. No, I've never seen Die Hard."
-Rick: "Well, neither did the guy in Die Hard." - Rick Sanchez
+Last updated: 2024-04-12 06:44:33
+Random Quote: You could turn King's Landing upside down and not find a single man with a mockingbird sewn over his heart but that does not mean I am friendless.  -  Petyr Baelish
