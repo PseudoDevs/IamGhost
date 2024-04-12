@@ -1,2 +1,2 @@
-Last updated: 2024-04-12 05:00:12
-Random Quote: Dead people are notoriously bad at returning calls. - Wednesday Addams
+Last updated: 2024-04-12 05:00:46
+Random Quote: Catelyn would sooner Lord Umber had seen fit to stay sober, but telling the Greatjon not to drink was like telling him not to breathe for a few hours.  -  Catelyn Stark
