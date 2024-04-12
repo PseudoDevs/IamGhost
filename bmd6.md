@@ -1,2 +1,2 @@
-Last updated: 2024-04-12 07:02:50
-Random Quote: If you don't make it back, there's one thing that I need to tell you... - Klaus Hargreeves
+Last updated: 2024-04-12 07:03:23
+Random Quote: Lord Pea Pod.  If you were a man, I would kill you for that, but my sword is made of too fine a steel to besmirch with craven's blood.  Aye, men are dying.  More will die before we see Winterfell.  What of it?  This is war.  Men die in war.  That is as it should be.  As it has always been.  -  Hugo Wull
