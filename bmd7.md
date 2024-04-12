@@ -1,2 +1,2 @@
-Last updated: 2024-04-12 07:19:15
-Random Quote: New York! Home of the Mets, the Chrysler Building, those ladies from Sex and the City and now, the zombie apocalypse. If you can make it here, you can make it anywhere - but first, you have to not get eaten. - Spider-Man
+Last updated: 2024-04-12 07:19:49
+Random Quote: Grief never gets any smaller, so you have to make yourself bigger around it. The best way to do that is to open up. Let people in. - Rendell Locke
