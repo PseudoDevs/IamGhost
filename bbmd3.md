@@ -1,2 +1,2 @@
-Last updated: 2024-04-12 07:10:41
-Random Quote: Never forget what you are, for surely the world will not.  Make it your strength.  Then it can never be your weakness.  Armor yourself in it, and it will never be used to hurt you.  -  Tyrion Lannister
+Last updated: 2024-04-12 07:11:17
+Random Quote: There is a time to fight and there is a time to be clever. - Pablo Escobar
