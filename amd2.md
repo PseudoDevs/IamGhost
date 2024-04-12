@@ -1,2 +1,2 @@
-Last updated: 2024-04-12 07:00:15
-Random Quote: Nancy Wheeler: "You're supposed to hit the cans, right?"Jonathan Byers: "No, actually - you see the spaces in between the cans? I'm aiming for those." - Jonathan Byers
+Last updated: 2024-04-12 07:00:48
+Random Quote: I hate it when you talk sometimes. No... all the time. - Nicky Nichols
