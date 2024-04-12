@@ -1,2 +1,4 @@
-Last updated: 2024-04-12 07:26:21
-Random Quote: The world was full of cravens who pretended to be heroes; it took a queer sort of courage to admit to cowardice as Samwell Tarly had.  -  Jon Snow
+Last updated: 2024-04-12 07:26:55
+Random Quote: Joel: "You keep going for family."
+Ellie: "I'm not family?"
+Joel: "No. You're cargo." - Joel Miller
