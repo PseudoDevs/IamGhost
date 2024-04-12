@@ -1,3 +1,2 @@
-Last updated: 2024-04-12 04:56:56
-Random Quote: Morticia: "That boy's family was going to file attempted murder charges. How would that have looked on your record?"
-Wednesday: "Terrible. Everyone would know I failed to get the job done." - Wednesday Addams
+Last updated: 2024-04-12 04:57:30
+Random Quote: In all the world, violent men are the easiest to deal with. - Irene O'Donnell
