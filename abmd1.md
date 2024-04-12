@@ -1,2 +1,2 @@
-Last updated: 2024-04-12 05:25:14
-Random Quote: You were supposed to be my wife, to bear me children with silver hair and purple eyes, to keep the blood of the dragon pure.  I took care of you.  I taught you who you were.  I fed you.  I sold our mother's crown to keep you fed.  -  Viserys Targaryen
+Last updated: 2024-04-12 05:25:47
+Random Quote: When you play the game of thrones, you win or you die.  There is no middle ground.  -  Cersei Lannister
