@@ -1,2 +1,2 @@
-Last updated: 2024-04-12 04:59:11
-Random Quote: I will put you under the jail. - Hank Schrader
+Last updated: 2024-04-12 04:59:45
+Random Quote: Pennsatucky: "It weren't my fault. I was just doing as the Spirit commanded."Pussey: "Fuck are you? Joan of Arc?"Pennsatucky: "No, I'm from Waynesboro, my name is Tiffany..." - Tiffany 'Pennsatucky' Doggett
