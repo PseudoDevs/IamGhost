@@ -1,2 +1,2 @@
-Last updated: 2024-04-12 07:02:16
-Random Quote: I dreamed of the man who came today, the one they call Reek.  You and your brother lay dead at his feet, and he was skinning off your faces with a long red blade.  -  Jojen Reed
+Last updated: 2024-04-12 07:02:50
+Random Quote: If you don't make it back, there's one thing that I need to tell you... - Klaus Hargreeves
