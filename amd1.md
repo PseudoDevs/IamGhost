@@ -1,3 +1,2 @@
-Last updated: 2024-04-12 05:16:19
-Random Quote: Freddie: "You think I can't handle Tommy Shelby?"
-Polly: "You can't. I am having trouble these days and I'm twice the man you are." - Polly Gray
+Last updated: 2024-04-12 05:16:53
+Random Quote: The end of a rope has been this man's destiny since the night he was born. - Chester Campbell
