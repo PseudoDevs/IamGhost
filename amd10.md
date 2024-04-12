@@ -1,2 +1,2 @@
-Last updated: 2024-04-12 06:41:16
-Random Quote: When I look at something, I don't see it for what it is, I see it for what it could be. When I look at something, I see how it ends. - Miguel Angel Felix Gallardo
+Last updated: 2024-04-12 06:42:24
+Random Quote: Lord Wyman is not the only one who lost kin at your Red Wedding, Frey.  Do you imagine Whoresbane loves you any better?  If you did not hold the Greatjon, he would pull out your entrails and make you eat them, as Lady Hornwood ate her fingers.  Flints, Cerwyns, Tallharts, Slates... they all had men with the Young Wolf.  The North remembers, Frey.  -  Barbrey Dustin
