@@ -1,2 +1,3 @@
-Last updated: 2024-04-12 07:05:56
-Random Quote: Many years later, my brother would use the same argument in front of a judge. He was still convicted for urinating in a phone booth. - Sheldon Cooper
+Last updated: 2024-04-12 07:06:30
+Random Quote: Jang Deok-su: "Tell me what you're good at?"
+Han Mi-nyeo: "Everything, except the things I can't do." - Oh Il-nam
