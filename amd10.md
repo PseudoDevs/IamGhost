@@ -1,2 +1,3 @@
-Last updated: 2024-04-12 07:11:10
-Random Quote: She really had a fat but: her fat butt! - Barney Stinson
+Last updated: 2024-04-12 07:11:44
+Random Quote: May: "May Carleton. I breed racehorses and train them. What is it you do?"
+Thommy: "I rarely answer questions is what I do." - Thomas Shelby
