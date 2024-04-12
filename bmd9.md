@@ -1,2 +1,3 @@
-Last updated: 2024-04-12 06:05:34
-Random Quote: Lord Varys, sometimes I feel as though you are the best friend I have in King's Landing and sometimes I feel you are my worst enemy.  -  Tyrion Lannister
+Last updated: 2024-04-12 06:06:09
+Random Quote: What did the frustrated cannibal do?
+He threw up his hands. - Will Livingston
