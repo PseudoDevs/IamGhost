@@ -1,2 +1,2 @@
-Last updated: 2024-04-12 06:58:44
-Random Quote: When the snows fall and the white winds blow, the lone wolf dies, but the pack survives.  -  Eddard Stark
+Last updated: 2024-04-12 06:59:26
+Random Quote: Young or old, a true knight is sworn to protect those who are weaker than himself, or die in the attempt.  -  Brienne of Tarth
