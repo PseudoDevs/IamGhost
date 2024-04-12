@@ -1,2 +1,3 @@
-Last updated: 2024-04-12 06:44:06
-Random Quote: I know you mean well. I know you wanna protect me. You have. And when we're done, we'll go wherever you want. Tommy's, sheep ranch, the moon... I'll follow you anywhere you go. But there's no halfway with this. We finish what we started. - Ellie Williams
+Last updated: 2024-04-12 06:44:40
+Random Quote: Sam: "How do you know about Gandalf?"
+Bucky: "I read 'The Hobbit' in 1937, when it first came out." - Bucky Barnes
