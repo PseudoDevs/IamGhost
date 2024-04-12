@@ -1,2 +1,3 @@
-Last updated: 2024-04-12 07:15:39
-Random Quote: Either get out early, or you get out too late. - Pacho Herrera
+Last updated: 2024-04-12 07:16:13
+Random Quote: Jang Deok-su: "Tell me what you're good at?"
+Han Mi-nyeo: "Everything, except the things I can't do." - Oh Il-nam
