@@ -1,2 +1,4 @@
-Last updated: 2024-04-12 06:36:33
-Random Quote: Ted: "You're like Mary Poppins, if her magic purse was also filled with drugs."Robin: "If? Ted, the kids in that movie jumped into a painting and spent 15 minutes chasing a cartoon fox. Spoonful of sugar? Grow Up!" - Robin Scherbatsky
+Last updated: 2024-04-12 06:37:08
+Random Quote: Jimmy: "I can't believe Wanda and Vision are having a baby."
+Darcy Lewis: "You want any?"
+Jimmy: "Heck, I thought about it for sure. A little Jimmy Woo. Get him a tiny little FBI badge... oh, you... chip? Sure." - Jimmy Woo
