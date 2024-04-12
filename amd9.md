@@ -1,2 +1,2 @@
-Last updated: 2024-04-12 05:30:20
-Random Quote: Robert wanted smiles and cheers, always, so he went where he found them, to his friends and his whores.  Robert wanted to be loved.  My brother Tyrion has the same disease.  -  Cersei Lannister
+Last updated: 2024-04-12 05:31:27
+Random Quote: It's the greatest samurai, who lets his sword rust in its scabbard. - Barney Stinson

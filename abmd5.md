@@ -1,3 +1,2 @@
-Last updated: 2024-04-12 05:30:20
-Random Quote: Kids, you can't talk yourself into falling in love. It doesn't take days of deliberation. When it's real, you know pretty quickly and with absolute certainty.
-I had forgotten that, but I was about to be reminded... - Ted Mosby
+Last updated: 2024-04-12 05:31:27
+Random Quote: Who do you think killed all the dragons the last time around?  Gallant dragonslayers armed with swords?  The world the Citadel is building has no place in it for sorcery or prophecy or glass candles, much less for dragons.  Ask yourself why Aemon Targaryen was allowed to waste his life upon the Wall, when by rights he should have been raised to archmaester.  His blood was why.  He could not be trusted.  No more than I can.  -  Archmaester Marwyn
