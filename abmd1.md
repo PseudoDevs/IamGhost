@@ -1,2 +1,2 @@
-Last updated: 2024-04-12 06:04:25
-Random Quote: Robin: "He has a book of plays he uses to trick women into sleeping with him."Patrice: "Oh, no way. Barney's my honey bear."Robin: "Actually, one of his plays is called 'The Honey Bear'. He dresses up like Winnie the Pooh, and the next thing you know, his hand's stuck in your pot." - Robin Scherbatsky
+Last updated: 2024-04-12 06:05:35
+Random Quote: If we're together long enough I hope that one day you see yourself like I do. - Kevin
