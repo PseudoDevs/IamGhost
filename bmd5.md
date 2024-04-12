@@ -1,2 +1,2 @@
-Last updated: 2024-04-12 06:09:42
-Random Quote: You ought to have no trouble catching our uncles.  One is drunk on seawater, after all, and the other is a great grey bullock so dim he'll probably get lost.  -  Asha Greyjoy
+Last updated: 2024-04-12 06:10:17
+Random Quote: A good lord comforts and protects the weak and helpless.  -  Maester Luwin
