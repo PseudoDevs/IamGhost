@@ -1,2 +1,2 @@
-Last updated: 2024-04-12 07:17:09
-Random Quote: I'm missing half my zucchini. These girls don't realize I'm here to provide food, not dildos. - Galina 'Red' Reznikov
+Last updated: 2024-04-12 07:17:51
+Random Quote: You are slow to learn, Lord Eddard.  Distrusting me was the wisest thing you've don since you climbed down off your horse.  -  Petyr Baelish
