@@ -1,2 +1,2 @@
-Last updated: 2024-04-12 06:14:21
-Random Quote: Roose Bolton's cold and cunning, aye, but a man can deal with Roose.  We've all known worse.  But this bastard son of his... they say he's mad and cruel, a monster.  -  Locke
+Last updated: 2024-04-12 06:16:08
+Random Quote: It's not like anyone's 100% straight or 100% gay. - Maddy Perez
