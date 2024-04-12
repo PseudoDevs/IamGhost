@@ -1,2 +1,2 @@
-Last updated: 2024-04-12 06:00:12
-Random Quote: Have you seen Mace Tyrell's boy?  The Knight of Flowers, they call him.  Now there's a son any man would be proud to own to.  Last tourney, he dumped the Kingslayer on his golden rump, you ought to have seen the look on Cersei's face.  I laughed till my sides hurt.  -  Robert Baratheon
+Last updated: 2024-04-12 06:01:25
+Random Quote: I've heard so many stories about me now that I don't know which one is the most popular. But I do know which is the least popular: the truth. - Hannah Baker
