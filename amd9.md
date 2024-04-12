@@ -1,2 +1,2 @@
-Last updated: 2024-04-12 04:54:34
-Random Quote: In his chainmail shirt with a sword in his hand, Gendry looked almost a man grown, and dangerous.  Hot Pie looked like Hot Pie.  -  Arya Stark
+Last updated: 2024-04-12 04:55:08
+Random Quote: There is no stronger bond than that of the family you choose. - Miguel Angel Felix Gallardo
