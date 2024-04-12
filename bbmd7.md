@@ -1,2 +1,2 @@
-Last updated: 2024-04-12 06:37:33
-Random Quote: Ted: "When you leave someone at the altar, you always leave a note. It's common courtesy."Victoria: "I think common courtesy went out the window when I did." - Victoria
+Last updated: 2024-04-12 06:38:15
+Random Quote: Bulls are strong.  Bears.  I have seen my bastard fight.  He is not entirely to blame.  Reek was his tutor, the first Reek, and Reek was never trained at arms.  Ramsay is ferocious, I will grant you, but he swings that sword like a butcher hacking meat.  -  Roose Bolton
