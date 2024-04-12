@@ -1,2 +1,2 @@
-Last updated: 2024-04-12 05:09:04
-Random Quote: There is no creature on earth half so terrifying as a truly just man.  -  Varys
+Last updated: 2024-04-12 05:10:12
+Random Quote: The Lion does not concern itself with the opinions of sheep.  -  Tywin Lannister
