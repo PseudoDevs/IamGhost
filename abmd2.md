@@ -1,2 +1,3 @@
-Last updated: 2024-04-12 05:02:26
-Random Quote: Barney: "Check it out, I made a little game."Lottery Girl: "And tonight's lotto numbers are: 19..."Barney: "...age you moved to New York after a photographer 'discovered' you at a food court and said he would get you into Vogue Magazine."Lotto Girl: "53..."Barney: "...number of semi-nude pictures he took of you before you realized he had no connection to Vogue Magazine."Lotto Girl: "22..."Barney: "...age you claim you are."Lotto Girl: "31..."Barney: "...age you actually are."Lotto Girl: "45..."Barney: "...number of minutes it would take me to get you into a cab, out of your dress and into my Jacuzzi."Lotto Girl: "And tonight's Super Big Ball is..."Barney: "...what happens after we get out of the Jacuzzi. What Up?!" - Barney Stinson
+Last updated: 2024-04-12 05:02:59
+Random Quote: Sam: "How do you know about Gandalf?"
+Bucky: "I read 'The Hobbit' in 1937, when it first came out." - Bucky Barnes
