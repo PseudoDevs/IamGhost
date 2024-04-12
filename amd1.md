@@ -1,2 +1,2 @@
-Last updated: 2024-04-12 05:13:34
-Random Quote: Name one thing in this world that is non negotiable. - Walter White
+Last updated: 2024-04-12 05:14:07
+Random Quote: New York! Home of the Mets, the Chrysler Building, those ladies from Sex and the City and now, the zombie apocalypse. If you can make it here, you can make it anywhere - but first, you have to not get eaten. - Spider-Man
