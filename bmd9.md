@@ -1,2 +1,2 @@
-Last updated: 2024-04-12 05:21:12
-Random Quote: Barney: "I am so sorry, Cornelius. You deserve a better end than this."Lily: "You got ketchup on a red tie, you can't even see it!" - Lily Aldrin
+Last updated: 2024-04-12 05:21:45
+Random Quote: Robert could piss in a cup and men would call it wine, but I offer them cold clear water and they squint in suspicion and mutter to each other about how queer it tastes.  -  Stannis Baratheon
