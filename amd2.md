@@ -1,3 +1,2 @@
-Last updated: 2024-04-12 06:49:44
-Random Quote: Tommy: "I'll have some men watch her house 'til the danger passes."
-Polly: "'Til the danger passes. That'll be the bloody day." - Polly Gray
+Last updated: 2024-04-12 06:50:19
+Random Quote: I think my soul just threw up a little bit. - Lily Aldrin
