@@ -1,3 +1,2 @@
-Last updated: 2024-04-12 06:29:49
-Random Quote: Planetina: "Your acid rain is an acid pain... in the butt, Diesel Wiesel!"
-Rick: "Yikes! Who's the chick in need of a dialogue pass?" - Rick Sanchez
+Last updated: 2024-04-12 06:30:22
+Random Quote: People say Hawkins is cursed. They're not way off. - Dustin Henderson
