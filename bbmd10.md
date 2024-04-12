@@ -1,2 +1,2 @@
-Last updated: 2024-04-12 05:41:23
-Random Quote: You Westerosi are all the same.  You sew some beast upon a scrap of silk, and suddenly you are all lions or dragons or eagles.  -  Illyrio Mopatis
+Last updated: 2024-04-12 05:41:57
+Random Quote: You don't get to blame your problems on anyone but yourself. - Allison Hargreeves
