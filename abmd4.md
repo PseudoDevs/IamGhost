@@ -1,2 +1,2 @@
-Last updated: 2024-04-12 05:08:35
-Random Quote: By what right does the wolf judge the lion?  -  Jaime Lannister
+Last updated: 2024-04-12 05:09:09
+Random Quote: They are children, Sansa thought.  They are silly little girls, even Elinor.  They've never seen a battle, they've never seen a man die, they know nothing.  Their dreams were full of songs and stories, the way hers had been before Joffrey cut her father's head off.  Sansa pitied them.  Sansa envied them.  -  Sansa Stark
