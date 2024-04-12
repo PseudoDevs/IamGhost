@@ -1,2 +1,4 @@
-Last updated: 2024-04-12 06:57:53
-Random Quote: Run the montage of people who died this year until I get back and add Sandy, because when I find him, I'm gonna kill him. - Robin Scherbatsky
+Last updated: 2024-04-12 06:58:58
+Random Quote: Rick: "F you, Summer! And f the government. And f me for letting my car down, which I will never do again."
+Morty: "Jeez, Rick. You can't say FU to your grand-daughter!"
+Rick: "I just did, Morty. Here's dessert: F you!" - Rick Sanchez
