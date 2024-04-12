@@ -1,2 +1,2 @@
-Last updated: 2024-04-12 06:41:36
-Random Quote: You want to rule?  This is what ruling is; lying on a bed of weeds, ripping them out by the root, one by one, before they strangle you in your sleep.  -  Cersei Lannister
+Last updated: 2024-04-12 06:42:16
+Random Quote: I swear on my name. And the names of the Ancestors, that I shall walk the way of the Mand'alor and the words of the Creed shall be forever forged in my heart. - Din Djarin
