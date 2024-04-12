@@ -1,2 +1,2 @@
-Last updated: 2024-04-12 04:57:22
-Random Quote: Lily: "How did you do it?"Barney: "Oh God, you found one of the cameras. I swear that's the only one! Wait, which one did you find?" - Barney Stinson
+Last updated: 2024-04-12 05:00:44
+Random Quote: I know this hurts little buddy, but you'll love again someday. Because time will heal a broken heart, but not that bitch's window. - Barney Stinson
