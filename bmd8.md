@@ -1,2 +1,2 @@
-Last updated: 2024-04-12 06:56:46
-Random Quote: When the sun rises in the west and sets in the east.  When the seas go dry and mountains blow in the wind like leaves.  When your womb quickens again, and you bear a living child.  Then he will return, and not before.  -  Mirri Maz Duur
+Last updated: 2024-04-12 06:57:19
+Random Quote: The most important moments are the ones that make you realize there’s no turning back. You’ve crossed a line, and you’re stuck on the other side now. - Tokyo
