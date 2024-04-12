@@ -1,2 +1,2 @@
-Last updated: 2024-04-12 06:42:27
-Random Quote: You'd have been the last lawyer I'd have gone to. - Walter White
+Last updated: 2024-04-12 06:43:05
+Random Quote: We have to control this fing world, or it will control you. And if you don't protect yourself, it makes a mess and breaks you. - Miguel Angel Felix Gallardo
