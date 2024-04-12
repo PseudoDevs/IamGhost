@@ -1,5 +1,2 @@
-Last updated: 2024-04-12 05:44:21
-Random Quote: Dina: "You're infuriating."
-Ellie: "Have you met you?"
-Dina: "You make me want to go back outside into that blizzard."
-Ellie: "No one is stopping you." - Joel Miller
+Last updated: 2024-04-12 05:45:01
+Random Quote: If you want my advice? Get out of your own goddamn drama for a minute. - Nicky Nichols
