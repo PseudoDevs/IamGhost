@@ -1,6 +1,3 @@
-Last updated: 2024-04-12 04:57:21
-Random Quote: Rick: "Just do a Die Hard!"
-Summer: "What does that mean?"
-Rick: "Sneak around! Use air vents! You've never seen Die Hard?"
-Summer: "I'm 17. No, I've never seen Die Hard."
-Rick: "Well, neither did the guy in Die Hard." - Rick Sanchez
+Last updated: 2024-04-12 04:57:55
+Random Quote: Morty: "What are they mad at you for, anyway?"
+Rick: "Well, we're talking about me. It could be anything." - Rick Sanchez
