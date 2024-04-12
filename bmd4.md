@@ -1,2 +1,2 @@
-Last updated: 2024-04-12 04:53:40
-Random Quote: Ted, you know who's a million times hotter than the hottest girl I've ever slept with? Her okay-looking friend I haven't seen naked. Why? Because new is always better. - Barney Stinson
+Last updated: 2024-04-12 04:54:13
+Random Quote: Know the men who follow you and let them know you.  Don't ask your men to die for a stranger.  -  Eddard Stark
