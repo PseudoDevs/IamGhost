@@ -1,2 +1,2 @@
-Last updated: 2024-04-12 05:37:50
-Random Quote: You will never walk again... but you will fly.  -  Bloodraven
+Last updated: 2024-04-12 05:38:57
+Random Quote: Until the Mountain crushed my brother's skull, no Dornishmen had died in this War of the Five Kings.  Tell me, Captain, is that my shame or my glory?  -  Doran Martell
