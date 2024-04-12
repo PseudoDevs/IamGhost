@@ -1,2 +1,3 @@
-Last updated: 2024-04-12 05:13:04
-Random Quote: You want to be a bounty hunter? Make the best deal for yourself and survive! - Fennec Shand
+Last updated: 2024-04-12 05:14:11
+Random Quote: Jang Deok-su: "Tell me what you're good at?"
+Han Mi-nyeo: "Everything, except the things I can't do." - Oh Il-nam
