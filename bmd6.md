@@ -1,2 +1,2 @@
-Last updated: 2024-04-12 07:04:29
-Random Quote: We are smart. And idiots are banging all the time. We can learn how to do it, too. - Fabiola Torres
+Last updated: 2024-04-12 07:05:05
+Random Quote: My father won all the battles.  He killed Prince Rhaegar and took the crown, while your father was hiding under Casterly Rock.  A strong king acts boldly, he doesn't just talk.  -  Joffrey Baratheon
