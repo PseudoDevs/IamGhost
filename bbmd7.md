@@ -1,2 +1,2 @@
-Last updated: 2024-04-12 05:50:03
-Random Quote: We're done when I say we're done. - Walter White
+Last updated: 2024-04-12 05:50:37
+Random Quote: She studied Theon Greyjoy's sly smile, wondering what it meant.  That young man had a way of looking as though he knew some secret jest that only he was privy to; Catelyn had never liked it.  -  Catelyn Stark
