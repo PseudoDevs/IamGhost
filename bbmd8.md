@@ -1,2 +1,2 @@
-Last updated: 2024-04-12 06:05:08
-Random Quote: You need to figure out what the fuck you want. - Nicky Nichols
+Last updated: 2024-04-12 06:05:41
+Random Quote: Talkin' to you was one of the best parts of my whole year. - Fezco
