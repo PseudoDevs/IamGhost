@@ -1,2 +1,2 @@
-Last updated: 2024-04-12 06:59:49
-Random Quote: Honey, don't you think the little rocks would hurt your nose, if you're trying to snort crack? I think you mean coke. - Piper Chapman
+Last updated: 2024-04-12 07:01:30
+Random Quote: My uncle Kevan would make a passably good regent if someone pressed the duty on him, but he will never reach for it.  The gods shaped him to be a follower, not a leader.  -  Tyrion Lannister
