@@ -1,2 +1,2 @@
-Last updated: 2024-04-12 05:02:50
-Random Quote: Dragons old and young, true and false, bright and dark.  And you.  A small man with a big shadow, snarling in the midst of it all.  -  Moqorro
+Last updated: 2024-04-12 05:03:58
+Random Quote: If a man does not use his member it grows smaller and smaller, until one day he wants to piss and cannot find it.  -  Tormund Giantsbane
