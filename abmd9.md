@@ -1,2 +1,5 @@
-Last updated: 2024-04-12 06:54:44
-Random Quote: Marshall: "It's kind of a big, professional meeting. You might want to trade out that lollipop for a shirt."Ted: "Yeah. I'll just give it to one of these kids."Marshall: "Oh, buddy. You're half naked, you're not a parent to any of these children. Don't offer 'em candy!" - Marshall Eriksen
+Last updated: 2024-04-12 06:55:20
+Random Quote: Therapist: "You need to stop doing these weird things. Go out sometime."
+Klaus: "I went to the park today."
+Therapist: "There you go! I hope you got something from that."
+Klaus: "[Opens up coat] This duck." - Klaus Hargreeves
