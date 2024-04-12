@@ -1,2 +1,2 @@
-Last updated: 2024-04-12 05:29:14
-Random Quote: I am the Watcher. I am your guide through these vast new realities. Follow me, and dare to face the unknown. And ponder the question, "What if...?" - The Watcher
+Last updated: 2024-04-12 05:29:47
+Random Quote: Power resides where men believe it resides... It's a trick, a shadow on the wall.  -  Varys
