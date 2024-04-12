@@ -1,2 +1,2 @@
-Last updated: 2024-04-12 05:50:22
-Random Quote: Nobody takes an intro class to get on any other path, but the path to not being hungover anymore. I learned that in my intro to something-ology class. - Marshall Eriksen
+Last updated: 2024-04-12 05:50:57
+Random Quote: Hey, want to come to my house and play telephone? I got the string, you got the cans. - Barney Stinson
