@@ -1,2 +1,2 @@
-Last updated: 2024-04-12 05:54:07
-Random Quote: Barney: "Our wedding is gonna be legendary."Robin: "No wait for it?"Barney: "I've got you, I don't have to wait for it anymore." - Barney Stinson
+Last updated: 2024-04-12 05:54:45
+Random Quote: Think of me as Yoda - only, instead of being little and green, I wear suits and I'm awesome. I'm your bro. I'm Broda. - Barney Stinson
