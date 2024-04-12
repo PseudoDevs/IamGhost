@@ -1,2 +1,2 @@
-Last updated: 2024-04-12 05:57:40
-Random Quote: You don’t want a criminal lawyer. You want a criminal lawyer. - Jesse Pinkman
+Last updated: 2024-04-12 05:58:13
+Random Quote: We are not husband and wife... anymore. We're just business partners. And our job is to raise those kids. - Marty Byrde
