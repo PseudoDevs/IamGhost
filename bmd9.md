@@ -1,2 +1,2 @@
-Last updated: 2024-04-12 06:53:27
-Random Quote: Listen, you have a choice, okay? You can pay up now or bleed to death in court. - Saul Goodman
+Last updated: 2024-04-12 06:54:40
+Random Quote: I understand that if any more words come pouring out of your cunt mouth I'm going to have to eat every fucking chicken in this room.  -  Sandor Clegane
