@@ -1,2 +1,2 @@
-Last updated: 2024-04-12 05:33:19
-Random Quote: (Love is) pain, horrible pain, that you want again and again. - Sophia Burset
+Last updated: 2024-04-12 05:33:53
+Random Quote: I buried an axe so deep into Willem's skull, they had to bury him with it.  -  Yoren of the Knight's Watch
