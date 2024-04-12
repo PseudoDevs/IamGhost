@@ -1,4 +1,6 @@
-Last updated: 2024-04-12 04:56:48
-Random Quote: Greef: "Be careful, my friend. They've got you outnumbered ten to one."
-Din: "I like these odds."
-Greef: "I bet you do." - Greef Karga
+Last updated: 2024-04-12 04:57:21
+Random Quote: Rick: "Just do a Die Hard!"
+Summer: "What does that mean?"
+Rick: "Sneak around! Use air vents! You've never seen Die Hard?"
+Summer: "I'm 17. No, I've never seen Die Hard."
+Rick: "Well, neither did the guy in Die Hard." - Rick Sanchez
