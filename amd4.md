@@ -1,2 +1,2 @@
-Last updated: 2024-04-12 05:14:06
-Random Quote: Kill the boy, Jon Snow.  Winter is almost upon us.  Kill the boy and let the man be born.  -  Aemon Targaryen
+Last updated: 2024-04-12 05:14:39
+Random Quote: I'm not in the meth business. I'm in the empire business. - Walter White
