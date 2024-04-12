@@ -1,2 +1,2 @@
-Last updated: 2024-04-12 06:56:45
-Random Quote: Might be you fooled these others, crow, but don't think you'll be fooling Mance.  He'll take one look a' you and know you're false.  And when he does, I'll make a cloak o' your wolf there, and open your soft boy's belly and sew a weasel up inside.  -  the Lord of Bones
+Last updated: 2024-04-12 06:57:19
+Random Quote: Underneath all of those lies is one true thing. One true thing that can support the weight of all the lies in the world, and that's the fact that I love you. - Barney Stinson
