@@ -1,2 +1,2 @@
-Last updated: 2024-04-12 05:01:16
-Random Quote: We can only die.  Why else do we don these black cloaks, but to die in defense of the realm?  -  Qhorin Halfhand
+Last updated: 2024-04-12 05:02:23
+Random Quote: I am the storm, my lord, the first storm, and the last.  -  Euron Greyjoy
