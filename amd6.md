@@ -1,2 +1,2 @@
-Last updated: 2024-04-12 05:05:44
-Random Quote: Quentyn had never felt so much a boy as when he'd stood before Daenerys Targaryen, pleading for her hand.  The thought of bedding her terrified him almost as much as her dragons had.  -  Quentyn Martell
+Last updated: 2024-04-12 05:06:18
+Random Quote: We all wanted to be loved by a man incapable of giving love. - Number Five
