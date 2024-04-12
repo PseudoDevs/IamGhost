@@ -1,3 +1,2 @@
-Last updated: 2024-04-12 05:58:24
-Random Quote: The boobs on the bus go up and down, up and down, up and down
-The boobs on the bus go up and down, all through the town - Barney Stinson
+Last updated: 2024-04-12 05:59:02
+Random Quote: His blood ran black.  Made him my brother as much as yours.  -  Yoren of the Night's Watch
