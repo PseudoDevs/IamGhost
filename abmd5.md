@@ -1,2 +1,2 @@
-Last updated: 2024-04-12 05:04:07
-Random Quote: Love's not always wise, I've learned.  It can lead us to great folly, but we follow our hearts... wherever they take us.  -  Robb Stark
+Last updated: 2024-04-12 05:04:40
+Random Quote: He let me have her. I have to say, it was pretty noble of him. He fell on his sword so that she could fall on mine. - Barney Stinson
