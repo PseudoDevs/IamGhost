@@ -1,2 +1,2 @@
-Last updated: 2024-04-12 06:50:36
-Random Quote: No man has ever died from bending his knee.  He who kneels may rise again, blade in hand.  He who will not kneel stays dead, stiff legs and all.  -  Balon Greyjoy
+Last updated: 2024-04-12 06:51:11
+Random Quote: Stop crying. Remember? Crying makes you ugly and weak. - Dayanara Diaz
