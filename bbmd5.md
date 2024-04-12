@@ -1,2 +1,2 @@
-Last updated: 2024-04-12 04:58:08
-Random Quote: You will never walk again... but you will fly.  -  Bloodraven
+Last updated: 2024-04-12 04:58:42
+Random Quote: Master Mott said Thoros could outdrink even King Robert.  They were pease in a pod, he told me, both gluttons and sots.  -  Gendry
