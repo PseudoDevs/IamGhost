@@ -1,2 +1,4 @@
-Last updated: 2024-04-12 07:17:54
-Random Quote: Ted: "Do you have a cold?"Barney: "I'm fine. My nose is just overflowing with awesome and I had to get some of it out." - Barney Stinson
+Last updated: 2024-04-12 07:18:27
+Random Quote: Greef: "Nevarro is a very fine planet. And now that the scum and villainy have been washed away, it's very respectable again."
+Mando: "As a bounty hunter hive?"
+Greef: "Some of my favorite people are bounty hunters." - Greef Karga
