@@ -1,2 +1,5 @@
-Last updated: 2024-04-12 06:04:21
-Random Quote: People deserve a second chance, just like businesses. - Marty Byrde
+Last updated: 2024-04-12 06:04:54
+Random Quote: Morty: "I'm dying, Rick!"
+Rick: "People who are really dying don't keep bringing it up."
+Morty: "Is that true?"
+Rick: "I don't know. I'm just usually around people that die faster." - Rick Sanchez
