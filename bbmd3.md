@@ -1,2 +1,2 @@
-Last updated: 2024-04-12 05:09:36
-Random Quote: My old septon used to say that books are dead men talking.  Dead men should keep quiet, is what I say.  No one wants to hear a dead man's yabber.  -  Dolorous Edd Tollett
+Last updated: 2024-04-12 05:10:08
+Random Quote: Just as long as you're lakeside cheering us to victory on race day... or you can just glare uncomfortably. Whatever works for you. - Enid Sinclair
