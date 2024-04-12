@@ -1,2 +1,2 @@
-Last updated: 2024-04-12 05:24:12
-Random Quote: If the cancer doesn't get him, it'll be the cops or a bullet to the head. - Mike Ehrmantraut
+Last updated: 2024-04-12 05:24:45
+Random Quote: I've had shits that I've liked better than Walder Frey.  -  Brynden Tully
