@@ -1,3 +1,2 @@
-Last updated: 2024-04-12 06:03:48
-Random Quote: Mi-nyeo: "Deok-su. You betray me... I'll kill you. Okay?"
-Deok-su: "You're the reason that I think I might die tonight." - Jang Deok-su
+Last updated: 2024-04-12 06:04:25
+Random Quote: For a joke to work, it has to have part of truth and part of pain. - Berlin

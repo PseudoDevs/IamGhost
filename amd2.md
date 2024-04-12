@@ -1,2 +1,2 @@
-Last updated: 2024-04-12 06:02:01
-Random Quote: I will not be remembered as Set Arys the Unworthy.  I will not soil my cloak.  -  Arys Oakheart
+Last updated: 2024-04-12 06:04:25
+Random Quote: I have served six kings, but here before us lies the greatest man I ever knew.  Lord Tywin wore no crown, yet he was all a king should be.  -  Grand Maester Pycelle
