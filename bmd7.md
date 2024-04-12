@@ -1,2 +1,2 @@
-Last updated: 2024-04-12 04:53:07
-Random Quote: When things go well, people start thinking it's because they're so fing smart. - Walt Breslin
+Last updated: 2024-04-12 04:53:39
+Random Quote: I knew quite a few Jedi, you know. I don't know what they taught you about us, but there was a time we actually got along quite well. Fought side by side. - Bo-Katan
