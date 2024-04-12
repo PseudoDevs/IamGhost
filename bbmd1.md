@@ -1,2 +1,2 @@
-Last updated: 2024-04-12 05:33:53
-Random Quote: I buried an axe so deep into Willem's skull, they had to bury him with it.  -  Yoren of the Knight's Watch
+Last updated: 2024-04-12 05:34:27
+Random Quote: You're gonna get endless requests to play some game, that has something to do with gangsters and farming! - Marshall Eriksen
