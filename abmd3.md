@@ -1,2 +1,2 @@
-Last updated: 2024-04-12 07:25:05
-Random Quote: I watched Jane die. I was there. And I watched her die. - Walter White
+Last updated: 2024-04-12 07:25:38
+Random Quote: He would have killed me but for Howland Reed.  -  Eddard Stark
