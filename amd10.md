@@ -1,4 +1,2 @@
-Last updated: 2024-04-12 06:52:52
-Random Quote: Tony Stark: "Lieutenant Killmonger? What is that? German?"
-Killmonger: "A nickname."
-Tony Stark: "That's clearly a good fit." - Killmonger
+Last updated: 2024-04-12 06:54:08
+Random Quote: He would see this country burn if he could be king of the ashes.  -  Varys
