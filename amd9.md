@@ -1,2 +1,2 @@
-Last updated: 2024-04-12 05:13:37
-Random Quote: Robb, if that sword could bring him back, I should never let you sheathe it until Need stood at my side once more... but he is gone, and a hundred Whispering Woods will not change that.  -  Catelyn Stark
+Last updated: 2024-04-12 05:14:44
+Random Quote: It's easier when you're a kid anyway. You don't have anybody else relying on you. That's the hardest part. - Joel Miller
