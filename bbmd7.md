@@ -1,2 +1,2 @@
-Last updated: 2024-04-12 07:25:25
-Random Quote: There is entirely too much tut - tutting in this realm, if you ask me.  All these kings would do a deal better if they put down their swords and listended to their mothers. 
+Last updated: 2024-04-12 07:25:59
+Random Quote: So a guy with cancer can't be an asshole?? Believe me, I speak from experience. - Saul Goodman
