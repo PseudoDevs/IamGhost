@@ -1,3 +1,2 @@
-Last updated: 2024-04-12 05:18:36
-Random Quote: Gor Koresh: "This is no place for a child."
-Mando: "Wherever I go, he goes. I've been quested to bring him to his kind." - Din Djarin
+Last updated: 2024-04-12 05:19:10
+Random Quote: So you're pregnant? Huh, looks like nobody told your boobs. - Barney Stinson
