@@ -1,2 +1,2 @@
-Last updated: 2024-04-12 05:24:18
-Random Quote: You're a beautiful, sweet girl. Fuck this guy! - Nicky Nichols
+Last updated: 2024-04-12 05:24:51
+Random Quote: In the end, a gentle heart may be worth more than pride or valor.  -  Doran Martell
