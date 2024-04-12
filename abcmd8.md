@@ -1,2 +1,2 @@
-Last updated: 2024-04-12 05:10:24
-Random Quote: I am Maura Franklin. Born in Morefield. Today is October 19th, 1899. I am not crazy. - Maura Franklin
+Last updated: 2024-04-12 05:10:57
+Random Quote: Never fear the darkness, Bran.  The strongest trees are rooted in the dark places of the earth.  Darkness will be your cloak, your shield, your mother's milk.  Darkness will make you strong.  -  Bloodraven
