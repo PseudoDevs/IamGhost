@@ -1,2 +1,3 @@
-Last updated: 2024-04-12 06:19:06
-Random Quote: Presumptuous... that's a good thing, right? - Dustin Henderson
+Last updated: 2024-04-12 06:19:40
+Random Quote: Miguel: "Would you have really fed me to those hippos?"
+Pablo: "No. Hippos don't like Mexicans either." - Pablo Escobar
