@@ -1,2 +1,2 @@
-Last updated: 2024-04-12 06:51:12
-Random Quote: I don't care if you're so scared you foul your breeches, and I don't care if a thousand wildlings are coming over the walls howling for your blood, you get those birds off, or I swear I'll hunt you through all seven hells and make you damn sorry that you didn't.  -  Jeor Mormont
+Last updated: 2024-04-12 06:51:45
+Random Quote: I don't have a phone. I refuse to be a slave to technology. - Wednesday Addams
