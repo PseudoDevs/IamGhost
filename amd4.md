@@ -1,2 +1,2 @@
-Last updated: 2024-04-12 05:05:45
-Random Quote: You think you're the only one he whispers secrets to?  He gives each of us just enough to convince us that we'd be helpless without him.  -  Cersei Lannister
+Last updated: 2024-04-12 05:07:25
+Random Quote: I am not in danger, Skyler. I AM the danger! - Walter White
