@@ -1,2 +1,2 @@
-Last updated: 2024-04-12 05:04:32
-Random Quote: Well, I think that... when you have a connection with someone, it never really goes away, you know? - Alex Vause
+Last updated: 2024-04-12 05:05:07
+Random Quote: Do you remember that cave?  We should have stayed in that cave.  I told you so.  -  Ygritte
