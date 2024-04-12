@@ -1,2 +1,2 @@
-Last updated: 2024-04-12 07:17:19
-Random Quote: Lily: "Your job is very simple. At the wedding, do not sleep with anyone even remotely related to me."Barney: "Yeah. Lily, you know I can't promise that" - Barney Stinson
+Last updated: 2024-04-12 07:17:54
+Random Quote: Barney: "Fine, we'll just have a nice, tasteful rehearsal dinner. Maybe at a French restaurant, I know just the place."Robin: "What's the name of the restaurant?"Barney: "La Sertag." - Barney Stinson

@@ -1,2 +1,2 @@
-Last updated: 2024-04-12 07:17:20
-Random Quote: Ted: "You're like Mary Poppins, if her magic purse was also filled with drugs."Robin: "If? Ted, the kids in that movie jumped into a painting and spent 15 minutes chasing a cartoon fox. Spoonful of sugar? Grow Up!" - Robin Scherbatsky
+Last updated: 2024-04-12 07:17:54
+Random Quote: Barney: "Let me choose your child's middle name! Because I have thought up the most awesome name of all time."Marshall: "What's the middle name?"Barney: "Wait for it."Marshall: "I'm waiting."Barney: "Wait for it."Marshall: "I said I'm waiting."Barney: "Wait for it."Marshall: "What's the middle name?"Barney: "No, the middle name is 'Wait For It'. Let's say his first name is, oh, I don't know, 'Barney'. He'd be Barney 'Wait For It' Eriksen. How awesome is that?" - Barney Stinson
