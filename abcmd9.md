@@ -1,2 +1,2 @@
-Last updated: 2024-04-12 05:31:34
-Random Quote: Since I stopped dating Robin, there's this thing I haven't used as much as I would like. It's kind of big. Surprisingly heavy. Kind of leathery. And it's black.This, my friends, is the playbook! - Barney Stinson
+Last updated: 2024-04-12 05:32:07
+Random Quote: Fear cuts deeper than swords.  -  Syrio Forel
