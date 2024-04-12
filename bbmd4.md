@@ -1,2 +1,2 @@
-Last updated: 2024-04-12 05:30:36
-Random Quote: There's nothing more powerful than a fat girl who doesn't give a f. - Kat Hernandez
+Last updated: 2024-04-12 05:31:09
+Random Quote: Fool's blood, king's blood, blood on the maiden's thigh, but chains for the guests and chains for the bridegroom, aye aye aye.  -  Patchface
