@@ -1,4 +1,2 @@
-Last updated: 2024-04-12 06:50:20
-Random Quote: Ellie: "Can I have a gun?"
-Joel: "Absolutely not."
-Ellie: "Okay, Jesus. Fine. I'll have to throw a f-ckin' sandwich at them." - Ellie Williams
+Last updated: 2024-04-12 06:50:53
+Random Quote: The absolute worst part of depression is that even though you know you're depressed, You're unable to stop yourself from getting worse. - Rue Bennett
