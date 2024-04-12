@@ -1,2 +1,2 @@
-Last updated: 2024-04-12 07:23:12
-Random Quote: What is the cost of lies? It's not that we mistake them for the truth. The real danger is that if we hear enough lies, then we no longer recognize the truth at all. - Valery Legasov
+Last updated: 2024-04-12 07:23:45
+Random Quote: She hated her life, not because it was bad, but because when you hate your brain and your body, it's hard to enjoy the rest. - Rue Bennett
