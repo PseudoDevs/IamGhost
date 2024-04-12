@@ -1,2 +1,2 @@
-Last updated: 2024-04-12 07:15:24
-Random Quote: We all have things we keep hidden. Sometimes, keeping secrets is how you survive. Because in High School, one rumor, one picture, one incident, can define you forever. - Hannah Baker
+Last updated: 2024-04-12 07:15:57
+Random Quote: Words are like arrows, Arianne.  Once loosed, you cannot call them back.  -  Areo Hotah
