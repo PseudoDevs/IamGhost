@@ -1,2 +1,2 @@
-Last updated: 2024-04-12 05:31:23
-Random Quote: Do you think I can't tell Lord Stannis from Lord Tywin?  They're both bungholes who think they're too noble to shit, but never mind about that, I know the difference.  -  Walder Frey
+Last updated: 2024-04-12 05:31:57
+Random Quote: Barney: "The Disappearing Salami... Mr. Flanagan's wife shot him before he could ever tell me what the trick was."Quinn: "Yeah, that guy was banging your mom!" - Quinn Garvey
