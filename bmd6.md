@@ -1,2 +1,2 @@
-Last updated: 2024-04-12 05:07:16
-Random Quote: The truth isn't always to most exciting version of things, or the best, or the worst. It's somewhere inbetween. But it deserves to be heard and remembered. 'The truth will out', like someone said once. It remains. - Hannah Baker
+Last updated: 2024-04-12 05:07:49
+Random Quote: If you don't like where you're heading, there's no shame in going back and changing your path. - Chuck McGill
