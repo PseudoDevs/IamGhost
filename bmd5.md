@@ -1,3 +1,2 @@
-Last updated: 2024-04-12 07:12:03
-Random Quote: Billy: "Halloween's a magical holiday. All about family, friends, and the thrill of getting to be someone else for a day."
-Tommy: "Wrong! Halloween's about candy. And scaring people, but mostly candy." - Tommy Maximoff
+Last updated: 2024-04-12 07:12:37
+Random Quote: Marshall: "Open your eyes, ref! That's not a pregnant lady..."Ted: "...it's a basketball under his shirt. Blow the freakin' whistle!" - Ted Mosby
