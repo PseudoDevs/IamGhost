@@ -1,2 +1,4 @@
-Last updated: 2024-04-12 06:48:05
-Random Quote: A sorcerer is a wizard without a hat. - Sam Wilson
+Last updated: 2024-04-12 06:48:38
+Random Quote: Oh Il-nam: "As a kid, I'm willing to bet you got spanked a lot."
+Seong Gi-hun: "How did you know?"
+Oh Il-nam: "My son did too. He was just like you, friend." - Oh Il-nam
