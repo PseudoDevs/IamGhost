@@ -1,2 +1,2 @@
-Last updated: 2024-04-12 06:58:05
-Random Quote: The Horned Lord once said that sorcery is a sword without a hilt.  There is no safe way to grasp it.  -  Dalla
+Last updated: 2024-04-12 06:58:40
+Random Quote: I am IRONBORN!  I laugh at death.  -  Victarion Greyjoy
