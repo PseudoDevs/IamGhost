@@ -1,2 +1,2 @@
-Last updated: 2024-04-12 06:28:41
-Random Quote: My Lords!  Here is what I say to these two kings!  Renly Baratheon is nothing to me, nor Stannis neither.  Why should they rule over me and mine, from some flowery seat in Highgarden or Dorne?  What do they know of the Wall or the wolfswood or the barrows of the First Men?  Even their gods are wrong.  The Others take the Lannisters too, I've had a bellyful of them.  Why shouldn't we rule ourselves again?  It was the dragons we married, and the dragons are all dead!  There sits the only king I mean to bow my knee to, m'lords.  The King in the North!  -  Greatjon Umber
+Last updated: 2024-04-12 06:29:16
+Random Quote: And there's this other band, led by this woman Stoneheart... Lord Beric's lover, according to one tale.  Supposedly she was hanged by the Freys, but Dondarrion kissed her and brought her back to life, and now she cannot die, no more than he.  -  Set Hyle Hunt
