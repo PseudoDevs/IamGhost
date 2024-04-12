@@ -1,2 +1,2 @@
-Last updated: 2024-04-12 05:22:28
-Random Quote: Edric Storm, they call him.  He is said to be the very image of my brother.  If men were to see him, and then look again at Joffrey and Tommen, they could not help but wonder, I would think.  -  Stannis Baratheon
+Last updated: 2024-04-12 05:23:01
+Random Quote: Do you know how much I make a year? I mean, even if I told you, you wouldn't believe it. - Walter White
