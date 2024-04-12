@@ -1,2 +1,2 @@
-Last updated: 2024-04-12 06:58:42
-Random Quote: I like dogs better than knights... A hound will die for you, but never lie to you.  And he'll look you straight in the face.  -  Sandor Clegane
+Last updated: 2024-04-12 06:59:15
+Random Quote: I'm a Mandalorian. Weapons are part of my religion. - Din Djarin
