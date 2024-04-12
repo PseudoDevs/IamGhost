@@ -1,2 +1,2 @@
-Last updated: 2024-04-12 06:51:12
-Random Quote: I'll help you study. We're gonna stay up all night long. I'm gonna drill you and then we're gonna study. No, seriously. We're gonna do some cramming and then we're gonna study. No, seriously. We're gonna bone up on... - Barney Stinson
+Last updated: 2024-04-12 06:52:55
+Random Quote: There have always been men who found it easier to speak vows than to keep them.  -  Arys Oakheart
