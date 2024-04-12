@@ -1,2 +1,2 @@
-Last updated: 2024-04-12 06:29:16
-Random Quote: We can only die.  Why else do we don these black cloaks, but to die in defense of the realm?  -  Qhorin Halfhand
+Last updated: 2024-04-12 06:29:51
+Random Quote: It's like...It's like I'm a fucked-up-shit magnet. - Maria Ruiz
