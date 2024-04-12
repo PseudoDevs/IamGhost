@@ -1,2 +1,2 @@
-Last updated: 2024-04-12 05:15:05
-Random Quote: You are slow to learn, Lord Eddard.  Distrusting me was the wisest thing you've don since you climbed down off your horse.  -  Petyr Baelish
+Last updated: 2024-04-12 05:15:38
+Random Quote: Only their shadows, One most of all.  A tall and twisted thing with one black eye and ten long arms, sailing on a sea of blood.  -  Moqorro
