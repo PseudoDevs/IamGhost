@@ -1,2 +1,4 @@
-Last updated: 2024-04-12 06:05:42
-Random Quote: I'm still out here. Still getting away with it. Feds couldn't find their own ass with both hands and a proctologist. - Saul Goodman
+Last updated: 2024-04-12 06:06:15
+Random Quote: Joel: "Where'd you get the money for this?"
+Sarah: "Drugs. I sell hardcore drugs."
+Joel: "It's better than what I do." - Joel Miller
