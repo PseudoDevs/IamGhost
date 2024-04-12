@@ -1,2 +1,3 @@
-Last updated: 2024-04-12 05:45:15
-Random Quote: What a man wants does not define him. What a man needs is what defines him. - Juan Nepomuceno Guerra
+Last updated: 2024-04-12 05:46:25
+Random Quote: Morticia: "That boy's family was going to file attempted murder charges. How would that have looked on your record?"
+Wednesday: "Terrible. Everyone would know I failed to get the job done." - Wednesday Addams
