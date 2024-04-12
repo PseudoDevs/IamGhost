@@ -1,2 +1,2 @@
-Last updated: 2024-04-12 05:07:53
-Random Quote: She had seen Bronn fight on the high road; it was no accident that he had survived the journey while other men had died.  He moved like a panther, and that ugly sword of his seemed a part of his arm.  -  Catelyn Stark
+Last updated: 2024-04-12 05:08:27
+Random Quote: These days, even women go to war. I mean, when you finally get older, there's not gonna be that kind of discrimination like we got now. - Seong Gi-hun
