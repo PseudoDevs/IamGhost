@@ -1,2 +1,2 @@
-Last updated: 2024-04-12 06:13:12
-Random Quote: I've got to find a way to introduce some wood into Bilson's dark atrium. I think you know what I meant. - Ted Mosby
+Last updated: 2024-04-12 06:13:46
+Random Quote: The singers of the forest had no books.  No ink, no parchment, no written language.  Instead they had the trees, and the weirwoods above all.  When they died, they went into the wood, into leaf and limb and root, and the trees remembered.  All their songs and spells, their histories and prayers, everything they knew about this world.  Maesters will tell you that the weirwoods are sacred to the old gods.  The singers believe they are the old gods.  When singers die they become part of that godhood.  -  Jojen Reed
