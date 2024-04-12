@@ -1,2 +1,2 @@
-Last updated: 2024-04-12 06:00:50
-Random Quote: Business is changing and we must change with it. - Miguel Angel Felix Gallardo
+Last updated: 2024-04-12 06:01:25
+Random Quote: No, only a boy who dreams.  The greenseers were more than that.  They were wargs as well, as you are, and the greatest of them could wear the skins of any beast that flies or swims or crawls, and could look through the eyes of the weirwoods as well, and see the truth that lies beneath the world.  -  Jojen Reed
