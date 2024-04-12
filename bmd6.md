@@ -1,2 +1,2 @@
-Last updated: 2024-04-12 07:21:45
-Random Quote: Master Mott said Thoros could outdrink even King Robert.  They were pease in a pod, he told me, both gluttons and sots.  -  Gendry
+Last updated: 2024-04-12 07:22:52
+Random Quote: The farther you go, the sharper their blade. Just don't ever give them an opening. - Cal Jacobs
