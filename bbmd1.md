@@ -1,2 +1,3 @@
-Last updated: 2024-04-12 05:30:33
-Random Quote: They know.  The gods know.  They saw what I did.  And for one strange moment it seemed as if it were Bran's face carved into the pale trunk of the weirwood, staring down at him with eyes red and wise and sad.  Bran's ghost, he thought, but that was madness.  Why should Bran want to haunt him?  He had been fond of the boy, had never done him any harm.  It was not Bran we killed.  It was not Rickon.  They were only miller's sons, from the mill by the Acorn Water.  -  Theon Greyjoy
+Last updated: 2024-04-12 05:31:06
+Random Quote: Sal: "Does Lily have any other plates? I don't let Sammy eat off this plastic."
+Pepper: "How does she breastfeed him if she doesn't let him near plastic?" - Pepper Saltzman
