@@ -1,2 +1,2 @@
-Last updated: 2024-04-12 06:38:55
-Random Quote: Lily: "That's Dirty Dancing!"Ted: "It was on last night."Marshall: "No, it was two nights ago. 'She's Like the Wind' has been stuck in my brain for about 40 hours. I just got it out; now it's back in. Damn you, Swayze!" - Marshall Eriksen
+Last updated: 2024-04-12 06:39:30
+Random Quote: Treason is a noxious weed.  It must be torn up, root and stem and seed, lest new traitors sprout from every roadside.  -  Grand Maester Pycelle
