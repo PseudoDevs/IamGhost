@@ -1,2 +1,2 @@
-Last updated: 2024-04-12 07:12:37
-Random Quote: Not all Mandalorians are bounty hunters. Some of us serve a higher purpose. - Bo-Katan
+Last updated: 2024-04-12 07:13:11
+Random Quote: Make it easier for those whose vote you can count on. Make it harder for those you can't. That's how you rig an election without leaving a lick of evidence. - Walt Breslin
