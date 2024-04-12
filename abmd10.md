@@ -1,2 +1,2 @@
-Last updated: 2024-04-12 05:25:25
-Random Quote: No matter how much we fight it we are connected by our blood. We can feel estranged from our families and not understand what they do. And still, in the end, we will do anything for them. - Adam
+Last updated: 2024-04-12 05:25:58
+Random Quote: The greatest fools are ofttimes more clever than the men who laugh at them.  -  Tywin Lannister
