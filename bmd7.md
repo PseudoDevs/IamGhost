@@ -1,2 +1,3 @@
-Last updated: 2024-04-12 06:40:42
-Random Quote: When treating with liars, even an honest man must lie.  -  Wyman Manderly
+Last updated: 2024-04-12 06:41:50
+Random Quote: Grace: "I had the phone put in. It's in the back."
+Tommy: "If we knew someone else who had a phone, we could call them." - Thomas Shelby
