@@ -1,2 +1,2 @@
-Last updated: 2024-04-12 06:53:41
-Random Quote: Men say Tywin never smiled, but he smiled when he wed your mother, and when Aerys made him Hand.  When Tarbeck Hall came crashing down on Lady Ellyn, that scheming bitch, Tyg claimed he smiled then, and he smiled at your birth, Jaime, I saw with my own eyes.  -  Genna Lannister
+Last updated: 2024-04-12 06:54:14
+Random Quote: A war is coming. I'm afraid your friends at Hawkins are very much in the eye of the storm. I don't know how to say this other than just to say it: without you, we can't win this war. - Sam Owens
