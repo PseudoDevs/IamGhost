@@ -1,2 +1,2 @@
-Last updated: 2024-04-12 06:27:40
-Random Quote: What is the cost of lies? It's not that we mistake them for the truth. The real danger is that if we hear enough lies, then we no longer recognize the truth at all. - Valery Legasov
+Last updated: 2024-04-12 06:28:13
+Random Quote: The Red God has his due, sweet girl, and only death may pay for life.  This girl took three that were his.  This girl must give three in their places.  Speak the names, and a man will do the rest.  -  Jaqen H'ghar

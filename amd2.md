@@ -1,2 +1,2 @@
-Last updated: 2024-04-12 06:27:40
-Random Quote: When treating with liars, even an honest man must lie.  -  Wyman Manderly
+Last updated: 2024-04-12 06:28:13
+Random Quote: There are no true knights, no more than there are gods.  If you can't protect yourself, die and get out of the way of those who can.  Sharp steel and strong arms rule this world, don't ever believe any different.  -  Sandor Clegane
