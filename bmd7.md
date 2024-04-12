@@ -1,2 +1,2 @@
-Last updated: 2024-04-12 07:09:16
-Random Quote: Ted: "All my friends from high-school, they're here with their wifes or kids. My date for the night is a sticky magazine..."Robin: "Sounds like high-school all over again!" - Robin Scherbatsky
+Last updated: 2024-04-12 07:09:50
+Random Quote: A family is like a small business. And with a small business, at times, there comes a bit of transition. - Marty Byrde
