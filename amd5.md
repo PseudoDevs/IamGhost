@@ -1,2 +1,2 @@
-Last updated: 2024-04-12 07:06:08
-Random Quote: Robert wanted smiles and cheers, always, so he went where he found them, to his friends and his whores.  Robert wanted to be loved.  My brother Tyrion has the same disease.  -  Cersei Lannister
+Last updated: 2024-04-12 07:06:43
+Random Quote: Which meant for the first time in years, the world was wide open. Because kids, when a door closes... well, you know the rest. - Ted Mosby

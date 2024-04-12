@@ -1,2 +1,2 @@
-Last updated: 2024-04-12 07:06:10
-Random Quote: Asha Greyjoy did not intend to be taken alive.  She would die as she had lived, with an axe in her hand and a laugh upon her lips.  -  Asha Greyjoy
+Last updated: 2024-04-12 07:06:43
+Random Quote: You need to figure out what the fuck you want. - Nicky Nichols
