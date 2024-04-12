@@ -1,2 +1,2 @@
-Last updated: 2024-04-12 05:54:43
-Random Quote: Friends... they tell each other things. Things that parents don't know. - Mike Wheeler
+Last updated: 2024-04-12 05:55:57
+Random Quote: Tell the Crow's Eye he's afraid of kinslaying and he'll murder one of his own sons just to prove you wrong.  -  Asha Greyjoy
