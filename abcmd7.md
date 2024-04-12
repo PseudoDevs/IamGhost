@@ -1,2 +1,2 @@
-Last updated: 2024-04-12 06:22:49
-Random Quote: The absolute worst part of depression is that even though you know you're depressed, You're unable to stop yourself from getting worse. - Rue Bennett
+Last updated: 2024-04-12 06:23:22
+Random Quote: Folly and desperation are ofttimes hard to tell apart.  -  Maester Luwin
