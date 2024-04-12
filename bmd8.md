@@ -1,2 +1,2 @@
-Last updated: 2024-04-12 04:54:16
-Random Quote: That's where The Boys come in: Spank the bastards when they get out of line. - Billy Butcher
+Last updated: 2024-04-12 04:54:49
+Random Quote: His blood is bad.  He needs to be leeched.  The leeches suck away the bad blood, all the rage and pain.  No man can think so full of anger.  Ramsay, though... his tainted blood would poison even leeches, I fear.  -  Roose Bolton
