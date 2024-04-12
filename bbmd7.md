@@ -1,2 +1,2 @@
-Last updated: 2024-04-12 06:13:32
-Random Quote: Think about it, this is perfect.a) It'll make Robin insanly jealousb) You get to have sex with herc) Maybe by getting to know Mary, you'll come to see that cortisens are people tooand d) B! All night long! - Barney Stinson
+Last updated: 2024-04-12 06:14:05
+Random Quote: I am Pablo Emilio Escobar Gaviria. My eyes are everywhere. That means you guys can't move a finger in all of Antioquia without me knowing about it. Do you understand? Not a finger. One day, I'm going to be president of the Republic of Colombia. So look, I make deals for a living. Now, you can stay calm and accept my deal, or accept the consequences. - Pablo Escobar
