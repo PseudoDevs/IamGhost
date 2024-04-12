@@ -1,2 +1,2 @@
-Last updated: 2024-04-12 05:09:43
-Random Quote: For the night is dark and full of terrors.  -  Words of R'hllor
+Last updated: 2024-04-12 05:10:16
+Random Quote: Alex: "Luke got his head stuck in the banister again."Phil: "I got it. Where's the babyoil?"Claire: "It's on our bedside tip- I Don't know, find it!" - Claire Dunphy
