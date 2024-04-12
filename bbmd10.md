@@ -1,2 +1,2 @@
-Last updated: 2024-04-12 06:30:17
-Random Quote: We were king's men, knights, and heroes... but some knights are dark and full of terror, my lady.  War makes monsters of us all.  -  Thoros of Myr
+Last updated: 2024-04-12 06:30:50
+Random Quote: Lily: "Just be yourself. Say something nice."Robin: "Which one? I can't do both." - Robin Scherbatsky
