@@ -1,2 +1,2 @@
-Last updated: 2024-04-12 05:10:39
-Random Quote: Mitchell: "It's been five years now and he still does this thing were he announces himself before walking into any room we're in, just to make sure he doesn't ever see us kiss."Cameron: "Wish my mother had that system. Remember?" - Cameron Tucker
+Last updated: 2024-04-12 05:11:45
+Random Quote: Eight years ago I made an ass of myself chasing after you and I made an ass of myself chasing after you a bunch of times since then. And I have no regrets because it led me to something I wouldn't trade for the world, it led to you being my friend. So as your friend and a leading expert in the field of making an ass of yourself. I say to you, from the heart, get the hell out of this car! - Ted Mosby
