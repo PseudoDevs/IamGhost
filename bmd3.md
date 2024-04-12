@@ -1,2 +1,2 @@
-Last updated: 2024-04-12 04:58:04
-Random Quote: If we're together long enough I hope that one day you see yourself like I do. - Kevin
+Last updated: 2024-04-12 04:58:37
+Random Quote: Don't believe everything you hear. Our enemies want to separate us. But Mandalorians are stronger together. - Bo-Katan
