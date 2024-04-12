@@ -1,2 +1,2 @@
-Last updated: 2024-04-12 06:23:18
-Random Quote: There are worse ways to die than warm and drunk.  I knew a brother drowned himself in wine once.  It was a poor vintage, though, and his corpse did not improve it.  -  Dolorous Edd Tollett
+Last updated: 2024-04-12 06:25:06
+Random Quote: Was snow ever so black?  Ramsay took Lord Hornwood's lands by forcibly wedding his widow, then locked her in a tower and forgot her.  It is said she ate her own fingers in her extremity... and the Lannister notion of king's justice is to reward her killer with Need Stark's little girl.  -  Wyman Manderly

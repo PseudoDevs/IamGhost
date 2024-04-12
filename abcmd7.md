@@ -1,2 +1,2 @@
-Last updated: 2024-04-12 06:24:30
-Random Quote: A man will tell you poison is dishonorable, but a woman's honor is different.  The Mother shaped us to protect our children, and our only dishonor is failure.  -  Lysa Arryn
+Last updated: 2024-04-12 06:25:06
+Random Quote: It's not like anyone's 100% straight or 100% gay. - Maddy Perez
