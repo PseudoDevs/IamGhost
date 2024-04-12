@@ -1,3 +1,2 @@
-Last updated: 2024-04-12 06:59:48
-Random Quote: Miguel: "Would you have really fed me to those hippos?"
-Pablo: "No. Hippos don't like Mexicans either." - Pablo Escobar
+Last updated: 2024-04-12 07:00:56
+Random Quote: I have my voice, and the god is with me.  Mine is the strength of the sea, a strength the Crow's Eye cannot hope to withstand.  The waves may break upon the mountain, yet still they come, wave upon wave, and in the end only pebbles remain where once the mountain stood.  And soon even the pebbles are swept away, to be ground beneath the sea for all eternity.  -  Aeron Greyjoy
