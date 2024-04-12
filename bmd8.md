@@ -1,2 +1,2 @@
-Last updated: 2024-04-12 07:21:51
-Random Quote: And there's this other band, led by this woman Stoneheart... Lord Beric's lover, according to one tale.  Supposedly she was hanged by the Freys, but Dondarrion kissed her and brought her back to life, and now she cannot die, no more than he.  -  Set Hyle Hunt
+Last updated: 2024-04-12 07:22:58
+Random Quote: Barney: "I was having such a good time greasing 12-year-olds."Ted: "LaserTag."Marshall: "Helpful. Continue." - Marshall Eriksen

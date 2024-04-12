@@ -1,2 +1,3 @@
-Last updated: 2024-04-12 07:22:24
-Random Quote: Tormund Giantsbane seemed to me the sort of man who would make a good friend and a bad enemy, your Grace.  -  Jon Snow
+Last updated: 2024-04-12 07:22:58
+Random Quote: Ted: "So this is what you guys do? You invite other couples over for dinner, to judge them and feel superior?"
+Lily: "Oh, grow up, Ted, that's why any couple invites anyone over ever!" - Lily Aldrin
