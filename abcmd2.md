@@ -1,2 +1,2 @@
-Last updated: 2024-04-12 04:55:11
-Random Quote: Never give power to the big man. - Alfie Solomons
+Last updated: 2024-04-12 04:55:45
+Random Quote: A good lord comforts and protects the weak and helpless.  -  Maester Luwin
