@@ -1,2 +1,2 @@
-Last updated: 2024-04-12 04:56:48
-Random Quote: Barney: "Or it's a chance to mess with her head by showing up with someone hotter. Even better. Triple-threat: hotter and bigger boobs."Ted: "That's only two?"Barney: "Count again!" - Barney Stinson
+Last updated: 2024-04-12 04:57:21
+Random Quote: Well, I'm just gonna go jerk off then. For the 500th time today. - Larry Bloom
