@@ -1,2 +1,2 @@
-Last updated: 2024-04-12 07:21:17
-Random Quote: All I wanted was to eat the chicken that is smarter than other chickens and to absorb it's power. - Galina 'Red' Reznikov
+Last updated: 2024-04-12 07:21:51
+Random Quote: And there's this other band, led by this woman Stoneheart... Lord Beric's lover, according to one tale.  Supposedly she was hanged by the Freys, but Dondarrion kissed her and brought her back to life, and now she cannot die, no more than he.  -  Set Hyle Hunt
