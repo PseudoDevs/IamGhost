@@ -1,2 +1,2 @@
-Last updated: 2024-04-12 06:16:10
-Random Quote: The septons preach about the seven hells.  What do they know?  Only a man who's been burned knows what hell is truly like.  -  Sandor Clegane
+Last updated: 2024-04-12 06:16:43
+Random Quote: Ted: "It's the Drunk Train! You crossed out all the stops and wrote Vagina-Ville."Barney: "That's not true. That one says Boner Gardens." - Barney Stinson
