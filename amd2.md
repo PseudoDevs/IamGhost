@@ -1,2 +1,2 @@
-Last updated: 2024-04-12 06:01:25
-Random Quote: I've heard so many stories about me now that I don't know which one is the most popular. But I do know which is the least popular: the truth. - Hannah Baker
+Last updated: 2024-04-12 06:02:01
+Random Quote: I will not be remembered as Set Arys the Unworthy.  I will not soil my cloak.  -  Arys Oakheart
