@@ -1,2 +1,2 @@
-Last updated: 2024-04-12 06:22:05
-Random Quote: Robin: "That was not cool, Ted."Lily: "Contraction!"Robin: "That wasn't cool, Ted?" - Robin Scherbatsky
+Last updated: 2024-04-12 06:22:42
+Random Quote: Oh, Cersei is lovely to look at, truly, but cold... the way she guards her cunt, you'd think she had all the gold of Casterly Rock between her legs.  -  Robert Baratheon
