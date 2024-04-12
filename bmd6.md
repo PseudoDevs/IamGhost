@@ -1,2 +1,3 @@
-Last updated: 2024-04-12 06:20:51
-Random Quote: The septons preach about the seven hells.  What do they know?  Only a man who's been burned knows what hell is truly like.  -  Sandor Clegane
+Last updated: 2024-04-12 06:21:27
+Random Quote: Journalist: "Mr. Stark, were you injured in the attack?"
+Tony Stark: "No, but I did spill my drink, and it was a '26 Macallan, so I'm pretty sure that's a war crime." - Iron Man
