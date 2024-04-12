@@ -1,4 +1,2 @@
-Last updated: 2024-04-12 07:15:37
-Random Quote: Ted: "Okay, time to get the horn back to the bistro."
-Robin: "Oh Ted, I don't know if I can go again, that tuckered me out."
-Ted: "No euphemism." - Robin Scherbatsky
+Last updated: 2024-04-12 07:16:11
+Random Quote: Asha Greyjoy did not intend to be taken alive.  She would die as she had lived, with an axe in her hand and a laugh upon her lips.  -  Asha Greyjoy

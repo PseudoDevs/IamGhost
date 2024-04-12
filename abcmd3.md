@@ -1,2 +1,2 @@
-Last updated: 2024-04-12 07:15:38
-Random Quote: That's not a law, just a sword.  Happens I got one too.  -  Yoren of the Night's Watch
+Last updated: 2024-04-12 07:16:11
+Random Quote: I asked him why he kept her close, if he thought her so grotesque.  He said that all his other knights wanted things of him, castles or honors or riches, but all that Brienne wanted was to die for him.  -  Loras Tyrell
