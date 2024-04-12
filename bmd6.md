@@ -1,2 +1,2 @@
-Last updated: 2024-04-12 05:01:04
-Random Quote: Science fact: Sisters are the worst. - Sheldon
+Last updated: 2024-04-12 05:01:39
+Random Quote: Barney: "On your tombstone, it will be, 'Lily Aldrin. Caring wife. Loving friend. Slapbet-Commissioner.'"Marshall: "And your tombstone will read, 'Got slapped by Marhsall so hard he died.'" - Marshall Eriksen
