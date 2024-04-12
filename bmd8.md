@@ -1,2 +1,2 @@
-Last updated: 2024-04-12 06:04:12
-Random Quote: There was this sadness in his eyes. The kind you sometimes see in those who want to die, but life won’t let them - Noah
+Last updated: 2024-04-12 06:04:46
+Random Quote: Marshall: "The last time I lived this far from him, was my semester abroad."Lily: "You never did a semester abroad?"Marshall: "That's what I called it, when we lived on opposite sides of the campus." - Marshall Eriksen
