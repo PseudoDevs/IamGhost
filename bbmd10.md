@@ -1,2 +1,2 @@
-Last updated: 2024-04-12 05:12:59
-Random Quote: Mitchell: "It's been five years now and he still does this thing were he announces himself before walking into any room we're in, just to make sure he doesn't ever see us kiss."Cameron: "Wish my mother had that system. Remember?" - Cameron Tucker
+Last updated: 2024-04-12 05:13:32
+Random Quote: Anyone who goes after him is gonna have to come through me. - Mike Ehrmantraut
