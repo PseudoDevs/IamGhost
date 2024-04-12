@@ -1,3 +1,3 @@
-Last updated: 2024-04-12 07:27:24
-Random Quote: Freddie: "If you want me out of Birmingham, it'll have to be in a wooden box."
-Polly: "You lay a hand on our Ada, I'll put you in a wooden box myself!" - Polly Gray
+Last updated: 2024-04-12 07:27:59
+Random Quote: Wanda: "I had a brother. His name was Pietro."
+Geraldine: "He was killed by Ultron, wasn't he?" - Monica "Geraldine" Rambeau
