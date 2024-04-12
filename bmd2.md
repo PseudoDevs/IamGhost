@@ -1,2 +1,2 @@
-Last updated: 2024-04-12 05:18:57
-Random Quote: Qhorin was my enemy.  But also my brother, once.  So... shall I thank you for killing him, Jon Snow?  Or curse you?  -  Mance Rayder
+Last updated: 2024-04-12 05:19:30
+Random Quote: Nuncle always had a fondness for freaks and fools.  My father used to fight with him about it.  Let the wizards call upon their gods.  The Damphair will call on ours, and drown them.  -  Asha Greyjoy
