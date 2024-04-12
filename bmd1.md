@@ -1,2 +1,2 @@
-Last updated: 2024-04-12 05:08:12
-Random Quote: Even brave men blind themselves sometimes, when they are afraid to see.  -  Beric Dondarrian
+Last updated: 2024-04-12 05:08:45
+Random Quote: Client: "Please lower your blaster."Mando: "Tell them to lower theirs first."Stormtrooper: "We have you four to one."Mando: "I like those odds." - Din Djarin
