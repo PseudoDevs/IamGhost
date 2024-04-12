@@ -1,2 +1,2 @@
-Last updated: 2024-04-12 06:30:26
-Random Quote: God wasn't protecting you. The kid had shitty aim. - Grace Young
+Last updated: 2024-04-12 06:31:01
+Random Quote: The frightened child who sheltered in my manse died on the Dothraki Sea, and was reborn in blood and fire.  This dragon queen who wears her name is a true Targaryen.  -  Illyrio Mopatis
