@@ -1,2 +1,2 @@
-Last updated: 2024-04-12 07:29:29
-Random Quote: In this world, a man must learn to seize whatever gifts the gods chose to send him.  That was a lesson I learned at some cost.  -  The Tattered Prince
+Last updated: 2024-04-12 07:30:03
+Random Quote: Now don't be a p-ssy, laser my f-cking t-ts! - Stormfront
