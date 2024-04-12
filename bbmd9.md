@@ -1,3 +1,2 @@
-Last updated: 2024-04-12 06:15:08
-Random Quote: Kids, you can't talk yourself into falling in love. It doesn't take days of deliberation. When it's real, you know pretty quickly and with absolute certainty.
-I had forgotten that, but I was about to be reminded... - Ted Mosby
+Last updated: 2024-04-12 06:15:41
+Random Quote: I am Mr. Charity. I frequently sleep with sixes, chubsters, over thirty's. I am the Bill and Melinda Gates of the sympathy bang. - Barney Stinson
