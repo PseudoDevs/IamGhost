@@ -1,2 +1,2 @@
-Last updated: 2024-04-12 06:20:55
-Random Quote: Come on Ted, it's 2012. What do you expect, to meet some cute travel agent when you're reading a newspaper at a bookstore? None of those things exist anymore! - Barney Stinson
+Last updated: 2024-04-12 06:22:40
+Random Quote: A man will tell you poison is dishonorable, but a woman's honor is different.  The Mother shaped us to protect our children, and our only dishonor is failure.  -  Lysa Arryn
