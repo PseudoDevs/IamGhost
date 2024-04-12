@@ -1,2 +1,2 @@
-Last updated: 2024-04-12 06:44:31
-Random Quote: Quentyn had never felt so much a boy as when he'd stood before Daenerys Targaryen, pleading for her hand.  The thought of bedding her terrified him almost as much as her dragons had.  -  Quentyn Martell
+Last updated: 2024-04-12 06:45:04
+Random Quote: Do you remember that cave?  We should have stayed in that cave.  I told you so.  -  Ygritte
