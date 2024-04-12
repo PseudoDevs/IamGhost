@@ -1,4 +1,2 @@
-Last updated: 2024-04-12 06:51:27
-Random Quote: Joel: "You keep going for family."
-Ellie: "I'm not family?"
-Joel: "No. You're cargo." - Joel Miller
+Last updated: 2024-04-12 06:52:01
+Random Quote: When I knew him, he was. - Kim Wexler
