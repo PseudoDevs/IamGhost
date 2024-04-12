@@ -1,2 +1,2 @@
-Last updated: 2024-04-12 05:55:17
-Random Quote: Nuncle always had a fondness for freaks and fools.  My father used to fight with him about it.  Let the wizards call upon their gods.  The Damphair will call on ours, and drown them.  -  Asha Greyjoy
+Last updated: 2024-04-12 05:55:54
+Random Quote: The "no more surprises"-thing is the best part of being married. - Lily Aldrin
