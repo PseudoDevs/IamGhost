@@ -1,2 +1,2 @@
-Last updated: 2024-04-12 05:42:11
-Random Quote: Men say Tywin never smiled, but he smiled when he wed your mother, and when Aerys made him Hand.  When Tarbeck Hall came crashing down on Lady Ellyn, that scheming bitch, Tyg claimed he smiled then, and he smiled at your birth, Jaime, I saw with my own eyes.  -  Genna Lannister
+Last updated: 2024-04-12 05:42:44
+Random Quote: A bag of dragons buys a man's silence for a while, but a well - placed quarrel buys it forever. 
