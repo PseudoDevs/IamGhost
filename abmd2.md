@@ -1,2 +1,2 @@
-Last updated: 2024-04-12 06:01:19
-Random Quote: I was in the desert. But if visiting the sands were a crime, the line of sinners would be longer than the Nile. - Arthur Harrow
+Last updated: 2024-04-12 06:01:52
+Random Quote: Nobody takes an intro class to get on any other path, but the path to not being hungover anymore. I learned that in my intro to something-ology class. - Marshall Eriksen
