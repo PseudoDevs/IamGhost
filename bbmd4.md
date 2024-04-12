@@ -1,2 +1,2 @@
-Last updated: 2024-04-12 05:11:49
-Random Quote: All you Westerosi make a shame of loving.  Ther is no shame in loving.  If your septons say there is, your seven gods must be demons.  In the isles we know better.  Our gods gave us legs to run with, noses to smell with, hands to touch and feel.  What mad cruel god would give a man eyes and tell him he must forever keep them shut, and never look at all the beauty in the world?  Only a monster god, a demon of the darkness.  -  Kojja Mo
+Last updated: 2024-04-12 05:12:22
+Random Quote: The day is won, and yet you do not smile, boy.  The living should smile, for the dead cannot.  -  Dagmer Cleftjaw
