@@ -1,2 +1,2 @@
-Last updated: 2024-04-12 07:24:06
-Random Quote: Robin: "This locket was my grandma's, she kept it hidden in her butt all through world war II."Lily: "What? Where was she?"Robin: "Winnipeg. Come on, Lily, that is a joke." - Robin Scherbatsky
+Last updated: 2024-04-12 07:24:40
+Random Quote: I'm really sorry if I gave you the wrong impression. I'm not interested in dating anyone. I'm extremly busy with work and raising my son, and I just have no room in my life for the kind of intimacy you are clearly craving. But I really comment you on your directness and your bravado and I really hope that you find what you're looking for. Goodbye, now. - Dr. Jean Milburn
