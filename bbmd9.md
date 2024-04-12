@@ -1,3 +1,2 @@
-Last updated: 2024-04-12 05:41:40
-Random Quote: Lily: "We're going to Atlantic City to elope - right now!"
-Barney: "Oh, congratulations Lily! Marshall, you're getting married? What the hell?" - Barney Stinson
+Last updated: 2024-04-12 05:42:14
+Random Quote: I am one far more accustomed to demanding answers, fool, than to giving them. - Thor
