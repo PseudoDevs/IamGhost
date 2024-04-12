@@ -1,2 +1,2 @@
-Last updated: 2024-04-12 05:30:14
-Random Quote: Elia of Dorne.  I killed her screaming whelp.  Then I raped her.  Then I smashed her fucking head in like this.  -  Gregor Clegane
+Last updated: 2024-04-12 05:30:47
+Random Quote: The Lion does not concern itself with the opinions of sheep.  -  Tywin Lannister
