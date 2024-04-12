@@ -1,2 +1,2 @@
-Last updated: 2024-04-12 05:54:05
-Random Quote: She hated her life, not because it was bad, but because when you hate your brain and your body, it's hard to enjoy the rest. - Rue Bennett
+Last updated: 2024-04-12 05:54:40
+Random Quote: Whats your prescription, Dr. Estrogen? Eat Haagen-Dazs and watch "Love... actually" until your periods sync up? - Barney Stinson
