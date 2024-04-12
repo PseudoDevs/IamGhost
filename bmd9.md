@@ -1,2 +1,2 @@
-Last updated: 2024-04-12 05:03:58
-Random Quote: Godless?  Why, Aeron, I am the godliest man ever to raise sail!  You serve one god, Damphair, but I have served ten thousand.  From Ib to Asshai, when men see my sails, they pray.  -  Euron Greyjoy
+Last updated: 2024-04-12 05:04:32
+Random Quote: Wylla.  Did you see how brave she was.  Even when I threatened to have her tongue out, she reminded me of the debt White Harbor owes to the Starks of Winterfell, a debt that can never be repaid.  Wylla spoke from the heart... not every woman can be as brave as my Wylla.  -  Wyman Manderly
