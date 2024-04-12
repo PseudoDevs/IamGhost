@@ -1,2 +1,2 @@
-Last updated: 2024-04-12 05:36:44
-Random Quote: You fight back with your spirit, little one. You stand up for yourself! - Devi Vishwakumar
+Last updated: 2024-04-12 05:37:17
+Random Quote: The septons preach about the seven hells.  What do they know?  Only a man who's been burned knows what hell is truly like.  -  Sandor Clegane

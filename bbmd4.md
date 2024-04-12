@@ -1,2 +1,2 @@
-Last updated: 2024-04-12 05:36:44
-Random Quote: Things never work out the way you imagine they will. - Lucien
+Last updated: 2024-04-12 05:37:17
+Random Quote: Pennsatucky: "It weren't my fault. I was just doing as the Spirit commanded."Pussey: "Fuck are you? Joan of Arc?"Pennsatucky: "No, I'm from Waynesboro, my name is Tiffany..." - Tiffany 'Pennsatucky' Doggett
