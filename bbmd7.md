@@ -1,3 +1,3 @@
-Last updated: 2024-04-12 05:47:02
-Random Quote: What's in the box? What's in the box? WHAT'S IN THE BOX?
-Right? Brad pitt? Seven? - Robin Scherbatsky
+Last updated: 2024-04-12 05:47:43
+Random Quote: Lily: "We're going to Atlantic City to elope - right now!"
+Barney: "Oh, congratulations Lily! Marshall, you're getting married? What the hell?" - Barney Stinson
