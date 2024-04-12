@@ -1,2 +1,2 @@
-Last updated: 2024-04-12 06:41:50
-Random Quote: Success is 1% inspiration, 98% perspiration, and 2% attention to detail. - Phil Dunphy
+Last updated: 2024-04-12 06:42:24
+Random Quote: You were supposed to be my wife, to bear me children with silver hair and purple eyes, to keep the blood of the dragon pure.  I took care of you.  I taught you who you were.  I fed you.  I sold our mother's crown to keep you fed.  -  Viserys Targaryen

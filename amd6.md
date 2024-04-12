@@ -1,2 +1,2 @@
-Last updated: 2024-04-12 06:41:50
-Random Quote: That was the night I was born. I rose like a phoenix from her mentholated bosom and strode into the world, Armani-clad and fully awesome. - Barney Stinson
+Last updated: 2024-04-12 06:42:25
+Random Quote: I will go to my grave thinking of my brother's peach.  -  Stannis Baratheon
