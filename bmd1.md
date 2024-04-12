@@ -1,2 +1,2 @@
-Last updated: 2024-04-12 05:22:03
-Random Quote: Mando: "I was not born on Mandalore."Greef Karga: "But you're Mandalorian?"Cara Dune: "Mandalorian isn't a race."Mando: "It's a Creed." - Din Djarin
+Last updated: 2024-04-12 05:22:37
+Random Quote: Have you ever lost someone? It's like you're dying with them. They can move on. And you're stuck. - Eyk Larsen
