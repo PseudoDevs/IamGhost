@@ -1,2 +1,2 @@
-Last updated: 2024-04-12 04:55:25
-Random Quote: When treating with liars, even an honest man must lie.  -  Wyman Manderly
+Last updated: 2024-04-12 04:55:58
+Random Quote: Ted: "You're not gonna do it at your wedding?"Lily: "Hell, yeah! I'm gonna take that flower-grenade and chuck it to the crowd and scream, 'Crawl for it, bitches!'" - Lily Aldrin
