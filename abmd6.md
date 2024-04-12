@@ -1,2 +1,2 @@
-Last updated: 2024-04-12 05:10:22
-Random Quote: Best way to catch the smart ones? Get an idiot working for them. - Jaime Kuykendall
+Last updated: 2024-04-12 05:10:56
+Random Quote: Robert was never the same after he put on that crown.  Some men are like swords, made for fighting.  Hang them up and they go to rust.  -  Donal Noye
