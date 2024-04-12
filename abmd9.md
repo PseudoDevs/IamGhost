@@ -1,2 +1,2 @@
-Last updated: 2024-04-12 07:19:05
-Random Quote: My real father died in King's Landing.  I made a choice, and I chose wrong.  -  Theon Greyjoy
+Last updated: 2024-04-12 07:19:42
+Random Quote: The most important moments are the ones that make you realize there’s no turning back. You’ve crossed a line, and you’re stuck on the other side now. - Tokyo
