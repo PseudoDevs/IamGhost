@@ -1,2 +1,2 @@
-Last updated: 2024-04-12 06:15:32
-Random Quote: I actually enjoyed being alone, solitude allowed me to think about important things. - Sheldon
+Last updated: 2024-04-12 06:16:07
+Random Quote: A hall to die in, and men to bury me.  I thank you, my lords... but I spit on your pity... I am a knight... I shall die a knight.  -  Barristan Selmy
