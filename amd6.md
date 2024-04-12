@@ -1,2 +1,2 @@
-Last updated: 2024-04-12 06:52:34
-Random Quote: In this world, everything is governed by balance. There’s what you stand to gain and what you stand to lose. And when you think you’ve got nothing to lose, you become overconfident - Professor
+Last updated: 2024-04-12 06:53:08
+Random Quote: Everyone wants something, Alayne.  And when you know what a man wants you know who he is, and how to move him.  -  Petyr Baelish
