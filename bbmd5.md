@@ -1,2 +1,2 @@
-Last updated: 2024-04-12 04:57:02
-Random Quote: Robert was never the same after he put on that crown.  Some men are like swords, made for fighting.  Hang them up and they go to rust.  -  Donal Noye
+Last updated: 2024-04-12 04:57:36
+Random Quote: I only have one rule. For every three 10's you bang, throw a bone to a 5. They're grateful and hard working and let's face it, sometimes you just want to lay there. - Barney Stinson
