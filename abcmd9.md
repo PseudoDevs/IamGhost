@@ -1,2 +1,2 @@
-Last updated: 2024-04-12 05:24:17
-Random Quote: Kids, Robin and Barney had recently shared an awkward moment. After that, they did what any two mature adults would do: They pretended it never happened. - Ted Mosby
+Last updated: 2024-04-12 05:24:51
+Random Quote: Ted: "You're not gonna do it at your wedding?"Lily: "Hell, yeah! I'm gonna take that flower-grenade and chuck it to the crowd and scream, 'Crawl for it, bitches!'" - Lily Aldrin
