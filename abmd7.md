@@ -1,2 +1,2 @@
-Last updated: 2024-04-12 06:47:19
-Random Quote: You want to know what's really interesting? Aristotle thought that the sound of thunder was due to a collision between two cloudsHe believed the clouds were expelling air, in the way a log on a fire crackles. - Sheldon
+Last updated: 2024-04-12 06:47:53
+Random Quote: My daughter has taken an axe for a lover.  I will not have my son bedeck himself like a whore.  It is as I feared.  The green lands have made you soft, and the Starks have made you theirs.  -  Balon Greyjoy
