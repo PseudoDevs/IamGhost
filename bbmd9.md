@@ -1,2 +1,3 @@
-Last updated: 2024-04-12 06:29:16
-Random Quote: And there's this other band, led by this woman Stoneheart... Lord Beric's lover, according to one tale.  Supposedly she was hanged by the Freys, but Dondarrion kissed her and brought her back to life, and now she cannot die, no more than he.  -  Set Hyle Hunt
+Last updated: 2024-04-12 06:29:49
+Random Quote: Planetina: "Your acid rain is an acid pain... in the butt, Diesel Wiesel!"
+Rick: "Yikes! Who's the chick in need of a dialogue pass?" - Rick Sanchez
