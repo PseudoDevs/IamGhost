@@ -1,2 +1,2 @@
-Last updated: 2024-04-12 05:31:09
-Random Quote: Fool's blood, king's blood, blood on the maiden's thigh, but chains for the guests and chains for the bridegroom, aye aye aye.  -  Patchface
+Last updated: 2024-04-12 05:31:43
+Random Quote: America, Freddie. They've already had their revolution, you won't have to bother. - Ada Thorne
