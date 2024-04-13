@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 17:40:08
-Random Quote: Most people are nothing but pawns on a chessboard led by an unknown hand - Noah
+Last updated: 2024-04-13 17:40:42
+Random Quote: A man who sees nothing has no use for his eyes, cut them out and give them to your next outrider.  Tell him you hope that four eyes might see better than two... and if not, the man after him will have six.  -  Gregor Clegane
