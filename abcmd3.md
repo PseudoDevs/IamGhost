@@ -1,2 +1,3 @@
-Last updated: 2024-04-13 17:12:53
-Random Quote: You know, it's funny. Almost every woman I've ever met was wrong to give me a chance. You're the first woman who's wrong not to. - Barney Stinson
+Last updated: 2024-04-13 17:15:56
+Random Quote: Morty: "So, time moves faster in there? Is it like a Narnia thing?"
+Rick: "I'm not a beaver who believes in Jesus Christ, Morty. But yeah, it's pretty much a Narnia thing." - Rick Sanchez
