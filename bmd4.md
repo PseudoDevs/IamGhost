@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 18:26:31
-Random Quote: Our brain isn't always entirely reliable. Everything that we see and feel and hear are the result of electrical impulses. And sometimes we misinterpret those impulses. It's what makes people go mad. - Maura Franklin
+Last updated: 2024-04-13 18:27:04
+Random Quote: There are moments when we must understand that the decisions we make influence more than just our own fates. - 
