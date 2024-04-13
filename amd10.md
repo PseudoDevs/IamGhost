@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 17:06:56
-Random Quote: Lily: "A swordfight? On Monday I'm gonna have to tell my kindergarten class, who I teach not to run with scissors, that my fiancé ran me through with a freakin' broadsword."Marshall: "Well... just to be fair, it didn't go all the way through."Lily: "I'm sorry, is this a discussion of the degree to which you stabbed me?" - Lily Aldrin
+Last updated: 2024-04-13 17:08:39
+Random Quote: That's where The Boys come in: Spank the bastards when they get out of line. - Billy Butcher
