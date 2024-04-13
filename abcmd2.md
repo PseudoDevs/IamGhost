@@ -1,3 +1,2 @@
-Last updated: 2024-04-13 17:01:31
-Random Quote: Gor Koresh: "This is no place for a child."
-Mando: "Wherever I go, he goes. I've been quested to bring him to his kind." - Din Djarin
+Last updated: 2024-04-13 17:02:05
+Random Quote: I don't know what kind of fed up sht you got going inside of your head. I don't know how to help, but I could tell you one thing: This drug sht - it's not the answer. - Fezco
