@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 17:24:33
-Random Quote: New York! Home of the Mets, the Chrysler Building, those ladies from Sex and the City and now, the zombie apocalypse. If you can make it here, you can make it anywhere - but first, you have to not get eaten. - Spider-Man
+Last updated: 2024-04-13 17:25:06
+Random Quote: You'd have been the last lawyer I'd have gone to. - Walter White
