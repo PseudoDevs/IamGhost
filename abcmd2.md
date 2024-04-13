@@ -1,4 +1,2 @@
-Last updated: 2024-04-13 18:56:14
-Random Quote: Joel: "Long way or short way?"
-Tess: "I mean, it's the long way or the 'we're fuckin' dead' way."
-Ellie: "Well, I vote long way just based on that limited information." - Ellie Williams
+Last updated: 2024-04-13 18:56:48
+Random Quote: Hey gods, it's Devi Vishwakumar, your favorite Hindu girl in the San Fernando Valley. What's a-poppin'? It's the first day of school, and I thought we should have a check-in. I think we can all agree that last year sucked for a number of reasons. So I thought of a few ways you guys can make it up to me. One: I'd like to be invited to a party with alcohol and hard drugs. I'm not gonna do them, I'd just like the opportunity to say, "No cocaine for me, thanks. I'm good." Two: I'd love for my arm hair to thin out. I know it's an Indian thing, but my forearms look like the frigging floor of a barber shop. And lastly, most importantly, I'd really, really like a boyfriend, but not some nerd from one of my AP classes. Like a guy from a sports team. He can be dumb, I don't care. I just want him to be a stone-cold hottie, who could rock me all night long. Thanks for considering. I love you guys. - Devi Vishwakumar
