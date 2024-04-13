@@ -1,3 +1,2 @@
-Last updated: 2024-04-13 10:24:37
-Random Quote: Robin: "I'm drinking 'til I forget the 1999 NFC Championship?"
-Marshall: "The Vikings were two minutes away from going to the Super Bowl, when our kicker, who hadn't missed all year, shanked a field goal, and we lost in overtime. Damn!" - Marshall Eriksen
+Last updated: 2024-04-13 10:25:15
+Random Quote: Clearly, his taste in women is the same as his taste in lawyers. - Saul Goodman

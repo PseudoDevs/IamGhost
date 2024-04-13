@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 10:24:37
-Random Quote: Tell the Crow's Eye he's afraid of kinslaying and he'll murder one of his own sons just to prove you wrong.  -  Asha Greyjoy
+Last updated: 2024-04-13 10:25:16
+Random Quote: You know, I hear you say things like that, and I wonder if maybe I did have a few too many whiskey sours when you were in my belly. - Meemaw
