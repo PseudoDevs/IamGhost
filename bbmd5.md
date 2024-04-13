@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 18:00:16
-Random Quote: When you date someone, it's like you're taking one long course in who that person is and then, when you break up, all that stuff becomes useless. It's the emotional equivalent of an English degree... - Ted Mosby
+Last updated: 2024-04-13 18:00:50
+Random Quote: I have won every battle, yet somehow I'm losing the war.  -  Robb Stark
