@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 17:55:28
-Random Quote: We were king's men, knights, and heroes... but some knights are dark and full of terror, my lady.  War makes monsters of us all.  -  Thoros of Myr
+Last updated: 2024-04-13 17:56:01
+Random Quote: I'm supposed to be this hero, idol symbol, but I don't know what the hell I'm doing. - Starlight
