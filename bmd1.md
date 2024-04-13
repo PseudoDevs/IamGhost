@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 10:20:03
-Random Quote: There's nothing more powerful than a fat girl who doesn't give a f. - Kat Hernandez
+Last updated: 2024-04-13 10:21:58
+Random Quote: Is it your fault that Bronn's an insolent black - hearted rogue?  He's always been an insolent black
