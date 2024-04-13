@@ -1,4 +1,2 @@
-Last updated: 2024-04-13 19:01:22
-Random Quote: Bro McDonald had a farm, E-I-E-I-bro
-And on that farm he had some chicks, E-I-E-I-bro
-With a hot chick here and a dumb chick there... - Barney Stinson
+Last updated: 2024-04-13 19:01:55
+Random Quote: The world is full of such paradoxes we simply choose to ignore them most of the time. - 
