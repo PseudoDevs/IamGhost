@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 17:13:14
-Random Quote: I’d get 30 years. And to be honest, growing old in a prison cell is not my thing. I’d rather run, in body and soul. And if I can’t take my body with me, at least my soul should run. - Tokyo
+Last updated: 2024-04-13 17:13:47
+Random Quote: I rose too high, loved too hard, dared too much. I tried to grasp a star, overreached, and fell.  -  Jon Connington
