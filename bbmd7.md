@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 10:13:59
-Random Quote: Grey Wind ate two of his fingers, and he laughed about it.  -  Robb Stark on Greatjon Umber
+Last updated: 2024-04-13 10:14:34
+Random Quote: I guess we all have things we try to hide. But they can't stay hidden forever. - Hannah Baker
