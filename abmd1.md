@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 18:21:47
-Random Quote: If you keep all your treasures in one purse, you only make it easier for those who would rob you.  -  Robb Stark
+Last updated: 2024-04-13 18:22:20
+Random Quote: Your innocence may be as plain as the scar on your face, but it will not save you.  No more than your father will.  But I might.  Not as your judge.  As your champion.  -  Oberyn Martell
