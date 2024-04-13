@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 18:13:10
-Random Quote: A dad makes a toilet look like R2-D2 and it breaks the front page of Reddit. But I'm Charles Manson because I gave you your own world instead of an iPad. - Rick Sanchez
+Last updated: 2024-04-13 18:14:20
+Random Quote: I am Pablo Emilio Escobar Gaviria. My eyes are everywhere. That means you guys can't move a finger in all of Antioquia without me knowing about it. Do you understand? Not a finger. One day, I'm going to be president of the Republic of Colombia. So look, I make deals for a living. Now, you can stay calm and accept my deal, or accept the consequences. - Pablo Escobar
