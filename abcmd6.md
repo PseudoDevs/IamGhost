@@ -1,3 +1,2 @@
-Last updated: 2024-04-13 10:12:10
-Random Quote: Gor Koresh: "This is no place for a child."
-Mando: "Wherever I go, he goes. I've been quested to bring him to his kind." - Din Djarin
+Last updated: 2024-04-13 10:12:45
+Random Quote: Name one thing in this world that is non negotiable. - Walter White
