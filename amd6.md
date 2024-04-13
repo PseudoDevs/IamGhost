@@ -1,2 +1,4 @@
-Last updated: 2024-04-13 10:11:26
-Random Quote: I want you to allow yourself to aknowledge the pain that you so clearly feel. - Fabiola Torres
+Last updated: 2024-04-13 10:11:59
+Random Quote: Marshall: "Except the flames of Lucifer keep singein our back bumper as we drive through this hellish, cheese-infected wasteland."
+Lily: "Wisconsin?"
+Marshall: "Wisconsin!" - Marshall Eriksen
