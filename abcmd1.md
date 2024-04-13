@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 17:16:57
-Random Quote: If you waste time trying to get people to love you, you'll end up the most popular dead man in town.  -  Bronn
+Last updated: 2024-04-13 17:17:30
+Random Quote: Marshall: "The tiniest little burger joint you ever saw. Tucked between a taxidermist and a XXX bookstore."Barney: "Name two places where things get stuffed." - Barney Stinson
