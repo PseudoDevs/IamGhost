@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 18:54:31
-Random Quote: I have a tender spot in my heart for cripples, bastards, and broken things.  -  Tyrion Lannister
+Last updated: 2024-04-13 18:55:05
+Random Quote: The Mandalorian. His armor alone is worth more than my bounty. - Fennec Shand
