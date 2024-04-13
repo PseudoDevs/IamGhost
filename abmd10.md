@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 18:46:00
-Random Quote: You need to figure out what the fuck you want. - Nicky Nichols
+Last updated: 2024-04-13 18:46:36
+Random Quote: That's the thing with guys like Nate. They don't actually want a person. They want something they can own and possess. - Rue Bennett
