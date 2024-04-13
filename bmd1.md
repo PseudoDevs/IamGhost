@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 18:21:23
-Random Quote: You have a passing clever father, Devan.  He makes me wish I had more smugglers in my service.  And fewer lords.  -  Stannis Baratheon
+Last updated: 2024-04-13 18:21:59
+Random Quote: Catelyn would sooner Lord Umber had seen fit to stay sober, but telling the Greatjon not to drink was like telling him not to breathe for a few hours.  -  Catelyn Stark
