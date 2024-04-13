@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 18:06:20
-Random Quote: Finally, you will be among pears who understand you. Maybe you'll even make some friends. - Morticia Addams
+Last updated: 2024-04-13 18:06:53
+Random Quote: I was wed three times and my wives gave me daughters.  Now only Beth remains to me.  My brother Martyn fathered four strong sons, yet only Jory lived to be a man.  When he was slain, Martyn's line died with him.  When we speak of the morrow nothing is ever certain.  -  Rodrik Cassel
