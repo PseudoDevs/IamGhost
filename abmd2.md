@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 10:09:13
-Random Quote: Did you just bring a bomb into a hospital? - Jesse Pinkman
+Last updated: 2024-04-13 10:09:46
+Random Quote: In King's Landing, there are two sorts of people.  The players and the pieces.  -  Petyr Baelish
