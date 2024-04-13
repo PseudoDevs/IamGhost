@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 17:21:39
-Random Quote: If you're looking for the word that means caring for someone beyond all rationality and wanting them to have everything they want, no matter how much it destroys you, it's love! - Ted Mosby
+Last updated: 2024-04-13 17:22:14
+Random Quote: Ted: "You always kept your toothbrush in the bedroom. Also weird, by the way."Lily: "No. We kept it in the bathroom."Ted: "No, there was only one toothbrush in the bathroom, and it was mine..." - Ted Mosby
