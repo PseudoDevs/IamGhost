@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 16:55:53
-Random Quote: Lily: "It's nine weeks 'til the wedding, at this point, I'd say yes to just about anything."Barney: "Well..."Lily: "No, Barney." - Lily Aldrin
+Last updated: 2024-04-13 16:56:25
+Random Quote: Elia Martell, Princess of Dorne.  You raped her!  You murdered her!  You killed her children!  -  Oberyn Martell
