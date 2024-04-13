@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 10:12:50
-Random Quote: What's a bigger feeling than love? - Elliot
+Last updated: 2024-04-13 10:13:24
+Random Quote: Bronn was no knight, that was true.  Bronn was a battle - hardened killer. 
