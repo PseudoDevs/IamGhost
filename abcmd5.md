@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 17:14:40
-Random Quote: Rick: "If it's all the same, could we still get our stories straight? Because you're a terrible liar."Jerry: "You called me a master convincer!"Rick: "You believed me?" - Rick Sanchez
+Last updated: 2024-04-13 17:15:18
+Random Quote: Men call me Darkstar, and I am of the night.  -  Gerold Dayne
