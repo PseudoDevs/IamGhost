@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 18:57:43
-Random Quote: Once, she had loved Prince Joffrey with all her heart, and admired and trusted his mother, the queen.  They had repaid that love and trust with her father's head.  Sansa would never make that mistake again.  -  Sansa Stark
+Last updated: 2024-04-13 18:58:16
+Random Quote: You can tell a lot about a person from his biography. - Phil Dunphy
