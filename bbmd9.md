@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 17:09:49
-Random Quote: Theon found himself wondering if he should say a prayer.  Will the Old Gods hear me if I do?  They were not his gods, had never been his gods.  He was ironborn, a son of Pyke, his god was the Drowned God of the islands... but Winterfell was long leagues from the sea.  It had been a lifetime since any god had heard him.  He did not know who he was, or what he was, why he was still alive, why he had ever been born.  -  Theon Greyjoy
+Last updated: 2024-04-13 17:10:23
+Random Quote: My son lies here broken and dying, Luwin, and you wish to discuss a new master of horse?  Do you think I care what happens in the stables?  Do you think it matters to me one whit?  I would gladly butcher every horse in Winterfell with my own hands if it would open Bran's eyes, do you understand that?  Do you?  -  Catelyn Stark
