@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 10:16:22
-Random Quote: If I ever get anal polyps, I'll know what to name them. - Saul Goodman
+Last updated: 2024-04-13 10:18:08
+Random Quote: They are children, Sansa thought.  They are silly little girls, even Elinor.  They've never seen a battle, they've never seen a man die, they know nothing.  Their dreams were full of songs and stories, the way hers had been before Joffrey cut her father's head off.  Sansa pitied them.  Sansa envied them.  -  Sansa Stark
