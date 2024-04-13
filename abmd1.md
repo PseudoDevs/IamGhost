@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 17:33:48
-Random Quote: Gloria: "It seemd like all what we did was fight and make love. One time, I'm not kidding you, we fell out of the window together."Jay: "Which one were you doing?" - Jay Pritchett
+Last updated: 2024-04-13 17:34:21
+Random Quote: The Wall can stop an army, but not a man alone.  -  Mance Rayder
