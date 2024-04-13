@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 17:11:34
-Random Quote: No one had expected the broken boy to live.  The gods could not kill Bran, no more than I could.  It was a strange thought, and stranger still to remember that Bran might still be alive.  -  Theon Greyjoy
+Last updated: 2024-04-13 17:12:08
+Random Quote: Beware, Thor, for thy brother shall free himself from our father's wrath And then shall you know the vengeance of Loki! - Thor
