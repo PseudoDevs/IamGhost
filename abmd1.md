@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 10:12:03
-Random Quote: Why is it always the innocents who suffer most, when you high lords play your game of thrones?  -  Varys
+Last updated: 2024-04-13 10:12:37
+Random Quote: Lily: "Your job is very simple. At the wedding, do not sleep with anyone even remotely related to me."Barney: "Yeah. Lily, you know I can't promise that" - Barney Stinson
