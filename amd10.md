@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 10:15:25
-Random Quote: I’m not saying it’s not bad. It’s bad. But it could be worse. - Saul Goodman
+Last updated: 2024-04-13 10:15:59
+Random Quote: Spare me your empty little compliments, girl... and your ser's.  I am no knight.  I spit on them and their vows.  My brother is a knight.  -  Sandor Clegane
