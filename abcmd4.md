@@ -1,4 +1,3 @@
-Last updated: 2024-04-13 10:46:51
-Random Quote: Stark: "Red, green, blue... who paints a button blue?"
-Carter: "Don't tell me the American playboy needs help pushing buttons."
-Stark: "Hedy Lamarr and I spent a weekend together, but she wasn't teaching me German." - Howard Stark
+Last updated: 2024-04-13 10:48:08
+Random Quote: Kids, you can't talk yourself into falling in love. It doesn't take days of deliberation. When it's real, you know pretty quickly and with absolute certainty.
+I had forgotten that, but I was about to be reminded... - Ted Mosby
