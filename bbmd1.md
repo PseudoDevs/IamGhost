@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 10:45:34
-Random Quote: I'm not sure whose twisted idea it was to put hundreds of adolescents in underfunded schools run by people whose dreams were crushed years ago... but I admire the sadism. - Wednesday Addams
+Last updated: 2024-04-13 10:46:11
+Random Quote: You have to be as bad as them above in order to survive. - Polly Gray
