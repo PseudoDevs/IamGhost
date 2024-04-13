@@ -1,2 +1,3 @@
-Last updated: 2024-04-13 10:16:32
-Random Quote: So a guy with cancer can't be an asshole?? Believe me, I speak from experience. - Saul Goodman
+Last updated: 2024-04-13 10:17:06
+Random Quote: Miguel: "Would you have really fed me to those hippos?"
+Pablo: "No. Hippos don't like Mexicans either." - Pablo Escobar
