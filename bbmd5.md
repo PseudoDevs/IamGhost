@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 18:31:46
-Random Quote: Only Renly could vex me so with a piece of fruit.  He brought his doom on himself with his treason, but I did love him, Davos.  I know that now.  I swear, I will go to my grave thinking of my brother's peach.  -  Stannis Baratheon
+Last updated: 2024-04-13 18:32:19
+Random Quote: If you love something, you can never let it go. Not even for a second. Or it's gone forever. - Ted Mosby
