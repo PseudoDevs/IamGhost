@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 10:46:11
-Random Quote: You have to be as bad as them above in order to survive. - Polly Gray
+Last updated: 2024-04-13 10:46:49
+Random Quote: Because sometimes, even when you know how something's gonna end, that doesn't mean you can't enjoy the ride. - Ted Mosby
