@@ -1,3 +1,2 @@
-Last updated: 2024-04-13 10:19:27
-Random Quote: What's in the box? What's in the box? WHAT'S IN THE BOX?
-Right? Brad pitt? Seven? - Robin Scherbatsky
+Last updated: 2024-04-13 10:22:33
+Random Quote: Ted: "Grinch, Grinch, Grinch, Grinch!"[The lights turn out]Lily: "Happy? Now you pissed up the big guy upstairs!"Ted: "Yeah, I'm sure god cares if I..."Man: "You use that language again and I turn off your water!"Lily: "It's my super - he lives above me." - Lily Aldrin
