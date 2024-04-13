@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 18:09:41
-Random Quote: Nymeria was least dangerous when nearly naked.  Elsewise she was sure to have a dozen blades concealed about her person.  -  Areo Hotah
+Last updated: 2024-04-13 18:10:15
+Random Quote: You came in the door like thunder, Then hit the floor like thunder, Laying me down you wonder, Shaking the walls like thunder - 
