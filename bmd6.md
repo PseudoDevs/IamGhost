@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 10:42:26
-Random Quote: No, only a boy who dreams.  The greenseers were more than that.  They were wargs as well, as you are, and the greatest of them could wear the skins of any beast that flies or swims or crawls, and could look through the eyes of the weirwoods as well, and see the truth that lies beneath the world.  -  Jojen Reed
+Last updated: 2024-04-13 10:43:02
+Random Quote: Alex: "Luke got his head stuck in the banister again."Phil: "I got it. Where's the babyoil?"Claire: "It's on our bedside tip- I Don't know, find it!" - Claire Dunphy
