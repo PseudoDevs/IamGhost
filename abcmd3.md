@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 10:38:02
-Random Quote: We didn't choose this life, we're just living in it. - Number Five
+Last updated: 2024-04-13 10:38:39
+Random Quote: Here's the secret, kids: none of us can vow to be perfect. In the end, all we can do is promise to love each other with everything we've got. Because love's the best thing we do. - Ted Mosby
