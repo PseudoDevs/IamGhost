@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 10:13:16
-Random Quote: Shagg, son of Dolf will chop off their manhoods and feed them to the crows.  -  Shagga, son of Dolf
+Last updated: 2024-04-13 10:13:50
+Random Quote: Ted: "When you leave someone at the altar, you always leave a note. It's common courtesy."Victoria: "I think common courtesy went out the window when I did." - Victoria
