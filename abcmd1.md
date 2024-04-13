@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 17:59:46
-Random Quote: Just remember who your friends and who your enemies are. - Billy Butcher
+Last updated: 2024-04-13 18:00:18
+Random Quote: No man has ever died from bending his knee.  He who kneels may rise again, blade in hand.  He who will not kneel stays dead, stiff legs and all.  -  Balon Greyjoy
