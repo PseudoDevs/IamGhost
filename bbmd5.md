@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 10:17:32
-Random Quote: Shoot me and tomorrow those names are released. But save a bullet for yourself. Cause the system doesn't like heroes. - Miguel Angel Felix Gallardo
+Last updated: 2024-04-13 10:18:07
+Random Quote: It is for my prince to command, for Hotah to obey.  -  Areo Hotah
