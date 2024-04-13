@@ -1,2 +1,3 @@
-Last updated: 2024-04-13 10:15:11
-Random Quote: Female acrobats from Montreal, super flexible... we're gonna get Cirque du so-laid! - Barney Stinson
+Last updated: 2024-04-13 10:15:46
+Random Quote: Weems: "No doubt you'll find something that tickles your fancy."
+Wednesday: "The last person who tickled me lost a finger." - Wednesday Addams
