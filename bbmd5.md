@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 18:33:25
-Random Quote: You must be blind as well as maimed, Set.  Lift your eyes, and you will see the direwolf still flies above our walls.  -  Brynden Tully
+Last updated: 2024-04-13 18:34:30
+Random Quote: We are all full of sin. No pure human being exists. But no matter what we do, we never fall any lower than into God’s hands. - Noah
