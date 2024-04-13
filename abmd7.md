@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 17:23:35
-Random Quote: I'm not him, I'm not the turncloak, he died at Winterfell.  My name is Reek.  It rhymes with freak.  -  Reek
+Last updated: 2024-04-13 17:24:09
+Random Quote: Bronn was no knight, that was true.  Bronn was a battle - hardened killer. 
