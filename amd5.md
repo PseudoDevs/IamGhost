@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 18:53:59
-Random Quote: What is honor compared to a woman's love?  What is duty against the feel of a newborn son in your arms, or the memory of a brother's smile.  Wind and words.  Wind and words.  We are only human, and the gods have fashioned us for love.  That is our great glory and our great tragedy.  -  Aemon Targaryen
+Last updated: 2024-04-13 18:54:32
+Random Quote: My metabolism is all messed up. See, I can moose down a pint of fudge ripple for a midnight snack and wake up having lost weight. Well, everywhere except for my boobs. So annoying. - Robin Scherbatsky
