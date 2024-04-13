@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 18:13:44
-Random Quote: I poured my blood, sweat and tears into that building. Though, to be fair, a lot of that happened the day I accidentally fell down the elevator shaft. - Ted Mosby
+Last updated: 2024-04-13 18:14:19
+Random Quote: Fear is the worst enemy of progress. - 
