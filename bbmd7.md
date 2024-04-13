@@ -1,2 +1,3 @@
-Last updated: 2024-04-13 10:11:42
-Random Quote: Just keep your nose out of my business and up the teacher's butt where it usually is. - Devi Vishwakumar
+Last updated: 2024-04-13 10:12:15
+Random Quote: Bo-Katan: "You are not a Mandalorian."
+Boba: "Never said I was." - Boba Fett
