@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 10:08:39
-Random Quote: So that's it? A couple of white Urkels offer you sausages and you're gone? - Robin Scherbatsky
+Last updated: 2024-04-13 10:09:46
+Random Quote: All the tales agreed that the green men had strange magic powers.  Maybe they could help him walk again, even turn him into a knight.  They turned the little crannogman into a knight, even if it was only for a day, he thought.  A day would be enough.  -  Bran Stark
