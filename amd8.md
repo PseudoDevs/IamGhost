@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 18:50:02
-Random Quote: Always keep your foes confused.  If they are never certain who you are or what you want, they cannot know what you are like to do next.  Sometimes the best way to baffle them is to make moves that have no purpose, or even seem to work against you.  Remember that, Sansa, when you come to play the game.  -  Petyr Baelish
+Last updated: 2024-04-13 18:50:35
+Random Quote: There are worse ways to die than warm and drunk.  I knew a brother drowned himself in wine once.  It was a poor vintage, though, and his corpse did not improve it.  -  Dolorous Edd Tollett
