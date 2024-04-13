@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 16:56:28
-Random Quote: Barney: "Our wedding is gonna be legendary."Robin: "No wait for it?"Barney: "I've got you, I don't have to wait for it anymore." - Barney Stinson
+Last updated: 2024-04-13 16:57:03
+Random Quote: Perhaps magic was once a mighty force in the world, but no longer.  What little remains is no more than the wisp of smoke that lingers in the air after a great fire has burned out, and even that is fading.  Valyria was the last ember, and Valyria is gone.  -  Maester Luwin
