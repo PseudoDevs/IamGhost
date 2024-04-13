@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 17:14:03
-Random Quote: We were king's men, knights, and heroes... but some knights are dark and full of terror, my lady.  War makes monsters of us all.  -  Thoros of Myr
+Last updated: 2024-04-13 17:17:51
+Random Quote: Bitch! - Jesse Pinkman
