@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 18:53:11
-Random Quote: For the first time in my life, I don't want to find myself in three years with some random girl. No matter how many boobs she has. - Barney Stinson
+Last updated: 2024-04-13 18:54:17
+Random Quote: Nuncle always had a fondness for freaks and fools.  My father used to fight with him about it.  Let the wizards call upon their gods.  The Damphair will call on ours, and drown them.  -  Asha Greyjoy
