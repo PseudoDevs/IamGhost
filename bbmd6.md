@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 10:35:46
-Random Quote: See, lad, that's why he's the king and I'm not.  I can outdrink, outfight, and outsing him, and my member's thrice the size o' his, but Mance has cunning.  -  Tormund Giantsbane
+Last updated: 2024-04-13 10:36:19
+Random Quote: The past is always with us, Tyler. Now, you can try and run away but it's always there. - Rendell Locke
