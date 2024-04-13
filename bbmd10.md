@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 18:50:37
-Random Quote: It is so nice to be out in the fresh air. You smell that? That's the smell of urine that isn't Marvin's. - Marshall Eriksen
+Last updated: 2024-04-13 18:51:10
+Random Quote: Drugs are kind of cool. I mean, they're cool before they wreck your skin. And your life. And your family. That's when they get uncool. It's actually a very narrow window of cool. - Rue Bennett
