@@ -1,3 +1,2 @@
-Last updated: 2024-04-13 17:24:16
-Random Quote: Larissa: "So you automatically assume a Nevermore student is the murderer, even though there's no evidence a crime was even committed."
-Donovan: "I'm sorry. I forgot, you only teach the good outcasts here, right?" - Donovan Galpin
+Last updated: 2024-04-13 17:27:23
+Random Quote: I have always wanted to have one mahogany desk, but crime and office don’t get along. - Berlin
