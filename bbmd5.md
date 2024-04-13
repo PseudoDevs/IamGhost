@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 10:22:38
-Random Quote: Many hands make light work. And many mouths make good gossip. - Agatha Harkness
+Last updated: 2024-04-13 10:24:36
+Random Quote: Aye, and from what I saw of Joffrey, you are as unfit a mother as you are a ruler.  -  Kevan Lannister

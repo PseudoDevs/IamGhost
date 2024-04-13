@@ -1,2 +1,3 @@
-Last updated: 2024-04-13 10:23:16
-Random Quote: But what is grief, if not love persevering? - Vision
+Last updated: 2024-04-13 10:24:37
+Random Quote: Robin: "I'm drinking 'til I forget the 1999 NFC Championship?"
+Marshall: "The Vikings were two minutes away from going to the Super Bowl, when our kicker, who hadn't missed all year, shanked a field goal, and we lost in overtime. Damn!" - Marshall Eriksen
