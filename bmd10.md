@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 18:03:10
-Random Quote: Droids are not good or bad. They are neutral reflections of those who imprint them. - Kuiil
+Last updated: 2024-04-13 18:03:44
+Random Quote: You grew up with actors.  You learned their craft and you learned it well.  I grew up with soldiers.  I learned how to die a long time ago.  -  Eddard Stark
