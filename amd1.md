@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 10:43:44
-Random Quote: Lord Varys, sometimes I feel as though you are the best friend I have in King's Landing and sometimes I feel you are my worst enemy.  -  Tyrion Lannister
+Last updated: 2024-04-13 10:44:56
+Random Quote: Ted: "I could end up marrying this woman; I want our first kiss to be special."Lily: "Oh, that's sweet. So you chickened out like a little bitch?" - Lily Aldrin
