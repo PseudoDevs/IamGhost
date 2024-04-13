@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 17:54:24
-Random Quote: I don't take nothin' a drug addict says personally. 'Cause I don't believe nothin' a drug addict say. - Fezco
+Last updated: 2024-04-13 17:54:57
+Random Quote: I cost a girl her life because I was afraid to love her - Clay Jensen
