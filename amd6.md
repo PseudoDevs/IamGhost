@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 17:04:08
-Random Quote: The frightened child who sheltered in my manse died on the Dothraki Sea, and was reborn in blood and fire.  This dragon queen who wears her name is a true Targaryen.  -  Illyrio Mopatis
+Last updated: 2024-04-13 17:05:15
+Random Quote: Ted: "Basketball, people don't realize, is all geometry, physics and engineering. If you think like an architect, you could win a thousand games without ever touching a ball."Barney: "What happened to your ball?"Ted: "Some kids from the Hebrew school next door took it and wouldn't give it back." - Ted Mosby
