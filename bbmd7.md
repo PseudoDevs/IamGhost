@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 17:56:42
-Random Quote: Look at us, riding around in a limo, eating hot dogs... It's like we're the president. - Marshall Eriksen
+Last updated: 2024-04-13 17:57:15
+Random Quote: It wasn't the violence that scared her. It was the fact that she knew no matter what he did, she'd still love him. - Rue Bennett
