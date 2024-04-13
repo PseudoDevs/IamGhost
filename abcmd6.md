@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 19:04:02
-Random Quote: It's just, I know I can be a jerk like him sometimes, and I do not want to be like him. Ever. - Max Mayfield
+Last updated: 2024-04-13 19:04:37
+Random Quote: For the night is dark and full of terrors.  -  Words of R'hllor
