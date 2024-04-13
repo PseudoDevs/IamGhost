@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 17:09:58
-Random Quote: Sometimes two people in the universe who aren't meant for each other find each other. - Cal Jacobs
+Last updated: 2024-04-13 17:10:31
+Random Quote: Old gods or new, it makes no matter, no man is so accursed as the kinslayer.  -  Rickard Karstark

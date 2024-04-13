@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 17:09:26
-Random Quote: When will you guys realize, that the only difference between my real life and a p0rn0 is, my real life has better lighting? - Barney Stinson
+Last updated: 2024-04-13 17:10:32
+Random Quote: All three of you were being a buch of little a-sholes. I was the only reasonable one. - Dustin Henderson
