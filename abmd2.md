@@ -1,2 +1,3 @@
-Last updated: 2024-04-13 18:48:51
-Random Quote: I'm pretty much the master of handling things completely wrong. - Alex Vause
+Last updated: 2024-04-13 18:49:24
+Random Quote: Lily: "Swear on the lifes of your unborn boy and girl!"
+Ted: "I swear... on Luke and Leia!" - Ted Mosby
