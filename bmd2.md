@@ -1,2 +1,3 @@
-Last updated: 2024-04-13 10:20:05
-Random Quote: If you love something, set it free. Unless it's a tiger. - Phil Dunphy
+Last updated: 2024-04-13 10:20:42
+Random Quote: Gor Koresh: "This is no place for a child."
+Mando: "Wherever I go, he goes. I've been quested to bring him to his kind." - Din Djarin
