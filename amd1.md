@@ -1,2 +1,3 @@
-Last updated: 2024-04-13 18:16:05
-Random Quote: It's probably his... I've spent years, training my boys to swim the other way. - Barney Stinson
+Last updated: 2024-04-13 18:16:40
+Random Quote: Morty: "I don't like how meta this is getting, Rick."
+Rick: "Shut up, Morty, you're 14. You watch videos of people on YouTube reacting to fing YouTube. I'll be the judge of when we get too meta." - Rick Sanchez
