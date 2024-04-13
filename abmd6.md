@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 17:10:29
-Random Quote: The Peaky Blinders. The vicious, merciless gangs who blind those who see and cut out the tongues of those who talk. - Chester Campbell
+Last updated: 2024-04-13 17:11:05
+Random Quote: Fear is the worst enemy of progress. - 

@@ -1,3 +1,2 @@
-Last updated: 2024-04-13 17:09:19
-Random Quote: Larissa: "So you automatically assume a Nevermore student is the murderer, even though there's no evidence a crime was even committed."
-Donovan: "I'm sorry. I forgot, you only teach the good outcasts here, right?" - Donovan Galpin
+Last updated: 2024-04-13 17:11:05
+Random Quote: Ted, your throwing your life away. This girl is blinding you with her shiny hair and her boob-shaped boobs! - Barney Stinson
