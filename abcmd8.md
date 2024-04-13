@@ -1,3 +1,2 @@
-Last updated: 2024-04-13 18:38:58
-Random Quote: Planetina: "Your acid rain is an acid pain... in the butt, Diesel Wiesel!"
-Rick: "Yikes! Who's the chick in need of a dialogue pass?" - Rick Sanchez
+Last updated: 2024-04-13 18:39:34
+Random Quote: Zoey: "Don't worry Ted, she's cute."Barney: "'Cute' means 'fat'!"Zoey: "She's not fat."Barney: "'Not fat' means 'ugly'." - Barney Stinson
