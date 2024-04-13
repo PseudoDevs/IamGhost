@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 10:07:09
-Random Quote: Where some choose to look at this bra half-empty, I choose to look at this bra half-full. - Barney Stinson
+Last updated: 2024-04-13 10:08:16
+Random Quote: What I came to realise is that fear, that’s the worst of it. That’s the real enemy. So, get up, get out in the real world and you kick that bastard as hard you can right in the teeth. - Walter White
