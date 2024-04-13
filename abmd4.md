@@ -1,2 +1,3 @@
-Last updated: 2024-04-13 17:07:05
-Random Quote: Yes! Tonight is gonna be Legen... wait, are we sure it's a good idea to go to a strip club? Shut up, Lily! I'm in charge now... Dary! - Barney Stinson
+Last updated: 2024-04-13 17:09:19
+Random Quote: Larissa: "So you automatically assume a Nevermore student is the murderer, even though there's no evidence a crime was even committed."
+Donovan: "I'm sorry. I forgot, you only teach the good outcasts here, right?" - Donovan Galpin
