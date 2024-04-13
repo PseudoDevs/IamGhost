@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 17:40:05
-Random Quote: Look at this setup! What, you two drive around like Mister Softee, and scooping out drugs for all the good boys and girls? - Saul Goodman
+Last updated: 2024-04-13 17:41:16
+Random Quote: They are children, Sansa thought.  They are silly little girls, even Elinor.  They've never seen a battle, they've never seen a man die, they know nothing.  Their dreams were full of songs and stories, the way hers had been before Joffrey cut her father's head off.  Sansa pitied them.  Sansa envied them.  -  Sansa Stark
