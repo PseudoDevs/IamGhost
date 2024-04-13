@@ -1,2 +1,7 @@
-Last updated: 2024-04-13 10:22:36
-Random Quote: The average American consumes 55 pounds of beef per year. And then there's Texas, where we can knock that off in a couple of months. Maybe faster if we're talking about smoked brisket. - Sheldon Cooper
+Last updated: 2024-04-13 10:23:57
+Random Quote: Bo-Katan: "You are a disgrace to your armor."
+Boba Fett: "This armor belonged to my father."
+Bo-Katan: "Don't you mean your donor?"
+Boba Fett: "Careful, princess."
+Bo-Katan: "You are a clone. I've heard your voice thousands of times."
+Boba Fett: "Mine might be the last one you hear." - Boba Fett

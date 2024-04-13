@@ -1,2 +1,6 @@
-Last updated: 2024-04-13 10:21:57
-Random Quote: Canada also helped in two world wars and gave the world Neil Young, William Shatner, Leonard Cohen, Pamela Anderson, one quarter of Barney Stinson, instant mashed potatoes and best of all - you. - Barney Stinson
+Last updated: 2024-04-13 10:23:56
+Random Quote: When Mom was a groupie in the '70s, her scrambled eggs made her the darling of the MSG loading dock. Lot of songs written about those scrambled eggs:
+ZZ Top's "She's Got Legs"? Originally "She's Got Eggs".
+Led Zeppelin? "Scramble On".
+Steve Miller? "The Yolker".
+If you listen to Pink Floyd's "Dark Side of the Moon" while eating her eggs, it lines up perfectly. - Barney Stinson
