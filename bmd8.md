@@ -1,3 +1,2 @@
-Last updated: 2024-04-13 18:11:26
-Random Quote: Freddie Thorne: "What kind of a list would have the name of a communist and the name of a bookmaker side by side?"
-Thomas Shelby: "Perhaps it's a list of men who give false hope to the poor." - Thomas Shelby
+Last updated: 2024-04-13 18:13:11
+Random Quote: Shut the f*ck up and let me die in peace. - Mike Ehrmantraut
