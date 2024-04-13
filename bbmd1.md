@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 18:17:07
-Random Quote: Rhaegar fought valiantly, Rhaegar fought nobly, and Rhaegar died.  -  Jorah Mormont
+Last updated: 2024-04-13 18:17:39
+Random Quote: Is it your fault that Bronn's an insolent black - hearted rogue?  He's always been an insolent black
