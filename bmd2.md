@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 17:01:44
-Random Quote: Which meant for the first time in years, the world was wide open. Because kids, when a door closes... well, you know the rest. - Ted Mosby
+Last updated: 2024-04-13 17:02:19
+Random Quote: I will kill your wife, I will kill your son, I will kill your infant daughter. - Gustavo Fring
