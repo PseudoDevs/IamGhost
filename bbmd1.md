@@ -1,2 +1,4 @@
-Last updated: 2024-04-13 18:14:53
-Random Quote: Hey, nice shirt, Ted. Is it yesterday already? - Lily Aldrin
+Last updated: 2024-04-13 18:15:27
+Random Quote: Ellie: "Can I have a gun?"
+Joel: "Absolutely not."
+Ellie: "Okay, Jesus. Fine. I'll have to throw a f-ckin' sandwich at them." - Ellie Williams
