@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 18:33:00
-Random Quote: People deserve a second chance, just like businesses. - Marty Byrde
+Last updated: 2024-04-13 18:33:35
+Random Quote: Nobody takes an intro class to get on any other path, but the path to not being hungover anymore. I learned that in my intro to something-ology class. - Marshall Eriksen
