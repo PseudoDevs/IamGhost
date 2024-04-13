@@ -1,2 +1,3 @@
-Last updated: 2024-04-13 18:13:00
-Random Quote: I appreciate your help, but there's a reason your name is "Robin", not "Batman". - Ted Mosby
+Last updated: 2024-04-13 18:14:06
+Random Quote: Robin: "I'm drinking 'til I forget the 1999 NFC Championship?"
+Marshall: "The Vikings were two minutes away from going to the Super Bowl, when our kicker, who hadn't missed all year, shanked a field goal, and we lost in overtime. Damn!" - Marshall Eriksen
