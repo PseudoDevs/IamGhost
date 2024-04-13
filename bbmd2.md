@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 10:07:14
-Random Quote: You all know exactly who I am. Say my name. - Walter White
+Last updated: 2024-04-13 10:10:02
+Random Quote: Any man who steps between a father and his vengeance asks for death.  -  Rickard Karstark
