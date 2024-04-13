@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 10:28:27
-Random Quote: There is one difference between you and me: I'm not saying any of this to get in your pants. - How I Met Your Mother
+Last updated: 2024-04-13 10:29:06
+Random Quote: I know the poison that my father used, and there is none slower or more agonizing.  Soon we may hear the Mountain screaming, even here in Sunspear.  -  Tyene Sand
