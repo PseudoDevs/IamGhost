@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 10:40:21
-Random Quote: Sometimes I think everyone is just pretending to be brave, and none of us really are.  Maybe pretending is how you get brave, I don't know.  -  Grenn
+Last updated: 2024-04-13 10:40:54
+Random Quote: A face took shape within the hearth.  Stannis?  she thought, for just a moment... but no, these were not his features.  A wooden face, corpse white.  Was this the enemy?  A thousand red eyes floated in the rising flames.  He sees me.  Beside him, a boy with a wolf's face threw back his head and howled.  -  Melisandre
