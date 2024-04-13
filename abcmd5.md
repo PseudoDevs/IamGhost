@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 17:26:09
-Random Quote: Alex: "Luke got his head stuck in the banister again."Phil: "I got it. Where's the babyoil?"Claire: "It's on our bedside tip- I Don't know, find it!" - Claire Dunphy
+Last updated: 2024-04-13 17:26:46
+Random Quote: Stay out of my territory. - Walter White
