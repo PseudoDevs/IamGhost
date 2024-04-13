@@ -1,3 +1,2 @@
-Last updated: 2024-04-13 18:52:38
-Random Quote: May: "May Carleton. I breed racehorses and train them. What is it you do?"
-Thommy: "I rarely answer questions is what I do." - Thomas Shelby
+Last updated: 2024-04-13 18:53:11
+Random Quote: Rule Number One: Don't ever fall in love with a straight girl. - Alex Vause
