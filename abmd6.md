@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 17:01:03
-Random Quote: God has a plan for every human being. - 
+Last updated: 2024-04-13 17:01:37
+Random Quote: Many good men have been bad kings, and some bad men have been good kings.  -  Maester Aemon
