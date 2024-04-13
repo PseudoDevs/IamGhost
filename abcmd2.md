@@ -1,2 +1,3 @@
-Last updated: 2024-04-13 18:22:36
-Random Quote: We should have never gotten on this ship. It was a mistake. All of it, a huge mistake. - Yuk Je
+Last updated: 2024-04-13 18:23:10
+Random Quote: Morty: "Rick, can we not leave without my sister?"
+Rick: "Ugh. You have infinite sisters, Morty. Not that I want to spend the rest of my day looking for another one. Sum-Sum, let's go! Grandpa's concern for your safety is fleeting." - Rick Sanchez

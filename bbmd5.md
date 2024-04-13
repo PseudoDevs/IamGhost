@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 18:22:36
-Random Quote: Weakness is not in us, it is what we have outside. - Professor
+Last updated: 2024-04-13 18:23:10
+Random Quote: Get the keys and remove those chains from him, before you make me rue the day I raped your mother.  -  Roose Bolton

@@ -1,2 +1,3 @@
-Last updated: 2024-04-13 18:22:36
-Random Quote: Ted, the only reason to wait a month for sex is if the girl is 17 years and 11 months old. - Barney Stinson
+Last updated: 2024-04-13 18:23:10
+Random Quote: May: "May Carleton. I breed racehorses and train them. What is it you do?"
+Thommy: "I rarely answer questions is what I do." - Thomas Shelby
