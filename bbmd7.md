@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 18:56:14
-Random Quote: The Bro Code has been around for centuries. Nay... whatever's more than centuries. - Barney Stinson
+Last updated: 2024-04-13 18:56:48
+Random Quote: A man who sees nothing has no use for his eyes, cut them out and give them to your next outrider.  Tell him you hope that four eyes might see better than two... and if not, the man after him will have six.  -  Gregor Clegane
