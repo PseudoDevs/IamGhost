@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 17:36:28
-Random Quote: Tequila makes me wanna dance. - Jules Vaughn
+Last updated: 2024-04-13 17:37:04
+Random Quote: Larry Bloom: "Are we at least gonna talk about other options?"Piper Chapman: "You mean..."Larry Bloom: "It's not Voldemort, you can say it. Abortion." - Larry Bloom
