@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 17:31:42
-Random Quote: So a guy with cancer can't be an asshole?? Believe me, I speak from experience. - Saul Goodman
+Last updated: 2024-04-13 17:35:52
+Random Quote: Nuncle always had a fondness for freaks and fools.  My father used to fight with him about it.  Let the wizards call upon their gods.  The Damphair will call on ours, and drown them.  -  Asha Greyjoy

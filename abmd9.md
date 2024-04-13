@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 17:33:29
-Random Quote: There's only one thing that could blind a man as smart as you, Tommy. Love. - Polly Gray
+Last updated: 2024-04-13 17:35:52
+Random Quote: There is a 83% correlation between times when men are wearing a boutonniere and when they are getting laid... proms, weddings, funerals... thanks for the redhead, grandma! By the way, did you know that "boutonniere" is french for "booty is near"? - Barney Stinson
