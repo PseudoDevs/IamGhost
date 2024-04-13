@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 17:34:54
-Random Quote: I actually enjoyed being alone, solitude allowed me to think about important things. - Sheldon
+Last updated: 2024-04-13 17:35:27
+Random Quote: Then hear me.  If we are taken, you will go over to them, as the wildling girl you captured once urged you.  They may demand that you cut your cloak to ribbons, that you swear them an oath on your father's grave, that you curse your brothers and your Lord Commander.  You must not balk, whatever is asked of you.  Do as they bid you... but in your heart, remember who and what you are.  Ride with them, eat with them, fight with them, for as long as it takes.  And watch.  -  Qhorin Halfhand
