@@ -1,5 +1,2 @@
-Last updated: 2024-04-13 18:31:15
-Random Quote: Abby: "Do we have to go back this way?"
-Owen: "Consider it an opportunity to work on your fears."
-Abby: "How about I work my foot up your ass?"
-Owen: "Abby, stop flirting!" - Joel Miller
+Last updated: 2024-04-13 18:31:50
+Random Quote: I dreamt a wolf howling in the rain, but no one heard his grief.  I dreamt such a clangor I thought my head myght burst, drums and horns and pipes and screams, but the saddest sound was the little bells.  I dreamt of a maid at a feast with purple serpents in her hair, venom dripping from their fangs.  And later I dreamt that maid again, slaying a savage giant in a castle built of snow.  -  The Ghost of High Heart
