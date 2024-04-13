@@ -1,3 +1,2 @@
-Last updated: 2024-04-13 18:23:44
-Random Quote: Aimee: "Did you know you need, like, sugar and flour and an oven to bake? And you don't shove it all in, you have to follow alle these rules."
-Maeve: "Yeah, it's called a recipe." - Maeve Wiley
+Last updated: 2024-04-13 18:24:18
+Random Quote: I have won every battle, yet somehow I'm losing the war.  -  Robb Stark

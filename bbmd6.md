@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 18:23:43
-Random Quote: His blood ran black.  Made him my brother as much as yours.  -  Yoren of the Night's Watch
+Last updated: 2024-04-13 18:24:18
+Random Quote: To go north, you must go south.  To reach the west, you must go east.  To go forward you must go back, and to touch the light you must pass beneath the shadow.  -  Quaithe

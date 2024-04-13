@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 18:23:44
-Random Quote: The most amazing things that can happen to a human being will happen to you, if you just lower your expectations. - Phil Dunphy
+Last updated: 2024-04-13 18:24:18
+Random Quote: Marshall: "I don't care if the dishes aren't done, okay? If you care, you do it."Lily: "Great, then I don't care if you have an orgasm. If you care, you do it." - Lily Aldrin
