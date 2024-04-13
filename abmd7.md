@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 10:18:13
-Random Quote: Euron's gifts are poisoned.  -  Victarion Greyjoy
+Last updated: 2024-04-13 10:18:49
+Random Quote: I’d get 30 years. And to be honest, growing old in a prison cell is not my thing. I’d rather run, in body and soul. And if I can’t take my body with me, at least my soul should run. - Tokyo
