@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 17:48:28
-Random Quote: Lucas: "Mike's not gonna like it."Dustin: "Last time I checked our party is not a dictatorship, it's a democracy." - Dustin Henderson
+Last updated: 2024-04-13 17:49:41
+Random Quote: So I will only ask you once, Lord Snow.  Are you a brother of the Night's Watch, or a bastard boy who wants to play at war?  -  Jeor Mormont
