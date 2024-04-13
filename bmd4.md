@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 18:49:47
-Random Quote: When the sun rises in the west and sets in the east.  When the seas go dry and mountains blow in the wind like leaves.  When your womb quickens again, and you bear a living child.  Then he will return, and not before.  -  Mirri Maz Duur
+Last updated: 2024-04-13 18:50:20
+Random Quote: Walter Jr., you’re my big man. There are going to be some things that you’ll come to learn about me in the next few days. But just know that no matter how it may look, I only had you in my heart. Goodbye! - Walter White
