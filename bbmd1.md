@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 18:11:25
-Random Quote: The Empire improves every system it touches. Judge by any metric: safety, prosperity, trade, opportunity, peace. Compare Imperial rule to what is happening right now. Is the world more peaceful since the revolution? I see nothing but death and chaos. - The Client
+Last updated: 2024-04-13 18:12:00
+Random Quote: Most people are nothing but pawns on a chessboard led by an unknown hand - Noah
