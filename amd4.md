@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 17:12:53
-Random Quote: Drugs are kind of cool. I mean, they're cool before they wreck your skin. And your life. And your family. That's when they get uncool. It's actually a very narrow window of cool. - Rue Bennett
+Last updated: 2024-04-13 17:13:28
+Random Quote: Ran: "Mayfeld, he's one of the best triggermen I've ever seen. Former Imperial sharpshooter."Mando: "That's not saying much." - Din Djarin

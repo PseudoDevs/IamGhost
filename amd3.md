@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 17:11:40
-Random Quote: If you don't trust your men with your money, you have bigger problems than if you trust Saul Goodman. - Kim Wexler
+Last updated: 2024-04-13 17:13:28
+Random Quote: Jaime and I are more than brother and sister.  We are one person in two bodies.  We shared a womb together.  He came into this world holding my foot, our old maester said.  When he is in me, I feel... whole.  -  Cersei Lannister
