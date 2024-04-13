@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 17:30:26
-Random Quote: The day is won, and yet you do not smile, boy.  The living should smile, for the dead cannot.  -  Dagmer Cleftjaw
+Last updated: 2024-04-13 17:30:58
+Random Quote: Treason is a noxious weed.  It must be torn up, root and stem and seed, lest new traitors sprout from every roadside.  -  Grand Maester Pycelle
