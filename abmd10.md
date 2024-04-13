@@ -1,4 +1,2 @@
-Last updated: 2024-04-13 18:01:26
-Random Quote: Greef: "Be careful, my friend. They've got you outnumbered ten to one."
-Din: "I like these odds."
-Greef: "I bet you do." - Greef Karga
+Last updated: 2024-04-13 18:02:02
+Random Quote: Dustin: "Even if he is, it doesn't automatically mean that he's bad."Mike: "That's like saying just because someone's from the Death Star doesn't make them bad."Dustin: "We have a bond."Mike: "A bond? Just because he likes nougat?" - Mike Wheeler
