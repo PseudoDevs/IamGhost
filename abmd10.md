@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 18:53:47
-Random Quote: I'm telling you that there is. - Ulana Khomyuk
+Last updated: 2024-04-13 18:54:19
+Random Quote: In the game of thrones, even the humblest pieces have wills of their own.  Sometimes they refuse to make the moves you've planned for them.  Mark that well, Alayne.  It's a lesson that Cersei Lannister still has yet to learn.  -  Petyr Baelish
