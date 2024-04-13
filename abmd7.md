@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 16:59:16
-Random Quote: Words are like arrows, Arianne.  Once loosed, you cannot call them back.  -  Areo Hotah
+Last updated: 2024-04-13 16:59:49
+Random Quote: You wear your honor like a suit of armor, Stark.  You think it keeps you safe, but all it does is weigh you down and make it hard for you to move.  -  Petyr Baelish
