@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 17:56:09
-Random Quote: Kill the boy, Jon Snow.  Winter is almost upon us.  Kill the boy and let the man be born.  -  Aemon Targaryen
+Last updated: 2024-04-13 17:56:42
+Random Quote: Look at us, riding around in a limo, eating hot dogs... It's like we're the president. - Marshall Eriksen
