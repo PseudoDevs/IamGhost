@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 18:03:44
-Random Quote: You grew up with actors.  You learned their craft and you learned it well.  I grew up with soldiers.  I learned how to die a long time ago.  -  Eddard Stark
+Last updated: 2024-04-13 18:04:16
+Random Quote: I actually enjoyed being alone, solitude allowed me to think about important things. - Sheldon
