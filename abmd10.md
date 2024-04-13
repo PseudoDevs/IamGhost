@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 18:45:25
-Random Quote: Marshall: "Baby, you're like 20 slutty chicks all rolled into one."Lily: "Sweet-talk is not gonna change my mind!" - Lily Aldrin
+Last updated: 2024-04-13 18:46:00
+Random Quote: You need to figure out what the fuck you want. - Nicky Nichols
