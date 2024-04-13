@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 17:41:15
-Random Quote: All religion is a foolish answer to a foolish question. - Thomas Shelby
+Last updated: 2024-04-13 17:41:50
+Random Quote: We can only die.  Why else do we don these black cloaks, but to die in defense of the realm?  -  Qhorin Halfhand
