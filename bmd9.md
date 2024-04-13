@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 10:11:05
-Random Quote: Ted: "You name a chubby white kid LeBron and he's the one getting stuffed in the basketball hoop."Marshall: "Then I'm also crossing off Shaquille, Hakeem and Dikembe." - Ted Mosby
+Last updated: 2024-04-13 10:11:38
+Random Quote: Would the five of us always live within a few minutes of that booth? No, that's life, kids, but here's what I discovered: Our booth was wherever the five of us were together. - Ted Mosby
