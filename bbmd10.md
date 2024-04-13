@@ -1,2 +1,3 @@
-Last updated: 2024-04-13 19:03:29
-Random Quote: You ought to have no trouble catching our uncles.  One is drunk on seawater, after all, and the other is a great grey bullock so dim he'll probably get lost.  -  Asha Greyjoy
+Last updated: 2024-04-13 19:04:03
+Random Quote: Darcy Lewis: "No one would notice if you blew up a Dakota. Honestly, I can't tell them apart."
+Carol Danvers: "South Dakota is on the bottom." - Captain Marvel
