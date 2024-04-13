@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 17:56:13
-Random Quote: You're Reek.  You'll always be Reek, no matter how sweet you smell.  Your nose may lie to you.  Remember your name.  Remember who you are.  -  Ramsay Bolton
+Last updated: 2024-04-13 17:57:23
+Random Quote: It is not a question of wanting.  The throne is mine, as Robert's heir.  That is law.  After me, it must pass to my daughter, unless Selyse should finally give me a son.  I am king.  Wants do not enter into it.  I have a duty to my daughter.  To the realm.  Even to Robert.  He loved me but little, I know, yet he was my brother.  The Lannister woman gave him horns and made a motley fool of him.  She may have murdered him as well, as she murdered Jon Arryn and Need Stark.  For such crimes there must be justice.  Starting with Cersei and her abominations.  But only starting.  I mean to scour that court clean.  As Robert should have done after the Trident.  -  Stannis Baratheon
