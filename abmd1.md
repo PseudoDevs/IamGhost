@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 17:02:36
-Random Quote: Your car's gonna be fine, this is the best auto-shop around. Look at this certificate, one of the mechanics here...[reads the certificate]...finished a 64 ounce steak. - Ted Mosby
+Last updated: 2024-04-13 17:03:10
+Random Quote: In the United States, the Mafia makes witnesses disappear so they can't testify in court. In Colombia, Pablo Escobar made the whole court disappear. - Steve Murphy
