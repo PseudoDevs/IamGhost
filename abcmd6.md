@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 18:18:30
-Random Quote: She had made the mistake of speaking when Set Gregor wanted quiet, so the Mountain had smashed her teeth to splinters with a mailed fist and broken her pretty little nose as well.  He would have done worse, no doubt, if Cersei had not called him down to King's Landing to face the Red Viper's spear.  Jaime would not mourn him.  -  Jaime Lannister
+Last updated: 2024-04-13 18:19:04
+Random Quote: You, Vision, are the piece of the Mind Stone that lives in me. You are a body of wires and blood and bone that I created. You are my sadness and my hope. But mostly, you're my love. - Wanda Maximoff
