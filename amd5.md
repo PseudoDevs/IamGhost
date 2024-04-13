@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 18:22:33
-Random Quote: Dragons old and young, true and false, bright and dark.  And you.  A small man with a big shadow, snarling in the midst of it all.  -  Moqorro
+Last updated: 2024-04-13 18:23:43
+Random Quote: What a man wants does not define him. What a man needs is what defines him. - Juan Nepomuceno Guerra

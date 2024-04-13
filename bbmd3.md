@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 18:23:08
-Random Quote: God. It's me, Barney. What up? I know we don't talk much, but I know a lot of girls call out your name because of me. Awesome! - Barney Stinson
+Last updated: 2024-04-13 18:23:44
+Random Quote: Marshall: "When a woman puts on an engagement ring, it's like when Bilbo Baggins wears the One Ring in The Hobbit."Robin: "Okay, can you say that again, but not in nerd?"Marshall: "Sure. Uh, the ring is like the cloak that Harry Potter wears to sneak around Hogwarts."Robin: "Yeah, I don't speak virgin either." - Robin Scherbatsky
