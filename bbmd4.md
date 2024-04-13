@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 10:08:56
-Random Quote: Female acrobats from Montreal, super flexible... we're gonna get Cirque du so-laid! - Barney Stinson
+Last updated: 2024-04-13 10:09:30
+Random Quote: They pray to trees and golden idols and goat - headed abominations.  False gods... just so, and for that sin I kill them all.  I spill their blood upon the sea and sow their screaming women with my seed.  Their little gods cannot stop me, so plainly they are false gods.  I am more devout than even you, Aeron.  Perhaps it should be you who kneels to me for blessing. 
