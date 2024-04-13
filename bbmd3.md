@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 16:54:24
-Random Quote: There is entirely too much tut - tutting in this realm, if you ask me.  All these kings would do a deal better if they put down their swords and listended to their mothers. 
+Last updated: 2024-04-13 16:54:58
+Random Quote: Men of honor will do things for their children that they would never consider doing for themselves.  -  Petyr Baelish
