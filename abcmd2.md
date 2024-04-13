@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 18:46:36
-Random Quote: Canada also helped in two world wars and gave the world Neil Young, William Shatner, Leonard Cohen, Pamela Anderson, one quarter of Barney Stinson, instant mashed potatoes and best of all - you. - Barney Stinson
+Last updated: 2024-04-13 18:47:11
+Random Quote: This is Hawkins, okay? You wanna know the worst thing that's ever happened here in the four years I've been working here? It was when an owl attacked Eleanor Gillespie's head because it though that her hair was a nest. - Jim Hopper
