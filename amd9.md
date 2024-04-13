@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 17:20:31
-Random Quote: Marshall: "The last time I lived this far from him, was my semester abroad."Lily: "You never did a semester abroad?"Marshall: "That's what I called it, when we lived on opposite sides of the campus." - Marshall Eriksen
+Last updated: 2024-04-13 17:21:04
+Random Quote: Out there, I don't stand a chance. I do in here. - Jang Deok-su

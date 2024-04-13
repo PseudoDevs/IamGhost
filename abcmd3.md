@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 17:20:31
-Random Quote: I needed to get on the shuttle so I could escape this ridiculous planetSpoiler alert, I'm still here. - Sheldon
+Last updated: 2024-04-13 17:21:04
+Random Quote: She had seen Bronn fight on the high road; it was no accident that he had survived the journey while other men had died.  He moved like a panther, and that ugly sword of his seemed a part of his arm.  -  Catelyn Stark
