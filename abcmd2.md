@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 17:09:54
-Random Quote: Every night can't be legendary. If all nights are legendary, no nights are legendary! - Ted Mosby
+Last updated: 2024-04-13 17:10:30
+Random Quote: I never asked for this crown.  Gold is cold and heavy on the head, but so long as I am the king, I have a duty... if I must sacrifice one child to the flames to save a million from the dark... sacrifice... is never easy, Davos.  Or it is no true sacrifice.  -  Stannis Baratheon
