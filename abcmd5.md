@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 19:04:53
-Random Quote: You want to know what's really interesting? Aristotle thought that the sound of thunder was due to a collision between two cloudsHe believed the clouds were expelling air, in the way a log on a fire crackles. - Sheldon
+Last updated: 2024-04-13 19:05:26
+Random Quote: If you mean when will Chernobyl be completly save - the half-life of Plutonium 239 is 24,000 years. Perhaps we should just say, 'not in our lifetimes'. - Valery Legasov
