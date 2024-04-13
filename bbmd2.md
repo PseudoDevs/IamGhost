@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 10:43:03
-Random Quote: The day is won, and yet you do not smile, boy.  The living should smile, for the dead cannot.  -  Dagmer Cleftjaw
+Last updated: 2024-04-13 10:43:38
+Random Quote: It doesn't matter how tough you are, you're not going to win in this place. Not on your own. - Jang Deok-su
