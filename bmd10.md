@@ -1,4 +1,2 @@
-Last updated: 2024-04-13 17:14:03
-Random Quote: Marshall: "Except the flames of Lucifer keep singein our back bumper as we drive through this hellish, cheese-infected wasteland."
-Lily: "Wisconsin?"
-Marshall: "Wisconsin!" - Marshall Eriksen
+Last updated: 2024-04-13 17:15:53
+Random Quote: I feel like love is super dark and no one ever talks about it. - Cassie Howard
