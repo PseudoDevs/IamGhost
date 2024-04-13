@@ -1,3 +1,2 @@
-Last updated: 2024-04-13 10:14:18
-Random Quote: "Crutch down and bend over a little bit."
-Barney: "Wow, It took five shots of tequila to have you in that position." - Barney Stinson
+Last updated: 2024-04-13 10:14:52
+Random Quote: Airport Security: "How did you get that through the X-Ray machine?"Barney: "No questions from the audience, please!" - Barney Stinson
