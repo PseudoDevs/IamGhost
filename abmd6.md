@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 10:09:16
-Random Quote: Sometimes I think everyone is just pretending to be brave, and none of us really are.  Maybe pretending is how you get brave, I don't know.  -  Grenn
+Last updated: 2024-04-13 10:09:50
+Random Quote: All I know is, he's not in the same grade as me anymoreAnd I'm thrilled. - Missy
