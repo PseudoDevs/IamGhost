@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 10:22:53
-Random Quote: The bad guys need to get lucky every time. The good guys just need to get lucky once. - Steve Murphy
+Last updated: 2024-04-13 10:23:26
+Random Quote: You are not the guy. You're not capable of being the guy. I had a guy but now I don't. You are not the guy. - Mike Ehrmantraut
