@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 17:24:42
-Random Quote: At first, these keys were fun, but now we know they're more than that. They're important. They're part of our family and we need to protect them. - Bode Locke
+Last updated: 2024-04-13 17:25:15
+Random Quote: The greatest fools are ofttimes more clever than the men who laugh at them.  -  Tywin Lannister
