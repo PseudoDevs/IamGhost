@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 10:07:49
-Random Quote: I'm only nine years oldMost evil doesn't start till puberty. - Sheldon
+Last updated: 2024-04-13 10:08:22
+Random Quote: Barney: "On your tombstone, it will be, 'Lily Aldrin. Caring wife. Loving friend. Slapbet-Commissioner.'"Marshall: "And your tombstone will read, 'Got slapped by Marhsall so hard he died.'" - Marshall Eriksen
