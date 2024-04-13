@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 17:52:36
-Random Quote: Lily: "Sorry this is taking so long. He kicked for everybody else."Marshall: "It's hard for the little guy to perform under pressure."Barney: "Top ten things Marshall said on his wedding night."Kevin: "Wow! It was small, but I think I felt something."Robin: "Top ten things Lily said on her wedding night." - Robin Scherbatsky
+Last updated: 2024-04-13 17:53:09
+Random Quote: Rule Number One: Don't ever fall in love with a straight girl. - Alex Vause
