@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 10:23:43
-Random Quote: Walter Jr., you’re my big man. There are going to be some things that you’ll come to learn about me in the next few days. But just know that no matter how it may look, I only had you in my heart. Goodbye! - Walter White
+Last updated: 2024-04-13 10:24:16
+Random Quote: In my body, where the shame gland should be, there is a second awesome gland. True story! - Barney Stinson
