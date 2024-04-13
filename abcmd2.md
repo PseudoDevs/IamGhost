@@ -1,3 +1,2 @@
-Last updated: 2024-04-13 16:54:48
-Random Quote: Jerry: "Rick! Beth! You love me after all!"
-Rick: "Eh, I love her, she loves you. Those credits don't transfer." - Rick Sanchez
+Last updated: 2024-04-13 16:55:22
+Random Quote: Any man who steps between a father and his vengeance asks for death.  -  Rickard Karstark
