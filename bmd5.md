@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 10:27:39
-Random Quote: For the first time in my life, I don't want to find myself in three years with some random girl. No matter how many boobs she has. - Barney Stinson
+Last updated: 2024-04-13 10:28:13
+Random Quote: You want to hurt these guys, we gotta take down the ones calling the shots. - Jaime Kuykendall
