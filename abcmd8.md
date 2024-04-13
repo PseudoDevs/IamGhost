@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 16:58:14
-Random Quote: Most people are nothing but pawns on a chessboard led by an unknown hand - Noah
+Last updated: 2024-04-13 16:58:50
+Random Quote: The only way to keep your people loyal is to make certain they fear you more than they do the enemy.  -  Cersei Lannister
