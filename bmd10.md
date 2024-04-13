@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 10:20:26
-Random Quote: 14 seconds! And already some dingdong is stepping up, thinking he can get some of this broke off. - Robin Scherbatsky
+Last updated: 2024-04-13 10:20:59
+Random Quote: You have courage.  Not battle courage perhaps but... I don't know... a kind of woman's courage.  -  Brienne of Tarth
