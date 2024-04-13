@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 16:57:44
-Random Quote: Lord Seaworth is a man of humble birth, but he reminded me of my duty, when all I could think of was my rights.  I had the cart before the horse, Davos said.  I was trying to win the throne to save the kingdom, when I should have been trying to save the kingdom to win the throne.  -  Stannis Baratheon
+Last updated: 2024-04-13 16:58:18
+Random Quote: I'll never find that kind of love. There's just no darkness. It's just sweet. I don't know if that would ever be enough for me. - Maddy Perez
