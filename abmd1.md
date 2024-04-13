@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 17:56:32
-Random Quote: I love hospitals. If I could spend the rest of my life in a hospital, I would. Because when you're in a hospital, you have zero responsibilities. - Rue Bennett
+Last updated: 2024-04-13 17:57:05
+Random Quote: I drank when I was pregnant with you, you turned out fine. There's everybody saying 'don't drink, don't smoke'. I swear - Texas is turning into California. - Meemaw
