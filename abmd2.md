@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 18:00:18
-Random Quote: You think you're the only one he whispers secrets to?  He gives each of us just enough to convince us that we'd be helpless without him.  -  Cersei Lannister
+Last updated: 2024-04-13 18:01:27
+Random Quote: I did it for me. I liked it. I was good at it. And I was really... I was alive. - Walter White
