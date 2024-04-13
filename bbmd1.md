@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 18:27:46
-Random Quote: I don't want to die, I've only kissed one boy so far. - Missy
+Last updated: 2024-04-13 18:28:20
+Random Quote: Even if I meet the girl of my dreams right the second, I'm still one night and nine months away, from having a family on my own. And that's assuming the mother of my childern is just a huge slut. - Ted Mosby
