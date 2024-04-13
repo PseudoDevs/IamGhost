@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 17:37:24
-Random Quote: So Robin? Guess who nailed the chick from "Metro News One" last night! - Barney Stinson
+Last updated: 2024-04-13 17:37:57
+Random Quote: It's not Aerys I rue, it's Robert... Why is it no one names Robert oathbreaker?  He tore the realm apart, yet I am the one with shit for honor.  -  Jaime Lannister
