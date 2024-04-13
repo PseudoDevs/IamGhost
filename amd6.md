@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 18:17:17
-Random Quote: I saw a couple riding a tandem bike, and it made me think of how you don't know how to ride a bike. - Kamala
+Last updated: 2024-04-13 18:17:53
+Random Quote: My real father died in King's Landing.  I made a choice, and I chose wrong.  -  Theon Greyjoy
