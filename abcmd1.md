@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 18:27:01
-Random Quote: We have watched how one moment, one choice, can ripple across space and time, giving birth to new stories, heroes, whole universes. But what if it's the wrong choice? What if the best of intentions has very strange consequences? - The Watcher
+Last updated: 2024-04-13 18:27:33
+Random Quote: Everyone was yelling stuff.  Hot Pie yelled hot pie.  He must have yelled it a hundred times.  -  Arya Stark
