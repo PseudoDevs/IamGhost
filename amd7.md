@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 10:23:35
-Random Quote: Long distance is a lie teenagers tell each other to get laid the summer before college. - Ted Mosby
+Last updated: 2024-04-13 10:24:09
+Random Quote: I've had shits that I've liked better than Walder Frey.  -  Brynden Tully
