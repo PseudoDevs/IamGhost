@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 18:35:57
-Random Quote: There are no men like me.  There's only me.  -  Jaime Lannister
+Last updated: 2024-04-13 18:36:33
+Random Quote: Do you think I can't tell Lord Stannis from Lord Tywin?  They're both bungholes who think they're too noble to shit, but never mind about that, I know the difference.  -  Walder Frey
