@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 17:08:42
-Random Quote: I'm pretty much the master of handling things completely wrong. - Alex Vause
+Last updated: 2024-04-13 17:09:16
+Random Quote: A family is like a small business. And with a small business, at times, there comes a bit of transition. - Marty Byrde
