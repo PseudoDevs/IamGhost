@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 18:41:06
-Random Quote: We are not husband and wife... anymore. We're just business partners. And our job is to raise those kids. - Marty Byrde
+Last updated: 2024-04-13 18:41:39
+Random Quote: You know who's into dragons, Morty? Nerds who refuse to admit they're Christian. - Rick Sanchez
