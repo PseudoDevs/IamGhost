@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 18:13:19
-Random Quote: You guys can judge me if you want, but I do not care! I have never ever been happier! - Cassie Howard
+Last updated: 2024-04-13 18:13:51
+Random Quote: I have my own ghosts, Bran.  A brother that I loved, a brother that I hated, a woman I desired.  Through the trees, I see them still, but no word of mine has ever reached them.  The past remains the past.  We can learn from it, but we cannot change it.  -  Bloodraven
