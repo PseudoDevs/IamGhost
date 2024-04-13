@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 18:49:05
-Random Quote: Not all Mandalorians are bounty hunters. Some of us serve a higher purpose. - Bo-Katan
+Last updated: 2024-04-13 18:49:38
+Random Quote: Life hurts. The moment you think you've got it all, it smacks you in the face. - Lucien
