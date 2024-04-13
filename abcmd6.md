@@ -1,3 +1,2 @@
-Last updated: 2024-04-13 18:40:44
-Random Quote: Doctor: "Hypothetically speaking, every new father-to-be get nervous."
-Vision: "Well, I have nerves of steel, so there goes your theory, Mr. Doctor." - Vision
+Last updated: 2024-04-13 18:41:18
+Random Quote: In my body, where the shame gland should be, there is a second awesome gland. True story! - Barney Stinson
