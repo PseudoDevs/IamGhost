@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 18:29:30
-Random Quote: Roose Bolton's cold and cunning, aye, but a man can deal with Roose.  We've all known worse.  But this bastard son of his... they say he's mad and cruel, a monster.  -  Locke
+Last updated: 2024-04-13 18:30:04
+Random Quote: Looks like somebody suffered from premature slapulation. - Marshall Eriksen
