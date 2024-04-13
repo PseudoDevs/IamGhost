@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 10:09:19
-Random Quote: Barney: "I love how she was this wise, old, chilled out, lesbian farmer."Robin: "No, no, no. She's not a lesbian, nor does she farm them. No, that woman she lives with, that's just her special friend Maureen. They've lived together for... Oh!" - Robin Scherbatsky
+Last updated: 2024-04-13 10:09:52
+Random Quote: A bag of dragons buys a man's silence for a while, but a well - placed quarrel buys it forever. 

@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 10:08:44
-Random Quote: Kuiil: "They really don't like you for some reason."Mandalorian: "Well, I did disintegrate a few of them." - Din Djarin
+Last updated: 2024-04-13 10:09:52
+Random Quote: The Crow's Eye brought back monsters from the east... aye, and wizards too.  -  Tristifer Botley
