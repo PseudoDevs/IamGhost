@@ -1,3 +1,2 @@
-Last updated: 2024-04-13 10:26:32
-Random Quote: Grace: "I had the phone put in. It's in the back."
-Tommy: "If we knew someone else who had a phone, we could call them." - Thomas Shelby
+Last updated: 2024-04-13 10:27:07
+Random Quote: I’d get 30 years. And to be honest, growing old in a prison cell is not my thing. I’d rather run, in body and soul. And if I can’t take my body with me, at least my soul should run. - Tokyo
