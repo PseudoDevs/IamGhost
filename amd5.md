@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 18:17:53
-Random Quote: So roll me further bitch! - Jesse Pinkman
+Last updated: 2024-04-13 18:18:28
+Random Quote: The frightened child who sheltered in my manse died on the Dothraki Sea, and was reborn in blood and fire.  This dragon queen who wears her name is a true Targaryen.  -  Illyrio Mopatis
