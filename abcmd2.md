@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 10:11:01
-Random Quote: Being alone like that shows you what kind of a person you are. - Maura Franklin
+Last updated: 2024-04-13 10:11:35
+Random Quote: You Westerosi are all the same.  You sew some beast upon a scrap of silk, and suddenly you are all lions or dragons or eagles.  -  Illyrio Mopatis
