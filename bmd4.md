@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 18:50:52
-Random Quote: You wanna know what line doesn't work on a harp player? "Hey baby, wanna pluck?" - Barney Stinson
+Last updated: 2024-04-13 18:51:25
+Random Quote: The Crow's Eye brought back monsters from the east... aye, and wizards too.  -  Tristifer Botley
