@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 18:46:35
-Random Quote: A face took shape within the hearth.  Stannis?  she thought, for just a moment... but no, these were not his features.  A wooden face, corpse white.  Was this the enemy?  A thousand red eyes floated in the rising flames.  He sees me.  Beside him, a boy with a wolf's face threw back his head and howled.  -  Melisandre
+Last updated: 2024-04-13 18:47:09
+Random Quote: Listen, you have a choice, okay? You can pay up now or bleed to death in court. - Saul Goodman
