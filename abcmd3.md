@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 10:31:28
-Random Quote: I actually enjoyed being alone, solitude allowed me to think about important things. - Sheldon
+Last updated: 2024-04-13 10:32:01
+Random Quote: Treason is a noxious weed.  It must be torn up, root and stem and seed, lest new traitors sprout from every roadside.  -  Grand Maester Pycelle
