@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 17:46:53
-Random Quote: Men call me Darkstar, and I am of the night.  -  Gerold Dayne
+Last updated: 2024-04-13 17:47:26
+Random Quote: Grey Wind ate two of his fingers, and he laughed about it.  -  Robb Stark on Greatjon Umber
