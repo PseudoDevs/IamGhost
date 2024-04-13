@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 18:12:36
-Random Quote: Kids, you may think your only choices are to swallow your anger or throw it in someone's face, but there's a third option: You can just let it go, and only when you do that is it really gone and you can move forward. - Ted Mosby
+Last updated: 2024-04-13 18:13:10
+Random Quote: Too many crazies had my old number, so now I'm all about disposable cell phones. I'll use one for a while, have my fun, then dump it and get a new one. And then I'll do the same with my phone. - Barney Stinson
