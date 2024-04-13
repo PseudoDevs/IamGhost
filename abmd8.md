@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 17:43:04
-Random Quote: If you had to fall into a woman's arms, my son, why couldn't they have been Margaery Tyrell's?  -  Catelyn Stark
+Last updated: 2024-04-13 17:44:16
+Random Quote: Back boobs! The visual stimulation of missionary meets the emotional detachment of doggy style... patent pending. - Barney Stinson
