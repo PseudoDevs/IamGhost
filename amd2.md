@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 17:51:30
-Random Quote: I dreamed of the man who came today, the one they call Reek.  You and your brother lay dead at his feet, and he was skinning off your faces with a long red blade.  -  Jojen Reed
+Last updated: 2024-04-13 17:52:06
+Random Quote: That's where The Boys come in: Spank the bastards when they get out of line. - Billy Butcher
