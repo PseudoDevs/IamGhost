@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 18:05:55
-Random Quote: The star sounds great. Good with me. Besides, nobody really sees many stars these days. - Oh Il-nam
+Last updated: 2024-04-13 18:06:28
+Random Quote: Knowledge is a weapon, Jon.  Arm yourself well before you ride forth to battle.  -  Maester Aemon
