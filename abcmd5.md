@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 10:19:02
-Random Quote: Brother, you're driving the "I-wanna-have-sex-with-her-truck" and its got a huge blind spot. - Marshall Eriksen
+Last updated: 2024-04-13 10:19:35
+Random Quote: I'm KFC baby - you don't mess with the Colonel's recipe! - Barney Stinson
