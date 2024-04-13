@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 16:54:07
-Random Quote: Because there's no way watching it can be more fun than playing it yourself. - Oh Il-nam
+Last updated: 2024-04-13 16:54:43
+Random Quote: A craven's knife can slay a queen as easily as a hero's.  -  Xaro Xhoan Daxos
