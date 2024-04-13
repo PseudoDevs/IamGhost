@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 18:52:51
-Random Quote: Lily, I think we made a mistake moving out to the suburbs. I miss our home. I miss our booth with our friends. And I'm pretty sure I have a drumstick... somewhere bad. - Marshall Eriksen
+Last updated: 2024-04-13 18:53:25
+Random Quote: I'm KFC baby - you don't mess with the Colonel's recipe! - Barney Stinson
