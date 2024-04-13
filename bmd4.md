@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 17:21:01
-Random Quote: Fool's blood, king's blood, blood on the maiden's thigh, but chains for the guests and chains for the bridegroom, aye aye aye.  -  Patchface
+Last updated: 2024-04-13 17:22:54
+Random Quote: I don't want to be good. I am going to be great. - Pablo Escobar
