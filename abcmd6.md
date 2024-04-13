@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 17:15:49
-Random Quote: Come on, baby, do the magic hand thing! - Greef Karga
+Last updated: 2024-04-13 17:16:22
+Random Quote: A craven's knife can slay a queen as easily as a hero's.  -  Xaro Xhoan Daxos
