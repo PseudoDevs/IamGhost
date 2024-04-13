@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 17:11:40
-Random Quote: When you spend years thinking about something obsessively, that something is your whole world, your perfect world. - Tokyo
+Last updated: 2024-04-13 17:12:52
+Random Quote: Some of you cared. None of you cared enough. - Hannah Baker
