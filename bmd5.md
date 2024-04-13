@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 10:08:49
-Random Quote: She really had a fat but: her fat butt! - Barney Stinson
+Last updated: 2024-04-13 10:09:22
+Random Quote: His blood is bad.  He needs to be leeched.  The leeches suck away the bad blood, all the rage and pain.  No man can think so full of anger.  Ramsay, though... his tainted blood would poison even leeches, I fear.  -  Roose Bolton
