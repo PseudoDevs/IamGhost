@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 16:58:19
-Random Quote: You could turn King's Landing upside down and not find a single man with a mockingbird sewn over his heart but that does not mean I am friendless.  -  Petyr Baelish
+Last updated: 2024-04-13 16:58:53
+Random Quote: Shelly, remember when you thought you had leprosy, and it was just a patch of dry skin? - Mary
