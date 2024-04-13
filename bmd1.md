@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 17:56:34
-Random Quote: Dude, ditch Tiffany and join the Barnacle in the Pharma-Girl-Free-For-All. Side effects may include: loss of clothing, rug burns, shortness of breath and soar abdominals the next morning. What in the world is up! - Barney Stinson
+Last updated: 2024-04-13 17:57:07
+Random Quote: Lily: "Okay, stop! Every time he lands, that chair farts out ten-year-old Dorito dust."Marshall: "Yeah, it's the chair..." - Marshall Eriksen
