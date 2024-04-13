@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 17:38:52
-Random Quote: Jerry: "You don't, by any chance, have some sort of crazy science thing you could wrap up, that might help make this dog a little smarter?"Rick: "I thought the whole point of having a dog was to feel superior, Jerry. If I were you, I wouldn't pull that thread." - Rick Sanchez
+Last updated: 2024-04-13 17:39:29
+Random Quote: She had seen Bronn fight on the high road; it was no accident that he had survived the journey while other men had died.  He moved like a panther, and that ugly sword of his seemed a part of his arm.  -  Catelyn Stark
