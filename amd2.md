@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 10:07:32
-Random Quote: Ted: "She was 15?!"Barney: "No. A 15. Like in blackjack."Ted: "As in.. not sure whether you'd hit it?"Barney: "Exactly!" - Barney Stinson
+Last updated: 2024-04-13 10:08:05
+Random Quote: I guess, if we're splitting hairs, then technically... there was a plurality to the times I've lied to women for sex-having-purposes. - Barney Stinson
