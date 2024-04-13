@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 18:37:10
-Random Quote: When life gives you lemonade, make lemons. Life will be all like, "What?!" - Phil Dunphy
+Last updated: 2024-04-13 18:37:45
+Random Quote: What you have to do is show these suckers what you’re capable of. Show them you’re not scared. - Nairobi
