@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 17:57:21
-Random Quote: The Lion does not concern itself with the opinions of sheep.  -  Tywin Lannister
+Last updated: 2024-04-13 17:57:54
+Random Quote: When a maester donned his collar, he put aside the hope of children, yet Cressen had oft felt a father nonetheless.  Robert, Stannis, Renly: three sons he had raised after the angry sea claimed Lord Steffon.  -  Maester Cressen
