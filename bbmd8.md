@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 10:10:36
-Random Quote: Bad guys don't play by the rules. That's what makes them bad. - Steve Murphy
+Last updated: 2024-04-13 10:11:09
+Random Quote: In King's Landing, there are two sorts of people.  The players and the pieces.  -  Petyr Baelish
