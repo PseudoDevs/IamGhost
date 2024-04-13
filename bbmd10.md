@@ -1,3 +1,2 @@
-Last updated: 2024-04-13 18:48:55
-Random Quote: Peter Parker: "Splitting up? Do you guys just not have horror movies in Wakanda?"
-Okoye: "We don't need them. We have American reality shows." - Okoye
+Last updated: 2024-04-13 18:49:29
+Random Quote: There must always be a Stark in Winterfell.  -  Catelyn Stark
