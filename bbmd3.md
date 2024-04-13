@@ -1,2 +1,4 @@
-Last updated: 2024-04-13 17:09:13
-Random Quote: A bag of dragons buys a man's silence for a while, but a well - placed quarrel buys it forever. 
+Last updated: 2024-04-13 17:09:47
+Random Quote: Joel: "You keep going for family."
+Ellie: "I'm not family?"
+Joel: "No. You're cargo." - Joel Miller
