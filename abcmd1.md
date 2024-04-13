@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 16:58:49
-Random Quote: So I will only ask you once, Lord Snow.  Are you a brother of the Night's Watch, or a bastard boy who wants to play at war?  -  Jeor Mormont
+Last updated: 2024-04-13 16:59:22
+Random Quote: All religion is a foolish answer to a foolish question. - Thomas Shelby
