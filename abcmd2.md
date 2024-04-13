@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 17:07:38
-Random Quote: Barney: "You avoiding the family too?"James: "I'm gay, I'm black and I'm getting a divorce. Those walking skeletons are gonna have more questions for me than their pharmacists." - James Stinson
+Last updated: 2024-04-13 17:08:12
+Random Quote: There must always be a Stark in Winterfell.  -  Catelyn Stark
