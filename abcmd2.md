@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 10:11:35
-Random Quote: You Westerosi are all the same.  You sew some beast upon a scrap of silk, and suddenly you are all lions or dragons or eagles.  -  Illyrio Mopatis
+Last updated: 2024-04-13 10:12:09
+Random Quote: The day is won, and yet you do not smile, boy.  The living should smile, for the dead cannot.  -  Dagmer Cleftjaw
