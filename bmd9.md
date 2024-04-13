@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 17:49:40
-Random Quote: Never forget what you are, for surely the world will not.  Make it your strength.  Then it can never be your weakness.  Armor yourself in it, and it will never be used to hurt you.  -  Tyrion Lannister
+Last updated: 2024-04-13 17:50:16
+Random Quote: He would see this country burn if he could be king of the ashes.  -  Varys
