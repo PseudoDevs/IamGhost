@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 17:24:11
-Random Quote: A hall to die in, and men to bury me.  I thank you, my lords... but I spit on your pity... I am a knight... I shall die a knight.  -  Barristan Selmy
+Last updated: 2024-04-13 17:24:44
+Random Quote: It doesn't matter how much you push the envelope, it'll still be stationery. - Will Livingston
