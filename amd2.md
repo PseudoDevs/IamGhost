@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 17:13:42
-Random Quote: F*ck you! And your eyebrows! - Walter White
+Last updated: 2024-04-13 17:14:15
+Random Quote: You're wrong.  Need Stark was my gaoler, but my blood is still salt and iron.  -  Theon Greyjoy
