@@ -1,2 +1,3 @@
-Last updated: 2024-04-13 17:23:37
-Random Quote: You see, ladies? When you're out with a Blinder, you don't have to queue. - Arthur Shelby
+Last updated: 2024-04-13 17:24:16
+Random Quote: Larissa: "So you automatically assume a Nevermore student is the murderer, even though there's no evidence a crime was even committed."
+Donovan: "I'm sorry. I forgot, you only teach the good outcasts here, right?" - Donovan Galpin
