@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 17:59:06
-Random Quote: I could keep you safe.  They're all afraid of me.  No one would hurt you again, or I'd kill them.  -  Sandor Clegane
+Last updated: 2024-04-13 18:00:16
+Random Quote: Drugs are kind of cool. I mean, they're cool before they wreck your skin. And your life. And your family. That's when they get uncool. It's actually a very narrow window of cool. - Rue Bennett
