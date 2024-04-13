@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 17:20:49
-Random Quote: Of course, nobody I knew in East-Texas in 1989 cared about Newtonian Physics. The only Newtons they cared about were Wayne and Fig. - Sheldon Cooper
+Last updated: 2024-04-13 17:21:22
+Random Quote: Most of him has gone into the tree... he has lived beyond his mortal span, and yet he lingers.  For us, for you, for the realms of men.  Only a little strength remains in his flesh.  He has a thousand eyes and one, but there is much to watch.  One day you will know.  -  Leaf
