@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 10:43:04
-Random Quote: I've had shits that I've liked better than Walder Frey.  -  Brynden Tully
+Last updated: 2024-04-13 10:43:42
+Random Quote: Death, he knew, but slow.  I still have time.  A year.  Two years.  Five.  Some stone men live for ten.  Time enough to cross the sea, to see Griffin's Roost again.  To end the Usurper's line for good and all, and put Rhaegar's son upon the Iron Throne.  Then Lord Jon Connington could die content.  -  Jon Connington
