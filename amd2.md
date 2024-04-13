@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 17:29:14
-Random Quote: I think sometimes we aren't keeping secrets to hide from other people. I think sometimes we're keeping them to protect those people. - Tony Padilla
+Last updated: 2024-04-13 17:30:28
+Random Quote: Nobody takes an intro class to get on any other path, but the path to not being hungover anymore. I learned that in my intro to something-ology class. - Marshall Eriksen
