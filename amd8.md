@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 18:17:51
-Random Quote: There's something that I need to ask you and I want you to be honest with me. Why do white people like Carrot Top? - Barney Stinson
+Last updated: 2024-04-13 18:18:26
+Random Quote: Sometimes you gotta do bad things to catch bad people. - Javier Pe�a
