@@ -1,5 +1,2 @@
-Last updated: 2024-04-13 16:54:08
-Random Quote: Dina: "You're infuriating."
-Ellie: "Have you met you?"
-Dina: "You make me want to go back outside into that blizzard."
-Ellie: "No one is stopping you." - Joel Miller
+Last updated: 2024-04-13 16:54:44
+Random Quote: This guy he's done everything right. He's been loving and devoted since he was 18 years old. There are only a few truly great people on this planet and he is one of them. - Barney Stinson
