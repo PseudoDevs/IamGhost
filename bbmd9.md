@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 17:45:09
-Random Quote: The Empire improves every system it touches. Judge by any metric: safety, prosperity, trade, opportunity, peace. Compare Imperial rule to what is happening right now. Is the world more peaceful since the revolution? I see nothing but death and chaos. - The Client
+Last updated: 2024-04-13 17:45:42
+Random Quote: I'm a simple man making his way through the galaxy. Like my father before me. - Boba Fett
