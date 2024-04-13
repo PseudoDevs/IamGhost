@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 18:59:10
-Random Quote: Marshall: "I don't care if the dishes aren't done, okay? If you care, you do it."Lily: "Great, then I don't care if you have an orgasm. If you care, you do it." - Lily Aldrin
+Last updated: 2024-04-13 18:59:43
+Random Quote: Shut the f*ck up and let me die in peace. - Mike Ehrmantraut
