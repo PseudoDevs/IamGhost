@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 18:46:00
-Random Quote: The greatest fools are ofttimes more clever than the men who laugh at them.  -  Tywin Lannister
+Last updated: 2024-04-13 18:46:35
+Random Quote: A face took shape within the hearth.  Stannis?  she thought, for just a moment... but no, these were not his features.  A wooden face, corpse white.  Was this the enemy?  A thousand red eyes floated in the rising flames.  He sees me.  Beside him, a boy with a wolf's face threw back his head and howled.  -  Melisandre
