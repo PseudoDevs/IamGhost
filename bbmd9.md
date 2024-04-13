@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 10:38:37
-Random Quote: When the sun has set, no candle can replace it.  -  Loras Tyrell
+Last updated: 2024-04-13 10:39:10
+Random Quote: You're wrong.  Need Stark was my gaoler, but my blood is still salt and iron.  -  Theon Greyjoy
