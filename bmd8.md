@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 18:13:11
-Random Quote: Shut the f*ck up and let me die in peace. - Mike Ehrmantraut
+Last updated: 2024-04-13 18:15:31
+Random Quote: Every man's a piece to start with, and every maid as well.  Even some who think they are players.  Cersei, for one.  She thinks herself sly, but in truth she is utterly predictable.  Her strength rests on her beauty, birth, and riches.  Only the first of those is truly her own, and it will soon desert her.  I pity her then.  She wants power, but has no notion what to do with it when she gets it.  -  Petyr Baelish
