@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 10:06:33
-Random Quote: So many vows... they make you swear and swear.  Defend the king.  Obey the king.  Keep his secrets.  Do his bidding.  Your life for his.  But obey your father.  Love your sister.  Protect the innocent.  Defend the week.  Respect the gods.  Obey the laws.  It's too much.  No matter what you do, you're forsaking one vow for the other.  -  Jaime Lannister
+Last updated: 2024-04-13 10:07:08
+Random Quote: I will not be remembered as Set Arys the Unworthy.  I will not soil my cloak.  -  Arys Oakheart
