@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 18:18:45
-Random Quote: What is the cost of lies? It's not that we mistake them for the truth. The real danger is that if we hear enough lies, then we no longer recognize the truth at all. - Valery Legasov
+Last updated: 2024-04-13 18:19:18
+Random Quote: Folly and desperation are ofttimes hard to tell apart.  -  Maester Luwin
