@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 10:08:55
-Random Quote: A dad makes a toilet look like R2-D2 and it breaks the front page of Reddit. But I'm Charles Manson because I gave you your own world instead of an iPad. - Rick Sanchez
+Last updated: 2024-04-13 10:09:28
+Random Quote: I waited, and so can he.  I waited half my life.  She had played the dutiful daughter, the blushing bride, the pliant wife.  She had suffered Robert's drunken groping, Jaime's jealousy, Renly's mockery, Varys with his titters, Stannis endlessly grinding his teeth.  She had contended with Jon Arryn, Need Stark, and her vile, treacherous, murderous dwarf brother, all the while promising herself that one day it would be her turn.  If Margaery Tyrell thinks to cheat me of my hour in the sun, she had bloody well think again.  -  Cersei Lannister
