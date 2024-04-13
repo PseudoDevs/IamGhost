@@ -1,3 +1,2 @@
-Last updated: 2024-04-13 17:01:47
-Random Quote: George: "I love what you done with the place. Did you do it yourself, or did you get some pouf to help ya?"
-Rebecca: "I could ask the same of your hair." - Rebecca Welton
+Last updated: 2024-04-13 17:02:20
+Random Quote: I was a better smuggler than a knight, he had written to his wife, a better knight than a King's hand, a better King's hand than a husband.  I am so sorry Marya, I have loved you.  Please forgive the wrongs I did you.  -  Davos Seaworth
