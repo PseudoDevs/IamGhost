@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 10:07:16
-Random Quote: Nobody likes to be alone, especially after a breakup. But that's when we discover who we really are and what we really want. - Ted Mosby
+Last updated: 2024-04-13 10:07:49
+Random Quote: I understand that if any more words come pouring out of your cunt mouth I'm going to have to eat every fucking chicken in this room.  -  Sandor Clegane
