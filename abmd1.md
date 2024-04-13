@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 10:23:10
-Random Quote: I don't take nothin' a drug addict says personally. 'Cause I don't believe nothin' a drug addict say. - Fezco
+Last updated: 2024-04-13 10:23:43
+Random Quote: Dustin: "Even if he is, it doesn't automatically mean that he's bad."Mike: "That's like saying just because someone's from the Death Star doesn't make them bad."Dustin: "We have a bond."Mike: "A bond? Just because he likes nougat?" - Mike Wheeler
