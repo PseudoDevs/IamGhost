@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 17:58:40
-Random Quote: Do it. If you ever want to see these boobs again, crawl, you son of a me. - Lily Aldrin
+Last updated: 2024-04-13 17:59:13
+Random Quote: We have to control this fing world, or it will control you. And if you don't protect yourself, it makes a mess and breaks you. - Miguel Angel Felix Gallardo
