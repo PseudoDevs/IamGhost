@@ -1,3 +1,2 @@
-Last updated: 2024-04-13 18:25:28
-Random Quote: George: "I love what you done with the place. Did you do it yourself, or did you get some pouf to help ya?"
-Rebecca: "I could ask the same of your hair." - Rebecca Welton
+Last updated: 2024-04-13 18:26:03
+Random Quote: There's only one thing that could blind a man as smart as you, Tommy. Love. - Polly Gray
