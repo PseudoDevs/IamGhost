@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 17:18:36
-Random Quote: That's the thing with guys like Nate. They don't actually want a person. They want something they can own and possess. - Rue Bennett
+Last updated: 2024-04-13 17:19:10
+Random Quote: I feel like love is super dark and no one ever talks about it. - Cassie Howard
