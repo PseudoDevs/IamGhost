@@ -1,3 +1,2 @@
-Last updated: 2024-04-13 16:57:36
-Random Quote: Jerry: "Rick! Beth! You love me after all!"
-Rick: "Eh, I love her, she loves you. Those credits don't transfer." - Rick Sanchez
+Last updated: 2024-04-13 16:58:09
+Random Quote: The absolute worst part of depression is that even though you know you're depressed, You're unable to stop yourself from getting worse. - Rue Bennett
