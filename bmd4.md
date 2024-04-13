@@ -1,2 +1,3 @@
-Last updated: 2024-04-13 17:32:06
-Random Quote: I swear to you, I was never so alive as when I was winning this throne, or so dead as now that I've won it.  -  Robert Baratheon
+Last updated: 2024-04-13 17:32:39
+Random Quote: What did the frustrated cannibal do?
+He threw up his hands. - Will Livingston
