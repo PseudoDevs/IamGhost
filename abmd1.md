@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 18:56:45
-Random Quote: Robert could piss in a cup and men would call it wine, but I offer them cold clear water and they squint in suspicion and mutter to each other about how queer it tastes.  -  Stannis Baratheon
+Last updated: 2024-04-13 18:57:18
+Random Quote: Why is it always the innocents who suffer most, when you high lords play your game of thrones?  -  Varys
