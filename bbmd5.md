@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 18:59:02
-Random Quote: See, lad, that's why he's the king and I'm not.  I can outdrink, outfight, and outsing him, and my member's thrice the size o' his, but Mance has cunning.  -  Tormund Giantsbane
+Last updated: 2024-04-13 18:59:36
+Random Quote: Tequila makes me wanna dance. - Jules Vaughn
