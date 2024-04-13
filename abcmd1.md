@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 18:11:00
-Random Quote: Money is not peace of mind. Money is not happiness. Money is, at its essence, that measure of a man's choices. - Marty Byrde
+Last updated: 2024-04-13 18:11:33
+Random Quote: Strip off their skins.  Lord Bolton, he used to say a naked man has few secrets, but a flayed man's got none.  -  Ramsay Bolton
