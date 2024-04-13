@@ -1,2 +1,3 @@
-Last updated: 2024-04-13 10:13:11
-Random Quote: Time without purpose is a prison. - Jessica
+Last updated: 2024-04-13 10:14:18
+Random Quote: "Crutch down and bend over a little bit."
+Barney: "Wow, It took five shots of tequila to have you in that position." - Barney Stinson
