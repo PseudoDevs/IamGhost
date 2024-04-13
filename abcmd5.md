@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 18:03:00
-Random Quote: Barney: "Or it's a chance to mess with her head by showing up with someone hotter. Even better. Triple-threat: hotter and bigger boobs."Ted: "That's only two?"Barney: "Count again!" - Barney Stinson
+Last updated: 2024-04-13 18:03:33
+Random Quote: The more you give a king, the more he wants.  We are walking on a bridge of ice with an abyss on either side.  Pleasing one king is difficult enough.  Pleasing two is hardly possible.  -  Jon Snow
