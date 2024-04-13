@@ -1,2 +1,5 @@
-Last updated: 2024-04-13 18:03:47
-Random Quote: Seriously. Jesus started the whole 'wait three days'-thing. He waited three days to come back to life. It was perfect! If he had only waited one day, a lot of people wouldn't have even heard that he died. They'd be all, 'Hey Jesus, what up?' and Jesus would probably be like, 'What up? I died yesterday!' and then they'd be all, 'Uh, you look pretty alive to me, dude...' and then Jesus would have to explain how he was resurrected, and how it was a miracle, and then the dude would be like 'Uh okay, whatever you say, bro.'And he's not gonna come back on a saturday. Everybody's busy, doing chores, workin' the loom, trimmin' their beards. No, he waits the exact right number of days: three! Plus it's sunday, so everyone's in church already, they're all in there 'Oh no, Jesus is dead', then bam! He bursts through the back door, runs up the aisle, everyone's totally psyched, and FYI, that's when he invented the high-five. Three days. We wait three days to call a woman, because that's how long Jesus wants us to wait.... True story! - Barney Stinson
+Last updated: 2024-04-13 18:04:22
+Random Quote: "What's love to you?"
+Flaca: "It's like getting into a bath, but the water is like warm chocolate pudding. And the Smiths are playing. There Is A Light That Never Goes Out.' There's mood lighting all over, and there's like five dudes massaging you."
+Maritza: "And you have a pizza!"
+Flaca: "She's right. You also have a pizza." - Marisol 'Flaca' Gonzales & Maritza Ramos
