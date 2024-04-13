@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 17:40:53
-Random Quote: No man has ever died from bending his knee.  He who kneels may rise again, blade in hand.  He who will not kneel stays dead, stiff legs and all.  -  Balon Greyjoy
+Last updated: 2024-04-13 17:41:26
+Random Quote: There is a 83% correlation between times when men are wearing a boutonniere and when they are getting laid... proms, weddings, funerals... thanks for the redhead, grandma! By the way, did you know that "boutonniere" is french for "booty is near"? - Barney Stinson
