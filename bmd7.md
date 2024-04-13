@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 17:07:29
-Random Quote: The Horned Lord once said that sorcery is a sword without a hilt.  There is no safe way to grasp it.  -  Dalla
+Last updated: 2024-04-13 17:08:03
+Random Quote: By what right does the wolf judge the lion?  -  Jaime Lannister
