@@ -1,2 +1,3 @@
-Last updated: 2024-04-13 10:10:24
-Random Quote: The Scarlet Witch is not born, she is forged. She has no coven, no need for incantation. - Agatha Harkness
+Last updated: 2024-04-13 10:10:57
+Random Quote: Gor Koresh: "This is no place for a child."
+Mando: "Wherever I go, he goes. I've been quested to bring him to his kind." - Din Djarin
