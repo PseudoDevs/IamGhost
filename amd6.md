@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 18:37:12
-Random Quote: I think my soul just threw up a little bit. - Lily Aldrin
+Last updated: 2024-04-13 18:37:47
+Random Quote: Bronn was no knight, that was true.  Bronn was a battle - hardened killer. 
