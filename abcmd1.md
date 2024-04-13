@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 17:59:13
-Random Quote: We have to control this fing world, or it will control you. And if you don't protect yourself, it makes a mess and breaks you. - Miguel Angel Felix Gallardo
+Last updated: 2024-04-13 17:59:46
+Random Quote: Just remember who your friends and who your enemies are. - Billy Butcher
