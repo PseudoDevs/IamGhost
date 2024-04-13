@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 17:26:05
-Random Quote: Piper: "Not every Hispanic person wants the same thing."Lorna: "Oh, sure they do. They all want to come to America."Nicky: "Jesus, your entire world view is based on 'West Side Story', isn't it?" - Nicky Nichols
+Last updated: 2024-04-13 17:26:40
+Random Quote: Jesus was a fag! He said: 'This is my body. Eat me.' - Big Boo
