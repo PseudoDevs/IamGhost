@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 10:27:50
-Random Quote: Come on, baby, do the magic hand thing! - Greef Karga
+Last updated: 2024-04-13 10:28:28
+Random Quote: A man who sees nothing has no use for his eyes, cut them out and give them to your next outrider.  Tell him you hope that four eyes might see better than two... and if not, the man after him will have six.  -  Gregor Clegane
