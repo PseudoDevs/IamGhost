@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 10:07:34
-Random Quote: Jaime and I are more than brother and sister.  We are one person in two bodies.  We shared a womb together.  He came into this world holding my foot, our old maester said.  When he is in me, I feel... whole.  -  Cersei Lannister
+Last updated: 2024-04-13 10:08:08
+Random Quote: Marshall: "Open your eyes, ref! That's not a pregnant lady..."Ted: "...it's a basketball under his shirt. Blow the freakin' whistle!" - Ted Mosby
