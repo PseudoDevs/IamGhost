@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 17:14:15
-Random Quote: You're wrong.  Need Stark was my gaoler, but my blood is still salt and iron.  -  Theon Greyjoy
+Last updated: 2024-04-13 17:14:48
+Random Quote: Your pain defines who you are but it no longer holds power on you - Noah
