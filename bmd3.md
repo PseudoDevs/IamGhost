@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 17:09:25
-Random Quote: The "no more surprises"-thing is the best part of being married. - Lily Aldrin
+Last updated: 2024-04-13 17:10:11
+Random Quote: Lily, you just gave those children a stapler, a pair of sharp scissors and a pretty decent Pinot Noir. - Marshall Eriksen
