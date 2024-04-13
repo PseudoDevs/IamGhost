@@ -1,2 +1,3 @@
-Last updated: 2024-04-13 17:19:54
-Random Quote: He can hear youHe knows if you've been bad or goodLike Santa, but he can send you to hell. - Missy
+Last updated: 2024-04-13 17:20:27
+Random Quote: Billy: "Halloween's a magical holiday. All about family, friends, and the thrill of getting to be someone else for a day."
+Tommy: "Wrong! Halloween's about candy. And scaring people, but mostly candy." - Tommy Maximoff
