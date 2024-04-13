@@ -1,2 +1,3 @@
-Last updated: 2024-04-13 17:00:58
-Random Quote: Nancy Wheeler: "You're supposed to hit the cans, right?"Jonathan Byers: "No, actually - you see the spaces in between the cans? I'm aiming for those." - Jonathan Byers
+Last updated: 2024-04-13 17:01:31
+Random Quote: Gor Koresh: "This is no place for a child."
+Mando: "Wherever I go, he goes. I've been quested to bring him to his kind." - Din Djarin
