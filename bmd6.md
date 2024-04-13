@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 17:02:49
-Random Quote: You know what they say about relationships. Every waking moment's a battle. - Barney Stinson
+Last updated: 2024-04-13 17:03:22
+Random Quote: My daughter has taken an axe for a lover.  I will not have my son bedeck himself like a whore.  It is as I feared.  The green lands have made you soft, and the Starks have made you theirs.  -  Balon Greyjoy
