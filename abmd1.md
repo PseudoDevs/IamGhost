@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 16:55:19
-Random Quote: Even brave men blind themselves sometimes, when they are afraid to see.  -  Beric Dondarrian
+Last updated: 2024-04-13 16:55:54
+Random Quote: If ever a man deserved to die screaming, it was Gregor Clegane.  -  Doran Martell
