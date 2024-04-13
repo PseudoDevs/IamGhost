@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 18:10:49
-Random Quote: Think of me as Yoda - only, instead of being little and green, I wear suits and I'm awesome. I'm your bro. I'm Broda. - Barney Stinson
+Last updated: 2024-04-13 18:11:24
+Random Quote: Look at us, riding around in a limo, eating hot dogs... It's like we're the president. - Marshall Eriksen
