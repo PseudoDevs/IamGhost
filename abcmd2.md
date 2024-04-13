@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 10:07:39
-Random Quote: I do have an angle, Craig. It's an angle called justice. - Saul Goodman
+Last updated: 2024-04-13 10:08:12
+Random Quote: I understand that if any more words come pouring out of your cunt mouth I'm going to have to eat every fucking chicken in this room.  -  Sandor Clegane
