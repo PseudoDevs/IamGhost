@@ -1,2 +1,7 @@
-Last updated: 2024-04-13 17:46:37
-Random Quote: Here's what's gonna happen. One day you're gonna wake up, eat your breakfast, brush your teeth, go about your business. And sooner or later, you're gonna realize you haven't thought about it. None of it. And that's the moment you realize you can forget. When you know that's possible, it all gets easier. - Mike Ehrmantraut
+Last updated: 2024-04-13 17:47:49
+Random Quote: "Nevermore was founded over 200 years ago to educate outcasts."
+"Students from all walks of life."
+"And death."
+"Our mission is to help each student master their unique abilities. So we offer a full range of extracurricular activities. From painting... to archery."
+"For centuries, notable alumni have roamed these majestic halls, from the master of macabre, Edgar Allan Poe, to personal heroes like Ignatius Itt, and of course, Morticia and Gomez Addams."
+"Our highly trained faculty educate our young outcasts on a wide range of subjects. Everything from werewolf reproduction to Gorgon anatomy." - Larissa Weems
