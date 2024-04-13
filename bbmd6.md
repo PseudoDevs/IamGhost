@@ -1,2 +1,6 @@
-Last updated: 2024-04-13 18:48:56
-Random Quote: They threw him off the goddamn railing. There's no way someone survives that. And yet, here he is. How is that possible? - Eyk Larsen
+Last updated: 2024-04-13 18:50:03
+Random Quote: Morty: "Rick, when you say you made an exact replica of the house, did you mean, like, an exact replica?"
+Rick: "I know about the Yosemite T-Shirt, Morty."
+Morty: "Shit."
+Rick: "You know you can use tissues, right?"
+Morty: "I can't finish without it!" - Morty Smith
