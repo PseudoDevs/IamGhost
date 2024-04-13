@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 18:57:55
-Random Quote: Will you explain to me how that was offside? No, I'm asking you, seriously. Explain offside to me! It makes no sense. - Rebecca Welton
+Last updated: 2024-04-13 18:59:02
+Random Quote: When a maester donned his collar, he put aside the hope of children, yet Cressen had oft felt a father nonetheless.  Robert, Stannis, Renly: three sons he had raised after the angry sea claimed Lord Steffon.  -  Maester Cressen

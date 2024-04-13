@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 18:57:21
-Random Quote: I feel like her sobriety is completely dependent on how available I am to her. - Jules Vaughn
+Last updated: 2024-04-13 18:59:02
+Random Quote: See, lad, that's why he's the king and I'm not.  I can outdrink, outfight, and outsing him, and my member's thrice the size o' his, but Mance has cunning.  -  Tormund Giantsbane
