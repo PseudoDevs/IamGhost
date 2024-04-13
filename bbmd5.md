@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 17:13:09
-Random Quote: Lily: "I'm not paying for room service the hooker ordered."Barney: "I've been there." - Barney Stinson
+Last updated: 2024-04-13 17:13:42
+Random Quote: The biggest case of my life and I'd already lost the jury. I mean, I've heard of "Twelve Angry Men",  but this was more like "Twelve Horny Women". - Marshall Eriksen
