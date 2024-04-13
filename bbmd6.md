@@ -1,2 +1,4 @@
-Last updated: 2024-04-13 19:00:42
-Random Quote: Ted: "You know what else is getting cleaned, along with that cup-cake tray? My conscience!"Victoria: "You got anything else to atone for? My oven needs cleaning." - Victoria
+Last updated: 2024-04-13 19:01:49
+Random Quote: Oh Il-nam: "As a kid, I'm willing to bet you got spanked a lot."
+Seong Gi-hun: "How did you know?"
+Oh Il-nam: "My son did too. He was just like you, friend." - Oh Il-nam
