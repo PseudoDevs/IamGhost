@@ -1,3 +1,2 @@
-Last updated: 2024-04-13 18:37:10
-Random Quote: Robin: "I'm drinking 'til I forget the 1999 NFC Championship?"
-Marshall: "The Vikings were two minutes away from going to the Super Bowl, when our kicker, who hadn't missed all year, shanked a field goal, and we lost in overtime. Damn!" - Marshall Eriksen
+Last updated: 2024-04-13 18:37:46
+Random Quote: Lily: "Just give me his name!"Robin: "Fine. It's Bill Pepper."Lily: "Kind of a coincidence there happens to be a bill and a pepper shaker here on the table. Any chance you and Bill had a three-way with Fork Napkin?" - Lily Aldrin

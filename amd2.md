@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 18:37:11
-Random Quote: Looks like somebody suffered from premature slapulation. - Marshall Eriksen
+Last updated: 2024-04-13 18:37:46
+Random Quote: Master Mott said Thoros could outdrink even King Robert.  They were pease in a pod, he told me, both gluttons and sots.  -  Gendry
