@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 18:20:47
-Random Quote: You know what else is scary? Walking home alone at night. But us women keep doing it. Take fear by the hand and keep living. Because you have to live, gentlemen! You have to live until the end! - Nairobi
+Last updated: 2024-04-13 18:21:23
+Random Quote: I feel like you ruined me forever. - Maddy Perez
