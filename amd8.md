@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 10:07:32
-Random Quote: No, only a boy who dreams.  The greenseers were more than that.  They were wargs as well, as you are, and the greatest of them could wear the skins of any beast that flies or swims or crawls, and could look through the eyes of the weirwoods as well, and see the truth that lies beneath the world.  -  Jojen Reed
+Last updated: 2024-04-13 10:08:06
+Random Quote: Quantum mechanics? We're discussing that now? Stay in your lane! You are not talking about a time machine, which is both a real and theoretical impossibility. You are talking about regrets. So if you want to ask about regrets, just ask about regrets and leave all this time-traveling nonsense out of it! - Walter White
