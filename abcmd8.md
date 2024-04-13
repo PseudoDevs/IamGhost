@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 16:56:32
-Random Quote: Bronn was no knight, that was true.  Bronn was a battle - hardened killer. 
+Last updated: 2024-04-13 16:57:06
+Random Quote: Here's the secret, kids: none of us can vow to be perfect. In the end, all we can do is promise to love each other with everything we've got. Because love's the best thing we do. - Ted Mosby
