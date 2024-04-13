@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 17:57:07
-Random Quote: Lily: "Okay, stop! Every time he lands, that chair farts out ten-year-old Dorito dust."Marshall: "Yeah, it's the chair..." - Marshall Eriksen
+Last updated: 2024-04-13 17:57:39
+Random Quote: Grief never gets any smaller, so you have to make yourself bigger around it. The best way to do that is to open up. Let people in. - Rendell Locke
