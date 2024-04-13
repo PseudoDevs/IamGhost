@@ -1,2 +1,5 @@
-Last updated: 2024-04-13 18:48:19
-Random Quote: The Old Gods have no power in the south.  The weirwoods there were all cut down, thousands of years ago.  -  Osha
+Last updated: 2024-04-13 18:48:53
+Random Quote: Barney: "You can't spell 'game' without 'me' and 'me' has the best game."
+Ted: "Yeah well, I got so much game, I'm Cornish game hen."
+Barney: "Oh, yeah? I'm the New York State gaming commissioner."
+Ted: "Well, I'm The Game. Well-crafted, keep-you-guessing thriller starring Michael Douglas and Sean Penn." - Ted Mosby
