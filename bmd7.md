@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 17:30:58
-Random Quote: Treason is a noxious weed.  It must be torn up, root and stem and seed, lest new traitors sprout from every roadside.  -  Grand Maester Pycelle
+Last updated: 2024-04-13 17:31:30
+Random Quote: Barney: "Fine, we'll just have a nice, tasteful rehearsal dinner. Maybe at a French restaurant, I know just the place."Robin: "What's the name of the restaurant?"Barney: "La Sertag." - Barney Stinson
