@@ -1,2 +1,4 @@
-Last updated: 2024-04-13 16:56:37
-Random Quote: You gotta move...The fuck...On! - Gloria Mendoza
+Last updated: 2024-04-13 16:57:11
+Random Quote: Marshall: "Except the flames of Lucifer keep singein our back bumper as we drive through this hellish, cheese-infected wasteland."
+Lily: "Wisconsin?"
+Marshall: "Wisconsin!" - Marshall Eriksen
