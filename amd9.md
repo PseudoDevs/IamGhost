@@ -1,3 +1,2 @@
-Last updated: 2024-04-13 17:38:14
-Random Quote: Joel: "A deep breath in, slow breath out. You squeeze the trigger like you love it. Gentle, steady, nice and slow."
-Ellie: "You gonna shoot this thing or get it pregnant?" - Ellie Williams
+Last updated: 2024-04-13 17:38:49
+Random Quote: He let me have her. I have to say, it was pretty noble of him. He fell on his sword so that she could fall on mine. - Barney Stinson
