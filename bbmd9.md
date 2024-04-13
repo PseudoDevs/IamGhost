@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 18:02:37
-Random Quote: Family members help each other, no questions asked. Because it makes you happy and your life depends on it. You have your plan, I know. Well, I have one, too. You’ve taught me that we help each other. That’s who we are. - Nairobi
+Last updated: 2024-04-13 18:03:11
+Random Quote: No sword is strong until it's been tempered.  The Stark boy is a child.  No doubt he likes the sound of warhorns well enough, and the sight of his banners fluttering in the wind, but in the end it comes down to butcher's work.  I doubt he has the stomach for it.  -  Tywin Lannister
