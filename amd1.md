@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 10:22:53
-Random Quote: It's just, I know I can be a jerk like him sometimes, and I do not want to be like him. Ever. - Max Mayfield
+Last updated: 2024-04-13 10:23:26
+Random Quote: Then perhaps Lord Eddard should have kept you chained to a dungeon wall.  Instead he raised you among his own sons, the sweet boys you have butchered, and to my undying shame I trained you in the arts of war.  Would that I had thrust a sword through your belly instead of placing one in your hand.  -  Rodrik Cassel
