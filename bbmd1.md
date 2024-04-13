@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 10:36:08
-Random Quote: I watched Jane die. I was there. And I watched her die. - Walter White
+Last updated: 2024-04-13 10:36:44
+Random Quote: Know the men who follow you and let them know you.  Don't ask your men to die for a stranger.  -  Eddard Stark
