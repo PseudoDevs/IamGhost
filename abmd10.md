@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 17:03:12
-Random Quote: When one chooses to walk the way of the Mandalore, you are both hunter and prey. How can one be a coward if one chooses this way of life? - The Armorer
+Last updated: 2024-04-13 17:03:45
+Random Quote: Ted: "Want to know what I looked like at age 15? There it is."Robin: "I don't get it, that guy wasn't masturbating."Barney: "Yeah, and the waistband of his undies wasn't pulled up to his Cub Scouts neckerchief." - Robin Scherbatsky
