@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 17:20:38
-Random Quote: This is my own private domicile and I will not be harassed…bitch! - Jesse Pinkman
+Last updated: 2024-04-13 17:21:11
+Random Quote: Why is it always the innocents who suffer most, when you high lords play your game of thrones?  -  Varys
