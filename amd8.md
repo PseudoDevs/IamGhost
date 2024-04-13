@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 18:50:35
-Random Quote: There are worse ways to die than warm and drunk.  I knew a brother drowned himself in wine once.  It was a poor vintage, though, and his corpse did not improve it.  -  Dolorous Edd Tollett
+Last updated: 2024-04-13 18:51:09
+Random Quote: Kids, you can't cling to the past. Because no matter how tight you hold on... it's already gone. - Ted Mosby
