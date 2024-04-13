@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 18:54:10
-Random Quote: Always look people in the eye. Even if they're blind. Just say, 'I am looking you in the eye.' - Phil Dunphy
+Last updated: 2024-04-13 18:54:42
+Random Quote: It's not even the lies that hurt, you know? It's the fact that you're never really emotionally prepared for someone to leave you. - Rue Bennett
