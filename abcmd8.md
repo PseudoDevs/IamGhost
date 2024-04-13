@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 18:46:01
-Random Quote: Look at us, riding around in a limo, eating hot dogs... It's like we're the president. - Marshall Eriksen
+Last updated: 2024-04-13 18:47:12
+Random Quote: There is entirely too much tut - tutting in this realm, if you ask me.  All these kings would do a deal better if they put down their swords and listended to their mothers. 
