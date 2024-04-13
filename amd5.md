@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 10:18:09
-Random Quote: Phil: "What a beautiful dress."Gloria: "Thank you, Phil."Phil: "Oh, okay."Claire: "Phil! She said Phil, not feel!" - Claire Dunphy
+Last updated: 2024-04-13 10:18:47
+Random Quote: His blood ran black.  Made him my brother as much as yours.  -  Yoren of the Night's Watch
