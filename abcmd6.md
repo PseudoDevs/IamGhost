@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 17:31:10
-Random Quote: I feel like love is super dark and no one ever talks about it. - Cassie Howard
+Last updated: 2024-04-13 17:33:29
+Random Quote: I asked him why he kept her close, if he thought her so grotesque.  He said that all his other knights wanted things of him, castles or honors or riches, but all that Brienne wanted was to die for him.  -  Loras Tyrell
