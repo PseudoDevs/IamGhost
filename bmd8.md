@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 18:20:13
-Random Quote: You're my free pass... bitch! - Jesse Pinkman
+Last updated: 2024-04-13 18:20:48
+Random Quote: Drugs are kind of cool. I mean, they're cool before they wreck your skin. And your life. And your family. That's when they get uncool. It's actually a very narrow window of cool. - Rue Bennett
