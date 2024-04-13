@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 19:06:18
-Random Quote: He made me kill a rabbit. I guess he thought it would make me into more of a man or something. I cried for a week. - Jonathan Byers
+Last updated: 2024-04-13 19:06:52
+Random Quote: When dead men come hunting us in the night, do you think it matters who sits the Iron Throne?  -  Jeor Mormont
