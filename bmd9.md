@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 18:39:27
-Random Quote: All the decisions we made in the past leads us inexorably into the future. - Tokyo
+Last updated: 2024-04-13 18:40:00
+Random Quote: The years pass in their hundreds and their thousands, and what does any man see of life but a few summers, a few winters?  -  Maester Luwin
