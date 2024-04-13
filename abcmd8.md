@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 18:01:26
-Random Quote: You don't get to tell anyone what's sad. You're like a one-man Mount Sadmore. So I guess like a Lincoln Sadmorial. - Rick Sanchez
+Last updated: 2024-04-13 18:02:38
+Random Quote: You Westerosi are all the same.  You sew some beast upon a scrap of silk, and suddenly you are all lions or dragons or eagles.  -  Illyrio Mopatis

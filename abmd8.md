@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 18:02:02
-Random Quote: All the decisions we made in the past leads us inexorably into the future. - Tokyo
+Last updated: 2024-04-13 18:02:38
+Random Quote: Your innocence may be as plain as the scar on your face, but it will not save you.  No more than your father will.  But I might.  Not as your judge.  As your champion.  -  Oberyn Martell
