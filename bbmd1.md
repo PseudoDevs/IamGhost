@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 10:12:15
-Random Quote: Ted: "[to Marshall, lying next to him] Marshall, are you still thinking about Lily?"Marshall: "Yeah."Ted: "Please stop!" - Ted Mosby
+Last updated: 2024-04-13 10:12:49
+Random Quote: Shagg, son of Dolf will chop off their manhoods and feed them to the crows.  -  Shagga, son of Dolf
