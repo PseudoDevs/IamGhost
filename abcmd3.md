@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 10:34:15
-Random Quote: My old septon used to say that books are dead men talking.  Dead men should keep quiet, is what I say.  No one wants to hear a dead man's yabber.  -  Dolorous Edd Tollett
+Last updated: 2024-04-13 10:36:47
+Random Quote: I am not a rich person. I am a poor person with money. - Pablo Escobar
