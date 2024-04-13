@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 10:09:12
-Random Quote: I am the Watcher. I am your guide through these vast new realities. Follow me, and dare to face the unknown. And ponder the question, "What if...?" - The Watcher
+Last updated: 2024-04-13 10:09:46
+Random Quote: I've had shits that I've liked better than Walder Frey.  -  Brynden Tully
