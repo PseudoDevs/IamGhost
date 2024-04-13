@@ -1,3 +1,2 @@
-Last updated: 2024-04-13 17:14:42
-Random Quote: Gor Koresh: "This is no place for a child."
-Mando: "Wherever I go, he goes. I've been quested to bring him to his kind." - Din Djarin
+Last updated: 2024-04-13 17:17:52
+Random Quote: You're mine.  Mine, as I'm yours.  And if we die, we die.  All men must die, Jon Snow.  But first, we'll live.  -  Ygritte
