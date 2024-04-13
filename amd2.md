@@ -1,2 +1,4 @@
-Last updated: 2024-04-13 17:53:53
-Random Quote: When you get too close to the sun, your dreams may melt away. - Steve Murphy
+Last updated: 2024-04-13 17:54:28
+Random Quote: Oh Il-nam: "As a kid, I'm willing to bet you got spanked a lot."
+Seong Gi-hun: "How did you know?"
+Oh Il-nam: "My son did too. He was just like you, friend." - Oh Il-nam
