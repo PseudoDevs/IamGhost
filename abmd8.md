@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 10:21:58
-Random Quote: You guys can judge me if you want, but I do not care! I have never ever been happier! - Cassie Howard
+Last updated: 2024-04-13 10:24:34
+Random Quote: I have sinned and must atone, must parade my shame before the eyes of every beggar in the city.  They think that this will break my pride, that it will make an end to me, but they are wrong.  -  Cersei Lannister
