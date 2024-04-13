@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 10:34:07
-Random Quote: The good thing about relationships is that you finally forget how they started. - Tokyo
+Last updated: 2024-04-13 10:34:40
+Random Quote: That's the thing with guys like Nate. They don't actually want a person. They want something they can own and possess. - Rue Bennett
