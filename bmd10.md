@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 16:56:34
-Random Quote: I've got to find a way to introduce some wood into Bilson's dark atrium. I think you know what I meant. - Ted Mosby
+Last updated: 2024-04-13 16:57:08
+Random Quote: Jaime, sweetling, I have known you since you were a babe at Joanna's breast.  You smile like Gerion and fight like Tyg and there's some of Keven in you, else you would not wear that cloak... but Tyrion is Tywin's son, not you.  I said that once to your father's face, and he would not speak to me for half a year.  -  Genna Lannister
