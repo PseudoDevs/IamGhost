@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 18:31:51
-Random Quote: Oh, Cersei is lovely to look at, truly, but cold... the way she guards her cunt, you'd think she had all the gold of Casterly Rock between her legs.  -  Robert Baratheon
+Last updated: 2024-04-13 18:32:25
+Random Quote: A family is like a small business. And with a small business, at times, there comes a bit of transition. - Marty Byrde
