@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 10:06:39
-Random Quote: Here's what's gonna happen. One day you're gonna wake up, eat your breakfast, brush your teeth, go about your business. And sooner or later, you're gonna realize you haven't thought about it. None of it. And that's the moment you realize you can forget. When you know that's possible, it all gets easier. - Mike Ehrmantraut
+Last updated: 2024-04-13 10:07:14
+Random Quote: Real love is when you can't exist without someone, when you'd rather die than be apart. And the whole world goes dark and nothing else matters but the person standing in front of you. - Rue Bennett
