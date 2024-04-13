@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 17:24:15
-Random Quote: Eleven: "Promise?"Mike: "It means something that you can't break. Ever." - Mike Wheeler
+Last updated: 2024-04-13 17:24:52
+Random Quote: When dead men come hunting us in the night, do you think it matters who sits the Iron Throne?  -  Jeor Mormont

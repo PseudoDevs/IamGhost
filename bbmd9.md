@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 17:24:16
-Random Quote: New York! Home of the Mets, the Chrysler Building, those ladies from Sex and the City and now, the zombie apocalypse. If you can make it here, you can make it anywhere - but first, you have to not get eaten. - Spider-Man
+Last updated: 2024-04-13 17:24:52
+Random Quote: Airport bar! Flight attendants, they'll get your tray table in it's full upright position. Say what? - Barney Stinson
