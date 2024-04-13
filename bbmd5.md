@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 17:55:38
-Random Quote: In Texas, the holy trinity is God, Football and barbecueNot necessarily in that order. - Sheldon
+Last updated: 2024-04-13 17:56:12
+Random Quote: Did the boy charm you?  He has that gift.  He got it from his father, with the blood.  He knows he is a king's son, but chooses to forget that he is bastard - born. 
