@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 17:31:36
-Random Quote: You're my free pass... bitch! - Jesse Pinkman
+Last updated: 2024-04-13 17:32:09
+Random Quote: In his chainmail shirt with a sword in his hand, Gendry looked almost a man grown, and dangerous.  Hot Pie looked like Hot Pie.  -  Arya Stark
