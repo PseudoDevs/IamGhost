@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 10:08:43
-Random Quote: The truth is always there, whether we see it or not - whether we choose to or not. The truth doesn't care about our needs or wants. It doesn't care about our governments, our ideologies, our religions. - Valery Legasov
+Last updated: 2024-04-13 10:09:16
+Random Quote: No sword is strong until it's been tempered.  The Stark boy is a child.  No doubt he likes the sound of warhorns well enough, and the sight of his banners fluttering in the wind, but in the end it comes down to butcher's work.  I doubt he has the stomach for it.  -  Tywin Lannister
