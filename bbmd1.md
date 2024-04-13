@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 17:51:06
-Random Quote: You ever touch me again, I will burn your eyes out! - Starlight
+Last updated: 2024-04-13 17:51:40
+Random Quote: You have courage.  Not battle courage perhaps but... I don't know... a kind of woman's courage.  -  Brienne of Tarth
