@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 10:16:21
-Random Quote: Once, she had loved Prince Joffrey with all her heart, and admired and trusted his mother, the queen.  They had repaid that love and trust with her father's head.  Sansa would never make that mistake again.  -  Sansa Stark
+Last updated: 2024-04-13 10:16:55
+Random Quote: The star sounds great. Good with me. Besides, nobody really sees many stars these days. - Oh Il-nam
