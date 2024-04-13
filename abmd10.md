@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 17:37:31
-Random Quote: So I will only ask you once, Lord Snow.  Are you a brother of the Night's Watch, or a bastard boy who wants to play at war?  -  Jeor Mormont
+Last updated: 2024-04-13 17:38:37
+Random Quote: Because there's no way watching it can be more fun than playing it yourself. - Oh Il-nam
