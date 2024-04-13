@@ -1,2 +1,4 @@
-Last updated: 2024-04-13 19:00:49
-Random Quote: This is New York City, don't get close to the neighbours. You nod at them politely in the hall, you call the cops if you haven't seen them in a while and you smell something funny and that's it! - Ted Mosby
+Last updated: 2024-04-13 19:01:22
+Random Quote: Bro McDonald had a farm, E-I-E-I-bro
+And on that farm he had some chicks, E-I-E-I-bro
+With a hot chick here and a dumb chick there... - Barney Stinson
