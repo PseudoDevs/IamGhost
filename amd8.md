@@ -1,2 +1,2 @@
-Last updated: 2024-04-12 06:00:14
-Random Quote: Fool's blood, king's blood, blood on the maiden's thigh, but chains for the guests and chains for the bridegroom, aye aye aye.  -  Patchface
+Last updated: 2024-04-13 10:06:23
+Random Quote: Marshall really took a two-flusher on that one! - Ted Mosby
