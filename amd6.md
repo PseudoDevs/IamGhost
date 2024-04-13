@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 17:01:54
-Random Quote: Just in case either of us can actually make it out of this hellhole somehow, we'll look after each other's loved ones, okay? - Oh Il-nam
+Last updated: 2024-04-13 17:02:28
+Random Quote: When you tear out a man's tongue, you are not proving him a liar, you're only telling the world that you fear what he might say.  -  Tyrion Lannister
