@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 17:05:48
-Random Quote: We are all full of sin. No pure human being exists. But no matter what we do, we never fall any lower than into God’s hands. - Noah
+Last updated: 2024-04-13 17:06:22
+Random Quote: There are worse ways to die than warm and drunk.  I knew a brother drowned himself in wine once.  It was a poor vintage, though, and his corpse did not improve it.  -  Dolorous Edd Tollett
