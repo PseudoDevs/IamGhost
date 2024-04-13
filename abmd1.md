@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 18:00:22
-Random Quote: Believe me, I’ve had five divorces. Do you know what five divorces are? Five times I believed in love. - Berlin
+Last updated: 2024-04-13 18:00:56
+Random Quote: I've lost a hand, a father, a son, a sister, and a lover, and soon enough I will lose a brother.  And yet they keep telling me House Lannister has won this war.  -  Jaime Lannister
