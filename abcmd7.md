@@ -1,3 +1,2 @@
-Last updated: 2024-04-13 10:20:08
-Random Quote: Wednesday: "So you were guided by latent chivalry, the tool of the patriarchy, to extract my undying gratitude?"
-Xavier: "Most people just say 'thank you'." - Xavier Thorpe
+Last updated: 2024-04-13 10:20:43
+Random Quote: Every Halloween I bring a spare costume. In case I strike out with the hottest girl at the party. That way I have a second chance to make a first impression. - Barney Stinson
