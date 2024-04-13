@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 17:54:22
-Random Quote: You're like Hitler! But even Hitler cared about Germany or something. - Morty Smith
+Last updated: 2024-04-13 17:54:55
+Random Quote: I like dogs better than knights... A hound will die for you, but never lie to you.  And he'll look you straight in the face.  -  Sandor Clegane
