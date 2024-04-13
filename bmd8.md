@@ -1,2 +1,4 @@
-Last updated: 2024-04-13 18:03:13
-Random Quote: There is one difference between you and me: I'm not saying any of this to get in your pants. - How I Met Your Mother
+Last updated: 2024-04-13 18:06:45
+Random Quote: Jimmy: "I can't believe Wanda and Vision are having a baby."
+Darcy Lewis: "You want any?"
+Jimmy: "Heck, I thought about it for sure. A little Jimmy Woo. Get him a tiny little FBI badge... oh, you... chip? Sure." - Jimmy Woo
