@@ -1,3 +1,2 @@
-Last updated: 2024-04-13 17:06:40
-Random Quote: Hey look, it's the New York City skyline.
-We built Chip City... we built Chip City on all your dough! - Ted Mosby
+Last updated: 2024-04-13 17:07:13
+Random Quote: Ted: "You always kept your toothbrush in the bedroom. Also weird, by the way."Lily: "No. We kept it in the bathroom."Ted: "No, there was only one toothbrush in the bathroom, and it was mine..." - Ted Mosby
