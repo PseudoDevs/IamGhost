@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 17:52:05
-Random Quote: Despite the stupidity, the lies, you're compelled. The problem has been assigned and you'll stop at nothing until you find an answer. Because that is who you are. - Valery Legasov
+Last updated: 2024-04-13 17:52:40
+Random Quote: Pictures can be twisted and used against you and haunt you forever. - Hannah Baker
