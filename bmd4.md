@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 10:06:36
-Random Quote: Robin: "She was gonna get the last kugel."Ted: "She was 90 years old. It was probably gonna be her last kugel." - Ted Mosby
+Last updated: 2024-04-13 10:07:10
+Random Quote: This is New York City, don't get close to the neighbours. You nod at them politely in the hall, you call the cops if you haven't seen them in a while and you smell something funny and that's it! - Ted Mosby
