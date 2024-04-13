@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 17:26:56
-Random Quote: Barney: "This is one of those things you have to do before you turn 30."Ted: "Sleep with a prostitute?!"Barney: "No, lose your virginity!... What up?" - Barney Stinson
+Last updated: 2024-04-13 17:27:28
+Random Quote: You came in the door like thunder, Then hit the floor like thunder, Laying me down you wonder, Shaking the walls like thunder - 
