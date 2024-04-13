@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 10:16:22
-Random Quote: They pray to trees and golden idols and goat - headed abominations.  False gods... just so, and for that sin I kill them all.  I spill their blood upon the sea and sow their screaming women with my seed.  Their little gods cannot stop me, so plainly they are false gods.  I am more devout than even you, Aeron.  Perhaps it should be you who kneels to me for blessing. 
+Last updated: 2024-04-13 10:16:56
+Random Quote: Hey, takin' on a challenge is a lot like ridin' a horse. If you're comfortable while you're doin' it, you're probably doin' it wrong. - Jim Hopper
