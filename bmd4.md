@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 17:28:01
-Random Quote: Good and evil are a question of perspective - Mikkel
+Last updated: 2024-04-13 17:28:39
+Random Quote: People are oblivious to reality. They only see what they want to see, when all they have to do is shift their perspective to see the full scope of things. - Yuk Je
