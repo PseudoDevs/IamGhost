@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 17:23:01
-Random Quote: What a man wants does not define him. What a man needs is what defines him. - Juan Nepomuceno Guerra
+Last updated: 2024-04-13 17:24:17
+Random Quote: A family is like a small business. And with a small business, at times, there comes a bit of transition. - Marty Byrde
