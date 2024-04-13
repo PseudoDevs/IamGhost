@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 10:08:42
-Random Quote: They get in your head. People tell lies about you, and other people believe them. And it gets to the point where the lies might as well be the truth. - Tyler Down
+Last updated: 2024-04-13 10:10:56
+Random Quote: In the end, we will all get just what we deserve. - 
