@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 10:10:24
-Random Quote: These days, even women go to war. I mean, when you finally get older, there's not gonna be that kind of discrimination like we got now. - Seong Gi-hun
+Last updated: 2024-04-13 10:10:57
+Random Quote: Client: "Please lower your blaster."Mando: "Tell them to lower theirs first."Stormtrooper: "We have you four to one."Mando: "I like those odds." - Din Djarin
