@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 18:49:51
-Random Quote: I am IRONBORN!  I laugh at death.  -  Victarion Greyjoy
+Last updated: 2024-04-13 18:50:24
+Random Quote: I have a tender spot in my heart for cripples, bastards, and broken things.  -  Tyrion Lannister
