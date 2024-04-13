@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 18:49:54
-Random Quote: Robert wanted smiles and cheers, always, so he went where he found them, to his friends and his whores.  Robert wanted to be loved.  My brother Tyrion has the same disease.  -  Cersei Lannister
+Last updated: 2024-04-13 18:50:27
+Random Quote: No more half-measures, Walter. - Mike Ehrmantraut
