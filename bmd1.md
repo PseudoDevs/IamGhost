@@ -1,2 +1,3 @@
-Last updated: 2024-04-13 10:10:28
-Random Quote: Barney: "You have no reason to be nervous. And I'm going to tell you why in one word."Ted: "And what's that word?"Barney: "Dibs!" - Barney Stinson
+Last updated: 2024-04-13 10:11:01
+Random Quote: Journalist: "Mr. Stark, were you injured in the attack?"
+Tony Stark: "No, but I did spill my drink, and it was a '26 Macallan, so I'm pretty sure that's a war crime." - Iron Man
