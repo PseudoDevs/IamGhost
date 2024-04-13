@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 18:26:32
-Random Quote: The only person on earth, who loves Ted Mosby more than Marshall Eriksen, is drunk Marshall Eriksen! - Marshall Eriksen
+Last updated: 2024-04-13 18:27:05
+Random Quote: The Night's Watch is a sworn brotherhood.  We have no families.  None of us will ever father sons.  Our wife is duty.  Our mistress is honor.  -  Benjen Stark
