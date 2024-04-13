@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 16:57:36
-Random Quote: I swear to you, I was never so alive as when I was winning this throne, or so dead as now that I've won it.  -  Robert Baratheon
+Last updated: 2024-04-13 16:58:09
+Random Quote: The only thing The Umbrella Academy knows about love is how to screw it up. - Klaus Hargreeves
