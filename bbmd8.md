@@ -1,3 +1,2 @@
-Last updated: 2024-04-13 17:11:02
-Random Quote: Dragon: "My name is Balthromaw. Breaker of skies, slayer of mountain."
-Rick: "Rule 1: You're now scooper of your own poops, or I will take you down like the black-light poster you are." - Rick Sanchez
+Last updated: 2024-04-13 17:11:35
+Random Quote: What I'm doing here... is building an empire. - Miguel Angel Felix Gallardo
