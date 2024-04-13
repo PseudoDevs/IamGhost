@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 10:16:27
-Random Quote: No one had expected the broken boy to live.  The gods could not kill Bran, no more than I could.  It was a strange thought, and stranger still to remember that Bran might still be alive.  -  Theon Greyjoy
+Last updated: 2024-04-13 10:17:01
+Random Quote: The men of always aren't interested in the children of never. - Pablo Escobar
