@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 17:14:05
-Random Quote: Nymeria was least dangerous when nearly naked.  Elsewise she was sure to have a dozen blades concealed about her person.  -  Areo Hotah
+Last updated: 2024-04-13 17:15:56
+Random Quote: In all the world, violent men are the easiest to deal with. - Irene O'Donnell
