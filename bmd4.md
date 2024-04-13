@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 18:18:08
-Random Quote: A queen must listen to all.  The highborn and the low, the strong and the weak, the noble and the venal.  One voice may speak you false, but in many there is always truth to be found.  -  Daenerys Targaryen
+Last updated: 2024-04-13 18:18:41
+Random Quote: Secrets are worth more than silver or sapphires.  -  Varys
