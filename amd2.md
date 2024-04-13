@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 16:56:25
-Random Quote: Elia Martell, Princess of Dorne.  You raped her!  You murdered her!  You killed her children!  -  Oberyn Martell
+Last updated: 2024-04-13 16:56:58
+Random Quote: All I can do is wait... for the cancer to come back. - Skyler White
