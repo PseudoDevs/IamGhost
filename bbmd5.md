@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 18:43:04
-Random Quote: What if Einstein's parents had held him back? We wouldn't even have the... - I was gonna say atomic bomb, but there's probably a better example. - Meemaw
+Last updated: 2024-04-13 18:43:37
+Random Quote: Kids, that was the one time I ever lost faith in the idea that my life would be better in three years. And what's funny is, three years from that moment, my life was amazing. - Ted Mosby
