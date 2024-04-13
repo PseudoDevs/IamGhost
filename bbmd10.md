@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 18:56:14
-Random Quote: The world is one great web, and no man dare not touch a single strand lest all the others tremble.  -  Illyrio Mopatis
+Last updated: 2024-04-13 18:56:48
+Random Quote: He climbed onto his throne over the corpses of children, though I will grant you he was no Joffrey.  -  Arianne Martell
