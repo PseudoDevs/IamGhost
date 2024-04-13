@@ -1,2 +1,3 @@
-Last updated: 2024-04-12 07:30:14
-Random Quote: Anyone who goes after him is gonna have to come through me. - Mike Ehrmantraut
+Last updated: 2024-04-13 10:06:34
+Random Quote: Jessica: "I miss you."
+Morty: "You miss the old me. You miss someone that loved you so much, you never had to love him back." - Morty Smith
