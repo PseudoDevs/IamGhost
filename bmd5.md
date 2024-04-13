@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 10:40:34
-Random Quote: The reason why she doesn't remember is because she's a grown up. That's how this stuff always works. Only kids can get into Narnia. - Bode Locke
+Last updated: 2024-04-13 10:41:12
+Random Quote: He would see this country burn if he could be king of the ashes.  -  Varys
