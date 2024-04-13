@@ -1,2 +1,3 @@
-Last updated: 2024-04-13 17:22:27
-Random Quote: As fun as this place is, it's late. So, what's our play? And don't say, "The Siamese Twins", we're not stretching out another one of my jackets! - Ted Mosby
+Last updated: 2024-04-13 17:23:39
+Random Quote: Wanda: "I had a brother. His name was Pietro."
+Geraldine: "He was killed by Ultron, wasn't he?" - Monica "Geraldine" Rambeau
