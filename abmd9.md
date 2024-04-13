@@ -1,5 +1,2 @@
-Last updated: 2024-04-13 10:08:10
-Random Quote: Bo-Katan: "I haven't seen battle droids since the Clone Wars."
-Din: "I have."
-Bo-Katan: "Any of 'em look suspicious?"
-Din: "They all look suspicious." - Din Djarin
+Last updated: 2024-04-13 10:08:44
+Random Quote: Kuiil: "They really don't like you for some reason."Mandalorian: "Well, I did disintegrate a few of them." - Din Djarin

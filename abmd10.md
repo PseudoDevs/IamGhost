@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 10:08:10
-Random Quote: I'll help you study. We're gonna stay up all night long. I'm gonna drill you and then we're gonna study. No, seriously. We're gonna do some cramming and then we're gonna study. No, seriously. We're gonna bone up on... - Barney Stinson
+Last updated: 2024-04-13 10:08:44
+Random Quote: I knew quite a few Jedi, you know. I don't know what they taught you about us, but there was a time we actually got along quite well. Fought side by side. - Bo-Katan

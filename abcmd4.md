@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 10:08:11
-Random Quote: There's chaos in you. Embrace the chaos! - Arthur Harrow
+Last updated: 2024-04-13 10:08:44
+Random Quote: Is she worth the pain? A man does not suffer like this for his own glory. There is a fine line between devotion and delusion. Love can break more than your heart. It can shatter your mind. - O-Bengh

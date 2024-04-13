@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 10:07:35
-Random Quote: I liked the way I dressed you, but I'm worried I f'ed with your gender expression. - Jules Vaughn
+Last updated: 2024-04-13 10:08:43
+Random Quote: The truth is always there, whether we see it or not - whether we choose to or not. The truth doesn't care about our needs or wants. It doesn't care about our governments, our ideologies, our religions. - Valery Legasov
