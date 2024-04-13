@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 18:28:11
-Random Quote: Do you think I can't tell Lord Stannis from Lord Tywin?  They're both bungholes who think they're too noble to shit, but never mind about that, I know the difference.  -  Walder Frey
+Last updated: 2024-04-13 18:28:44
+Random Quote: I'd invite you to stay as well, Gustavo, but I don't want my breakfast ruined by all the "ding, ding ding." - Don Eladio
