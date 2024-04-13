@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 19:01:51
-Random Quote: Money. That's what seperates the haves from the have-nots. But what is money? It's everything if you don't have it, right? - Marty Byrde
+Last updated: 2024-04-13 19:02:25
+Random Quote: When the sun has set, no candle can replace it.  -  Loras Tyrell
