@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 16:58:19
-Random Quote: Edric Storm, they call him.  He is said to be the very image of my brother.  If men were to see him, and then look again at Joffrey and Tommen, they could not help but wonder, I would think.  -  Stannis Baratheon
+Last updated: 2024-04-13 16:58:53
+Random Quote: Not all Mandalorians are bounty hunters. Some of us serve a higher purpose. - Bo-Katan
