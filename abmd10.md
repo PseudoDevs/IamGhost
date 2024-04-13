@@ -1,4 +1,2 @@
-Last updated: 2024-04-13 17:06:32
-Random Quote: Stark: "Red, green, blue... who paints a button blue?"
-Carter: "Don't tell me the American playboy needs help pushing buttons."
-Stark: "Hedy Lamarr and I spent a weekend together, but she wasn't teaching me German." - Howard Stark
+Last updated: 2024-04-13 17:07:05
+Random Quote: There is a time to fight and there is a time to be clever. - Pablo Escobar
