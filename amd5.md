@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 18:21:23
-Random Quote: Shagg, son of Dolf will chop off their manhoods and feed them to the crows.  -  Shagga, son of Dolf
+Last updated: 2024-04-13 18:21:58
+Random Quote: Little did I know that I would be stepping into a nightmare full of mystery, mayhem and murder. I think I'm going to love it here. - Wednesday Addams
