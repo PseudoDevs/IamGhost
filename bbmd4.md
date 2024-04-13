@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 10:40:33
-Random Quote: So how do you take down a crook who's at the top of his game? Who has every cop in town in his pocket? Well, you hold your breath and you hope you get lucky. - Walt Breslin
+Last updated: 2024-04-13 10:41:49
+Random Quote: The truth can free you, if you let it. - Hannah Baker
