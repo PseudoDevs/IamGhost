@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 18:17:51
-Random Quote: My uncle Kevan would make a passably good regent if someone pressed the duty on him, but he will never reach for it.  The gods shaped him to be a follower, not a leader.  -  Tyrion Lannister
+Last updated: 2024-04-13 18:18:26
+Random Quote: Never trust a pirate. - Din Djarin
