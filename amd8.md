@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 18:47:11
-Random Quote: When you date someone, it's like you're taking one long course in who that person is and then, when you break up, all that stuff becomes useless. It's the emotional equivalent of an English degree... - Ted Mosby
+Last updated: 2024-04-13 18:47:46
+Random Quote: I'm just here to lend a helping hand, you know, make sure the business is running in order. I got a good head for numbers. But listen, don't even worry. It's gonna be like I'm not even here. - Lalo Salamanca
