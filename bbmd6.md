@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 17:11:24
-Random Quote: Love is poison.  A sweet poison, yes, but it will kill you all the same.  -  Cersei Lannister
+Last updated: 2024-04-13 17:11:57
+Random Quote: Don't go chasing waterfalls. Stick to the rivers and the lakes that you're used to. - Klaus Hargreeves
