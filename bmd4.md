@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 10:07:43
-Random Quote: The only thing The Umbrella Academy knows about love is how to screw it up. - Klaus Hargreeves
+Last updated: 2024-04-13 10:08:16
+Random Quote: Just 'cause you fall on your *ss doesn't mean you have to stay there. - Hughie Campbell
