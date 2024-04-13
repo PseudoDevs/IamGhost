@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 10:14:52
-Random Quote: I just want to stand on top of the Wall and piss off the edge of the world.  -  Tyrion Lannister
+Last updated: 2024-04-13 10:15:25
+Random Quote: A reader lives a thousand lives before he dies.  The man who never reads lives only one.  -  Jojen Reed

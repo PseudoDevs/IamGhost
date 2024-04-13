@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 10:14:18
-Random Quote: Take care of this little one or maybe, it'll take care of you. - Greef Karga
+Last updated: 2024-04-13 10:15:25
+Random Quote: Of course, nobody I knew in East-Texas in 1989 cared about Newtonian Physics. The only Newtons they cared about were Wayne and Fig. - Sheldon Cooper
