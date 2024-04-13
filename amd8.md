@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 10:41:49
-Random Quote: Where has it gotten me? Nowhere. I can't talk to the person I love. People still don't take me seriously. I wanna be numb again. - Klaus Hargreeves
+Last updated: 2024-04-13 10:43:05
+Random Quote: I dreamed of the man who came today, the one they call Reek.  You and your brother lay dead at his feet, and he was skinning off your faces with a long red blade.  -  Jojen Reed

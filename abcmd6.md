@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 10:41:49
-Random Quote: Barney: "I met a girl last night. So perky and full of life and not at all fake."Ted: "You're talking about her boobs, right?"Barney: "Si. And that wasn't Spanish, that was cup size. What up?!" - Barney Stinson
+Last updated: 2024-04-13 10:43:06
+Random Quote: I don't know what kind of fed up sht you got going inside of your head. I don't know how to help, but I could tell you one thing: This drug sht - it's not the answer. - Fezco
