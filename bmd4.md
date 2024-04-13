@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 17:11:41
-Random Quote: It doesn't matter how much you push the envelope, it'll still be stationery. - Will Livingston
+Last updated: 2024-04-13 17:12:53
+Random Quote: Freeways have exits, so do relationships. The first exit, my personal favourite, is six hours in: You meet, you talk, you have sex, you exit when she's in the shower. - Barney Stinson
