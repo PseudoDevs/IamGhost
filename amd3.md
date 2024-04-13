@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 17:17:57
-Random Quote: I'm not sure whose twisted idea it was to put hundreds of adolescents in underfunded schools run by people whose dreams were crushed years ago... but I admire the sadism. - Wednesday Addams
+Last updated: 2024-04-13 17:19:09
+Random Quote: No voting, no debate. It's not a democracy - it's a Rickpublic! - Summer Smith
