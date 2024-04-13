@@ -1,5 +1,2 @@
-Last updated: 2024-04-13 17:30:27
-Random Quote: Morty: "I'm dying, Rick!"
-Rick: "People who are really dying don't keep bringing it up."
-Morty: "Is that true?"
-Rick: "I don't know. I'm just usually around people that die faster." - Rick Sanchez
+Last updated: 2024-04-13 17:31:00
+Random Quote: Stop crying. Remember? Crying makes you ugly and weak. - Dayanara Diaz
