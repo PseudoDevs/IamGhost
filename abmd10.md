@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 10:44:54
-Random Quote: The truth can free you, if you let it. - Hannah Baker
+Last updated: 2024-04-13 10:45:29
+Random Quote: You are her perfect prince, agreed, bright and bold and comely as any maid could wish.  Daenerys Targaryen is no maid, however.  She is the widow of a Dothraki Khal, a mother of dragons and sacker of cities, Aegon the Conquereror with teats.  She may not prove as willing as you wish.  -  Tyrion Lannister
