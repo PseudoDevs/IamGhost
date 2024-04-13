@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 17:09:52
-Random Quote: What I came to realise is that fear, that’s the worst of it. That’s the real enemy. So, get up, get out in the real world and you kick that bastard as hard you can right in the teeth. - Walter White
+Last updated: 2024-04-13 17:10:28
+Random Quote: Kids, that was the one time I ever lost faith in the idea that my life would be better in three years. And what's funny is, three years from that moment, my life was amazing. - Ted Mosby
