@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 10:44:20
-Random Quote: Most of him has gone into the tree... he has lived beyond his mortal span, and yet he lingers.  For us, for you, for the realms of men.  Only a little strength remains in his flesh.  He has a thousand eyes and one, but there is much to watch.  One day you will know.  -  Leaf
+Last updated: 2024-04-13 10:44:57
+Random Quote: Growing up, I'd always lose my umbrella so my mom would get angry. So then, she gave me broken ones to bring to school. - Seong Gi-hun

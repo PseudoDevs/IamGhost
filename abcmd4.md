@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 10:44:20
-Random Quote: When you tear out a man's tongue, you are not proving him a liar, you're only telling the world that you fear what he might say.  -  Tyrion Lannister
+Last updated: 2024-04-13 10:44:57
+Random Quote: Here's the secret, kids: none of us can vow to be perfect. In the end, all we can do is promise to love each other with everything we've got. Because love's the best thing we do. - Ted Mosby
