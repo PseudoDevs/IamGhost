@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 17:27:59
-Random Quote: Friendships are the foundation that we stand on. - Nina Locke
+Last updated: 2024-04-13 17:28:36
+Random Quote: Only Renly could vex me so with a piece of fruit.  He brought his doom on himself with his treason, but I did love him, Davos.  I know that now.  I swear, I will go to my grave thinking of my brother's peach.  -  Stannis Baratheon
