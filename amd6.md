@@ -1,2 +1,4 @@
-Last updated: 2024-04-13 10:23:26
-Random Quote: You are not the guy. You're not capable of being the guy. I had a guy but now I don't. You are not the guy. - Mike Ehrmantraut
+Last updated: 2024-04-13 10:24:00
+Random Quote: Morty: "Mom told me she wanted me to stay here to make sure you didn't die."
+Jerry: "Well, you tell your mother that I'm gonna be fine."
+Rick: "Don't train your child to lie, Jerry." - Rick Sanchez
