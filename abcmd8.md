@@ -1,2 +1,3 @@
-Last updated: 2024-04-13 17:37:03
-Random Quote: Oh my God, Larry, by the time I get out, there will've been like three new generations of iPhones! - Piper Chapman
+Last updated: 2024-04-13 17:37:40
+Random Quote: Ellie: "There's not gonna be anything bad in here?"
+Joel: "Just you." - Joel Miller
