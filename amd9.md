@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 17:09:52
-Random Quote: .OkaySomebody's got to teach this kid to swear, it's embarrassing. - Meemaw
+Last updated: 2024-04-13 17:11:03
+Random Quote: I know the poison that my father used, and there is none slower or more agonizing.  Soon we may hear the Mountain screaming, even here in Sunspear.  -  Tyene Sand
