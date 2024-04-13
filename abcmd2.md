@@ -1,2 +1,3 @@
-Last updated: 2024-04-13 17:18:45
-Random Quote: No, that you think you'll graduate High-School. - Meemaw
+Last updated: 2024-04-13 17:19:19
+Random Quote: The Deep: "What do we do? We can't just kill everyone."
+Billy Butcher: "That's exactly what we're gonna do!" - Billy Butcher
