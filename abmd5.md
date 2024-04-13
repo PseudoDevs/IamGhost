@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 17:10:28
-Random Quote: Freeways have exits, so do relationships. The first exit, my personal favourite, is six hours in: You meet, you talk, you have sex, you exit when she's in the shower. - Barney Stinson
+Last updated: 2024-04-13 17:11:04
+Random Quote: Money is not peace of mind. Money is not happiness. Money is, at its essence, that measure of a man's choices. - Marty Byrde
