@@ -1,2 +1,3 @@
-Last updated: 2024-04-13 16:57:02
-Random Quote: All the tales agreed that the green men had strange magic powers.  Maybe they could help him walk again, even turn him into a knight.  They turned the little crannogman into a knight, even if it was only for a day, he thought.  A day would be enough.  -  Bran Stark
+Last updated: 2024-04-13 16:57:36
+Random Quote: Jerry: "Rick! Beth! You love me after all!"
+Rick: "Eh, I love her, she loves you. Those credits don't transfer." - Rick Sanchez
