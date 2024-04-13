@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 17:23:39
-Random Quote: I just want to say to whoever is voting for me that I would certainly make an awful Lord Commander.  But so would all these others.  -  Dolorous Edd Tollett
+Last updated: 2024-04-13 17:24:15
+Random Quote: Sometimes a truce is the most important part of a war. - Professor
