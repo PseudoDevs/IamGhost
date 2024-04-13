@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 17:29:15
-Random Quote: I'm honest.  It's the world that's awful.  -  Sandor Clegane
+Last updated: 2024-04-13 17:29:51
+Random Quote: I swear on my name. And the names of the Ancestors, that I shall walk the way of the Mand'alor and the words of the Creed shall be forever forged in my heart. - Din Djarin
