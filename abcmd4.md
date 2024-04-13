@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 17:23:31
-Random Quote: Stella's sister: "I'm a vegan. I wish I could tune out that moral voice inside me, that says eating animals is murder. But I guess I'm just not as strong as you are."Ted: "That's 'cause you need protein. I'll have the lamb." - Ted Mosby
+Last updated: 2024-04-13 17:24:04
+Random Quote: Aye, and from what I saw of Joffrey, you are as unfit a mother as you are a ruler.  -  Kevan Lannister
