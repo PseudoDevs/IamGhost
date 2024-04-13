@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 18:09:04
-Random Quote: Morty, he's not gonna donate. You're pitching the police men's ball to a black teenager here. - Rick Sanchez
+Last updated: 2024-04-13 18:09:39
+Random Quote: Elia Martell, Princess of Dorne.  You raped her!  You murdered her!  You killed her children!  -  Oberyn Martell
