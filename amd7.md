@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 17:00:51
-Random Quote: At least I know they didn't spot you. No one could stay that aroused with your mug peeking through the window. - Saul Goodman
+Last updated: 2024-04-13 17:01:24
+Random Quote: Khaleesi, better a man should swallow scorpions than trust in the spawn of shadows, who dare not show their face beneath the sun.  It is known.  -  Rakharo
