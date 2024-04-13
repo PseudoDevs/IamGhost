@@ -1,5 +1,2 @@
-Last updated: 2024-04-13 17:31:05
-Random Quote: Dina: "You're infuriating."
-Ellie: "Have you met you?"
-Dina: "You make me want to go back outside into that blizzard."
-Ellie: "No one is stopping you." - Joel Miller
+Last updated: 2024-04-13 17:31:41
+Random Quote: Sometimes we have to let things go because we can't keep them forever. - Maura Franklin
