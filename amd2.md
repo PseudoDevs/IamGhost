@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 17:49:42
-Random Quote: Did the boy charm you?  He has that gift.  He got it from his father, with the blood.  He knows he is a king's son, but chooses to forget that he is bastard - born. 
+Last updated: 2024-04-13 17:51:30
+Random Quote: I dreamed of the man who came today, the one they call Reek.  You and your brother lay dead at his feet, and he was skinning off your faces with a long red blade.  -  Jojen Reed

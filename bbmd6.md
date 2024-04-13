@@ -1,3 +1,2 @@
-Last updated: 2024-04-13 17:50:18
-Random Quote: HR: "I know this is classic HR to say, but: You're not alone."
-Steven: "Yeah. That's like, part of the problem, innit?" - Arthur Harrow
+Last updated: 2024-04-13 17:51:30
+Random Quote: Jon, did you ever wonder why the men of the Night's Watch take no wives and father no children?  So they will not love, for love is the bane of honor, the death of duty.  -  Maester Aemon
