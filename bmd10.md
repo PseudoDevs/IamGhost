@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 18:41:14
-Random Quote: Things never work out the way you imagine they will. - Lucien
+Last updated: 2024-04-13 18:41:47
+Random Quote: Barney: "Fine, we'll just have a nice, tasteful rehearsal dinner. Maybe at a French restaurant, I know just the place."Robin: "What's the name of the restaurant?"Barney: "La Sertag." - Barney Stinson
