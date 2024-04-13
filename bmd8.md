@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 16:56:03
-Random Quote: All the decisions we made in the past leads us inexorably into the future. - Tokyo
+Last updated: 2024-04-13 16:57:10
+Random Quote: If you think this has a happy ending, you haven't been paying attention.  -  Ramsay Bolton
