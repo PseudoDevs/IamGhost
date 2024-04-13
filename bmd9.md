@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 17:12:36
-Random Quote: Sandy Rivers: "I don't know what went wrong."Robin: "Well, proposing a three way was bad. Starting without us was worse. Finishing in the hallway was the nail in the coffin." - Robin Scherbatsky
+Last updated: 2024-04-13 17:14:48
+Random Quote: A man lives three lives. The first one ends with the loss of naivety, the second, with the loss of innocence and the third… with the loss of life itself. It’s inevitable that we go through all three stages. - Adam
