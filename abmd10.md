@@ -1,2 +1,4 @@
-Last updated: 2024-04-13 18:25:27
-Random Quote: Rhaegar fought valiantly, Rhaegar fought nobly, and Rhaegar died.  -  Jorah Mormont
+Last updated: 2024-04-13 18:26:02
+Random Quote: It's going to be legen...
+wait for it - and I hope you're not lactose-intolerant cause the second half of that word is
+...dary! - Barney Stinson
