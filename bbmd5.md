@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 10:45:38
-Random Quote: Sometimes our best decisions are the ones that don't make any sense at all. - Ted Mosby
+Last updated: 2024-04-13 10:46:14
+Random Quote: Good and evil are a question of perspective - Mikkel
