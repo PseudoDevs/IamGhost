@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 18:19:03
-Random Quote: Are you allowed to say that to people in my tax bracket? - Iron Man
+Last updated: 2024-04-13 18:19:37
+Random Quote: This is the one that you saved? You are as its father. A clan of two. But you have removed your helmet. Then you are a Mandalorian no more. - The Armorer
