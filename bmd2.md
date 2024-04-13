@@ -1,2 +1,4 @@
-Last updated: 2024-04-13 10:29:33
-Random Quote: In this world, a man must learn to seize whatever gifts the gods chose to send him.  That was a lesson I learned at some cost.  -  The Tattered Prince
+Last updated: 2024-04-13 10:30:06
+Random Quote: Rick: "F you, Summer! And f the government. And f me for letting my car down, which I will never do again."
+Morty: "Jeez, Rick. You can't say FU to your grand-daughter!"
+Rick: "I just did, Morty. Here's dessert: F you!" - Rick Sanchez
