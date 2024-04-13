@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 17:34:40
-Random Quote: Marshall: "Neither of you guys has any game, right? Or else you'd be married. Like me. If dating is the game, then marriage is winning the game."Ted: "Yeah, if you're playing in the women's league!" - Ted Mosby
+Last updated: 2024-04-13 17:35:16
+Random Quote: Phil: "Little heads up - there's no way I'm not crying at this wedding."Claire: "Phil, you cried on the way here."Phil: "I was on the brink already. I watched 'Dirty Dancing' before we left." - Phil Dunphy
