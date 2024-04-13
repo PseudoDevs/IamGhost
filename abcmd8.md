@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 18:48:20
-Random Quote: Most of him has gone into the tree... he has lived beyond his mortal span, and yet he lingers.  For us, for you, for the realms of men.  Only a little strength remains in his flesh.  He has a thousand eyes and one, but there is much to watch.  One day you will know.  -  Leaf
+Last updated: 2024-04-13 18:48:55
+Random Quote: The average American consumes 55 pounds of beef per year. And then there's Texas, where we can knock that off in a couple of months. Maybe faster if we're talking about smoked brisket. - Sheldon Cooper
