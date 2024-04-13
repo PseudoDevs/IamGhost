@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 17:44:52
-Random Quote: You know, it's funny. Almost every woman I've ever met was wrong to give me a chance. You're the first woman who's wrong not to. - Barney Stinson
+Last updated: 2024-04-13 17:46:02
+Random Quote: I feel like I've framed my entire womanhood around men. - Jules Vaughn
