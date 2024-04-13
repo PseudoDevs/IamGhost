@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 10:39:56
-Random Quote: Lily: "I'm not paying for room service the hooker ordered."Barney: "I've been there." - Barney Stinson
+Last updated: 2024-04-13 10:42:28
+Random Quote: Theon found himself wondering if he should say a prayer.  Will the Old Gods hear me if I do?  They were not his gods, had never been his gods.  He was ironborn, a son of Pyke, his god was the Drowned God of the islands... but Winterfell was long leagues from the sea.  It had been a lifetime since any god had heard him.  He did not know who he was, or what he was, why he was still alive, why he had ever been born.  -  Theon Greyjoy
