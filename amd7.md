@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 10:28:28
-Random Quote: All three of you were being a buch of little a-sholes. I was the only reasonable one. - Dustin Henderson
+Last updated: 2024-04-13 10:30:59
+Random Quote: The wolf will prove the boy is who we say he is, should the Dreadfort attempt to deny him.  That is my price, Lord Davos.  Smuggle me back my liege lord, and I will take Stannis Baratheon as my king.  -  Wyman Manderly
