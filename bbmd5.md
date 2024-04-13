@@ -1,3 +1,2 @@
-Last updated: 2024-04-13 17:11:31
-Random Quote: Kids, you can't talk yourself into falling in love. It doesn't take days of deliberation. When it's real, you know pretty quickly and with absolute certainty.
-I had forgotten that, but I was about to be reminded... - Ted Mosby
+Last updated: 2024-04-13 17:12:04
+Random Quote: I'm a simple man making his way through the galaxy. Like my father before me. - Boba Fett
