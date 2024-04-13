@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 10:47:28
-Random Quote: Barney: "This is one of those things you have to do before you turn 30."Ted: "Sleep with a prostitute?!"Barney: "No, lose your virginity!... What up?" - Barney Stinson
+Last updated: 2024-04-13 10:48:06
+Random Quote: I hate it when you talk sometimes. No... all the time. - Nicky Nichols
