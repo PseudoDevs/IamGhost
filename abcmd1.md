@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 18:00:52
-Random Quote: I am one far more accustomed to demanding answers, fool, than to giving them. - Thor
+Last updated: 2024-04-13 18:02:02
+Random Quote: The Lord of Light cherishes the innocent.  There is no sacrifice more precious.  From his king's blood and his untainted fire, a dragon shall be born.  -  Melisandre
