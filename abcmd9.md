@@ -1,11 +1,2 @@
-Last updated: 2024-04-13 10:09:21
-Random Quote: From here on in, every single night of our lives will be a night, we'll never forget. Starting tonight!
- - The night we started a Mariachi Band!
- - The night we ate everything on the menu!
- - The night we brought a horse into the bar!
- - The night we bungee-jumped off the Statue of Liberty!
- - The night we stole a mummy from the Natural History Museum!
- - The night we partied with the mole people
- - The night we tracked down Phil Collins, became best friends with him, and talked him into reuniting with Peter Gabriel, and then we got to sing back-up on the new Genesis album and it was awesome!
- - The night we stole a camel!
- - The night you got locked out in your pajamas and Robin landed a freakin' helicopter and there's still time to reunite Genesis! - Barney Stinson
+Last updated: 2024-04-13 10:09:55
+Random Quote: When a maester donned his collar, he put aside the hope of children, yet Cressen had oft felt a father nonetheless.  Robert, Stannis, Renly: three sons he had raised after the angry sea claimed Lord Steffon.  -  Maester Cressen
