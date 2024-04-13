@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 17:49:19
-Random Quote: Though I would treasure your friendship, I'm mainly interested in your facility with murder.  And if the day ever comes when you're tempted to sell me out, remember this; whatever their price, I'll beat it.  I like living.  -  Tyrion Lannister
+Last updated: 2024-04-13 17:49:52
+Random Quote: A bag of dragons buys a man's silence for a while, but a well - placed quarrel buys it forever. 
