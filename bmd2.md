@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 10:11:02
-Random Quote: Money. That's what seperates the haves from the have-nots. But what is money? It's everything if you don't have it, right? - Marty Byrde
+Last updated: 2024-04-13 10:11:36
+Random Quote: If we're together long enough I hope that one day you see yourself like I do. - Kevin
