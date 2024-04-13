@@ -1,2 +1,3 @@
-Last updated: 2024-04-13 18:36:34
-Random Quote: Every year, there are a million new, hot 22-year-olds walking into bars and call me "glass-half-full"... but I think they're getting dumber. - Barney Stinson
+Last updated: 2024-04-13 18:37:10
+Random Quote: Robin: "I'm drinking 'til I forget the 1999 NFC Championship?"
+Marshall: "The Vikings were two minutes away from going to the Super Bowl, when our kicker, who hadn't missed all year, shanked a field goal, and we lost in overtime. Damn!" - Marshall Eriksen
