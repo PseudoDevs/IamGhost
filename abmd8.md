@@ -1,2 +1,3 @@
-Last updated: 2024-04-13 10:13:11
-Random Quote: We can only die.  Why else do we don these black cloaks, but to die in defense of the realm?  -  Qhorin Halfhand
+Last updated: 2024-04-13 10:13:45
+Random Quote: Mr. Nimbus: "Say goodbye to your precious dry land! For soon it will be wet!"
+Rick: "Yeah, global warming is already doing that. But sure, yeah, go for it. Make us slightly more wet." - Rick Sanchez
