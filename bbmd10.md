@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 17:15:21
-Random Quote: You could turn King's Landing upside down and not find a single man with a mockingbird sewn over his heart but that does not mean I am friendless.  -  Petyr Baelish
+Last updated: 2024-04-13 17:15:58
+Random Quote: It's not like anyone's 100% straight or 100% gay. - Maddy Perez
