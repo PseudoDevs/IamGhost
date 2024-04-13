@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 10:15:11
-Random Quote: Tell the Crow's Eye he's afraid of kinslaying and he'll murder one of his own sons just to prove you wrong.  -  Asha Greyjoy
+Last updated: 2024-04-13 10:15:46
+Random Quote: You're like Hitler! But even Hitler cared about Germany or something. - Morty Smith
