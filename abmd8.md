@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 18:56:04
-Random Quote: Life is a long journey where maps were drawn by a fool. - Juan Nepomuceno Guerra
+Last updated: 2024-04-13 18:56:37
+Random Quote: The wolf will prove the boy is who we say he is, should the Dreadfort attempt to deny him.  That is my price, Lord Davos.  Smuggle me back my liege lord, and I will take Stannis Baratheon as my king.  -  Wyman Manderly
