@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 17:01:37
-Random Quote: That's not a law, just a sword.  Happens I got one too.  -  Yoren of the Night's Watch
+Last updated: 2024-04-13 17:02:10
+Random Quote: Little did I know that I would be stepping into a nightmare full of mystery, mayhem and murder. I think I'm going to love it here. - Wednesday Addams
