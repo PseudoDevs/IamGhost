@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 10:48:13
-Random Quote: Lily: "Ted, you did this all yourself?"Ted: "Just like Ryan Gosling in 'The Notebook'. It was pretty manly 'til I mentioned Ryan Gosling in 'The Notebook', huh?" - Ted Mosby
+Last updated: 2024-04-13 16:54:08
+Random Quote: I've had shits that I've liked better than Walder Frey.  -  Brynden Tully
