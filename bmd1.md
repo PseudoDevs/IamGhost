@@ -1,2 +1,3 @@
-Last updated: 2024-04-13 18:32:02
-Random Quote: Master Mott said Thoros could outdrink even King Robert.  They were pease in a pod, he told me, both gluttons and sots.  -  Gendry
+Last updated: 2024-04-13 18:32:35
+Random Quote: Morty: "So, time moves faster in there? Is it like a Narnia thing?"
+Rick: "I'm not a beaver who believes in Jesus Christ, Morty. But yeah, it's pretty much a Narnia thing." - Rick Sanchez
