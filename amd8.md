@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 10:43:05
-Random Quote: I dreamed of the man who came today, the one they call Reek.  You and your brother lay dead at his feet, and he was skinning off your faces with a long red blade.  -  Jojen Reed
+Last updated: 2024-04-13 10:43:42
+Random Quote: The more you move up in the world, the more enemies you make. - Rue Bennett
