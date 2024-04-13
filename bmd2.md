@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 10:24:16
-Random Quote: Congratulations, you’ve just left your family a second-hand Subaru. - Saul Goodman
+Last updated: 2024-04-13 10:24:49
+Random Quote: I never asked for this crown.  Gold is cold and heavy on the head, but so long as I am the king, I have a duty... if I must sacrifice one child to the flames to save a million from the dark... sacrifice... is never easy, Davos.  Or it is no true sacrifice.  -  Stannis Baratheon
