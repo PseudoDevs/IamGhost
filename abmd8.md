@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 10:18:13
-Random Quote: Ted: "So, you are mad about me and Robin holding hands."Barney: "Of course I'm mad Ted. Holding hands is like the fourth grade equivalent of banging. Well in your case, twelfth grade. Self-five!" - Barney Stinson
+Last updated: 2024-04-13 10:18:50
+Random Quote: I have served six kings, but here before us lies the greatest man I ever knew.  Lord Tywin wore no crown, yet he was all a king should be.  -  Grand Maester Pycelle
