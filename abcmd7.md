@@ -1,3 +1,2 @@
-Last updated: 2024-04-13 17:43:21
-Random Quote: What do you call a fish with no eyes?
-Fsh. - Marshall Eriksen
+Last updated: 2024-04-13 17:43:54
+Random Quote: The Crow's Eye brought back monsters from the east... aye, and wizards too.  -  Tristifer Botley
