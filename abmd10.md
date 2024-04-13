@@ -1,2 +1,3 @@
-Last updated: 2024-04-13 17:32:18
-Random Quote: There have always been men who found it easier to speak vows than to keep them.  -  Arys Oakheart
+Last updated: 2024-04-13 17:33:29
+Random Quote: This woman has a hold on my heart that I could not break if I wanted to, and there have been times that I wanted to.
+It has been overwhelming and humbling and even painful at times, but I could not stop loving her any more than I could stop breathing. - Barney Stinson
