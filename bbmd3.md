@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 18:43:35
-Random Quote: I learned form Set Arthur Dayne, the Sword of the Morning, who could have slain all five of you with his left hand while he was taking a piss with the right.  -  Jaime Lannister
+Last updated: 2024-04-13 18:44:08
+Random Quote: All the decisions we made in the past leads us inexorably into the future. - Tokyo
