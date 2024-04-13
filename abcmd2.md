@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 10:15:45
-Random Quote: Barney: "I scoured the dating sites, using my own personal logarithms, factoring in a broad spectrum of variables, filtering out undesirable high-risk negatives, guaranteeing a success-rate of eighty-thr..."Ted: "...you picked the girls that showed the most boob." - Ted Mosby
+Last updated: 2024-04-13 10:16:19
+Random Quote: Your car's gonna be fine, this is the best auto-shop around. Look at this certificate, one of the mechanics here...[reads the certificate]...finished a 64 ounce steak. - Ted Mosby
