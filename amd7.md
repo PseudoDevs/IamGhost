@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 18:45:25
-Random Quote: Barney: "Wow, Ted. You're gonna have to find a new member for yourself, cause I'm revoking your dude-membership."Ted: "Yeah, how was that manicure yesterday?"Barney: "Invigorating... thanks." - Barney Stinson
+Last updated: 2024-04-13 18:46:00
+Random Quote: She don't speak.  You bloody bastards cut her throat too deep for that.  But she remembers.  -  Lem Lemoncloack

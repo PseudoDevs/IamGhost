@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 18:44:50
-Random Quote: Then odds are he'll be near a settlement, probably close to another city out there. Ain't too many of 'em in Wyoming. - Joel Miller
+Last updated: 2024-04-13 18:46:00
+Random Quote: The greatest fools are ofttimes more clever than the men who laugh at them.  -  Tywin Lannister
