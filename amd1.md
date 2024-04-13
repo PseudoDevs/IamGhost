@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 18:43:55
-Random Quote: Hey, it's me again. Look, who are we kidding? You and I are both attracted to each other. We're young, we're drunk, half of us anyway. And we only get one life, so why don't you come over to my apartment and we'll think of something stupid to do together? - Ted Mosby
+Last updated: 2024-04-13 18:44:28
+Random Quote: If there was any shame in a dude getting a pedicure I don't think there would've been a feature about it in Details magazine. - Barney Stinson
