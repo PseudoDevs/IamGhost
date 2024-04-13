@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 10:10:02
-Random Quote: Godless?  Why, Aeron, I am the godliest man ever to raise sail!  You serve one god, Damphair, but I have served ten thousand.  From Ib to Asshai, when men see my sails, they pray.  -  Euron Greyjoy
+Last updated: 2024-04-13 10:10:35
+Random Quote: The only way Ralph would remember our anniversary is if there was a beer named "June 2nd". - Agatha Harkness
