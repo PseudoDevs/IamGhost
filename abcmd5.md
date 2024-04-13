@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 17:28:39
-Random Quote: The most important moments are the ones that make you realize there’s no turning back. You’ve crossed a line, and you’re stuck on the other side now. - Tokyo
+Last updated: 2024-04-13 17:29:53
+Random Quote: No matter how much we fight it we are connected by our blood. We can feel estranged from our families and not understand what they do. And still, in the end, we will do anything for them. - Adam
