@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 18:30:06
-Random Quote: Death, he knew, but slow.  I still have time.  A year.  Two years.  Five.  Some stone men live for ten.  Time enough to cross the sea, to see Griffin's Roost again.  To end the Usurper's line for good and all, and put Rhaegar's son upon the Iron Throne.  Then Lord Jon Connington could die content.  -  Jon Connington
+Last updated: 2024-04-13 18:32:25
+Random Quote: Everything will be okay in the end. If it's not okay, it's not the end. - Yuk Je
