@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 10:29:26
-Random Quote: The wolf will prove the boy is who we say he is, should the Dreadfort attempt to deny him.  That is my price, Lord Davos.  Smuggle me back my liege lord, and I will take Stannis Baratheon as my king.  -  Wyman Manderly
+Last updated: 2024-04-13 10:29:59
+Random Quote: Sometimes two people in the universe who aren't meant for each other find each other. - Cal Jacobs
