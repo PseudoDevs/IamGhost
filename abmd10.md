@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 18:34:56
-Random Quote: Nobody likes to be alone, especially after a breakup. But that's when we discover who we really are and what we really want. - Ted Mosby
+Last updated: 2024-04-13 18:35:29
+Random Quote: New York! Home of the Mets, the Chrysler Building, those ladies from Sex and the City and now, the zombie apocalypse. If you can make it here, you can make it anywhere - but first, you have to not get eaten. - Spider-Man
