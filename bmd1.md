@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 18:39:34
-Random Quote: To go north, you must go south.  To reach the west, you must go east.  To go forward you must go back, and to touch the light you must pass beneath the shadow.  -  Quaithe
+Last updated: 2024-04-13 18:40:09
+Random Quote: I can't believe I'm taking sexual advice from Ted Mosby.That's like taking fashion advice from... well, Ted Mosby. - Barney Stinson
