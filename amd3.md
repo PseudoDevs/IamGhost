@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 17:13:28
-Random Quote: Jaime and I are more than brother and sister.  We are one person in two bodies.  We shared a womb together.  He came into this world holding my foot, our old maester said.  When he is in me, I feel... whole.  -  Cersei Lannister
+Last updated: 2024-04-13 17:14:03
+Random Quote: I cost a girl her life because I was afraid to love her - Clay Jensen

@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 17:13:28
-Random Quote: Ran: "Mayfeld, he's one of the best triggermen I've ever seen. Former Imperial sharpshooter."Mando: "That's not saying much." - Din Djarin
+Last updated: 2024-04-13 17:14:03
+Random Quote: We were king's men, knights, and heroes... but some knights are dark and full of terror, my lady.  War makes monsters of us all.  -  Thoros of Myr
