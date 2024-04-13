@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 10:43:43
-Random Quote: Sometimes you gotta do bad things to catch bad people. - Javier Pe�a
+Last updated: 2024-04-13 10:45:36
+Random Quote: There is no creature on earth half so terrifying as a truly just man.  -  Varys
