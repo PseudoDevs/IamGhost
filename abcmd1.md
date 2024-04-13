@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 10:27:07
-Random Quote: I’d get 30 years. And to be honest, growing old in a prison cell is not my thing. I’d rather run, in body and soul. And if I can’t take my body with me, at least my soul should run. - Tokyo
+Last updated: 2024-04-13 10:27:40
+Random Quote: I never asked for this crown.  Gold is cold and heavy on the head, but so long as I am the king, I have a duty... if I must sacrifice one child to the flames to save a million from the dark... sacrifice... is never easy, Davos.  Or it is no true sacrifice.  -  Stannis Baratheon
