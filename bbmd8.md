@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 10:21:02
-Random Quote: That right there, that's a scone. Tastes like a muffin except it sucks all the spit out of your mouth. - Jim Hopper
+Last updated: 2024-04-13 10:21:35
+Random Quote: It doesn't matter how tough you are, you're not going to win in this place. Not on your own. - Jang Deok-su
