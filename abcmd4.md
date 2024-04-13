@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 10:20:42
-Random Quote: Robin: "I'm pregnant."Barney: "Are you sure you're not just getting fat?" - Barney Stinson
+Last updated: 2024-04-13 10:21:20
+Random Quote: I feel like her sobriety is completely dependent on how available I am to her. - Jules Vaughn
