@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 18:47:44
-Random Quote: If you keep all your treasures in one purse, you only make it easier for those who would rob you.  -  Robb Stark
+Last updated: 2024-04-13 18:48:17
+Random Quote: When one chooses to walk the way of the Mandalore, you are both hunter and prey. How can one be a coward if one chooses this way of life? - The Armorer
