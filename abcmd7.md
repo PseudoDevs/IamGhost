@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 10:06:33
-Random Quote: Bronn was no knight, that was true.  Bronn was a battle - hardened killer. 
+Last updated: 2024-04-13 10:07:07
+Random Quote: It's okay to lose yourself in this, just as long as you can find yourself again. - Nina Locke
