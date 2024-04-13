@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 18:20:01
-Random Quote: You have a passing clever father, Devan.  He makes me wish I had more smugglers in my service.  And fewer lords.  -  Stannis Baratheon
+Last updated: 2024-04-13 18:20:34
+Random Quote: Rule Number One: Don't ever fall in love with a straight girl. - Alex Vause
