@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 18:48:17
-Random Quote: When one chooses to walk the way of the Mandalore, you are both hunter and prey. How can one be a coward if one chooses this way of life? - The Armorer
+Last updated: 2024-04-13 18:48:51
+Random Quote: Be proud of your penis and your heritage. 'Cause neither are going anywhere. You should work with what you've got. - Otis Milburn
