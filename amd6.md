@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 19:02:56
-Random Quote: Have you ever been told you're different, odd, or simply don't belong? In a world full of normies, do you feel like an outcast? Me too. But I'm pleased to tell you there's a very special place for people like us. Nevermore Academy. - Wednesday Addams
+Last updated: 2024-04-13 19:03:30
+Random Quote: I am scared, 'cause I don't know how to fly. But you're there at the bottom of the slide to catch me when I fall. - Hannah Baker
