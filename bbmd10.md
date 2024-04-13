@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 18:20:48
-Random Quote: Why didn't you say this to me when I was alive? - Hannah Baker
+Last updated: 2024-04-13 18:22:33
+Random Quote: Why is it always the innocents who suffer most, when you high lords play your game of thrones?  -  Varys
