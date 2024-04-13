@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 17:33:48
-Random Quote: My son lies here broken and dying, Luwin, and you wish to discuss a new master of horse?  Do you think I care what happens in the stables?  Do you think it matters to me one whit?  I would gladly butcher every horse in Winterfell with my own hands if it would open Bran's eyes, do you understand that?  Do you?  -  Catelyn Stark
+Last updated: 2024-04-13 17:34:21
+Random Quote: When you spend years thinking about something obsessively, that something is your whole world, your perfect world. - Tokyo
