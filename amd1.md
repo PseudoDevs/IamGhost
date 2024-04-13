@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 10:18:09
-Random Quote: They are children, Sansa thought.  They are silly little girls, even Elinor.  They've never seen a battle, they've never seen a man die, they know nothing.  Their dreams were full of songs and stories, the way hers had been before Joffrey cut her father's head off.  Sansa pitied them.  Sansa envied them.  -  Sansa Stark
+Last updated: 2024-04-13 10:19:24
+Random Quote: In my body, where the shame gland should be, there is a second awesome gland. True story! - Barney Stinson
