@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 18:06:44
-Random Quote: Barney: "Canada sucks."Robin: "Okay, well, you're one-quarter Canadian, so by that logic you one-quarter suck!"Barney: "I'm 100% awesome and you know it!"Robin: "Yeah, I do." - Robin Scherbatsky
+Last updated: 2024-04-13 18:07:20
+Random Quote: What you have to do is show these suckers what you’re capable of. Show them you’re not scared. - Nairobi
