@@ -1,2 +1,3 @@
-Last updated: 2024-04-13 10:06:23
-Random Quote: The Wall can stop an army, but not a man alone.  -  Mance Rayder
+Last updated: 2024-04-13 10:06:58
+Random Quote: "Crutch down and bend over a little bit."
+Barney: "Wow, It took five shots of tequila to have you in that position." - Barney Stinson
