@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 18:02:38
-Random Quote: You Westerosi are all the same.  You sew some beast upon a scrap of silk, and suddenly you are all lions or dragons or eagles.  -  Illyrio Mopatis
+Last updated: 2024-04-13 18:03:13
+Random Quote: For a joke to work, it has to have part of truth and part of pain. - Berlin
