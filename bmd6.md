@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 17:10:31
-Random Quote: Old gods or new, it makes no matter, no man is so accursed as the kinslayer.  -  Rickard Karstark
+Last updated: 2024-04-13 17:14:41
+Random Quote: God has a plan for every human being. - 
