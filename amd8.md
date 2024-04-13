@@ -1,2 +1,3 @@
-Last updated: 2024-04-13 10:09:46
-Random Quote: How to run a marathon: Step one, you start running. There is no step two. - Barney Stinson
+Last updated: 2024-04-13 10:10:19
+Random Quote: Gor Koresh: "This is no place for a child."
+Mando: "Wherever I go, he goes. I've been quested to bring him to his kind." - Din Djarin
