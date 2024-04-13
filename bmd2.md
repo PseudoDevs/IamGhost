@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 17:04:36
-Random Quote: If I got serious with Nora, it would be like if Mother Teresa focused all her attention on one really hot orphan. With great penis comes great responsibility. - Barney Stinson
+Last updated: 2024-04-13 17:05:45
+Random Quote: Marshall: "I was once with this chick, who liked to do hand stuff underneath a jacket, while we were all sitting around our favorite booth at MacLaren's."Ted: "Gross."Robin: "We share appetizers!" - Robin Scherbatsky
