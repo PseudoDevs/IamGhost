@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 16:58:45
-Random Quote: My lady, I have seen how you look at my brother.  Loras is valiant and handsome, and we all love him dearly... but your Imp will make a better husband.  He is a bigger man than he seems, I think.  -  Garlan Tyrell
+Last updated: 2024-04-13 16:59:18
+Random Quote: Sticky's even sent me a boob-shaped hand-sanitizer dispenser. It's clean and dirty at the same time. - Barney Stinson
