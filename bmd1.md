@@ -1,2 +1,6 @@
-Last updated: 2024-04-13 10:34:14
-Random Quote: You have to be as bad as them above in order to survive. - Polly Gray
+Last updated: 2024-04-13 10:34:53
+Random Quote: Sam: "They might be a part of the big three."
+Bucky: "What big three?"
+Sam: "Androids, aliens and wizards."
+Bucky: "That's not a thing."
+Sam: "That's definitely a thing." - Sam Wilson

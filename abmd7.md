@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 10:33:35
-Random Quote: Doctor: "Don't worry, it's totally safe. Unless part of your big date involves connecting yourself to a car battery."Barney: "Well, now it doesn't." - Barney Stinson
+Last updated: 2024-04-13 10:34:52
+Random Quote: It's probably his... I've spent years, training my boys to swim the other way. - Barney Stinson
