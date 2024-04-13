@@ -1,6 +1,2 @@
-Last updated: 2024-04-13 10:10:19
-Random Quote: Sam: "They might be a part of the big three."
-Bucky: "What big three?"
-Sam: "Androids, aliens and wizards."
-Bucky: "That's not a thing."
-Sam: "That's definitely a thing." - Sam Wilson
+Last updated: 2024-04-13 10:11:26
+Random Quote: When things go well, people start thinking it's because they're so fing smart. - Walt Breslin
