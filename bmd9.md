@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 10:38:40
-Random Quote: The longer Cersei waits, the angrier she'll become, and anger makes her stupid.  I much prefer angry and stupid to composed and cunning.  -  Tyrion Lannister
+Last updated: 2024-04-13 10:39:17
+Random Quote: My name is ASAC Schrader, and you can go f*ck yourself. - Hank Schrader
