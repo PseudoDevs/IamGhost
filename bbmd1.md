@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 10:44:19
-Random Quote: Nothing is wrong with him, now turn back around before I break your neck. - Mary
+Last updated: 2024-04-13 10:44:56
+Random Quote: It was the white cloak that soiled me, not the other way around.  -  Jaime Lannister
