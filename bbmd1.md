@@ -1,3 +1,2 @@
-Last updated: 2024-04-13 18:01:56
-Random Quote: Marylin Thornhill: "I trust Enid has given you the old Nevermore welcome."
-Wednesday: "She's been smothering me with hospitality. I hope to return the favor... in her sleep." - Wednesday Addams
+Last updated: 2024-04-13 18:02:29
+Random Quote: Don't knock long-distance relationships, I really think they can work. I'm juggling four right now. There's Lisa in Madrid, there's Erica in Tokyo, there's Laura in Denmark. And Kelly on 34th street. The last thinks I'm a humble sheep-shearer from Kelani. - Barney Stinson
