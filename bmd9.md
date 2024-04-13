@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 18:25:49
-Random Quote: You're a beautiful, sweet girl. Fuck this guy! - Nicky Nichols
+Last updated: 2024-04-13 18:26:22
+Random Quote: If you don't think there's hope for the world, why bother going on? - Ellie Williams
