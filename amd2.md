@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 18:28:34
-Random Quote: Let's have a toast. For the hits life throws our way. With time, they're what make you stronger, young man. - Don Neto
+Last updated: 2024-04-13 18:29:07
+Random Quote: The stone is strong... the roots of the trees grow deep, and under the ground the Kings of Winter sit their thrones.  So long as those remained, Winterfell remained.  It was not dead, just broken.  Like me... I'm not dead either.  -  Bran Stark
