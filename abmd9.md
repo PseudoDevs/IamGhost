@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 17:37:40
-Random Quote: Until the Mountain crushed my brother's skull, no Dornishmen had died in this War of the Five Kings.  Tell me, Captain, is that my shame or my glory?  -  Doran Martell
+Last updated: 2024-04-13 17:38:17
+Random Quote: Sorry, got caught up again. God, do I need to take more Adderall or am I taking too much Adderall? - Rick Sanchez
