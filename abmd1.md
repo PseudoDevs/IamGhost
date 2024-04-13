@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 18:51:10
-Random Quote: When I have kids, and I tell them how I met their mother, I'm gonna tell them everything. The whole damn story. - Ted Mosby
+Last updated: 2024-04-13 18:51:44
+Random Quote: It's not like anyone's 100% straight or 100% gay. - Maddy Perez
