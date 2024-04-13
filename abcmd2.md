@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 17:00:25
-Random Quote: We can only die.  Why else do we don these black cloaks, but to die in defense of the realm?  -  Qhorin Halfhand
+Last updated: 2024-04-13 17:00:58
+Random Quote: Nancy Wheeler: "You're supposed to hit the cans, right?"Jonathan Byers: "No, actually - you see the spaces in between the cans? I'm aiming for those." - Jonathan Byers
