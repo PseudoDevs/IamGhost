@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 18:04:11
-Random Quote: Ted, every little boy wants to grow up to nail the doctor, or the lawyer. Somebody's gotta nail the receptionist. - Barney Stinson
+Last updated: 2024-04-13 18:04:44
+Random Quote: That's not a law, just a sword.  Happens I got one too.  -  Yoren of the Night's Watch
