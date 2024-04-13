@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 17:24:54
-Random Quote: Robin: "We're like sisters."Ted: "You've never gotten through even one exchange without screaming at her."Robin: "Sisters fight, Ted!" - Robin Scherbatsky
+Last updated: 2024-04-13 17:26:09
+Random Quote: Marshall: "Where is your playbook?"Robin: "My playbook? Bro, uh, two-volume set, right here.Ted: "It's a great read, actually."Lily: "Yeah, I'm reading it right now." - Robin Scherbatsky

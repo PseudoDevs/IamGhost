@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 17:21:42
-Random Quote: Barney: "I only smoke in certain situations. Postcoital, when I'm with Germans, sometimes those two overlap, coital, birthdays, to annoy my mom, precoital, on a sailboat, the day the Mets are mathematically eliminated every year and pregnancy scares."Ted: "Why are you smoking right now?"Barney: "I'm always precoital, Ted." - Barney Stinson
+Last updated: 2024-04-13 17:26:08
+Random Quote: If you had to fall into a woman's arms, my son, why couldn't they have been Margaery Tyrell's?  -  Catelyn Stark

@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 17:25:32
-Random Quote: Marshall: "Baby, you're like 20 slutty chicks all rolled into one."Lily: "Sweet-talk is not gonna change my mind!" - Lily Aldrin
+Last updated: 2024-04-13 17:26:09
+Random Quote: I dreamt a wolf howling in the rain, but no one heard his grief.  I dreamt such a clangor I thought my head myght burst, drums and horns and pipes and screams, but the saddest sound was the little bells.  I dreamt of a maid at a feast with purple serpents in her hair, venom dripping from their fangs.  And later I dreamt that maid again, slaying a savage giant in a castle built of snow.  -  The Ghost of High Heart
