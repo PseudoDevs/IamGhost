@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 18:17:18
-Random Quote: I am the storm, my lord, the first storm, and the last.  -  Euron Greyjoy
+Last updated: 2024-04-13 18:19:36
+Random Quote: People are oblivious to reality. They only see what they want to see, when all they have to do is shift their perspective to see the full scope of things. - Yuk Je
