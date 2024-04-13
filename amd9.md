@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 18:27:12
-Random Quote: Lord Varys, sometimes I feel as though you are the best friend I have in King's Landing and sometimes I feel you are my worst enemy.  -  Tyrion Lannister
+Last updated: 2024-04-13 18:30:06
+Random Quote: Marshall: "Where is your playbook?"Robin: "My playbook? Bro, uh, two-volume set, right here.Ted: "It's a great read, actually."Lily: "Yeah, I'm reading it right now." - Robin Scherbatsky
