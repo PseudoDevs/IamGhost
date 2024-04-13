@@ -1,3 +1,2 @@
-Last updated: 2024-04-13 18:03:11
-Random Quote: Freddie: "You think I can't handle Tommy Shelby?"
-Polly: "You can't. I am having trouble these days and I'm twice the man you are." - Polly Gray
+Last updated: 2024-04-13 18:03:47
+Random Quote: I liked the way I dressed you, but I'm worried I f'ed with your gender expression. - Jules Vaughn
