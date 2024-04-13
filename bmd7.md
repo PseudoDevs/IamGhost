@@ -1,3 +1,2 @@
-Last updated: 2024-04-13 17:24:17
-Random Quote: Morticia: "That boy's family was going to file attempted murder charges. How would that have looked on your record?"
-Wednesday: "Terrible. Everyone would know I failed to get the job done." - Wednesday Addams
+Last updated: 2024-04-13 17:26:46
+Random Quote: I'm not surviving, I'm just existing. - Brook Soso
