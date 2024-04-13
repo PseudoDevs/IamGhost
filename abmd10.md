@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 18:57:35
-Random Quote: One of the 24 similarities between women and fish are they're both attracted to shiny objects. - Barney Stinson
+Last updated: 2024-04-13 18:58:08
+Random Quote: I learned form Set Arthur Dayne, the Sword of the Morning, who could have slain all five of you with his left hand while he was taking a piss with the right.  -  Jaime Lannister
