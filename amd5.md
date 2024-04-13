@@ -1,2 +1,4 @@
-Last updated: 2024-04-13 17:50:18
-Random Quote: I have been called many things, my lord, byt kind is seldom one of them.  -  Maester Aemon
+Last updated: 2024-04-13 17:52:06
+Random Quote: Joel: "Where'd you get the money for this?"
+Sarah: "Drugs. I sell hardcore drugs."
+Joel: "It's better than what I do." - Joel Miller
