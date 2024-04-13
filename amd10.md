@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 17:13:49
-Random Quote: We're done when I say we're done. - Walter White
+Last updated: 2024-04-13 17:14:22
+Random Quote: The Lord of Light cherishes the innocent.  There is no sacrifice more precious.  From his king's blood and his untainted fire, a dragon shall be born.  -  Melisandre
