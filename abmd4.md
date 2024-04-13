@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 10:12:38
-Random Quote: The truth isn't always to most exciting version of things, or the best, or the worst. It's somewhere inbetween. But it deserves to be heard and remembered. 'The truth will out', like someone said once. It remains. - Hannah Baker
+Last updated: 2024-04-13 10:13:45
+Random Quote: Death.  There will be death, aye.  Your lordship lost a son at the Red Wedding, I lost four upon the Blackwater.  And why?  Because the Lannisters stole the throne.  Go to King's Landing and look upon Tommen with your own eyes, if you doubt me.  A blind man could see it.  What does Stannis offer you?  Vengeance.  Vengeance for my sons and yours, for your husbands and your fathers and your brothers.  Vengeance for your murdered lord, your murdered king, your butchered princes.  Vengeance!  -  Davos Seaworth
