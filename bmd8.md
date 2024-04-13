@@ -1,2 +1,3 @@
-Last updated: 2024-04-13 19:02:07
-Random Quote: Gustavo. When I looked into your eyes... hate. A little bit's okay. As long as you never forget who's boss. - Don Eladio
+Last updated: 2024-04-13 19:02:41
+Random Quote: Lily: "We're going to Atlantic City to elope - right now!"
+Barney: "Oh, congratulations Lily! Marshall, you're getting married? What the hell?" - Barney Stinson
