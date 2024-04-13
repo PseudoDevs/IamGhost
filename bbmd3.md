@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 10:07:48
-Random Quote: Oh, come on, ref! I haven't seen that much hooking go unpunished since my last trip to Vegas. - Robin Scherbatsky
+Last updated: 2024-04-13 10:08:21
+Random Quote: When I'm king in my own right, I'm going to outlaw beets.  -  Tommen Baratheon
