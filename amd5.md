@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 18:37:45
-Random Quote: Finally, you will be among pears who understand you. Maybe you'll even make some friends. - Morticia Addams
+Last updated: 2024-04-13 18:38:20
+Random Quote: Dragons old and young, true and false, bright and dark.  And you.  A small man with a big shadow, snarling in the midst of it all.  -  Moqorro
