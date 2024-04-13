@@ -1,3 +1,2 @@
-Last updated: 2024-04-13 19:05:46
-Random Quote: Grace Burgess: "You think I am a wh-re?"
-Tommy Shelby: "Everyone's a wh-re, Grace. We just sell different parts of ourselves." - Thomas Shelby
+Last updated: 2024-04-13 19:06:19
+Random Quote: The more you move up in the world, the more enemies you make. - Rue Bennett
