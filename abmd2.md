@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 10:07:32
-Random Quote: I've got to find a way to introduce some wood into Bilson's dark atrium. I think you know what I meant. - Ted Mosby
+Last updated: 2024-04-13 10:08:06
+Random Quote: Knowledge is a weapon, Jon.  Arm yourself well before you ride forth to battle.  -  Maester Aemon
