@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 10:31:39
-Random Quote: The title was but a courtesy due him as a council member; Varys was lord of nothing but the spiderweb, the master of none but his whispers.  -  Catelyn Stark
+Last updated: 2024-04-13 10:32:16
+Random Quote: A sorcerer is a wizard without a hat. - Sam Wilson
