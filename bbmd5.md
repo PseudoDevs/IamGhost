@@ -1,2 +1,3 @@
-Last updated: 2024-04-13 10:29:06
-Random Quote: I know the poison that my father used, and there is none slower or more agonizing.  Soon we may hear the Mountain screaming, even here in Sunspear.  -  Tyene Sand
+Last updated: 2024-04-13 10:29:42
+Random Quote: Elliot: "I'm not sure it's a good thing we met."
+Rue: "What are you talking about? You're my new favorite person." - Rue Bennett
