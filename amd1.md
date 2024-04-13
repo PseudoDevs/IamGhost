@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 10:13:40
-Random Quote: Sorry Peter, we're grown-ups now, we can't fly to Netherland with you anymore. - Ted Mosby
+Last updated: 2024-04-13 10:14:13
+Random Quote: I feel like her sobriety is completely dependent on how available I am to her. - Jules Vaughn
