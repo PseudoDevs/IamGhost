@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 17:15:17
-Random Quote: Even in sin, you can still be a saint. - Don Neto
+Last updated: 2024-04-13 17:15:56
+Random Quote: Birds are lost, messages stolen or sold... there are things I might tell you of that eunuch that would chill your blood...  -  Grand Maester Pycelle
