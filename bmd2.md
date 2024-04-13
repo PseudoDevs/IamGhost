@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 17:10:45
-Random Quote: When you spend years thinking about something obsessively, that something is your whole world, your perfect world. - Tokyo
+Last updated: 2024-04-13 17:11:18
+Random Quote: The Lion does not concern itself with the opinions of sheep.  -  Tywin Lannister
