@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 10:08:38
-Random Quote: Barney: "Canada sucks."Robin: "Okay, well, you're one-quarter Canadian, so by that logic you one-quarter suck!"Barney: "I'm 100% awesome and you know it!"Robin: "Yeah, I do." - Robin Scherbatsky
+Last updated: 2024-04-13 10:09:12
+Random Quote: My only aim is to take many lives. The more the better I feel. - 
