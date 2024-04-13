@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 18:09:44
-Random Quote: Gloria: "It seemd like all what we did was fight and make love. One time, I'm not kidding you, we fell out of the window together."Jay: "Which one were you doing?" - Jay Pritchett
+Last updated: 2024-04-13 18:13:10
+Random Quote: There's only one thing that could blind a man as smart as you, Tommy. Love. - Polly Gray
