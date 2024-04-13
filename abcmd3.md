@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 17:06:02
-Random Quote: Elia of Dorne.  I killed her screaming whelp.  Then I raped her.  Then I smashed her fucking head in like this.  -  Gregor Clegane
+Last updated: 2024-04-13 17:07:41
+Random Quote: There's no shame in fear, my father told me, what matters is how we face it.  -  Jon Snow
