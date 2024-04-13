@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 17:24:17
-Random Quote: Oh, come on, ref! I haven't seen that much hooking go unpunished since my last trip to Vegas. - Robin Scherbatsky
+Last updated: 2024-04-13 17:26:07
+Random Quote: Robert wanted smiles and cheers, always, so he went where he found them, to his friends and his whores.  Robert wanted to be loved.  My brother Tyrion has the same disease.  -  Cersei Lannister
