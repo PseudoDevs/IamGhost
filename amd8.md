@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 18:14:58
-Random Quote: Brandon Stark was never shy about taking what he wanted.  I am old now, a dried - up thing, too long a widow, but I still remember the look of my maiden's blood on his cock the night he claimed me.  I think Brandon liked the sight as well.  A bloody sword is a beautiful thing, yes.  It hurt, but it was a sweet pain. 
+Last updated: 2024-04-13 18:15:32
+Random Quote: Did you know that if gravity were slightly more powerful, the universe would collapse into a ball? - Sheldon
