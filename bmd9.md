@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 10:11:38
-Random Quote: Would the five of us always live within a few minutes of that booth? No, that's life, kids, but here's what I discovered: Our booth was wherever the five of us were together. - Ted Mosby
+Last updated: 2024-04-13 10:12:12
+Random Quote: Godless?  Why, Aeron, I am the godliest man ever to raise sail!  You serve one god, Damphair, but I have served ten thousand.  From Ib to Asshai, when men see my sails, they pray.  -  Euron Greyjoy
