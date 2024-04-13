@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 10:47:30
-Random Quote: The Citadel took my chain, but they could not take my knowledge.  -  Qyburn
+Last updated: 2024-04-13 16:54:22
+Random Quote: Any man who steps between a father and his vengeance asks for death.  -  Rickard Karstark
