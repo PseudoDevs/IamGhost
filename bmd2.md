@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 18:16:12
-Random Quote: Robin: "Barney, I am not ready for them to find out about us."Barney: "Then you're gonna have to stay in there for the entire trilogy. Don't worry, it's only 382 minutes."Robin: "Nerd!" - Robin Scherbatsky
+Last updated: 2024-04-13 18:16:46
+Random Quote: Only their shadows, One most of all.  A tall and twisted thing with one black eye and ten long arms, sailing on a sea of blood.  -  Moqorro
