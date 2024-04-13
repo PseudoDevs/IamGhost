@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 19:01:58
-Random Quote: You are not the guy. You're not capable of being the guy. I had a guy but now I don't. You are not the guy. - Mike Ehrmantraut
+Last updated: 2024-04-13 19:02:31
+Random Quote: We're done when I say we're done. - Walter White
