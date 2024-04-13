@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 10:11:02
-Random Quote: Gods help you, Theon Greyjoy.  Now you are truly lost.  -  Rodrik Cassel
+Last updated: 2024-04-13 10:11:36
+Random Quote: In the end, we will all get just what we deserve. - 

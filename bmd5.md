@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 10:10:28
-Random Quote: There is no creature on earth half so terrifying as a truly just man.  -  Varys
+Last updated: 2024-04-13 10:11:35
+Random Quote: Bear Island knows no king save the King in the North, whose name is Stark.  -  Lyanna Mormont
