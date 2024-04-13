@@ -1,2 +1,3 @@
-Last updated: 2024-04-13 10:28:41
-Random Quote: My metabolism is all messed up. See, I can moose down a pint of fudge ripple for a midnight snack and wake up having lost weight. Well, everywhere except for my boobs. So annoying. - Robin Scherbatsky
+Last updated: 2024-04-13 10:29:48
+Random Quote: This woman has a hold on my heart that I could not break if I wanted to, and there have been times that I wanted to.
+It has been overwhelming and humbling and even painful at times, but I could not stop loving her any more than I could stop breathing. - Barney Stinson
