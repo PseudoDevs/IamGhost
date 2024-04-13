@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 17:03:28
-Random Quote: She had seen Bronn fight on the high road; it was no accident that he had survived the journey while other men had died.  He moved like a panther, and that ugly sword of his seemed a part of his arm.  -  Catelyn Stark
+Last updated: 2024-04-13 17:04:03
+Random Quote: No matter how tough things get, children always turn out okay. - Berlin
