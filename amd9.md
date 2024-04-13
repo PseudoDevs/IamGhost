@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 17:34:05
-Random Quote: Lucas: "Do you think she's acting weird?"Dustin: "You're asking if the weirdo is acting weird?" - Dustin Henderson
+Last updated: 2024-04-13 17:34:40
+Random Quote: I was a better smuggler than a knight, he had written to his wife, a better knight than a King's hand, a better King's hand than a husband.  I am so sorry Marya, I have loved you.  Please forgive the wrongs I did you.  -  Davos Seaworth

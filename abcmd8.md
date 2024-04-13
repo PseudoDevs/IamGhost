@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 17:32:53
-Random Quote: In the United States, the Mafia makes witnesses disappear so they can't testify in court. In Colombia, Pablo Escobar made the whole court disappear. - Steve Murphy
+Last updated: 2024-04-13 17:34:40
+Random Quote: Those called "fools" are the only ones brave enough to see the truth. - Rick Sanchez

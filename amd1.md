@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 17:33:31
-Random Quote: If I got serious with Nora, it would be like if Mother Teresa focused all her attention on one really hot orphan. With great penis comes great responsibility. - Barney Stinson
+Last updated: 2024-04-13 17:34:41
+Random Quote: He'd led me in war, hunted with a king, won honor in tourney melees, ridden with Brynden Blackfish and Greatjon Umber, fought in the Whispering Wood, bedded more girls than he could name, and yet his uncle was treating him as though he were still a child of ten.  -  Theon Greyjoy
