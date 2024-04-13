@@ -1,2 +1,3 @@
-Last updated: 2024-04-13 18:44:41
-Random Quote: I never asked for this crown.  Gold is cold and heavy on the head, but so long as I am the king, I have a duty... if I must sacrifice one child to the flames to save a million from the dark... sacrifice... is never easy, Davos.  Or it is no true sacrifice.  -  Stannis Baratheon
+Last updated: 2024-04-13 18:45:14
+Random Quote: Ravonna: "You really believe in this Loki variant?"
+Mobius: "Luckily, he believes in himself enough for the both of us." - Mobius M. Mobius
