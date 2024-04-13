@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 10:06:43
-Random Quote: Morty: "Why don't you admit you don't want anyone else to be happy because you're a sad old fart?"Rick: "How do you saddle a fart?" - Rick Sanchez
+Last updated: 2024-04-13 10:07:16
+Random Quote: Catelyn would sooner Lord Umber had seen fit to stay sober, but telling the Greatjon not to drink was like telling him not to breathe for a few hours.  -  Catelyn Stark
