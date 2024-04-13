@@ -1,2 +1,3 @@
-Last updated: 2024-04-13 17:48:28
-Random Quote: Master Mott said Thoros could outdrink even King Robert.  They were pease in a pod, he told me, both gluttons and sots.  -  Gendry
+Last updated: 2024-04-13 17:49:04
+Random Quote: Wednesday: "So you were guided by latent chivalry, the tool of the patriarchy, to extract my undying gratitude?"
+Xavier: "Most people just say 'thank you'." - Xavier Thorpe
