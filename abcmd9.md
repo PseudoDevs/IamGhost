@@ -1,4 +1,2 @@
-Last updated: 2024-04-13 10:46:52
-Random Quote: Jimmy: "I can't believe Wanda and Vision are having a baby."
-Darcy Lewis: "You want any?"
-Jimmy: "Heck, I thought about it for sure. A little Jimmy Woo. Get him a tiny little FBI badge... oh, you... chip? Sure." - Jimmy Woo
+Last updated: 2024-04-13 10:47:30
+Random Quote: You could help a friend, but instead you're choosing the hot girl in the tight tank-top. Your training is complete, I'm so proud of this kid! - Barney Stinson
