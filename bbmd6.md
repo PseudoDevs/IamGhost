@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 16:55:30
-Random Quote: The title was but a courtesy due him as a council member; Varys was lord of nothing but the spiderweb, the master of none but his whispers.  -  Catelyn Stark
+Last updated: 2024-04-13 16:56:04
+Random Quote: No more half-measures, Walter. - Mike Ehrmantraut
