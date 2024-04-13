@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 10:32:25
-Random Quote: I never wanted any of it to change, but that's not how life works. - Ted Mosby
+Last updated: 2024-04-13 10:32:59
+Random Quote: The Lord of Light cherishes the innocent.  There is no sacrifice more precious.  From his king's blood and his untainted fire, a dragon shall be born.  -  Melisandre
