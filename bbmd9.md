@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 10:44:54
-Random Quote: When you're younger, everything feels so permanent. But as you get older, you begin to realize nothing is and everyone you love can drift away. - Rue Bennett
+Last updated: 2024-04-13 10:45:29
+Random Quote: Even if I meet the girl of my dreams right the second, I'm still one night and nine months away, from having a family on my own. And that's assuming the mother of my childern is just a huge slut. - Ted Mosby
