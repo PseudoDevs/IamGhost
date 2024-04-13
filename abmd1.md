@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 18:09:04
-Random Quote: If I got serious with Nora, it would be like if Mother Teresa focused all her attention on one really hot orphan. With great penis comes great responsibility. - Barney Stinson
+Last updated: 2024-04-13 18:11:25
+Random Quote: I have worked at the downfall of Tywin Lannister since the day they told me of Elia and her children.  -  Doran Martell

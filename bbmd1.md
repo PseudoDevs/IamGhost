@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 18:10:50
-Random Quote: Things never work out the way you imagine they will. - Lucien
+Last updated: 2024-04-13 18:11:25
+Random Quote: The Empire improves every system it touches. Judge by any metric: safety, prosperity, trade, opportunity, peace. Compare Imperial rule to what is happening right now. Is the world more peaceful since the revolution? I see nothing but death and chaos. - The Client
