@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 18:50:03
-Random Quote: I asked him why he kept her close, if he thought her so grotesque.  He said that all his other knights wanted things of him, castles or honors or riches, but all that Brienne wanted was to die for him.  -  Loras Tyrell
+Last updated: 2024-04-13 18:51:10
+Random Quote: I'm the Homelander. And I can do whatever the f-ck I want. - Homelander
