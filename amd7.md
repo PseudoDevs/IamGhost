@@ -1,4 +1,2 @@
-Last updated: 2024-04-13 18:38:57
-Random Quote: Jimmy: "I can't believe Wanda and Vision are having a baby."
-Darcy Lewis: "You want any?"
-Jimmy: "Heck, I thought about it for sure. A little Jimmy Woo. Get him a tiny little FBI badge... oh, you... chip? Sure." - Jimmy Woo
+Last updated: 2024-04-13 18:39:33
+Random Quote: The gods be damned.  It was a hollow victory they gave me.  A crown... it was the girl I prayed them for.  Your sister, safe... and mine again, as she was meant to be.  I ask you, Need, what good is it to wear a crown?  The gods mock the prayers of kings and cowherds alike.  -  Robert Baratheon
