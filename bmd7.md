@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 10:38:41
-Random Quote: Elia Martell, Princess of Dorne.  You raped her!  You murdered her!  You killed her children!  -  Oberyn Martell
+Last updated: 2024-04-13 10:39:54
+Random Quote: When I get sad, I stop being sad and be awesome instead. True Story. - Barney Stinson
