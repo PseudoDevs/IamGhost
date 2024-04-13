@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 17:58:32
-Random Quote: Until the Mountain crushed my brother's skull, no Dornishmen had died in this War of the Five Kings.  Tell me, Captain, is that my shame or my glory?  -  Doran Martell
+Last updated: 2024-04-13 17:59:43
+Random Quote: Barney: "Looks like that bee got busy."Ted: "Looks like that French maid didn't turn down somebody's bed."Marshall: "Oh, looks like Pocahontas has a couple of wounded knees." - Marshall Eriksen
