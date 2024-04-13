@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 17:51:30
-Random Quote: My son lies here broken and dying, Luwin, and you wish to discuss a new master of horse?  Do you think I care what happens in the stables?  Do you think it matters to me one whit?  I would gladly butcher every horse in Winterfell with my own hands if it would open Bran's eyes, do you understand that?  Do you?  -  Catelyn Stark
+Last updated: 2024-04-13 17:52:05
+Random Quote: I was in the desert. But if visiting the sands were a crime, the line of sinners would be longer than the Nile. - Arthur Harrow
