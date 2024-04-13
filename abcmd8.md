@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 17:00:36
-Random Quote: Death can be the greatest opportunity of your life. - Berlin
+Last updated: 2024-04-13 17:01:45
+Random Quote: In King's Landing, there are two sorts of people.  The players and the pieces.  -  Petyr Baelish
