@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 19:03:14
-Random Quote: Every journey has a beginning. But change one step along the way, and you could end up at a very different destination. - The Watcher
+Last updated: 2024-04-13 19:03:47
+Random Quote: The more you move up in the world, the more enemies you make. - Rue Bennett
