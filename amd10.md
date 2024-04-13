@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 17:03:35
-Random Quote: I knew quite a few Jedi, you know. I don't know what they taught you about us, but there was a time we actually got along quite well. Fought side by side. - Bo-Katan
+Last updated: 2024-04-13 17:04:41
+Random Quote: We go home with an army, sweet sister.  With Khal Drogo's army, that is how we go home.  And if you must wed him and bed him for that, you will.  I'd let his whole khalasar fuck you if need be, sweet sister, all forty thousand men, and their horses too if that was what it took to get my army.  -  Viserys Targaryen
