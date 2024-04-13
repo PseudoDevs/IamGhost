@@ -1,4 +1,2 @@
-Last updated: 2024-04-13 10:34:52
-Random Quote: Greef: "Be careful, my friend. They've got you outnumbered ten to one."
-Din: "I like these odds."
-Greef: "I bet you do." - Greef Karga
+Last updated: 2024-04-13 10:35:30
+Random Quote: One minute we're just laying into each other, and then the next minute... well, same thing. - Ted Mosby
