@@ -1,2 +1,3 @@
-Last updated: 2024-04-13 10:46:11
-Random Quote: The baby slide right out, huh? It's like a 'whoosh', like a waterslide. [Lily screaming] Slightly painful waterslide. - Dr. Sonya
+Last updated: 2024-04-13 10:46:47
+Random Quote: Doctor: "Hypothetically speaking, every new father-to-be get nervous."
+Vision: "Well, I have nerves of steel, so there goes your theory, Mr. Doctor." - Vision
