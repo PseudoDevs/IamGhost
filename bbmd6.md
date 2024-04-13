@@ -1,2 +1,4 @@
-Last updated: 2024-04-13 18:32:25
-Random Quote: Everything will be okay in the end. If it's not okay, it's not the end. - Yuk Je
+Last updated: 2024-04-13 18:33:00
+Random Quote: Greef: "Nevarro is a very fine planet. And now that the scum and villainy have been washed away, it's very respectable again."
+Mando: "As a bounty hunter hive?"
+Greef: "Some of my favorite people are bounty hunters." - Greef Karga
