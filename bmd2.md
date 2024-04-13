@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 10:41:49
-Random Quote: Marshall: "Excuse me, miss. When you get a chance, could you bring over a hundred shots of tequila please?"Barney: "I'll have the same." - Marshall Eriksen
+Last updated: 2024-04-13 10:42:26
+Random Quote: I did it for me. I liked it. I was good at it. And I was really... I was alive. - Walter White
