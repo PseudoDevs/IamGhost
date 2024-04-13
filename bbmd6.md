@@ -1,4 +1,2 @@
-Last updated: 2024-04-13 19:01:49
-Random Quote: Oh Il-nam: "As a kid, I'm willing to bet you got spanked a lot."
-Seong Gi-hun: "How did you know?"
-Oh Il-nam: "My son did too. He was just like you, friend." - Oh Il-nam
+Last updated: 2024-04-13 19:02:22
+Random Quote: Sometimes it just feels better not to talk. At All. About Anything. To Anyone. - Walter White
