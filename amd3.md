@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 16:56:28
-Random Quote: Red Rahloo means nothing here  You will only make the old gods angry.  They are watching from their island.  -  Hugo Wull
+Last updated: 2024-04-13 16:57:02
+Random Quote: All the tales agreed that the green men had strange magic powers.  Maybe they could help him walk again, even turn him into a knight.  They turned the little crannogman into a knight, even if it was only for a day, he thought.  A day would be enough.  -  Bran Stark
