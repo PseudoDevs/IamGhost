@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 10:13:22
-Random Quote: If we're together long enough I hope that one day you see yourself like I do. - Kevin
+Last updated: 2024-04-13 10:13:58
+Random Quote: Sorry, got caught up again. God, do I need to take more Adderall or am I taking too much Adderall? - Rick Sanchez
