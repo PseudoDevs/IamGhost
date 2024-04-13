@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 18:21:59
-Random Quote: Catelyn would sooner Lord Umber had seen fit to stay sober, but telling the Greatjon not to drink was like telling him not to breathe for a few hours.  -  Catelyn Stark
+Last updated: 2024-04-13 18:22:33
+Random Quote: Among all the games that kids played back then, it was the most physical and violent. - Seong Gi-hun
