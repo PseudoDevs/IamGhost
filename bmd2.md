@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 18:16:46
-Random Quote: Only their shadows, One most of all.  A tall and twisted thing with one black eye and ten long arms, sailing on a sea of blood.  -  Moqorro
+Last updated: 2024-04-13 18:17:19
+Random Quote: Barney: "Our wedding is gonna be legendary."Robin: "No wait for it?"Barney: "I've got you, I don't have to wait for it anymore." - Barney Stinson
