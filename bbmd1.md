@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 17:18:29
-Random Quote: I understand that if any more words come pouring out of your cunt mouth I'm going to have to eat every fucking chicken in this room.  -  Sandor Clegane
+Last updated: 2024-04-13 17:19:06
+Random Quote: I pray for a glimpse of Azor Ahai, and R'hllor shows me only Snow.  -  Melisandre
