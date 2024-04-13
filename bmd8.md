@@ -1,3 +1,2 @@
-Last updated: 2024-04-13 10:10:32
-Random Quote: Bro, bro, bro your broat, gently to the bar
-Hit on sluts, then do ten shots and... - Barney Stinson
+Last updated: 2024-04-13 10:11:05
+Random Quote: I've had shits that I've liked better than Walder Frey.  -  Brynden Tully

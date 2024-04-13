@@ -1,4 +1,2 @@
-Last updated: 2024-04-13 10:10:32
-Random Quote: Ellie: "Can I have a gun?"
-Joel: "Absolutely not."
-Ellie: "Okay, Jesus. Fine. I'll have to throw a f-ckin' sandwich at them." - Ellie Williams
+Last updated: 2024-04-13 10:11:05
+Random Quote: You're gonna get endless requests to play some game, that has something to do with gangsters and farming! - Marshall Eriksen
