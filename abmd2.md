@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 18:14:06
-Random Quote: I don't bring lunch on Tuesdays. It's square pizza day. - Devi Vishwakumar
+Last updated: 2024-04-13 18:14:39
+Random Quote: The longer Cersei waits, the angrier she'll become, and anger makes her stupid.  I much prefer angry and stupid to composed and cunning.  -  Tyrion Lannister
