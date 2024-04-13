@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 10:16:57
-Random Quote: When you date someone, it's like you're taking one long course in who that person is and then, when you break up, all that stuff becomes useless. It's the emotional equivalent of an English degree... - Ted Mosby
+Last updated: 2024-04-13 10:18:08
+Random Quote: The Citadel took my chain, but they could not take my knowledge.  -  Qyburn
