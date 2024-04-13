@@ -1,3 +1,4 @@
-Last updated: 2024-04-13 10:32:03
-Random Quote: Lily: "Swear on the lifes of your unborn boy and girl!"
-Ted: "I swear... on Luke and Leia!" - Ted Mosby
+Last updated: 2024-04-13 10:32:36
+Random Quote: Lorna Morello: "I need to start tightening up. You're making me feel like a cave."
+Nicky Nichols: "Baby, it's a c-nt, it stretches!"
+Lorna Morello: "Yeah, sometimes I feel like you're trying to climb inside my womb." - Lorna Morello
