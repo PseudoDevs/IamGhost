@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 17:39:47
-Random Quote: You two suck at peddling meth. - Saul Goodman
+Last updated: 2024-04-13 17:40:20
+Random Quote: So I will only ask you once, Lord Snow.  Are you a brother of the Night's Watch, or a bastard boy who wants to play at war?  -  Jeor Mormont
