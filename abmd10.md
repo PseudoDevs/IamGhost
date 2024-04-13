@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 17:52:17
-Random Quote: Barney: "This is one of those things you have to do before you turn 30."Ted: "Sleep with a prostitute?!"Barney: "No, lose your virginity!... What up?" - Barney Stinson
+Last updated: 2024-04-13 17:52:50
+Random Quote: I think mothers and fathers made up the gods because they wanted their children to sleep through the night.  -  Davos Seaworth
