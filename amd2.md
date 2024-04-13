@@ -1,3 +1,2 @@
-Last updated: 2024-04-13 17:11:31
-Random Quote: Stark: "Can I give you a piece of advice?"
-Carter: "I'd rather you didn't." - Peggy Carter
+Last updated: 2024-04-13 17:12:04
+Random Quote: I want you to allow yourself to aknowledge the pain that you so clearly feel. - Fabiola Torres

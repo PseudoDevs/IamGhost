@@ -1,4 +1,2 @@
-Last updated: 2024-04-13 17:11:31
-Random Quote: Jimmy: "I can't believe Wanda and Vision are having a baby."
-Darcy Lewis: "You want any?"
-Jimmy: "Heck, I thought about it for sure. A little Jimmy Woo. Get him a tiny little FBI badge... oh, you... chip? Sure." - Jimmy Woo
+Last updated: 2024-04-13 17:12:04
+Random Quote: You have courage.  Not battle courage perhaps but... I don't know... a kind of woman's courage.  -  Brienne of Tarth
