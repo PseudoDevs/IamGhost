@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 18:24:57
-Random Quote: We all have things we keep hidden. Sometimes, keeping secrets is how you survive. Because in High School, one rumor, one picture, one incident, can define you forever. - Hannah Baker
+Last updated: 2024-04-13 18:25:30
+Random Quote: I'm only nine years oldMost evil doesn't start till puberty. - Sheldon
