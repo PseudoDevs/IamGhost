@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 18:15:31
-Random Quote: Speak into the mic, bitch. - Jesse Pinkman
+Last updated: 2024-04-13 18:17:53
+Random Quote: Don't believe everything you hear. Our enemies want to separate us. But Mandalorians are stronger together. - Bo-Katan
