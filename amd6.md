@@ -1,3 +1,2 @@
-Last updated: 2024-04-13 17:52:41
-Random Quote: "Crutch down and bend over a little bit."
-Barney: "Wow, It took five shots of tequila to have you in that position." - Barney Stinson
+Last updated: 2024-04-13 17:53:16
+Random Quote: I'm KFC baby - you don't mess with the Colonel's recipe! - Barney Stinson

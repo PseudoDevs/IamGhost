@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 17:52:41
-Random Quote: She don't speak.  You bloody bastards cut her throat too deep for that.  But she remembers.  -  Lem Lemoncloack
+Last updated: 2024-04-13 17:53:16
+Random Quote: All I know is, he's not in the same grade as me anymoreAnd I'm thrilled. - Missy
