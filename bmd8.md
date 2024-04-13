@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 19:04:20
-Random Quote: A good lord comforts and protects the weak and helpless.  -  Maester Luwin
+Last updated: 2024-04-13 19:04:53
+Random Quote: I swear on my name. And the names of the Ancestors, that I shall walk the way of the Mand'alor and the words of the Creed shall be forever forged in my heart. - Din Djarin
