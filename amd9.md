@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 16:55:19
-Random Quote: Quentyn had never felt so much a boy as when he'd stood before Daenerys Targaryen, pleading for her hand.  The thought of bedding her terrified him almost as much as her dragons had.  -  Quentyn Martell
+Last updated: 2024-04-13 16:55:54
+Random Quote: Sometimes distance is the only way to find peace. So you can heal your wound. - Berlin
