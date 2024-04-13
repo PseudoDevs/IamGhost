@@ -1,3 +1,2 @@
-Last updated: 2024-04-12 07:30:14
-Random Quote: Steven Grant: "I'm not trying to slag off marketing, but there's been a major blunder. Because they've got seven gods here, and the Ennead has nine."
-Donna: "I fired two of them for bein' late. Listen, if you don't stop natterin' at me, I swear I'll shove you in a sarcophagus. You can tell the pharaoh in there what's wrong with them and all." - Arthur Harrow
+Last updated: 2024-04-13 10:06:33
+Random Quote: So many vows... they make you swear and swear.  Defend the king.  Obey the king.  Keep his secrets.  Do his bidding.  Your life for his.  But obey your father.  Love your sister.  Protect the innocent.  Defend the week.  Respect the gods.  Obey the laws.  It's too much.  No matter what you do, you're forsaking one vow for the other.  -  Jaime Lannister
