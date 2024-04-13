@@ -1,3 +1,2 @@
-Last updated: 2024-04-13 10:17:41
-Random Quote: Mi-nyeo: "Deok-su. You betray me... I'll kill you. Okay?"
-Deok-su: "You're the reason that I think I might die tonight." - Jang Deok-su
+Last updated: 2024-04-13 10:18:14
+Random Quote: Yeah, bitch! Magnets! - Jesse Pinkman
