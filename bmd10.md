@@ -1,2 +1,4 @@
-Last updated: 2024-04-13 16:54:21
-Random Quote: They say the king loved to hunt.  The things we love destroy us every time, lad.  Remember that.  -  Jeor Mormont
+Last updated: 2024-04-13 16:54:55
+Random Quote: Ted: "Okay, time to get the horn back to the bistro."
+Robin: "Oh Ted, I don't know if I can go again, that tuckered me out."
+Ted: "No euphemism." - Robin Scherbatsky
