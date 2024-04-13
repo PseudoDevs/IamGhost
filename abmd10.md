@@ -1,4 +1,2 @@
-Last updated: 2024-04-13 10:21:56
-Random Quote: Ted: "Okay, time to get the horn back to the bistro."
-Robin: "Oh Ted, I don't know if I can go again, that tuckered me out."
-Ted: "No euphemism." - Robin Scherbatsky
+Last updated: 2024-04-13 10:23:15
+Random Quote: Shelly, remember when you thought you had leprosy, and it was just a patch of dry skin? - Mary

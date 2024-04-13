@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 10:20:41
-Random Quote: You don't get to tell me what to look at, I've seen your Pornhub account! Also, who makes a Pornhub account? - Rick Sanchez
+Last updated: 2024-04-13 10:23:15
+Random Quote: There are moments when we must understand that the decisions we make influence more than just our own fates. - 
