@@ -1,2 +1,5 @@
-Last updated: 2024-04-13 18:30:06
-Random Quote: But every now and then it’s good to question those who question things. - Noah
+Last updated: 2024-04-13 18:31:15
+Random Quote: Abby: "Do we have to go back this way?"
+Owen: "Consider it an opportunity to work on your fears."
+Abby: "How about I work my foot up your ass?"
+Owen: "Abby, stop flirting!" - Joel Miller
