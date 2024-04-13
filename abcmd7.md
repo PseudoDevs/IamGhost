@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 18:21:02
-Random Quote: Dead people are notoriously bad at returning calls. - Wednesday Addams
+Last updated: 2024-04-13 18:21:35
+Random Quote: I will not be remembered as Set Arys the Unworthy.  I will not soil my cloak.  -  Arys Oakheart
