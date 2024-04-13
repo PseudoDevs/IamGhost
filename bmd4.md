@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 17:59:33
-Random Quote: In the end, one cares about many things, and we should not give so much importance to things. - Professor
+Last updated: 2024-04-13 18:00:06
+Random Quote: People are oblivious to reality. They only see what they want to see, when all they have to do is shift their perspective to see the full scope of things. - Yuk Je
