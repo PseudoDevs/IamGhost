@@ -1,2 +1,5 @@
-Last updated: 2024-04-13 17:32:07
-Random Quote: Who knows more of gods than I?  Horse gods and fire gods, gods made of gold with gemstone eyes, gods carved of cedar wood, gods chiseled into mountains, gods of empty air... I know them all.  I have seen their peoples garland them with flowers, and shed the blood of goats and bulls and children in their names.  And I have heard the prayers, in half a hundred tongues.  Cure my withered leg, make the maiden love me, grant me a healthy son.  Save me, succor me, make me walthy... protect me!  Protect me from mine enemies, protect me from the darkness, protect me from the crabs inside my belly, from the horselords, from the slavers, from the sellswords at my door.  Protect me from the Silence.  Godless?  Why, Aeron, I am the godliest man ever to raise sail!  You serve one god, Damphair, but I have served ten thousand.  From Ib to Asshai, when men see my sails, they pray.  -  Euron Greyjoy
+Last updated: 2024-04-13 17:32:40
+Random Quote: Barney: "You can't spell 'game' without 'me' and 'me' has the best game."
+Ted: "Yeah well, I got so much game, I'm Cornish game hen."
+Barney: "Oh, yeah? I'm the New York State gaming commissioner."
+Ted: "Well, I'm The Game. Well-crafted, keep-you-guessing thriller starring Michael Douglas and Sean Penn." - Ted Mosby
