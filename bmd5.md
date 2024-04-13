@@ -1,2 +1,3 @@
-Last updated: 2024-04-13 10:14:27
-Random Quote: If you had to fall into a woman's arms, my son, why couldn't they have been Margaery Tyrell's?  -  Catelyn Stark
+Last updated: 2024-04-13 10:15:00
+Random Quote: Sam: "How do you know about Gandalf?"
+Bucky: "I read 'The Hobbit' in 1937, when it first came out." - Bucky Barnes
