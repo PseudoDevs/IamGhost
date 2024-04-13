@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 18:52:51
-Random Quote: Morty, he's not gonna donate. You're pitching the police men's ball to a black teenager here. - Rick Sanchez
+Last updated: 2024-04-13 18:54:32
+Random Quote: Until the Mountain crushed my brother's skull, no Dornishmen had died in this War of the Five Kings.  Tell me, Captain, is that my shame or my glory?  -  Doran Martell
