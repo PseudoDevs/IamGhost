@@ -1,3 +1,2 @@
-Last updated: 2024-04-13 18:04:56
-Random Quote: "Crutch down and bend over a little bit."
-Barney: "Wow, It took five shots of tequila to have you in that position." - Barney Stinson
+Last updated: 2024-04-13 18:05:32
+Random Quote: So how do you take down a crook who's at the top of his game? Who has every cop in town in his pocket? Well, you hold your breath and you hope you get lucky. - Walt Breslin
