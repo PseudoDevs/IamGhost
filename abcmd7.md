@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 17:19:47
-Random Quote: If ever a man deserved to die screaming, it was Gregor Clegane.  -  Doran Martell
+Last updated: 2024-04-13 17:20:23
+Random Quote: When dead men come hunting us in the night, do you think it matters who sits the Iron Throne?  -  Jeor Mormont
