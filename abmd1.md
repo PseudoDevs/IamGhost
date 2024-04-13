@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 10:47:40
-Random Quote: Ted: "Cleveland sports are still relevant! 'LeBron who?' Right, guys?"Barney: "Ted, neither you, nor Cleveland knows how to get over someone leaving them." - Barney Stinson
+Last updated: 2024-04-13 10:48:13
+Random Quote: Lily: "Ted, you did this all yourself?"Ted: "Just like Ryan Gosling in 'The Notebook'. It was pretty manly 'til I mentioned Ryan Gosling in 'The Notebook', huh?" - Ted Mosby
