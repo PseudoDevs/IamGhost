@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 10:20:49
-Random Quote: Sex now, we'll do the foreplay after. - Lily Aldrin
+Last updated: 2024-04-13 10:21:22
+Random Quote: Here's the secret, kids: none of us can vow to be perfect. In the end, all we can do is promise to love each other with everything we've got. Because love's the best thing we do. - Ted Mosby
