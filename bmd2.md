@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 18:28:21
-Random Quote: Edric Storm, they call him.  He is said to be the very image of my brother.  If men were to see him, and then look again at Joffrey and Tommen, they could not help but wonder, I would think.  -  Stannis Baratheon
+Last updated: 2024-04-13 18:29:31
+Random Quote: You see, ladies? When you're out with a Blinder, you don't have to queue. - Arthur Shelby
