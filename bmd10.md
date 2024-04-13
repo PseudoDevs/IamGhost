@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 17:41:50
-Random Quote: We can only die.  Why else do we don these black cloaks, but to die in defense of the realm?  -  Qhorin Halfhand
+Last updated: 2024-04-13 17:42:26
+Random Quote: There's proving and there's knowing. -  Bill Oakley
