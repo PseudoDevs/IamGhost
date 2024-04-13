@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 18:22:41
-Random Quote: Why should I go running to my aunt as if I were a beggar?  My claim is better than her own.  Let her come to me... in Westeros.  -  Aegon Targaryen
+Last updated: 2024-04-13 18:23:14
+Random Quote: Everyone pretend podcasting isn't boring! - Rick Sanchez
