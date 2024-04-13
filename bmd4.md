@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 17:35:57
-Random Quote: A family is like a small business. And with a small business, at times, there comes a bit of transition. - Marty Byrde
+Last updated: 2024-04-13 17:36:30
+Random Quote: Take the foundling to the city of Calodan on the forest planet Corvus. There, you will find Ahsoka Tano. Tell her you were sent by Bo-Katan. - Bo-Katan
