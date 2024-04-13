@@ -1,5 +1,2 @@
-Last updated: 2024-04-13 18:59:55
-Random Quote: Marshall: "What the hell happened?"
-Barney: "I said no questions asked."
-Marshall: "Star, clover, horseshoe... Barney, did you swallow real versions of all the Lucky Charms items?"
-Barney: "No questions asked! Now come on. Let's hit the bar. I'm buying. I just won 50 bucks from a little Irish guy on a dare." - Barney Stinson
+Last updated: 2024-04-13 19:00:28
+Random Quote: In my town, we had a game called the "Squid Game". We called it that because it's played in a court shaped like a squid. The rules are simple. Children are divided into two groups, the offense and the defense. Once the game starts, the defense can run around on two feet within bounds, while the offense outside the lines are only allowed to hop on one foot. But if an attacker cuts through the waist of the squid passing defense, then they are given freedom to use both feet. Inspector royal. For whatever reason we called that the inspector royal. In order to win, the attackers must tap the small closed-off space on the squid's head with their foot. But if someone on the defense manages to push you outside of the squid's boundaries, you die. Once you tap the squid's head, you win and yell out, "Victory". At that moment, I felt as if I owned the entire world, exhilarated. - Seong Gi-hun
