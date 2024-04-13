@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 18:05:17
-Random Quote: You gotta move...The fuck...On! - Gloria Mendoza
+Last updated: 2024-04-13 18:06:23
+Random Quote: Marshall: "The tiniest little burger joint you ever saw. Tucked between a taxidermist and a XXX bookstore."Barney: "Name two places where things get stuffed." - Barney Stinson
