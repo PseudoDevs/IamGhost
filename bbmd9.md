@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 17:44:36
-Random Quote: You have to be as bad as them above in order to survive. - Polly Gray
+Last updated: 2024-04-13 17:45:09
+Random Quote: The Empire improves every system it touches. Judge by any metric: safety, prosperity, trade, opportunity, peace. Compare Imperial rule to what is happening right now. Is the world more peaceful since the revolution? I see nothing but death and chaos. - The Client
