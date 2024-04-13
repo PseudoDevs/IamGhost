@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 17:02:19
-Random Quote: (Love is) pain, horrible pain, that you want again and again. - Sophia Burset
+Last updated: 2024-04-13 17:02:53
+Random Quote: Ted: "You're not gonna do it at your wedding?"Lily: "Hell, yeah! I'm gonna take that flower-grenade and chuck it to the crowd and scream, 'Crawl for it, bitches!'" - Lily Aldrin
