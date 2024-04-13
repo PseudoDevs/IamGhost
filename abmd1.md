@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 17:57:05
-Random Quote: I drank when I was pregnant with you, you turned out fine. There's everybody saying 'don't drink, don't smoke'. I swear - Texas is turning into California. - Meemaw
+Last updated: 2024-04-13 17:57:38
+Random Quote: He would see this country burn if he could be king of the ashes.  -  Varys
