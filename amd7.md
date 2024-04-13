@@ -1,3 +1,2 @@
-Last updated: 2024-04-13 18:42:31
-Random Quote: What do you call a fish with no eyes?
-Fsh. - Marshall Eriksen
+Last updated: 2024-04-13 18:43:05
+Random Quote: You're wrong.  Need Stark was my gaoler, but my blood is still salt and iron.  -  Theon Greyjoy
