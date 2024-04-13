@@ -1,3 +1,2 @@
-Last updated: 2024-04-13 10:25:57
-Random Quote: Morty: "You're really this pissed about my mum making sure I'm okay with our adventures?"
-Rick: "What's next, Morty? What if I want you to jump off the Empire State Building? I have to ask?" - Rick Sanchez
+Last updated: 2024-04-13 10:26:34
+Random Quote: Among all the games that kids played back then, it was the most physical and violent. - Seong Gi-hun
