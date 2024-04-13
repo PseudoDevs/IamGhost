@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 10:14:13
-Random Quote: I never asked for this, no more than I asked to be king.  Yet dare I disregard her?  We do not choose our destinies.  Yet we must... we must do our duty, no?  Great or small, we must do our duty.  -  Stannis Baratheon
+Last updated: 2024-04-13 10:14:46
+Random Quote: Everyone sounds like Meryl Streep with a gun to their head. - Mike Ehrmantraut
