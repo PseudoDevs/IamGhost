@@ -1,3 +1,2 @@
-Last updated: 2024-04-13 10:28:28
-Random Quote: Doctor: "Hypothetically speaking, every new father-to-be get nervous."
-Vision: "Well, I have nerves of steel, so there goes your theory, Mr. Doctor." - Vision
+Last updated: 2024-04-13 10:34:50
+Random Quote: I've had shits that I've liked better than Walder Frey.  -  Brynden Tully
