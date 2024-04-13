@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 17:25:17
-Random Quote: Zoey: "Don't worry Ted, she's cute."Barney: "'Cute' means 'fat'!"Zoey: "She's not fat."Barney: "'Not fat' means 'ugly'." - Barney Stinson
+Last updated: 2024-04-13 17:26:23
+Random Quote: Men say Tywin never smiled, but he smiled when he wed your mother, and when Aerys made him Hand.  When Tarbeck Hall came crashing down on Lady Ellyn, that scheming bitch, Tyg claimed he smiled then, and he smiled at your birth, Jaime, I saw with my own eyes.  -  Genna Lannister
