@@ -1,2 +1,4 @@
-Last updated: 2024-04-13 18:31:16
-Random Quote: She had seen Bronn fight on the high road; it was no accident that he had survived the journey while other men had died.  He moved like a panther, and that ugly sword of his seemed a part of his arm.  -  Catelyn Stark
+Last updated: 2024-04-13 18:33:36
+Random Quote: It's going to be legen...
+wait for it - and I hope you're not lactose-intolerant cause the second half of that word is
+...dary! - Barney Stinson
