@@ -1,2 +1,4 @@
-Last updated: 2024-04-13 17:06:21
-Random Quote: Khaleesi, better a man should swallow scorpions than trust in the spawn of shadows, who dare not show their face beneath the sun.  It is known.  -  Rakharo
+Last updated: 2024-04-13 17:08:04
+Random Quote: Tony Stark: "Lieutenant Killmonger? What is that? German?"
+Killmonger: "A nickname."
+Tony Stark: "That's clearly a good fit." - Killmonger
