@@ -1,3 +1,2 @@
-Last updated: 2024-04-13 17:23:39
-Random Quote: Wanda: "I had a brother. His name was Pietro."
-Geraldine: "He was killed by Ultron, wasn't he?" - Monica "Geraldine" Rambeau
+Last updated: 2024-04-13 17:25:32
+Random Quote: Know the men who follow you and let them know you.  Don't ask your men to die for a stranger.  -  Eddard Stark

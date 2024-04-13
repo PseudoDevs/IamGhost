@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 17:22:21
-Random Quote: When one chooses to walk the way of the Mandalore, you are both hunter and prey. How can one be a coward if one chooses this way of life? - The Armorer
+Last updated: 2024-04-13 17:25:32
+Random Quote: Sorry buddy, wish I could help you, but my hands are tied. Oh no wait, that was last night! - Barney Stinson
