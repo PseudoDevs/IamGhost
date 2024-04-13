@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 18:36:34
-Random Quote: Robin: "What? I am not keeping Mike on a hook!"Ted: "You are Captain Hook!"Robin: "Dude, I'm a girl, ok? Our girl parts are like a spider webs; sometimes you are gonna catch stuff you don't want." - Robin Scherbatsky
+Last updated: 2024-04-13 18:37:09
+Random Quote: If we're together long enough I hope that one day you see yourself like I do. - Kevin
