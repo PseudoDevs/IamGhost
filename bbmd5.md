@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 18:39:34
-Random Quote: We are not husband and wife... anymore. We're just business partners. And our job is to raise those kids. - Marty Byrde
+Last updated: 2024-04-13 18:40:43
+Random Quote: Dragons old and young, true and false, bright and dark.  And you.  A small man with a big shadow, snarling in the midst of it all.  -  Moqorro
