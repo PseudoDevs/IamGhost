@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 18:53:57
-Random Quote: I'll have to take a page from Robert's book, not that he ever read one.  -  Stannis Baratheon
+Last updated: 2024-04-13 18:54:31
+Random Quote: The Lion does not concern itself with the opinions of sheep.  -  Tywin Lannister
