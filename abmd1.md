@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 10:46:01
-Random Quote: No man has ever died from bending his knee.  He who kneels may rise again, blade in hand.  He who will not kneel stays dead, stiff legs and all.  -  Balon Greyjoy
+Last updated: 2024-04-13 10:46:34
+Random Quote: When you spend years thinking about something obsessively, that something is your whole world, your perfect world. - Tokyo
