@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 16:59:29
-Random Quote: Ran: "We were all young, tryin' to make a name for ourselves. But runnin' with a Mandalorian, that brought us some reputation."Mayfeld: "Oh, yeah? What did he get out of it?"Ran: "I asked him that one time. You remember what you said, Mando? Target Practice." - Din Djarin
+Last updated: 2024-04-13 17:00:04
+Random Quote: The gods be damned.  It was a hollow victory they gave me.  A crown... it was the girl I prayed them for.  Your sister, safe... and mine again, as she was meant to be.  I ask you, Need, what good is it to wear a crown?  The gods mock the prayers of kings and cowherds alike.  -  Robert Baratheon
