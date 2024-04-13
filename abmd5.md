@@ -1,2 +1,6 @@
-Last updated: 2024-04-13 17:04:49
-Random Quote: What I find interesting, is how so many supervillains are scientistsIf the world doesn't respect me, I might change sides. - Sheldon
+Last updated: 2024-04-13 17:05:23
+Random Quote: Polly: "Six."
+John: "Six what?"
+Polly: "Six questions since you walked through that door. Soon you'll have to start being the man with the answers."
+John: "Why?"
+Polly: "Seven." - Polly Gray
