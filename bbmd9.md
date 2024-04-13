@@ -1,3 +1,2 @@
-Last updated: 2024-04-13 10:38:01
-Random Quote: "Crutch down and bend over a little bit."
-Barney: "Wow, It took five shots of tequila to have you in that position." - Barney Stinson
+Last updated: 2024-04-13 10:38:37
+Random Quote: When the sun has set, no candle can replace it.  -  Loras Tyrell
