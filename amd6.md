@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 18:02:49
-Random Quote: By what right does the wolf judge the lion?  -  Jaime Lannister
+Last updated: 2024-04-13 18:03:22
+Random Quote: The Stranger: We’re not free in what we do, because we’re not free in what we want. We can’t overcome what’s deep within us. - 

@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 18:02:49
-Random Quote: A good act does not wash out the bad, nor a bad act the good.  Each should have its own reward.  -  Stannis Baratheon
+Last updated: 2024-04-13 18:03:22
+Random Quote: Robert wanted smiles and cheers, always, so he went where he found them, to his friends and his whores.  Robert wanted to be loved.  My brother Tyrion has the same disease.  -  Cersei Lannister
