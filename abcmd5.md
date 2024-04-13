@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 18:40:25
-Random Quote: I'm not surviving, I'm just existing. - Brook Soso
+Last updated: 2024-04-13 18:40:59
+Random Quote: All men are fools, if truth be told, but the ones in motley are more amusing than the ones with crowns.  -  Olenna Tyrell
