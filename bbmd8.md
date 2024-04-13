@@ -1,2 +1,3 @@
-Last updated: 2024-04-13 17:01:13
-Random Quote: You want to dismantle an empire? Divide it! - Guillermo Gonzalez Calderoni
+Last updated: 2024-04-13 17:01:47
+Random Quote: George: "I love what you done with the place. Did you do it yourself, or did you get some pouf to help ya?"
+Rebecca: "I could ask the same of your hair." - Rebecca Welton
