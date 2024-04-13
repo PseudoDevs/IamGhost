@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 10:41:48
-Random Quote: At first, these keys were fun, but now we know they're more than that. They're important. They're part of our family and we need to protect them. - Bode Locke
+Last updated: 2024-04-13 10:42:26
+Random Quote: No, only a boy who dreams.  The greenseers were more than that.  They were wargs as well, as you are, and the greatest of them could wear the skins of any beast that flies or swims or crawls, and could look through the eyes of the weirwoods as well, and see the truth that lies beneath the world.  -  Jojen Reed
