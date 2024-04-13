@@ -1,3 +1,4 @@
-Last updated: 2024-04-13 18:30:56
-Random Quote: Robin: "I can't believe my great grandparents still do that."
-Barney: "And I never imagined a walker being used for anything other than walking." - Barney Stinson
+Last updated: 2024-04-13 18:31:29
+Random Quote: Oh Il-nam: "As a kid, I'm willing to bet you got spanked a lot."
+Seong Gi-hun: "How did you know?"
+Oh Il-nam: "My son did too. He was just like you, friend." - Oh Il-nam
