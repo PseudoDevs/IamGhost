@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 17:44:41
-Random Quote: Our power comes from the perception of our power. - Mikhail Gorbachev
+Last updated: 2024-04-13 17:45:14
+Random Quote: You want to rule?  This is what ruling is; lying on a bed of weeds, ripping them out by the root, one by one, before they strangle you in your sleep.  -  Cersei Lannister
