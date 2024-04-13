@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 18:24:53
-Random Quote: The truth is always there, whether we see it or not - whether we choose to or not. The truth doesn't care about our needs or wants. It doesn't care about our governments, our ideologies, our religions. - Valery Legasov
+Last updated: 2024-04-13 18:27:12
+Random Quote: Some people wander around their whole lives looking for a way out, but there’s only one path and it leads you ever deeper. - 
