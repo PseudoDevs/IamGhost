@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 10:07:03
-Random Quote: The Lord of Light cherishes the innocent.  There is no sacrifice more precious.  From his king's blood and his untainted fire, a dragon shall be born.  -  Melisandre
+Last updated: 2024-04-13 10:07:36
+Random Quote: A lie is just a great story that someone ruined with the truth. - Barney Stinson
