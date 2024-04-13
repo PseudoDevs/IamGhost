@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 18:38:23
-Random Quote: Minds are like swords, I do fear.  The old ones go to rust.  -  Grand Maester Pycelle
+Last updated: 2024-04-13 18:40:08
+Random Quote: Is it your fault that Bronn's an insolent black - hearted rogue?  He's always been an insolent black

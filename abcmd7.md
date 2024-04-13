@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 18:39:34
-Random Quote: Now my bastards presume to teach me courtesy.  I'll speak any way I like, damn you.  I've had three kings to guest in my life, and queens as well, do you think I require lessons from the likes of you, Ryger?  Your mother was milking goats the first time I gave her my seed.  -  Walder Frey
+Last updated: 2024-04-13 18:40:08
+Random Quote: Ted, you know who's a million times hotter than the hottest girl I've ever slept with? Her okay-looking friend I haven't seen naked. Why? Because new is always better. - Barney Stinson
