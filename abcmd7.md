@@ -1,2 +1,2 @@
-Last updated: 2024-04-12 07:30:06
-Random Quote: Robin: "That was not cool, Ted."Lily: "Contraction!"Robin: "That wasn't cool, Ted?" - Robin Scherbatsky
+Last updated: 2024-04-13 10:06:33
+Random Quote: Bronn was no knight, that was true.  Bronn was a battle - hardened killer. 
