@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 17:29:58
-Random Quote: When the snows fall and the white winds blow, the lone wolf dies, but the pack survives.  -  Eddard Stark
+Last updated: 2024-04-13 17:30:31
+Random Quote: The "no more surprises"-thing is the best part of being married. - Lily Aldrin
