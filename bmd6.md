@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 10:21:22
-Random Quote: Marshall: "Let the dinnertainment begin!"Barney: "That reminds me there's this other restaurant we should try sometime. What they do is, they cook you a meal, in a little room called a 'kitchen'." - Barney Stinson
+Last updated: 2024-04-13 10:21:58
+Random Quote: Look, if Michael Jordan's healthy, you don't let Scottie Pippen run the offense. Oh, you're from Canada, right. If Wayne Gretzky's healthy, you don't let François... what I'm saying is: hockey is stupid and I'm point guy! - Barney Stinson
