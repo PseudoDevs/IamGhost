@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 17:03:54
-Random Quote: Well, I think that... when you have a connection with someone, it never really goes away, you know? - Alex Vause
+Last updated: 2024-04-13 17:04:27
+Random Quote: Yes, it's you who ought to run, you and Lord Tywin and the Mountain and Set Addam and Set Amory and stupid Set Lyonel whoever he is, all of you better run or my brother will kill you, he's a Stark, he's more wolf than man, and so am I.  -  Arya Stark
