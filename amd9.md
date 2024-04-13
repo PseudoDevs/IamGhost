@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 18:49:29
-Random Quote: I'm just here to lend a helping hand, you know, make sure the business is running in order. I got a good head for numbers. But listen, don't even worry. It's gonna be like I'm not even here. - Lalo Salamanca
+Last updated: 2024-04-13 18:50:03
+Random Quote: Shagg, son of Dolf will chop off their manhoods and feed them to the crows.  -  Shagga, son of Dolf
