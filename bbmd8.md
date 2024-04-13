@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 16:57:45
-Random Quote: I'm KFC baby - you don't mess with the Colonel's recipe! - Barney Stinson
+Last updated: 2024-04-13 16:58:18
+Random Quote: Always keep your foes confused.  If they are never certain who you are or what you want, they cannot know what you are like to do next.  Sometimes the best way to baffle them is to make moves that have no purpose, or even seem to work against you.  Remember that, Sansa, when you come to play the game.  -  Petyr Baelish
