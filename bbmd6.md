@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 18:41:47
-Random Quote: A queen must listen to all.  The highborn and the low, the strong and the weak, the noble and the venal.  One voice may speak you false, but in many there is always truth to be found.  -  Daenerys Targaryen
+Last updated: 2024-04-13 18:42:53
+Random Quote: No man has ever died from bending his knee.  He who kneels may rise again, blade in hand.  He who will not kneel stays dead, stiff legs and all.  -  Balon Greyjoy
