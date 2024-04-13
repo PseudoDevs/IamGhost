@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 17:12:41
-Random Quote: Place was overrun with rats when we moved in.  The spearwives killed the nasty buggers.  Now the place is overrun with spearwives.  There's days I want the rats back.  -  Dolorous Edd Tollett
+Last updated: 2024-04-13 17:13:14
+Random Quote: You don't get to blame your problems on anyone but yourself. - Allison Hargreeves
