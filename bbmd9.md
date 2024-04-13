@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 17:23:38
-Random Quote: Death is always inevitable. destiny is nothing but the connection between cause and effect. In light, in shadow. - 
+Last updated: 2024-04-13 17:24:16
+Random Quote: New York! Home of the Mets, the Chrysler Building, those ladies from Sex and the City and now, the zombie apocalypse. If you can make it here, you can make it anywhere - but first, you have to not get eaten. - Spider-Man
