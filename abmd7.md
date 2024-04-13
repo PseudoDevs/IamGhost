@@ -1,3 +1,2 @@
-Last updated: 2024-04-13 17:03:10
-Random Quote: Aimee: "Did you know you need, like, sugar and flour and an oven to bake? And you don't shove it all in, you have to follow alle these rules."
-Maeve: "Yeah, it's called a recipe." - Maeve Wiley
+Last updated: 2024-04-13 17:03:43
+Random Quote: I guess, if we're splitting hairs, then technically... there was a plurality to the times I've lied to women for sex-having-purposes. - Barney Stinson

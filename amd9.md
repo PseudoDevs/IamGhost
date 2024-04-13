@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 17:03:10
-Random Quote: Better the butcher than the meat.  All kings are butchers.  Are queens so different?  -  Daario Naharis
+Last updated: 2024-04-13 17:03:43
+Random Quote: People say Hawkins is cursed. They're not way off. - Dustin Henderson
