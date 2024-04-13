@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 18:24:17
-Random Quote: Lord Seaworth is a man of humble birth, but he reminded me of my duty, when all I could think of was my rights.  I had the cart before the horse, Davos said.  I was trying to win the throne to save the kingdom, when I should have been trying to save the kingdom to win the throne.  -  Stannis Baratheon
+Last updated: 2024-04-13 18:24:52
+Random Quote: Ted: "You're like Mary Poppins, if her magic purse was also filled with drugs."Robin: "If? Ted, the kids in that movie jumped into a painting and spent 15 minutes chasing a cartoon fox. Spoonful of sugar? Grow Up!" - Robin Scherbatsky
