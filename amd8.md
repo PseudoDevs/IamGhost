@@ -1,6 +1,2 @@
-Last updated: 2024-04-13 19:05:32
-Random Quote: Rick: "Just do a Die Hard!"
-Summer: "What does that mean?"
-Rick: "Sneak around! Use air vents! You've never seen Die Hard?"
-Summer: "I'm 17. No, I've never seen Die Hard."
-Rick: "Well, neither did the guy in Die Hard." - Rick Sanchez
+Last updated: 2024-04-13 19:06:38
+Random Quote: The longer Cersei waits, the angrier she'll become, and anger makes her stupid.  I much prefer angry and stupid to composed and cunning.  -  Tyrion Lannister
