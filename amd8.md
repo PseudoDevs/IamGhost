@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 18:45:28
-Random Quote: Minds are like swords, I do fear.  The old ones go to rust.  -  Grand Maester Pycelle
+Last updated: 2024-04-13 18:46:02
+Random Quote: This is the one that you saved? You are as its father. A clan of two. But you have removed your helmet. Then you are a Mandalorian no more. - The Armorer
