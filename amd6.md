@@ -1,3 +1,5 @@
-Last updated: 2024-04-13 17:17:52
-Random Quote: Morty: "You're really this pissed about my mum making sure I'm okay with our adventures?"
-Rick: "What's next, Morty? What if I want you to jump off the Empire State Building? I have to ask?" - Rick Sanchez
+Last updated: 2024-04-13 17:18:29
+Random Quote: Dina: "You're infuriating."
+Ellie: "Have you met you?"
+Dina: "You make me want to go back outside into that blizzard."
+Ellie: "No one is stopping you." - Joel Miller
