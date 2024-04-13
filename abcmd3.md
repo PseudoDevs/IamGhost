@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 10:42:37
-Random Quote: See, lad, that's why he's the king and I'm not.  I can outdrink, outfight, and outsing him, and my member's thrice the size o' his, but Mance has cunning.  -  Tormund Giantsbane
+Last updated: 2024-04-13 10:43:44
+Random Quote: Stella hated Star Wars! She lied to you. Search your feelings, Ted. You know it to be true! - Marshall Eriksen

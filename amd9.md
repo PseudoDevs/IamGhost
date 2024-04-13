@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 10:43:10
-Random Quote: What's the difference between peanut butter and jam?You can't peanut butter your dick up someone's ass. - Barney Stinson
+Last updated: 2024-04-13 10:43:44
+Random Quote: My father won all the battles.  He killed Prince Rhaegar and took the crown, while your father was hiding under Casterly Rock.  A strong king acts boldly, he doesn't just talk.  -  Joffrey Baratheon
