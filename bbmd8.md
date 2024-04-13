@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 10:12:16
-Random Quote: I feel like love is super dark and no one ever talks about it. - Cassie Howard
+Last updated: 2024-04-13 10:13:24
+Random Quote: Ted: "I hate how you're always right."Lily: "It's my best, and most annoying, trait." - Lily Aldrin
