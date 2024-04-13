@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 17:51:58
-Random Quote: Know the men who follow you and let them know you.  Don't ask your men to die for a stranger.  -  Eddard Stark
+Last updated: 2024-04-13 17:52:31
+Random Quote: Give me back my spear, Uncle.  Cersei sent us a head.  We should send her back a bag of them.  -  Obara Sand
