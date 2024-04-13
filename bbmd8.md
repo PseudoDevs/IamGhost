@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 10:11:09
-Random Quote: In King's Landing, there are two sorts of people.  The players and the pieces.  -  Petyr Baelish
+Last updated: 2024-04-13 10:12:16
+Random Quote: I feel like love is super dark and no one ever talks about it. - Cassie Howard
