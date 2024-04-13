@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 17:46:02
-Random Quote: Robert was never the same after he put on that crown.  Some men are like swords, made for fighting.  Hang them up and they go to rust.  -  Donal Noye
+Last updated: 2024-04-13 17:50:18
+Random Quote: I have been called many things, my lord, byt kind is seldom one of them.  -  Maester Aemon
