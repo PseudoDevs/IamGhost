@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 10:25:13
-Random Quote: Sometimes it lasts all night. And I lie here and I listen to the shovels, and the picks against that wall there. And I pray the sun will come up at the curtains before they break through. No, I don't pray. I hope. And sometimes it happens. The sun beats them. But mostly the shovels beat the sun. - Thomas Shelby
+Last updated: 2024-04-13 10:25:49
+Random Quote: I guess we all have things we try to hide. But they can't stay hidden forever. - Hannah Baker
