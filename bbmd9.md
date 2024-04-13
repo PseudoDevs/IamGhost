@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 16:55:32
-Random Quote: I could keep you safe.  They're all afraid of me.  No one would hurt you again, or I'd kill them.  -  Sandor Clegane
+Last updated: 2024-04-13 16:57:11
+Random Quote: You could turn King's Landing upside down and not find a single man with a mockingbird sewn over his heart but that does not mean I am friendless.  -  Petyr Baelish
