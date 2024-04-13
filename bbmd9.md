@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 18:50:27
-Random Quote: I don't need to be good at Math, I have beautiful hair. - Missy
+Last updated: 2024-04-13 18:51:00
+Random Quote: Oberyn wanted vengeance for Elia.  Now the three of you want vengeance for him.  I have four daughters, I remind you.  Your sisters.  My Elia is fourteen, almost a woman.  Obella is twelve, on the brink of maiden - hood.  They worship you, as Dorea and Loreza worship them.  If you should die, must El and Obella seek vengeance for you, then Dorea and Loree for them?  Is that how it goes, round and round forever?  I ask again, where does it end? 
