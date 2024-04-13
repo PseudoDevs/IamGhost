@@ -1,2 +1,3 @@
-Last updated: 2024-04-13 17:46:42
-Random Quote: I've only known one other being like this. A wise Jedi Master named Yoda. - Ahsoka Tano
+Last updated: 2024-04-13 17:47:16
+Random Quote: Ellie: "There's not gonna be anything bad in here?"
+Joel: "Just you." - Joel Miller
