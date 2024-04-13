@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 17:12:51
-Random Quote: I actually enjoyed being alone, solitude allowed me to think about important things. - Sheldon
+Last updated: 2024-04-13 17:13:25
+Random Quote: Every man's a piece to start with, and every maid as well.  Even some who think they are players.  Cersei, for one.  She thinks herself sly, but in truth she is utterly predictable.  Her strength rests on her beauty, birth, and riches.  Only the first of those is truly her own, and it will soon desert her.  I pity her then.  She wants power, but has no notion what to do with it when she gets it.  -  Petyr Baelish
