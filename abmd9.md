@@ -1,4 +1,2 @@
-Last updated: 2024-04-13 17:11:05
-Random Quote: Ted: "Okay, time to get the horn back to the bistro."
-Robin: "Oh Ted, I don't know if I can go again, that tuckered me out."
-Ted: "No euphemism." - Robin Scherbatsky
+Last updated: 2024-04-13 17:11:40
+Random Quote: Did you just bring a bomb into a hospital? - Jesse Pinkman

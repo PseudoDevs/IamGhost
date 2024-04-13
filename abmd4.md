@@ -1,2 +1,4 @@
-Last updated: 2024-04-13 17:11:05
-Random Quote: Ted, your throwing your life away. This girl is blinding you with her shiny hair and her boob-shaped boobs! - Barney Stinson
+Last updated: 2024-04-13 17:11:40
+Random Quote: Greef: "Nevarro is a very fine planet. And now that the scum and villainy have been washed away, it's very respectable again."
+Mando: "As a bounty hunter hive?"
+Greef: "Some of my favorite people are bounty hunters." - Greef Karga
