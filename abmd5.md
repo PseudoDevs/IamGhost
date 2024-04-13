@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 10:28:25
-Random Quote: The Captain: "Guess it's just you, me, and six hours in frigid international waters."Ted: "Or we could stay in dry land, hang out with some witnesses?" - Ted Mosby
+Last updated: 2024-04-13 10:28:59
+Random Quote: Edric Storm, they call him.  He is said to be the very image of my brother.  If men were to see him, and then look again at Joffrey and Tommen, they could not help but wonder, I would think.  -  Stannis Baratheon

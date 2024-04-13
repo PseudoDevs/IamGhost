@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 10:28:25
-Random Quote: I've got a new bro, a bro that puts all other bros to shame. The bitches love him. He buries bones all day. No one chases tail like him. Why aren't you guys laughing? Oh, wait, I probably should have led with this: he's a dog! I've named him Brover. - Barney Stinson
+Last updated: 2024-04-13 10:28:59
+Random Quote: A king's son, with the power of kingsblood in his veins.  Do you think you've saved this boy, Onion Knight?  When the long night falls, Edric Storm shall die with the rest, wherever he is hidden.  Your own sons as well.  Darkness and cold will cover the earth.  You meddle in matters you do not understand.  -  Melisandre
