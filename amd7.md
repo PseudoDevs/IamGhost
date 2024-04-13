@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 18:04:57
-Random Quote: Fire in the hole, bitch! - Jesse Pinkman
+Last updated: 2024-04-13 18:06:08
+Random Quote: Let them keep believing I'm dead. So much the better. It was the chicken man. That coward sat up there in the north while his paramilitaries came into my home. - Lalo Salamanca
