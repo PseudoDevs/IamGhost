@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 17:37:41
-Random Quote: Many good men have been bad kings, and some bad men have been good kings.  -  Maester Aemon
+Last updated: 2024-04-13 17:40:05
+Random Quote: Now don't be a p-ssy, laser my f-cking t-ts! - Stormfront
