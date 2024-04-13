@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 17:03:35
-Random Quote: Rick: "Hey Morty, quick favor."Morty: "What, cover me in gasoline and spiders? Fine, yeah, I'm in."Rick: "Wasn't my first pitch but hey, not gonna waste this opportunity." - Rick Sanchez
+Last updated: 2024-04-13 17:04:08
+Random Quote: I am not "with" Nora. Wrong Preposition! Later tonight I'm hoping to be "on" Nora, right? Or "under" Nora. Am I right? Or, we're all adults, so I'll just say it: "behind" Nora. - Barney Stinson
