@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 18:08:39
-Random Quote: You cannot change the nature of things. I am who I am. And you are who you are. Nothing will change that. - Ángel
+Last updated: 2024-04-13 18:09:12
+Random Quote: I've lost a hand, a father, a son, a sister, and a lover, and soon enough I will lose a brother.  And yet they keep telling me House Lannister has won this war.  -  Jaime Lannister
