@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 18:55:48
-Random Quote: In his chainmail shirt with a sword in his hand, Gendry looked almost a man grown, and dangerous.  Hot Pie looked like Hot Pie.  -  Arya Stark
+Last updated: 2024-04-13 18:56:21
+Random Quote: The "no more surprises"-thing is the best part of being married. - Lily Aldrin
