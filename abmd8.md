@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 18:51:39
-Random Quote: It's the greatest samurai, who lets his sword rust in its scabbard. - Barney Stinson
+Last updated: 2024-04-13 18:52:12
+Random Quote: They are knights now, all three, and your sister has promised them further advancement.  And the eldest, Set Osmund of the Kingsguard, dreams of certain other... favors... as well.  You can match the queen coin for coin, I have no doubt, but she has a second purse that is quite inexhaustible.  -  Varys
