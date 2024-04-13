@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 17:56:12
-Random Quote: Do you remember that cave?  We should have stayed in that cave.  I told you so.  -  Ygritte
+Last updated: 2024-04-13 17:57:58
+Random Quote: You are not the guy. You're not capable of being the guy. I had a guy but now I don't. You are not the guy. - Mike Ehrmantraut

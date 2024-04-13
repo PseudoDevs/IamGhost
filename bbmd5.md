@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 17:56:48
-Random Quote: Robin, if you asked a hundred people: "Who's the worst person you could possibly date?" They'd all say "your therapist", except the ones saying "Barney". - Ted Mosby
+Last updated: 2024-04-13 17:57:58
+Random Quote: You Westerosi are all the same.  You sew some beast upon a scrap of silk, and suddenly you are all lions or dragons or eagles.  -  Illyrio Mopatis

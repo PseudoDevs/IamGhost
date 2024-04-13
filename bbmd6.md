@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 17:57:23
-Random Quote: I love hospitals. If I could spend the rest of my life in a hospital, I would. Because when you're in a hospital, you have zero responsibilities. - Rue Bennett
+Last updated: 2024-04-13 17:57:58
+Random Quote: This is the one that you saved? You are as its father. A clan of two. But you have removed your helmet. Then you are a Mandalorian no more. - The Armorer
