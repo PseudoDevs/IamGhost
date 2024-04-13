@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 16:57:40
-Random Quote: Kill the boy, Jon Snow.  Winter is almost upon us.  Kill the boy and let the man be born.  -  Aemon Targaryen
+Last updated: 2024-04-13 16:58:14
+Random Quote: Being a Mandalorian is not just learning about how to fight. You also have to know how to navigate the Galaxy. That way you'll never be lost. - Din Djarin
