@@ -1,2 +1,3 @@
-Last updated: 2024-04-13 17:57:18
-Random Quote: Marshall: "During that time, I have been, how do I put this delicately, saving all my love for you."Lily: "I have read eleven books on conception, I have cut out alcohol, caffeine and sugar. I take my temperature every hour. But good for you for not playing with yourself!" - Lily Aldrin
+Last updated: 2024-04-13 17:57:51
+Random Quote: Jerry: "Rick! Beth! You love me after all!"
+Rick: "Eh, I love her, she loves you. Those credits don't transfer." - Rick Sanchez
