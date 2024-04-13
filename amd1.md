@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 10:15:53
-Random Quote: The less talk, the better. - Mike Ehrmantraut
+Last updated: 2024-04-13 10:16:27
+Random Quote: No one had expected the broken boy to live.  The gods could not kill Bran, no more than I could.  It was a strange thought, and stranger still to remember that Bran might still be alive.  -  Theon Greyjoy
