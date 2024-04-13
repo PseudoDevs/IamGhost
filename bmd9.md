@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 18:28:34
-Random Quote: Ran: "We were all young, tryin' to make a name for ourselves. But runnin' with a Mandalorian, that brought us some reputation."Mayfeld: "Oh, yeah? What did he get out of it?"Ran: "I asked him that one time. You remember what you said, Mando? Target Practice." - Din Djarin
+Last updated: 2024-04-13 18:29:07
+Random Quote: Always look people in the eye. Even if they're blind. Just say, 'I am looking you in the eye.' - Phil Dunphy
