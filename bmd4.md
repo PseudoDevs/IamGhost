@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 17:29:15
-Random Quote: Ted: "You always kept your toothbrush in the bedroom. Also weird, by the way."Lily: "No. We kept it in the bathroom."Ted: "No, there was only one toothbrush in the bathroom, and it was mine..." - Ted Mosby
+Last updated: 2024-04-13 17:29:51
+Random Quote: I will kill your wife, I will kill your son, I will kill your infant daughter. - Gustavo Fring
