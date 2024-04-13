@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 10:42:17
-Random Quote: I'll never find that kind of love. There's just no darkness. It's just sweet. I don't know if that would ever be enough for me. - Maddy Perez
+Last updated: 2024-04-13 10:42:50
+Random Quote: I have been called many things, my lord, byt kind is seldom one of them.  -  Maester Aemon
