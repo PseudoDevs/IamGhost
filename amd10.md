@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 10:27:49
-Random Quote: I just want to say to whoever is voting for me that I would certainly make an awful Lord Commander.  But so would all these others.  -  Dolorous Edd Tollett
+Last updated: 2024-04-13 10:28:27
+Random Quote: Did Need Stark dress you like that?  Was it his pleasure to garb you in velvets and silks and make you his own sweet daughter?  -  Balon Greyjoy
