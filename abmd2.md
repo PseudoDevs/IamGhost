@@ -1,5 +1,2 @@
-Last updated: 2024-04-13 18:51:03
-Random Quote: Abby: "Do we have to go back this way?"
-Owen: "Consider it an opportunity to work on your fears."
-Abby: "How about I work my foot up your ass?"
-Owen: "Abby, stop flirting!" - Joel Miller
+Last updated: 2024-04-13 18:51:36
+Random Quote: I'm sorry, can you repeat that? I don't speak "I-never-get-laid". - Barney Stinson
