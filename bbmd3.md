@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 10:29:59
-Random Quote: Sometimes two people in the universe who aren't meant for each other find each other. - Cal Jacobs
+Last updated: 2024-04-13 10:30:32
+Random Quote: Ran: "We were all young, tryin' to make a name for ourselves. But runnin' with a Mandalorian, that brought us some reputation."Mayfeld: "Oh, yeah? What did he get out of it?"Ran: "I asked him that one time. You remember what you said, Mando? Target Practice." - Din Djarin
