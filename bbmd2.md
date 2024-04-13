@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 18:06:09
-Random Quote: You know, it's funny. Almost every woman I've ever met was wrong to give me a chance. You're the first woman who's wrong not to. - Barney Stinson
+Last updated: 2024-04-13 18:06:44
+Random Quote: Barney: "Canada sucks."Robin: "Okay, well, you're one-quarter Canadian, so by that logic you one-quarter suck!"Barney: "I'm 100% awesome and you know it!"Robin: "Yeah, I do." - Robin Scherbatsky
