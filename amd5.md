@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 10:14:14
-Random Quote: I'm a cool dad. That's my thang. I surf the web... I text LOL - Laugh Out Loud, OMG - Oh My God, WTF - Why The Face. - Phil Dunphy
+Last updated: 2024-04-13 10:14:47
+Random Quote: Because you're so broken you don't even trust yourself. And that's scary. - Nate Jacobs
