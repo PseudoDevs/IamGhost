@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 17:01:41
-Random Quote: By "entertainment" they mean "table-shuffle-board", Makramee classes and other non-stimulating activities which are only used in Manhatten to calm down drug-addicts and the criminaly insane. - Robin Scherbatsky
+Last updated: 2024-04-13 17:02:31
+Random Quote: You give me one hour of phone-free bro time, during which we, and by we I mean you, get magnificently, mythologically drunk. I'm talking needing-subtitles-when-you-speak drunk. - Barney Stinson
