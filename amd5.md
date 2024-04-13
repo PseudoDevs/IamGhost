@@ -1,2 +1,6 @@
-Last updated: 2024-04-13 18:27:47
-Random Quote: I'm not in the meth business. I'm in the empire business. - Walter White
+Last updated: 2024-04-13 18:28:20
+Random Quote: Polly: "Six."
+John: "Six what?"
+Polly: "Six questions since you walked through that door. Soon you'll have to start being the man with the answers."
+John: "Why?"
+Polly: "Seven." - Polly Gray
