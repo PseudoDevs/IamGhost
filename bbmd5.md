@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 18:04:11
-Random Quote: What I find interesting, is how so many supervillains are scientistsIf the world doesn't respect me, I might change sides. - Sheldon
+Last updated: 2024-04-13 18:04:44
+Random Quote: Edric Storm, they call him.  He is said to be the very image of my brother.  If men were to see him, and then look again at Joffrey and Tommen, they could not help but wonder, I would think.  -  Stannis Baratheon
