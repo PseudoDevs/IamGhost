@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 17:12:00
-Random Quote: Tormund Giantsbane seemed to me the sort of man who would make a good friend and a bad enemy, your Grace.  -  Jon Snow
+Last updated: 2024-04-13 17:12:33
+Random Quote: Ted: "Every three years we sit down and Tril' it up big time, agreed?"Marshall: "Agreed-o!" - Marshall Eriksen
