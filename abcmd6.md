@@ -1,2 +1,3 @@
-Last updated: 2024-04-13 10:11:35
-Random Quote: I got more second-story guys in my book than pimples at a junior prom. - Saul Goodman
+Last updated: 2024-04-13 10:12:10
+Random Quote: Gor Koresh: "This is no place for a child."
+Mando: "Wherever I go, he goes. I've been quested to bring him to his kind." - Din Djarin
