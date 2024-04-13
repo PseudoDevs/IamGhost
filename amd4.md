@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 10:41:11
-Random Quote: Gloria: "It seemd like all what we did was fight and make love. One time, I'm not kidding you, we fell out of the window together."Jay: "Which one were you doing?" - Jay Pritchett
+Last updated: 2024-04-13 10:41:49
+Random Quote: Just because you shot Jesse James doesn't mean you are Jesse James. - Mike Ehrmantraut
