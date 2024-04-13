@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 18:41:18
-Random Quote: A man will tell you poison is dishonorable, but a woman's honor is different.  The Mother shaped us to protect our children, and our only dishonor is failure.  -  Lysa Arryn
+Last updated: 2024-04-13 18:41:56
+Random Quote: His blood ran black.  Made him my brother as much as yours.  -  Yoren of the Night's Watch
