@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 17:00:36
-Random Quote: You do seem to have a little “shit creek” action going… You know, FYI, you can buy a paddle. - Saul Goodman
+Last updated: 2024-04-13 17:01:10
+Random Quote: A man will tell you poison is dishonorable, but a woman's honor is different.  The Mother shaped us to protect our children, and our only dishonor is failure.  -  Lysa Arryn
