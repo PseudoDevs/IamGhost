@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 17:44:52
-Random Quote: If there was any shame in a dude getting a pedicure I don't think there would've been a feature about it in Details magazine. - Barney Stinson
+Last updated: 2024-04-13 17:46:01
+Random Quote: Back boobs! The visual stimulation of missionary meets the emotional detachment of doggy style... patent pending. - Barney Stinson
