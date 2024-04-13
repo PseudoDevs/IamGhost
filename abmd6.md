@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 10:31:05
-Random Quote: She's gotta start working on tightening her pussy muscles, 'cause her fiance's dick is so small, it's like a hot dog in a hallway. - Nicky Nichols
+Last updated: 2024-04-13 10:32:56
+Random Quote: Robin: "Sometimes in life you have to be assertive and stand up for yourself."Ted: "You called her a whore!"Robin: "Who wears that much make up?"Ted: "Old ladies!"Robin: "Who take money for sex, exactly!" - Robin Scherbatsky
