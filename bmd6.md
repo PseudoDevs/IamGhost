@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 17:00:36
-Random Quote: Tell the Crow's Eye he's afraid of kinslaying and he'll murder one of his own sons just to prove you wrong.  -  Asha Greyjoy
+Last updated: 2024-04-13 17:01:10
+Random Quote: You are the love of my life. Everything I have and everything I am is yours. Forever. - Barney Stinson
