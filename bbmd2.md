@@ -1,4 +1,2 @@
-Last updated: 2024-04-13 18:35:25
-Random Quote: Tony Stark: "Lieutenant Killmonger? What is that? German?"
-Killmonger: "A nickname."
-Tony Stark: "That's clearly a good fit." - Killmonger
+Last updated: 2024-04-13 18:36:00
+Random Quote: If you don't make it back, there's one thing that I need to tell you... - Klaus Hargreeves
