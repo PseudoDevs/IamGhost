@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 10:19:24
-Random Quote: Ted: "You know Robin? Been thinking about it. Guess it's kind of nice you're such a bad-ass."Robin: "It's pretty bad-ass you're so nice, Ted." - Robin Scherbatsky
+Last updated: 2024-04-13 10:20:01
+Random Quote: We all must choose.  Man or woman, young or old, lord or peasant, our choices are the same.  We choose light or we choose darkness.  -  Melisandre
