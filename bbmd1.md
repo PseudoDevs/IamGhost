@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 17:58:32
-Random Quote: A good act does not wash out the bad, nor a bad act the good.  Each should have its own reward.  -  Stannis Baratheon
+Last updated: 2024-04-13 17:59:06
+Random Quote: It's not Aerys I rue, it's Robert... Why is it no one names Robert oathbreaker?  He tore the realm apart, yet I am the one with shit for honor.  -  Jaime Lannister
