@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 18:55:06
-Random Quote: Set Ryam Redwyne was the greatest knight of his day, and one of the worst Hands ever to serve a king.  Septon Murmison's prayers worked miracles, but as Hand he soon had the whole realm praying for his death.  Lord Butterwell was renowned for with, Myles Smallwood for courage, Set Otto Hightower for learning, yet they failed as hands, every one.  As for birth, the dragonkings oft chose Hands from amongst their own blood, with results as various as Baelor Breakspear and Maegor the Cruel.  Against this, you have Septon Barth, the blacksmith's son the Old King plucked from the Red Keep's library, who gave the realm forty years of peace and plenty.  Read your history, Lord Davos, and you will see that your doubts are groundless.  -  Maester Pylos
+Last updated: 2024-04-13 18:55:40
+Random Quote: What the hell is the matter with you? You tryin' out for the retard Olympics? - George 'Pornstache' Mendez
