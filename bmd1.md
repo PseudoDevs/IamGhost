@@ -1,2 +1,4 @@
-Last updated: 2024-04-13 17:33:30
-Random Quote: The Wall can stop an army, but not a man alone.  -  Mance Rayder
+Last updated: 2024-04-13 17:34:05
+Random Quote: Rick: "F you, Summer! And f the government. And f me for letting my car down, which I will never do again."
+Morty: "Jeez, Rick. You can't say FU to your grand-daughter!"
+Rick: "I just did, Morty. Here's dessert: F you!" - Rick Sanchez
