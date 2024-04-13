@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 10:34:23
-Random Quote: Wherein I suggested that you take your head and store it within yourself, in a fashion that, while space-saving, might limit its exposure to sunshine. - Marshall Eriksen
+Last updated: 2024-04-13 10:34:56
+Random Quote: No one had expected the broken boy to live.  The gods could not kill Bran, no more than I could.  It was a strange thought, and stranger still to remember that Bran might still be alive.  -  Theon Greyjoy
