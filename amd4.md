@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 17:19:06
-Random Quote: Perhaps we can fly.  All of us.  How will we ever know unless we leap from some tall tower?  No man ever truly knows what he can do unless he dares to leap.  -  Euron Greyjoy
+Last updated: 2024-04-13 17:19:43
+Random Quote: All living things, from complex mammals to single-celled organisms, instinctively respond to danger. Expose a bacterium to a toxic chemical and it will flee, or deploy some other defense mechanism. We're very much the same. When we encounter danger, our hearts start pounding. Our palms start to sweat. These are the signs of the physical and emotional state we call 'fear.' - Scott Clarke
