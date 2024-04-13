@@ -1,3 +1,2 @@
-Last updated: 2024-04-13 17:06:31
-Random Quote: Give it a week, you'll get her back. And her front.
-Oh! Did you feel that? I think we just had a "what up?"-quake! - Barney Stinson
+Last updated: 2024-04-13 17:07:05
+Random Quote: Robin: "Barney, I am not ready for them to find out about us."Barney: "Then you're gonna have to stay in there for the entire trilogy. Don't worry, it's only 382 minutes."Robin: "Nerd!" - Robin Scherbatsky
