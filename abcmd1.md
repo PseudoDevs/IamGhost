@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 18:23:40
-Random Quote: Robb Stark won the war on the battlefield and lost it in a bedchamber.  -  Jaime Lannister
+Last updated: 2024-04-13 18:24:13
+Random Quote: Aye, and from what I saw of Joffrey, you are as unfit a mother as you are a ruler.  -  Kevan Lannister
