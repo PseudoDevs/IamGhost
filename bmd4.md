@@ -1,3 +1,2 @@
-Last updated: 2024-04-13 17:35:24
-Random Quote: Morty: "So, time moves faster in there? Is it like a Narnia thing?"
-Rick: "I'm not a beaver who believes in Jesus Christ, Morty. But yeah, it's pretty much a Narnia thing." - Rick Sanchez
+Last updated: 2024-04-13 17:35:57
+Random Quote: A family is like a small business. And with a small business, at times, there comes a bit of transition. - Marty Byrde
