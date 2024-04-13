@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 17:05:00
-Random Quote: Ted: "I thought you said you got rid of everything your ex-boyfriends gave you?"Robin: "Well yeah, but not my dogs."Ted: "You said everything."Robin: "But not living things."Ted: "Tell that to the rare bolivian cactus i threw away!" - Ted Mosby
+Last updated: 2024-04-13 17:05:33
+Random Quote: Fine I'll fill her in and I am so angry I am not even goin' to make a joke about "filling her in"... which I did three times last night. Self-five! - Barney Stinson
