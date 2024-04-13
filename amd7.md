@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 18:44:15
-Random Quote: He would see this country burn if he could be king of the ashes.  -  Varys
+Last updated: 2024-04-13 18:44:50
+Random Quote: Ted: "Everyone has an opinion on how long it takes to recover from a breakup."Lily: "Half the length of the relationship."Marshall: "One week for every month you were together."Robin: "Exactly 10,000 drinks, however long that takes."Barney: "You can't measure something like this in time. There's a series of steps: From her bed to the front door. Bam! Out of there.... next!" - Barney Stinson
