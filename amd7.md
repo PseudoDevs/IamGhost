@@ -1,2 +1,3 @@
-Last updated: 2024-04-13 18:02:37
-Random Quote: Robin: "Sometimes in life you have to be assertive and stand up for yourself."Ted: "You called her a whore!"Robin: "Who wears that much make up?"Ted: "Old ladies!"Robin: "Who take money for sex, exactly!" - Robin Scherbatsky
+Last updated: 2024-04-13 18:03:11
+Random Quote: Freddie: "You think I can't handle Tommy Shelby?"
+Polly: "You can't. I am having trouble these days and I'm twice the man you are." - Polly Gray
