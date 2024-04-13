@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 17:04:43
-Random Quote: I like her. She makes you try new things, it's good for you. I'm serious - you seem less afraid when you're with her. I like it and it also makes me kind of sad. - Hannah Baker
+Last updated: 2024-04-13 17:05:16
+Random Quote: My father won all the battles.  He killed Prince Rhaegar and took the crown, while your father was hiding under Casterly Rock.  A strong king acts boldly, he doesn't just talk.  -  Joffrey Baratheon
