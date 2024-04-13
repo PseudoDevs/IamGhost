@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 10:09:49
-Random Quote: Birds are lost, messages stolen or sold... there are things I might tell you of that eunuch that would chill your blood...  -  Grand Maester Pycelle
+Last updated: 2024-04-13 10:10:23
+Random Quote: By what right does the wolf judge the lion?  -  Jaime Lannister
