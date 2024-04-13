@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 10:48:07
-Random Quote: So I will only ask you once, Lord Snow.  Are you a brother of the Night's Watch, or a bastard boy who wants to play at war?  -  Jeor Mormont
+Last updated: 2024-04-13 16:54:24
+Random Quote: Most people are nothing but pawns on a chessboard led by an unknown hand - Noah
