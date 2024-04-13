@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 10:37:26
-Random Quote: Ted: "Do you have a cold?"Barney: "I'm fine. My nose is just overflowing with awesome and I had to get some of it out." - Barney Stinson
+Last updated: 2024-04-13 10:39:17
+Random Quote: A craven's knife can slay a queen as easily as a hero's.  -  Xaro Xhoan Daxos
