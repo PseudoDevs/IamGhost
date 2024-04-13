@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 16:54:10
-Random Quote: When I have kids, and I tell them how I met their mother, I'm gonna tell them everything. The whole damn story. - Ted Mosby
+Last updated: 2024-04-13 16:54:46
+Random Quote: Why the oldest son, and not the best - fitted?  The crown will suit me, as it never suited Robert and would not suit Stannis. 
