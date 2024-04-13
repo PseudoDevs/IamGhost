@@ -1,2 +1,6 @@
-Last updated: 2024-04-13 18:57:55
-Random Quote: See, lad, that's why he's the king and I'm not.  I can outdrink, outfight, and outsing him, and my member's thrice the size o' his, but Mance has cunning.  -  Tormund Giantsbane
+Last updated: 2024-04-13 18:58:29
+Random Quote: You lie to your husband all the time...
+"That shirt looks great on you."
+"I love your mom."
+"I never fantasize about Barney when we're doing it."
+Sound familiar, Pinocchio? - Barney Stinson
