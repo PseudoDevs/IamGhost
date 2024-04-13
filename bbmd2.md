@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 17:01:47
-Random Quote: I'm missing half my zucchini. These girls don't realize I'm here to provide food, not dildos. - Galina 'Red' Reznikov
+Last updated: 2024-04-13 17:02:21
+Random Quote: There are no true knights, no more than there are gods.  If you can't protect yourself, die and get out of the way of those who can.  Sharp steel and strong arms rule this world, don't ever believe any different.  -  Sandor Clegane
