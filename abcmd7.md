@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 16:55:25
-Random Quote: Frustration and boredom are great motivators to seek out other pleasures. Human behavior is quite predictable. - Virginia Wilson
+Last updated: 2024-04-13 16:55:59
+Random Quote: The other thing about depression is it kind of collapses time. Suddenly, you find your whole days blending together to create one endless and suffocating loop. So you find yourself trying to remember the things that made you happy. But slowly, your brain begins to erase every memory that ever brought you joy. And eventually, all you can think about is how life has always been this way. And will only continue to be this way. - Rue Bennett
