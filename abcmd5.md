@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 17:29:53
-Random Quote: No matter how much we fight it we are connected by our blood. We can feel estranged from our families and not understand what they do. And still, in the end, we will do anything for them. - Adam
+Last updated: 2024-04-13 17:30:30
+Random Quote: It's not Aerys I rue, it's Robert... Why is it no one names Robert oathbreaker?  He tore the realm apart, yet I am the one with shit for honor.  -  Jaime Lannister
