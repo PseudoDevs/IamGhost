@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 10:47:29
-Random Quote: There's proving and there's knowing. -  Bill Oakley
+Last updated: 2024-04-13 16:54:20
+Random Quote: Barney: "Tell me more. Tell me more. Like did he have a car?"Marshall: "So is he the guy who... how shall I say this like a gentleman? Robin, did he take your maple leaf?"Barney: "Sounds to me like he gave you your first 'O Canada' face!" - Barney Stinson
