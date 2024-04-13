@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 18:20:48
-Random Quote: There's no shame in fear, my father told me, what matters is how we face it.  -  Jon Snow
+Last updated: 2024-04-13 18:21:23
+Random Quote: Shagg, son of Dolf will chop off their manhoods and feed them to the crows.  -  Shagga, son of Dolf
