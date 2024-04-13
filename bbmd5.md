@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 18:32:19
-Random Quote: If you love something, you can never let it go. Not even for a second. Or it's gone forever. - Ted Mosby
+Last updated: 2024-04-13 18:32:52
+Random Quote: The Lord of Light cherishes the innocent.  There is no sacrifice more precious.  From his king's blood and his untainted fire, a dragon shall be born.  -  Melisandre
