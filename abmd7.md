@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 17:16:38
-Random Quote: No one had expected the broken boy to live.  The gods could not kill Bran, no more than I could.  It was a strange thought, and stranger still to remember that Bran might still be alive.  -  Theon Greyjoy
+Last updated: 2024-04-13 17:17:15
+Random Quote: I'm just saying, love is a million things. - Maddy Perez

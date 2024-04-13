@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 17:16:36
-Random Quote: Everyone sounds like Meryl Streep with a gun to their head. - Mike Ehrmantraut
+Last updated: 2024-04-13 17:17:14
+Random Quote: His size, Gregor is a very large man.  Also a very stupid one.  Too stupid to know when he should die, it seems.  -  Cersei Lannister
