@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 18:36:49
-Random Quote: Remember. Once they find out who you are, you die. - Jang Deok-su
+Last updated: 2024-04-13 18:37:22
+Random Quote: Bear Island knows no king save the King in the North, whose name is Stark.  -  Lyanna Mormont
