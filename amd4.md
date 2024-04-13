@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 17:46:20
-Random Quote: I know this hurts little buddy, but you'll love again someday. Because time will heal a broken heart, but not that bitch's window. - Barney Stinson
+Last updated: 2024-04-13 17:46:53
+Random Quote: Men call me Darkstar, and I am of the night.  -  Gerold Dayne
