@@ -1,3 +1,2 @@
-Last updated: 2024-04-13 17:08:03
-Random Quote: I hired a decorator and I asked him: "What would the inside of Tinkerbell's vagina look like?"
-And the kid just ran with it! - Quinn Garvey
+Last updated: 2024-04-13 17:09:13
+Random Quote: A bag of dragons buys a man's silence for a while, but a well - placed quarrel buys it forever. 
