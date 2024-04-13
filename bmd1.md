@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 18:13:22
-Random Quote: Robin: "This locket was my grandma's, she kept it hidden in her butt all through world war II."Lily: "What? Where was she?"Robin: "Winnipeg. Come on, Lily, that is a joke." - Robin Scherbatsky
+Last updated: 2024-04-13 18:13:55
+Random Quote: Kids, morals usually come at the end of stories, but this one is so important, I'm gonna tell you now. Don't ever, ever invite an ex to your wedding. - Ted Mosby
