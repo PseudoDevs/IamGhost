@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 10:09:53
-Random Quote: Having just any boyfriend, no matter who he is, is not going to make you happier or change who you are. - Fabiola Torres
+Last updated: 2024-04-13 10:10:28
+Random Quote: Dismissing Selmy, where was the sense in that?  Yes, the man was old, but the name of Barristan the Bold still has meaning in the realm.  He lent honor to any man he served.  -  Tywin Lannister
