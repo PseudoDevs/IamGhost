@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 18:59:01
-Random Quote: Gloria: "It seemd like all what we did was fight and make love. One time, I'm not kidding you, we fell out of the window together."Jay: "Which one were you doing?" - Jay Pritchett
+Last updated: 2024-04-13 18:59:35
+Random Quote: When I'm king in my own right, I'm going to outlaw beets.  -  Tommen Baratheon
