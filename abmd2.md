@@ -1,3 +1,3 @@
-Last updated: 2024-04-13 17:57:34
-Random Quote: May: "May Carleton. I breed racehorses and train them. What is it you do?"
-Thommy: "I rarely answer questions is what I do." - Thomas Shelby
+Last updated: 2024-04-13 17:58:07
+Random Quote: Layla: "Summon the suit!"
+Steven: "Summon the soup? What are you saying?" - Arthur Harrow
