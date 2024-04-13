@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 19:01:34
-Random Quote: I never asked for this, no more than I asked to be king.  Yet dare I disregard her?  We do not choose our destinies.  Yet we must... we must do our duty, no?  Great or small, we must do our duty.  -  Stannis Baratheon
+Last updated: 2024-04-13 19:02:41
+Random Quote: So you're mining stuff to craft with and crafting stuff to mine with? Did your dad write this game? - Rick Sanchez
