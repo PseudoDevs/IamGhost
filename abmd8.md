@@ -1,3 +1,2 @@
-Last updated: 2024-04-13 10:13:45
-Random Quote: Mr. Nimbus: "Say goodbye to your precious dry land! For soon it will be wet!"
-Rick: "Yeah, global warming is already doing that. But sure, yeah, go for it. Make us slightly more wet." - Rick Sanchez
+Last updated: 2024-04-13 10:14:52
+Random Quote: I just want to stand on top of the Wall and piss off the edge of the world.  -  Tyrion Lannister

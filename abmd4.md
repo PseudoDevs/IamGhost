@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 10:14:18
-Random Quote: Rhaegar fought valiantly, Rhaegar fought nobly, and Rhaegar died.  -  Jorah Mormont
+Last updated: 2024-04-13 10:14:52
+Random Quote: Animal instinct. When faced with danger, seek refuge in the herd. - Seong Gi-hun
