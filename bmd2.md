@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 17:12:25
-Random Quote: Whats your prescription, Dr. Estrogen? Eat Haagen-Dazs and watch "Love... actually" until your periods sync up? - Barney Stinson
+Last updated: 2024-04-13 17:14:05
+Random Quote: Nymeria was least dangerous when nearly naked.  Elsewise she was sure to have a dozen blades concealed about her person.  -  Areo Hotah
