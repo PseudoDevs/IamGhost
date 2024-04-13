@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 18:46:02
-Random Quote: This is the one that you saved? You are as its father. A clan of two. But you have removed your helmet. Then you are a Mandalorian no more. - The Armorer
+Last updated: 2024-04-13 18:46:36
+Random Quote: The pain is his vessel, desire his compass. It is all that man is capable of. - 
