@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 18:28:55
-Random Quote: Oh, we're busting apple bags? I can bust apple bags. - Robin Scherbatsky
+Last updated: 2024-04-13 18:29:30
+Random Quote: Roose Bolton's cold and cunning, aye, but a man can deal with Roose.  We've all known worse.  But this bastard son of his... they say he's mad and cruel, a monster.  -  Locke
