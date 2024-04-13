@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 18:07:55
-Random Quote: Birds are lost, messages stolen or sold... there are things I might tell you of that eunuch that would chill your blood...  -  Grand Maester Pycelle
+Last updated: 2024-04-13 18:08:29
+Random Quote: Life is a long journey where maps were drawn by a fool. - Juan Nepomuceno Guerra
