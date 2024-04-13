@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 10:17:35
-Random Quote: I never met a real Mandalorian. Heard stories. I know you're good at killing. - Cobb Vanth
+Last updated: 2024-04-13 10:18:09
+Random Quote: What do you think a knight is for, girl?  You think it's all taking favors from ladies and looking fine in gold plate?  Knights are for killing.  I killed my first man at twelve.  I've lost count of how many I've killed since then.  High lords with old names, fat rich men dressed in velvet, knights puffed up like bladders with their honors, yes, and women and children too... they're all meat, and I'm the butcher.  -  Sandor Clegane
