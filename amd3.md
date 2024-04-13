@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 10:13:07
-Random Quote: Oh, boy, so you actually learned something today? What is this, Full House? - Rick Sanchez
+Last updated: 2024-04-13 10:13:39
+Random Quote: They get in your head. People tell lies about you, and other people believe them. And it gets to the point where the lies might as well be the truth. - Tyler Down
