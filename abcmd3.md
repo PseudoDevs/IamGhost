@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 10:12:45
-Random Quote: Whisky's good proofing water. Tells you who's real and who isn't. - Thomas Shelby
+Last updated: 2024-04-13 10:13:22
+Random Quote: If we're together long enough I hope that one day you see yourself like I do. - Kevin
