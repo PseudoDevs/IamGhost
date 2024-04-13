@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 17:19:46
-Random Quote: People make fun of the guy who stays at home every night doing nothing, but the truth is that guy is a genius. - Ted Mosby
+Last updated: 2024-04-13 17:20:22
+Random Quote: If the cancer doesn't get him, it'll be the cops or a bullet to the head. - Mike Ehrmantraut
