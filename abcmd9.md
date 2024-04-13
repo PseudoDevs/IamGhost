@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 16:57:06
-Random Quote: In this world, everything is governed by balance. There’s what you stand to gain and what you stand to lose. And when you think you’ve got nothing to lose, you become overconfident - Professor
+Last updated: 2024-04-13 16:58:14
+Random Quote: Any man who steps between a father and his vengeance asks for death.  -  Rickard Karstark
