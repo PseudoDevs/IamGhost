@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 10:34:13
-Random Quote: Have no fear, sers, your king is safe... no thanks to you.  Even know, I could cut through the five of you as easy as a dagger cuts cheese.  If you would serve under the Kingslayer, not a one of you is fit to wear the white.  Here, boy.  Melt it down and add it to the others, if you like.  It will do you more good than the swords in the hands of these five.  Perhaps Lord Stannis will chance to sit on it when he takes your throne.  -  Barristan Selmy
+Last updated: 2024-04-13 10:36:10
+Random Quote: Always keep your foes confused.  If they are never certain who you are or what you want, they cannot know what you are like to do next.  Sometimes the best way to baffle them is to make moves that have no purpose, or even seem to work against you.  Remember that, Sansa, when you come to play the game.  -  Petyr Baelish
