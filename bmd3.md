@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 17:08:52
-Random Quote: Any man who steps between a father and his vengeance asks for death.  -  Rickard Karstark
+Last updated: 2024-04-13 17:09:25
+Random Quote: The "no more surprises"-thing is the best part of being married. - Lily Aldrin
