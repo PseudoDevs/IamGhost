@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 17:44:16
-Random Quote: Here's the thing about me and tools: The only one I know how to use, is attached to me. And I'm not gonna try putting it in a TV... again. - Barney Stinson
+Last updated: 2024-04-13 17:45:27
+Random Quote: Young or old, a true knight is sworn to protect those who are weaker than himself, or die in the attempt.  -  Brienne of Tarth
