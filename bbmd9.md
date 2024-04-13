@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 18:53:11
-Random Quote: Marshall: "Where is your playbook?"Robin: "My playbook? Bro, uh, two-volume set, right here.Ted: "It's a great read, actually."Lily: "Yeah, I'm reading it right now." - Robin Scherbatsky
+Last updated: 2024-04-13 18:53:44
+Random Quote: Apart, we're okay. But together we're poison. - Kim Wexler
