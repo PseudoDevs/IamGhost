@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 17:19:12
-Random Quote: Lily: "Ted, you did this all yourself?"Ted: "Just like Ryan Gosling in 'The Notebook'. It was pretty manly 'til I mentioned Ryan Gosling in 'The Notebook', huh?" - Ted Mosby
+Last updated: 2024-04-13 17:19:48
+Random Quote: The pain is his vessel, desire his compass. It is all that man is capable of. - 

@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 17:18:34
-Random Quote: If we're together long enough I hope that one day you see yourself like I do. - Kevin
+Last updated: 2024-04-13 17:19:48
+Random Quote: Sometimes I don't know if I love how much I fear Claire, or fear how much I love her. - Phil Dunphy
