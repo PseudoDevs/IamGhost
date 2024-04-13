@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 17:13:14
-Random Quote: You don't get to blame your problems on anyone but yourself. - Allison Hargreeves
+Last updated: 2024-04-13 17:14:21
+Random Quote: There's no shame in fear, my father told me, what matters is how we face it.  -  Jon Snow
