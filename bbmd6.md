@@ -1,2 +1,3 @@
-Last updated: 2024-04-13 17:28:42
-Random Quote: Joe Caputo: "You ever notice how some dog breeds, they sound kind of dirty? Like, shih tzu, cocker, Jack-something."Susan Fischer: "Poodle."Joe Caputo: "That is good, I didn't think of that one." - Joe Caputo
+Last updated: 2024-04-13 17:31:07
+Random Quote: "Crutch down and bend over a little bit."
+Barney: "Wow, It took five shots of tequila to have you in that position." - Barney Stinson
