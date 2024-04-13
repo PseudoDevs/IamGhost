@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 17:52:06
-Random Quote: Oh my God, Larry, by the time I get out, there will've been like three new generations of iPhones! - Piper Chapman
+Last updated: 2024-04-13 17:52:41
+Random Quote: Dude, ditch Tiffany and join the Barnacle in the Pharma-Girl-Free-For-All. Side effects may include: loss of clothing, rug burns, shortness of breath and soar abdominals the next morning. What in the world is up! - Barney Stinson

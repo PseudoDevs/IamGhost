@@ -1,2 +1,3 @@
-Last updated: 2024-04-13 17:51:31
-Random Quote: There's always hope tomorrow'll be taco night. - Nicky Nichols
+Last updated: 2024-04-13 17:52:41
+Random Quote: "Crutch down and bend over a little bit."
+Barney: "Wow, It took five shots of tequila to have you in that position." - Barney Stinson
