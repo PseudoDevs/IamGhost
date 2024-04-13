@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 17:05:16
-Random Quote: My father won all the battles.  He killed Prince Rhaegar and took the crown, while your father was hiding under Casterly Rock.  A strong king acts boldly, he doesn't just talk.  -  Joffrey Baratheon
+Last updated: 2024-04-13 17:05:49
+Random Quote: Ted: "First it was too much eye-contact, then not enough - where do you look during sex?"Barney: "Into the hidden camera at future me, watching it." - Barney Stinson
