@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 18:15:31
-Random Quote: You know, I hear you say things like that, and I wonder if maybe I did have a few too many whiskey sours when you were in my belly. - Meemaw
+Last updated: 2024-04-13 18:16:07
+Random Quote: Jon, did you ever wonder why the men of the Night's Watch take no wives and father no children?  So they will not love, for love is the bane of honor, the death of duty.  -  Maester Aemon
