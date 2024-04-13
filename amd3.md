@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 17:31:07
-Random Quote: Sometimes, the cure is a little taste of the disease. The difference between medicine and poison sometimes is only dosage. - Arthur Harrow
+Last updated: 2024-04-13 17:32:18
+Random Quote: His blood ran black.  Made him my brother as much as yours.  -  Yoren of the Night's Watch
