@@ -1,2 +1,3 @@
-Last updated: 2024-04-13 10:13:39
-Random Quote: They get in your head. People tell lies about you, and other people believe them. And it gets to the point where the lies might as well be the truth. - Tyler Down
+Last updated: 2024-04-13 10:14:13
+Random Quote: Darcy Lewis: "No one would notice if you blew up a Dakota. Honestly, I can't tell them apart."
+Carol Danvers: "South Dakota is on the bottom." - Captain Marvel
