@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 10:18:50
-Random Quote: No more half-measures, Walter. - Mike Ehrmantraut
+Last updated: 2024-04-13 10:19:27
+Random Quote: They are knights now, all three, and your sister has promised them further advancement.  And the eldest, Set Osmund of the Kingsguard, dreams of certain other... favors... as well.  You can match the queen coin for coin, I have no doubt, but she has a second purse that is quite inexhaustible.  -  Varys
