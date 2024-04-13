@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 10:20:35
-Random Quote: But every now and then it’s good to question those who question things. - Noah
+Last updated: 2024-04-13 10:21:08
+Random Quote: Know the men who follow you and let them know you.  Don't ask your men to die for a stranger.  -  Eddard Stark
