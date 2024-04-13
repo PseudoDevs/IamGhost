@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 18:05:32
-Random Quote: Ted: "Do not pretend you're not the kind of guy, who keeps a list of all the girls he slept with."Marshall: "I have one. It's called my marriage-license." - Marshall Eriksen
+Last updated: 2024-04-13 18:06:06
+Random Quote: He would have killed me but for Howland Reed.  -  Eddard Stark
