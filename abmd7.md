@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 10:18:49
-Random Quote: I’d get 30 years. And to be honest, growing old in a prison cell is not my thing. I’d rather run, in body and soul. And if I can’t take my body with me, at least my soul should run. - Tokyo
+Last updated: 2024-04-13 10:20:42
+Random Quote: The most amazing things that can happen to a human being will happen to you, if you just lower your expectations. - Phil Dunphy
