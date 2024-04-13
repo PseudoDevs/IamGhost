@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 17:38:53
-Random Quote: That's where The Boys come in: Spank the bastards when they get out of line. - Billy Butcher
+Last updated: 2024-04-13 17:40:05
+Random Quote: When I was 13, my father caught me kissing a boy, so he sent me to our family's ranch for foaling season. Once you see a baby horse erupt through that birth canal, you stop even touching yourself! - Robin Scherbatsky
