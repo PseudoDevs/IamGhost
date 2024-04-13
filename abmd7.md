@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 17:40:42
-Random Quote: Robin: "You mean the whiny, bottomless pit of neediness? He was bugging me so I spiked his echinacea tea with codeine."Ted: "You would be a great mom." - Ted Mosby
+Last updated: 2024-04-13 17:41:17
+Random Quote: I've had shits that I've liked better than Walder Frey.  -  Brynden Tully
