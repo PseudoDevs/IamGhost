@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 18:37:11
-Random Quote: If a man does not use his member it grows smaller and smaller, until one day he wants to piss and cannot find it.  -  Tormund Giantsbane
+Last updated: 2024-04-13 18:38:23
+Random Quote: All living things, from complex mammals to single-celled organisms, instinctively respond to danger. Expose a bacterium to a toxic chemical and it will flee, or deploy some other defense mechanism. We're very much the same. When we encounter danger, our hearts start pounding. Our palms start to sweat. These are the signs of the physical and emotional state we call 'fear.' - Scott Clarke

@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 18:37:11
-Random Quote: If you had to fall into a woman's arms, my son, why couldn't they have been Margaery Tyrell's?  -  Catelyn Stark
+Last updated: 2024-04-13 18:38:23
+Random Quote: Minds are like swords, I do fear.  The old ones go to rust.  -  Grand Maester Pycelle
