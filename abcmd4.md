@@ -1,2 +1,5 @@
-Last updated: 2024-04-13 10:16:37
-Random Quote: A man who sees nothing has no use for his eyes, cut them out and give them to your next outrider.  Tell him you hope that four eyes might see better than two... and if not, the man after him will have six.  -  Gregor Clegane
+Last updated: 2024-04-13 10:17:10
+Random Quote: Marshall: "What the hell happened?"
+Barney: "I said no questions asked."
+Marshall: "Star, clover, horseshoe... Barney, did you swallow real versions of all the Lucky Charms items?"
+Barney: "No questions asked! Now come on. Let's hit the bar. I'm buying. I just won 50 bucks from a little Irish guy on a dare." - Barney Stinson
