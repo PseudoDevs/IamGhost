@@ -1,3 +1,2 @@
-Last updated: 2024-04-13 18:20:12
-Random Quote: Alien: "I was just reading you."
-Rick: "Congratulations on making it into print media. Real bright future there." - Rick Sanchez
+Last updated: 2024-04-13 18:21:22
+Random Quote: The Wall can stop an army, but not a man alone.  -  Mance Rayder
