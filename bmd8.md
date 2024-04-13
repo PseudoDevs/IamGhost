@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 16:54:56
-Random Quote: I'm growing a child in my belly, a child that just developed ears, and it's a very thin sweater. So, please, if you must tell your story, just make it cheerful. - Lily Aldrin
+Last updated: 2024-04-13 16:55:29
+Random Quote: I feel like love is super dark and no one ever talks about it. - Cassie Howard
