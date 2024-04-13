@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 10:41:09
-Random Quote: I've lost a hand, a father, a son, a sister, and a lover, and soon enough I will lose a brother.  And yet they keep telling me House Lannister has won this war.  -  Jaime Lannister
+Last updated: 2024-04-13 10:41:44
+Random Quote: Frustration and boredom are great motivators to seek out other pleasures. Human behavior is quite predictable. - Virginia Wilson
