@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 17:52:31
-Random Quote: Give me back my spear, Uncle.  Cersei sent us a head.  We should send her back a bag of them.  -  Obara Sand
+Last updated: 2024-04-13 17:53:04
+Random Quote: Sometimes distance is the only way to find peace. So you can heal your wound. - Berlin
