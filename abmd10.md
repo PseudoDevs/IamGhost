@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 18:55:56
-Random Quote: I buried an axe so deep into Willem's skull, they had to bury him with it.  -  Yoren of the Knight's Watch
+Last updated: 2024-04-13 18:56:29
+Random Quote: There is no such thing as magic, just illusion. Things only change when we change them. But you have to do it skillfully, in secret. Then it seems like magic. - Mikkel Nielsen
