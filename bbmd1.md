@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 10:36:44
-Random Quote: Know the men who follow you and let them know you.  Don't ask your men to die for a stranger.  -  Eddard Stark
+Last updated: 2024-04-13 10:37:20
+Random Quote: Send him to Belize? I'll send YOU to Belize. - Walter White
