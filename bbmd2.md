@@ -1,2 +1,5 @@
-Last updated: 2024-04-13 17:47:14
-Random Quote: Out there, I don't stand a chance. I do in here. - Jang Deok-su
+Last updated: 2024-04-13 17:49:04
+Random Quote: Morty: "I'm dying, Rick!"
+Rick: "People who are really dying don't keep bringing it up."
+Morty: "Is that true?"
+Rick: "I don't know. I'm just usually around people that die faster." - Rick Sanchez
