@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 10:43:42
-Random Quote: There are moments when we must understand that the decisions we make influence more than just our own fates. - Claudia
+Last updated: 2024-04-13 10:44:20
+Random Quote: When you tear out a man's tongue, you are not proving him a liar, you're only telling the world that you fear what he might say.  -  Tyrion Lannister
