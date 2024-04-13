@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 18:17:51
-Random Quote: Women aren't soldiers, and they sure as hell don't fight on the front lines. They might break a nail. - John Flynn
+Last updated: 2024-04-13 18:18:25
+Random Quote: My daughter has taken an axe for a lover.  I will not have my son bedeck himself like a whore.  It is as I feared.  The green lands have made you soft, and the Starks have made you theirs.  -  Balon Greyjoy
