@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 10:46:14
-Random Quote: Wherein I suggested that you take your head and store it within yourself, in a fashion that, while space-saving, might limit its exposure to sunshine. - Marshall Eriksen
+Last updated: 2024-04-13 10:48:08
+Random Quote: Brandon Stark was never shy about taking what he wanted.  I am old now, a dried - up thing, too long a widow, but I still remember the look of my maiden's blood on his cock the night he claimed me.  I think Brandon liked the sight as well.  A bloody sword is a beautiful thing, yes.  It hurt, but it was a sweet pain. 
