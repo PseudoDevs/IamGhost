@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 10:36:10
-Random Quote: Because sometimes, even when you know how something's gonna end, that doesn't mean you can't enjoy the ride. - Ted Mosby
+Last updated: 2024-04-13 10:37:25
+Random Quote: We go home with an army, sweet sister.  With Khal Drogo's army, that is how we go home.  And if you must wed him and bed him for that, you will.  I'd let his whole khalasar fuck you if need be, sweet sister, all forty thousand men, and their horses too if that was what it took to get my army.  -  Viserys Targaryen
