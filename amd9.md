@@ -1,3 +1,3 @@
-Last updated: 2024-04-13 10:31:31
-Random Quote: How does a computer get drunk?
-It takes screenshots. - Will Livingston
+Last updated: 2024-04-13 10:32:03
+Random Quote: Lily: "Swear on the lifes of your unborn boy and girl!"
+Ted: "I swear... on Luke and Leia!" - Ted Mosby
