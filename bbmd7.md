@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 17:17:50
-Random Quote: I know about the promiese... Maester Theomore, tell them!  A thousand years before the Conquest, a promise was made, and oaths were sworn in the Wolf's Den before the Old Gods and the new.  When we were sore beset and friendless, hounded from our homes and in peril of our lives, the wolves took us in and nourished us and protected us against our enemies.  The city is built upon the land they gave us.  In return we swore that we should always be their men.  Stark men!  -  Wylla Manderly
+Last updated: 2024-04-13 17:18:26
+Random Quote: And Stannis has always felt he was cheated of Storm's End.  The ancestral seat of House Baratheon, his by rights... if you knew how many times he came to Robert singing that same dull song in that gloomy aggrieved tone he has.  When Robert gave the place to Renly, Stannis clenched his jaw so tight I thought his teeth would shatter.  -  Cersei Lannister
