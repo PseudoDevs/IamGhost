@@ -1,3 +1,2 @@
-Last updated: 2024-04-13 10:38:15
-Random Quote: Jerry: "Rick! Beth! You love me after all!"
-Rick: "Eh, I love her, she loves you. Those credits don't transfer." - Rick Sanchez
+Last updated: 2024-04-13 10:38:48
+Random Quote: Place was overrun with rats when we moved in.  The spearwives killed the nasty buggers.  Now the place is overrun with spearwives.  There's days I want the rats back.  -  Dolorous Edd Tollett

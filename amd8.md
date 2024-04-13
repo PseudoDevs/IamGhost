@@ -1,2 +1,3 @@
-Last updated: 2024-04-13 10:37:09
-Random Quote: Oh, we're busting apple bags? I can bust apple bags. - Robin Scherbatsky
+Last updated: 2024-04-13 10:38:49
+Random Quote: Billy: "Halloween's a magical holiday. All about family, friends, and the thrill of getting to be someone else for a day."
+Tommy: "Wrong! Halloween's about candy. And scaring people, but mostly candy." - Tommy Maximoff
