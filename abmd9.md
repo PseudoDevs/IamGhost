@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 10:23:57
-Random Quote: Ted: "Those Robin's boobies?"Barney: "When new nubile hotties lean in to inspect your bundle of joy, you can inspect their bundles of joy. The Broller. God, I come up with a lot of good stuff!" - Barney Stinson
+Last updated: 2024-04-13 10:24:37
+Random Quote: You will never walk again... but you will fly.  -  Bloodraven
