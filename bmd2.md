@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 10:08:16
-Random Quote: What I came to realise is that fear, that’s the worst of it. That’s the real enemy. So, get up, get out in the real world and you kick that bastard as hard you can right in the teeth. - Walter White
+Last updated: 2024-04-13 10:09:21
+Random Quote: No matter how much we fight it we are connected by our blood. We can feel estranged from our families and not understand what they do. And still, in the end, we will do anything for them. - Adam
