@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 17:14:56
-Random Quote: Master Mott said Thoros could outdrink even King Robert.  They were pease in a pod, he told me, both gluttons and sots.  -  Gendry
+Last updated: 2024-04-13 17:15:29
+Random Quote: We are all full of sin. No pure human being exists. But no matter what we do, we never fall any lower than into God’s hands. - Noah
