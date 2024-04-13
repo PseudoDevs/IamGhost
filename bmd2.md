@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 18:23:43
-Random Quote: Why the oldest son, and not the best - fitted?  The crown will suit me, as it never suited Robert and would not suit Stannis. 
+Last updated: 2024-04-13 18:26:03
+Random Quote: What a man wants does not define him. What a man needs is what defines him. - Juan Nepomuceno Guerra
