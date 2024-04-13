@@ -1,2 +1,3 @@
-Last updated: 2024-04-13 17:43:04
-Random Quote: Don't believe everything you hear. Our enemies want to separate us. But Mandalorians are stronger together. - Bo-Katan
+Last updated: 2024-04-13 17:45:26
+Random Quote: Hey look, it's the New York City skyline.
+We built Chip City... we built Chip City on all your dough! - Ted Mosby
