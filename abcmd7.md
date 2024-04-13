@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 17:20:23
-Random Quote: When dead men come hunting us in the night, do you think it matters who sits the Iron Throne?  -  Jeor Mormont
+Last updated: 2024-04-13 17:23:37
+Random Quote: You see, ladies? When you're out with a Blinder, you don't have to queue. - Arthur Shelby
