@@ -1,9 +1,2 @@
-Last updated: 2024-04-13 16:56:30
-Random Quote: If my love were an ocean,
-there would be no more land.
-If my love were a desert,
-you would see only sand.
-If my love were a star-
-late at night, only light.
-And if my love could grow wings,
-I'd be soaring in flight. - Jay Asher
+Last updated: 2024-04-13 16:57:39
+Random Quote: Whatever happens next, it's not gonna go down the way you think it is. - Mike Ehrmantraut
