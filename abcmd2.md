@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 17:46:20
-Random Quote: Some had been heroes, some weaklings, knaves, or cravens.  Most were only men, quicker and stronger than most, more skilled with sword and shield, but still prey to pride, ambition, lust, love, anger, jealousy, greed for gold, hunger for power, and all the other failings that afflicted lesser mortals.  The best of them overcame their flaws, did their duty, and died with their swords in their hands.  The worst... the worst were those who played the game of thrones.  -  Barristan Selmy
+Last updated: 2024-04-13 17:46:53
+Random Quote: Obara would make Oldtown our father's funeral pyre, but I am not so greedy.  Four lives will suffice for me.  Lord Tywin's golden twins, as payment for Elia's children.  The old lion, for Elia herself.  And last of all the little king, for my father... only royal blood can wash out my father's murder.  -  Nymeria Sand
