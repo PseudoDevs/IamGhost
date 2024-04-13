@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 10:10:02
-Random Quote: Any man who steps between a father and his vengeance asks for death.  -  Rickard Karstark
+Last updated: 2024-04-13 10:11:09
+Random Quote: A true man does what he will, not what he must.  -  Cersei Lannister
