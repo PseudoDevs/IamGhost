@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 18:44:42
-Random Quote: I’ve spent my life being a bit of a son of a bitch, but today I think I want to die with dignity. - Berlin
+Last updated: 2024-04-13 18:45:15
+Random Quote: Success is 1% inspiration, 98% perspiration, and 2% attention to detail. - Phil Dunphy
