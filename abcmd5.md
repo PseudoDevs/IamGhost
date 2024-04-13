@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 10:30:12
-Random Quote: Because you're so broken you don't even trust yourself. And that's scary. - Nate Jacobs
+Last updated: 2024-04-13 10:30:46
+Random Quote: Larry: "Where would you like me to put it then, Piper?"Piper: "Up your ass."Larry: "There's no room. Apparently, my head's already up there." - Larry Bloom
