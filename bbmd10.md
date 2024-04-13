@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 17:56:03
-Random Quote: Any time, a girl wants to get back at her ex-bodyfriends, we'll be there.Any time, a girl wants to solve her father-issues through promiscuity and binge drinking we will be there.Any time a bachelorette party drives through the city in a limo, sticking their heads out the sunroof, shouting 'what's up New York?', we will be what is 'up' New York! - Barney Stinson
+Last updated: 2024-04-13 17:56:36
+Random Quote: Robert could piss in a cup and men would call it wine, but I offer them cold clear water and they squint in suspicion and mutter to each other about how queer it tastes.  -  Stannis Baratheon
