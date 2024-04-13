@@ -1,2 +1,4 @@
-Last updated: 2024-04-13 18:12:00
-Random Quote: You know, it's funny. Almost every woman I've ever met was wrong to give me a chance. You're the first woman who's wrong not to. - Barney Stinson
+Last updated: 2024-04-13 18:12:35
+Random Quote: It could be for a brother or maybe her sick dad.
+[reads] "And then I want you to do me on the couch."
+Okay, maybe not a sick dad. Or a very sick dad, am I right? - Robin Scherbatsky
