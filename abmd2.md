@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 17:31:34
-Random Quote: Elia Martell, Princess of Dorne.  You raped her!  You murdered her!  You killed her children!  -  Oberyn Martell
+Last updated: 2024-04-13 17:32:07
+Random Quote: There are moments when we must understand that the decisions we make influence more than just our own fates. - 
