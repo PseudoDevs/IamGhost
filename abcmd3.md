@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 17:08:47
-Random Quote: In my body, where the shame gland should be, there is a second awesome gland. True story! - Barney Stinson
+Last updated: 2024-04-13 17:09:21
+Random Quote: I don't care if you're so scared you foul your breeches, and I don't care if a thousand wildlings are coming over the walls howling for your blood, you get those birds off, or I swear I'll hunt you through all seven hells and make you damn sorry that you didn't.  -  Jeor Mormont
