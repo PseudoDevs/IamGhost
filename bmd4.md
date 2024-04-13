@@ -1,4 +1,2 @@
-Last updated: 2024-04-13 18:13:43
-Random Quote: Ellie: "Can I have a gun?"
-Joel: "Absolutely not."
-Ellie: "Okay, Jesus. Fine. I'll have to throw a f-ckin' sandwich at them." - Ellie Williams
+Last updated: 2024-04-13 18:14:17
+Random Quote: Love doesn't make sense. I mean, you can't logic your way into or out of it. Love ist totally nonsensical, but we have to keep doing it or else we're lost and love is dead and humanity should just pack it in. Because love is the best thing we do. - Ted Mosby
