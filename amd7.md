@@ -1,3 +1,2 @@
-Last updated: 2024-04-13 18:27:00
-Random Quote: Grace: "I had the phone put in. It's in the back."
-Tommy: "If we knew someone else who had a phone, we could call them." - Thomas Shelby
+Last updated: 2024-04-13 18:27:33
+Random Quote: There are worse ways to die than warm and drunk.  I knew a brother drowned himself in wine once.  It was a poor vintage, though, and his corpse did not improve it.  -  Dolorous Edd Tollett
