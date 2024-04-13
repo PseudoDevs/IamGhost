@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 18:06:23
-Random Quote: Marshall: "The tiniest little burger joint you ever saw. Tucked between a taxidermist and a XXX bookstore."Barney: "Name two places where things get stuffed." - Barney Stinson
+Last updated: 2024-04-13 18:07:29
+Random Quote: Marshall: "The broken windows?"Lily: "We had to make it look realistic."Marshall: "But why did you break two of them?"Robin: "It looked like fun when she did it, so I wanted to try."Marshall: "I can't believe this whole time it was you guys; I've been blaming Really Tan Dancing Leotard guy." - Marshall Eriksen
