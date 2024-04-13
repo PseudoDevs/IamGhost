@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 18:05:54
-Random Quote: Elia of Dorne.  I killed her screaming whelp.  Then I raped her.  Then I smashed her fucking head in like this.  -  Gregor Clegane
+Last updated: 2024-04-13 18:06:27
+Random Quote: Things never work out the way you imagine they will. - Lucien
