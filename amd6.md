@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 17:08:05
-Random Quote: It wasn't the violence that scared her. It was the fact that she knew no matter what he did, she'd still love him. - Rue Bennett
+Last updated: 2024-04-13 17:08:39
+Random Quote: If the cancer doesn't get him, it'll be the cops or a bullet to the head. - Mike Ehrmantraut
