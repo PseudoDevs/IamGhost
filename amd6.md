@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 17:34:06
-Random Quote: The septons preach about the seven hells.  What do they know?  Only a man who's been burned knows what hell is truly like.  -  Sandor Clegane
+Last updated: 2024-04-13 17:34:41
+Random Quote: The biggest case of my life and I'd already lost the jury. I mean, I've heard of "Twelve Angry Men",  but this was more like "Twelve Horny Women". - Marshall Eriksen

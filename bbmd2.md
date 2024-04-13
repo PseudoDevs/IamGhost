@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 17:34:06
-Random Quote: The septons preach about the seven hells.  What do they know?  Only a man who's been burned knows what hell is truly like.  -  Sandor Clegane
+Last updated: 2024-04-13 17:34:41
+Random Quote: We're cosigning birthday cards, we got toothbrushes at each other's places, foreplay's out the window. I'm in, I'm out, I'm sleeping - it's great. - Ted Mosby
