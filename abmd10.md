@@ -1,4 +1,2 @@
-Last updated: 2024-04-13 18:11:06
-Random Quote: Marshall: "Except the flames of Lucifer keep singein our back bumper as we drive through this hellish, cheese-infected wasteland."
-Lily: "Wisconsin?"
-Marshall: "Wisconsin!" - Marshall Eriksen
+Last updated: 2024-04-13 18:11:39
+Random Quote: You don’t want a criminal lawyer. You want a criminal lawyer. - Jesse Pinkman
