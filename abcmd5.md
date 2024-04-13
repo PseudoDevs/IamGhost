@@ -1,2 +1,3 @@
-Last updated: 2024-04-13 17:16:34
-Random Quote: Early drinkin’ means quick drunken. - Jim Hopper
+Last updated: 2024-04-13 17:17:10
+Random Quote: Lily: "We're going to Atlantic City to elope - right now!"
+Barney: "Oh, congratulations Lily! Marshall, you're getting married? What the hell?" - Barney Stinson
