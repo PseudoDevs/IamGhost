@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 16:55:17
-Random Quote: I wish my mental problems made me look like you. - Kat Hernandez
+Last updated: 2024-04-13 16:55:51
+Random Quote: Gloria: "It seemd like all what we did was fight and make love. One time, I'm not kidding you, we fell out of the window together."Jay: "Which one were you doing?" - Jay Pritchett

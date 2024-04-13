@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 16:55:17
-Random Quote: Robert could piss in a cup and men would call it wine, but I offer them cold clear water and they squint in suspicion and mutter to each other about how queer it tastes.  -  Stannis Baratheon
+Last updated: 2024-04-13 16:55:51
+Random Quote: It was the white cloak that soiled me, not the other way around.  -  Jaime Lannister
