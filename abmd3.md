@@ -1,2 +1,3 @@
-Last updated: 2024-04-13 10:45:36
-Random Quote: There is no creature on earth half so terrifying as a truly just man.  -  Varys
+Last updated: 2024-04-13 10:46:14
+Random Quote: George: "I love what you done with the place. Did you do it yourself, or did you get some pouf to help ya?"
+Rebecca: "I could ask the same of your hair." - Rebecca Welton
