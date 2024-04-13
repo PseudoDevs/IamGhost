@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 17:19:06
-Random Quote: I pray for a glimpse of Azor Ahai, and R'hllor shows me only Snow.  -  Melisandre
+Last updated: 2024-04-13 17:19:43
+Random Quote: I dreamed of the man who came today, the one they call Reek.  You and your brother lay dead at his feet, and he was skinning off your faces with a long red blade.  -  Jojen Reed
