@@ -1,3 +1,2 @@
-Last updated: 2024-04-14 18:46:16
-Random Quote: "I thought Mandalorians were honorable."
-Koska Reeves: "We are, kid. All it takes is a few credits." - Din Djarin
+Last updated: 2024-04-14 18:46:50
+Random Quote: You can have all the intelligence in the world, but if nobody's there to act on it, what's it worth? Nothing. - Steve Murphy
