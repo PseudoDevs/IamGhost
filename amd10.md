@@ -1,2 +1,3 @@
-Last updated: 2024-04-14 18:38:54
-Random Quote: We didn't choose this life, we're just living in it. - Number Five
+Last updated: 2024-04-14 18:39:30
+Random Quote: Mi-nyeo: "Deok-su. You betray me... I'll kill you. Okay?"
+Deok-su: "You're the reason that I think I might die tonight." - Jang Deok-su
