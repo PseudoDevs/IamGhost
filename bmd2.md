@@ -1,2 +1,2 @@
-Last updated: 2024-04-14 18:47:09
-Random Quote: Gloria: "It seemd like all what we did was fight and make love. One time, I'm not kidding you, we fell out of the window together."Jay: "Which one were you doing?" - Jay Pritchett
+Last updated: 2024-04-14 18:48:23
+Random Quote: Sometimes we have to let things go because we can't keep them forever. - Maura Franklin
