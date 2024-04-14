@@ -1,2 +1,2 @@
-Last updated: 2024-04-14 18:39:01
-Random Quote: Having just any boyfriend, no matter who he is, is not going to make you happier or change who you are. - Fabiola Torres
+Last updated: 2024-04-14 18:39:35
+Random Quote: Demons made of snow and ice and cold.  The ancient enemy.  The only enemy that matters.  -  Stannis Baratheon
