@@ -1,2 +1,2 @@
-Last updated: 2024-04-14 18:45:19
-Random Quote: Love doesn't make sense. I mean, you can't logic your way into or out of it. Love ist totally nonsensical, but we have to keep doing it or else we're lost and love is dead and humanity should just pack it in. Because love is the best thing we do. - Ted Mosby
+Last updated: 2024-04-14 18:45:54
+Random Quote: Is she worth the pain? A man does not suffer like this for his own glory. There is a fine line between devotion and delusion. Love can break more than your heart. It can shatter your mind. - O-Bengh
