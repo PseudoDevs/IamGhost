@@ -1,2 +1,2 @@
-Last updated: 2024-04-14 18:45:37
-Random Quote: Come on, we gotta rally. Make some memories. - Piper Chapman
+Last updated: 2024-04-14 18:46:10
+Random Quote: No one had expected the broken boy to live.  The gods could not kill Bran, no more than I could.  It was a strange thought, and stranger still to remember that Bran might still be alive.  -  Theon Greyjoy
