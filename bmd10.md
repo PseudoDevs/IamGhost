@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 19:06:38
-Random Quote: Men call me Darkstar, and I am of the night.  -  Gerold Dayne
+Last updated: 2024-04-14 05:07:11
+Random Quote: My real father died in King's Landing.  I made a choice, and I chose wrong.  -  Theon Greyjoy
