@@ -1,2 +1,2 @@
-Last updated: 2024-04-14 18:46:13
-Random Quote: Marshall: "Where is your playbook?"Robin: "My playbook? Bro, uh, two-volume set, right here.Ted: "It's a great read, actually."Lily: "Yeah, I'm reading it right now." - Robin Scherbatsky
+Last updated: 2024-04-14 18:46:46
+Random Quote: You don’t want a criminal lawyer. You want a criminal lawyer. - Jesse Pinkman
