@@ -1,2 +1,2 @@
-Last updated: 2024-04-14 18:39:29
-Random Quote: Everyone wants something, Alayne.  And when you know what a man wants you know who he is, and how to move him.  -  Petyr Baelish
+Last updated: 2024-04-14 18:40:02
+Random Quote: I feel like her sobriety is completely dependent on how available I am to her. - Jules Vaughn
