@@ -1,2 +1,2 @@
-Last updated: 2024-04-14 18:39:30
-Random Quote: I think my soul just threw up a little bit. - Lily Aldrin
+Last updated: 2024-04-14 18:40:38
+Random Quote: I have served six kings, but here before us lies the greatest man I ever knew.  Lord Tywin wore no crown, yet he was all a king should be.  -  Grand Maester Pycelle
