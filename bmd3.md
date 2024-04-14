@@ -1,2 +1,2 @@
-Last updated: 2024-04-14 18:46:55
-Random Quote: Shut the f*ck up and let me die in peace. - Mike Ehrmantraut
+Last updated: 2024-04-14 18:47:28
+Random Quote: A family is like a small business. And with a small business, at times, there comes a bit of transition. - Marty Byrde
