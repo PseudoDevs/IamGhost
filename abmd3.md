@@ -1,2 +1,2 @@
-Last updated: 2024-04-14 18:41:48
-Random Quote: Barney: "He's the awesomest, most best-lookingest, greatest guy ever!"Lily: "He's exactly like Barney."Barney: "That's what I just said." - Barney Stinson
+Last updated: 2024-04-14 18:42:57
+Random Quote: You could help a friend, but instead you're choosing the hot girl in the tight tank-top. Your training is complete, I'm so proud of this kid! - Barney Stinson
