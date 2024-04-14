@@ -1,2 +1,2 @@
-Last updated: 2024-04-14 18:44:09
-Random Quote: I'm not surviving, I'm just existing. - Brook Soso
+Last updated: 2024-04-14 18:44:45
+Random Quote: Nobody takes an intro class to get on any other path, but the path to not being hungover anymore. I learned that in my intro to something-ology class. - Marshall Eriksen
