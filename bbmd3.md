@@ -1,2 +1,2 @@
-Last updated: 2024-04-14 18:39:42
-Random Quote: You can have all the intelligence in the world, but if nobody's there to act on it, what's it worth? Nothing. - Steve Murphy
+Last updated: 2024-04-14 18:40:16
+Random Quote: A family is like a small business. And with a small business, at times, there comes a bit of transition. - Marty Byrde
