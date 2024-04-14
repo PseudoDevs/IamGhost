@@ -1,3 +1,2 @@
-Last updated: 2024-04-14 18:43:21
-Random Quote: Jerry: "Rick! Beth! You love me after all!"
-Rick: "Eh, I love her, she loves you. Those credits don't transfer." - Rick Sanchez
+Last updated: 2024-04-14 18:45:00
+Random Quote: In the end, a gentle heart may be worth more than pride or valor.  -  Doran Martell
