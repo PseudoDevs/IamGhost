@@ -1,2 +1,2 @@
-Last updated: 2024-04-14 18:46:47
-Random Quote: Sometimes I think everyone is just pretending to be brave, and none of us really are.  Maybe pretending is how you get brave, I don't know.  -  Grenn
+Last updated: 2024-04-14 18:47:20
+Random Quote: Sometimes people make decisions, shit happens, and we gotta act accordingly. - Marty Byrde
