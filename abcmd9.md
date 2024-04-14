@@ -1,2 +1,3 @@
-Last updated: 2024-04-14 18:47:28
-Random Quote: I will put you under the jail. - Hank Schrader
+Last updated: 2024-04-14 18:48:01
+Random Quote: "I thought Mandalorians were honorable."
+Koska Reeves: "We are, kid. All it takes is a few credits." - Din Djarin
