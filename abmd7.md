@@ -1,2 +1,3 @@
-Last updated: 2024-04-14 18:46:50
-Random Quote: Strip off their skins.  Lord Bolton, he used to say a naked man has few secrets, but a flayed man's got none.  -  Ramsay Bolton
+Last updated: 2024-04-14 18:47:24
+Random Quote: What do you call a fish with no eyes?
+Fsh. - Marshall Eriksen

@@ -1,2 +1,2 @@
-Last updated: 2024-04-14 18:46:17
-Random Quote: Marshall: "If economic sanctions and trade-restrictions aren't enforced, the destruction of the rainforest will continue and over a million species will be wiped out!"Ted: "So you don't want coffee?" - Ted Mosby
+Last updated: 2024-04-14 18:47:24
+Random Quote: I will kill your wife, I will kill your son, I will kill your infant daughter. - Gustavo Fring
