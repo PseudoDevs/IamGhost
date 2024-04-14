@@ -1,2 +1,2 @@
-Last updated: 2024-04-14 18:46:40
-Random Quote: Barney: "Whoa, Ted, that thing you're packing is way too big to fit in that box."Ted: "Yeah, that's what your mom said."Barney: "How dare you?"Ted: "No, she actually said that." - Ted Mosby
+Last updated: 2024-04-14 18:47:13
+Random Quote: When you date someone, it's like you're taking one long course in who that person is and then, when you break up, all that stuff becomes useless. It's the emotional equivalent of an English degree... - Ted Mosby
