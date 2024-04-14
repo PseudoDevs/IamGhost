@@ -1,2 +1,2 @@
-Last updated: 2024-04-14 18:42:24
-Random Quote: Mother of dragons.  Mother of monsters.  What have I unleashed upon the world?  A queen I am, but my throne is made of burned bones, and it rests on quicksand.  Without dragons, how could she hope to hold Mereen, much less win back Westeros?  I am the blood of the dragon.  If they are monsters, so am I.  -  Daenerys Targaryen
+Last updated: 2024-04-14 18:42:59
+Random Quote: So many vows... they make you swear and swear.  Defend the king.  Obey the king.  Keep his secrets.  Do his bidding.  Your life for his.  But obey your father.  Love your sister.  Protect the innocent.  Defend the week.  Respect the gods.  Obey the laws.  It's too much.  No matter what you do, you're forsaking one vow for the other.  -  Jaime Lannister
