@@ -1,2 +1,3 @@
-Last updated: 2024-04-14 18:47:10
-Random Quote: Forgotten? Oh, Wanda, I'm incapable of forgetfulness. I remember everything. That's not an exaggeration. In fact... I'm incapable of exaggeration. - Vision
+Last updated: 2024-04-14 18:48:24
+Random Quote: Freddie Thorne: "What kind of a list would have the name of a communist and the name of a bookmaker side by side?"
+Thomas Shelby: "Perhaps it's a list of men who give false hope to the poor." - Thomas Shelby
