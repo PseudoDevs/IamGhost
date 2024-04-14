@@ -1,2 +1,3 @@
-Last updated: 2024-04-14 18:42:28
-Random Quote: A queen must listen to all.  The highborn and the low, the strong and the weak, the noble and the venal.  One voice may speak you false, but in many there is always truth to be found.  -  Daenerys Targaryen
+Last updated: 2024-04-14 18:43:01
+Random Quote: Elliot: "I'm not sure it's a good thing we met."
+Rue: "What are you talking about? You're my new favorite person." - Rue Bennett
