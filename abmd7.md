@@ -1,2 +1,2 @@
-Last updated: 2024-04-14 18:41:48
-Random Quote: Ted: "Everyone has an opinion on how long it takes to recover from a breakup."Lily: "Half the length of the relationship."Marshall: "One week for every month you were together."Robin: "Exactly 10,000 drinks, however long that takes."Barney: "You can't measure something like this in time. There's a series of steps: From her bed to the front door. Bam! Out of there.... next!" - Barney Stinson
+Last updated: 2024-04-14 18:42:22
+Random Quote: A godly man got no cause to fear such.  I said as much to that Mance Rayder once, when he come sniffing round.  He never listened, no more'n you crows with your swords and your bloody fires.  That won't help you none when the white cold comes.  Only the gods will help you then.  You best get right with the gods.  -  Craster
