@@ -1,2 +1,2 @@
-Last updated: 2024-04-14 18:47:24
-Random Quote: I will kill your wife, I will kill your son, I will kill your infant daughter. - Gustavo Fring
+Last updated: 2024-04-14 18:47:57
+Random Quote: Why is it always the innocents who suffer most, when you high lords play your game of thrones?  -  Varys
