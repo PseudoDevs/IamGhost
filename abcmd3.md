@@ -1,3 +1,2 @@
-Last updated: 2024-04-14 18:42:24
-Random Quote: Peter Parker: "Splitting up? Do you guys just not have horror movies in Wakanda?"
-Okoye: "We don't need them. We have American reality shows." - Okoye
+Last updated: 2024-04-14 18:43:35
+Random Quote: We're going to Buffalo... and I've seen women from there; the city's aptly named. - Barney Stinson
