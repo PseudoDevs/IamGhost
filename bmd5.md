@@ -1,2 +1,2 @@
-Last updated: 2024-04-14 18:40:48
-Random Quote: When you start moving furniture around, people stub their toes and get upset. - Don Neto
+Last updated: 2024-04-14 18:41:21
+Random Quote: See, lad, that's why he's the king and I'm not.  I can outdrink, outfight, and outsing him, and my member's thrice the size o' his, but Mance has cunning.  -  Tormund Giantsbane
