@@ -1,2 +1,2 @@
-Last updated: 2024-04-14 18:39:44
-Random Quote: Spare me your empty little compliments, girl... and your ser's.  I am no knight.  I spit on them and their vows.  My brother is a knight.  -  Sandor Clegane
+Last updated: 2024-04-14 18:40:50
+Random Quote: Who do you think killed all the dragons the last time around?  Gallant dragonslayers armed with swords?  The world the Citadel is building has no place in it for sorcery or prophecy or glass candles, much less for dragons.  Ask yourself why Aemon Targaryen was allowed to waste his life upon the Wall, when by rights he should have been raised to archmaester.  His blood was why.  He could not be trusted.  No more than I can.  -  Archmaester Marwyn
