@@ -1,3 +1,2 @@
-Last updated: 2024-04-14 18:39:11
-Random Quote: Men and their d-cks never cease to amaze me. John, Lizzie Stark never did a day's work vertical.
-Brave is going where no man has gone before. And with Lizzie Stark, John, that's not what you'll be doing. - Polly Gray
+Last updated: 2024-04-14 18:39:44
+Random Quote: Would the five of us always live within a few minutes of that booth? No, that's life, kids, but here's what I discovered: Our booth was wherever the five of us were together. - Ted Mosby
