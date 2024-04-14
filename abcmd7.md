@@ -1,2 +1,4 @@
-Last updated: 2024-04-14 05:07:03
-Random Quote: Ted: "My mother is not one-night-stand material!"Barney: "Yeah, you're right. It wasn't night and we weren't standing." - Barney Stinson
+Last updated: 2024-04-14 18:39:02
+Random Quote: Joel: "Long way or short way?"
+Tess: "I mean, it's the long way or the 'we're fuckin' dead' way."
+Ellie: "Well, I vote long way just based on that limited information." - Ellie Williams
