@@ -1,2 +1,2 @@
-Last updated: 2024-04-14 18:48:34
-Random Quote: These old knights are more cunning than you think, or they would never have lived to see their first grey hair.  -  Dagmer Cleftjaw
+Last updated: 2024-04-14 18:49:08
+Random Quote: We're going to Buffalo... and I've seen women from there; the city's aptly named. - Barney Stinson
