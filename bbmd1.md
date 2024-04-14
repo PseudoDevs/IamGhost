@@ -1,2 +1,2 @@
-Last updated: 2024-04-14 18:40:15
-Random Quote: A ruler who hides behind paid executioners soon forgets what death is.  -  Eddard Stark
+Last updated: 2024-04-14 18:40:49
+Random Quote: I thought you where vomit-free since nintythree... so that was a lie? - Marshall Eriksen
