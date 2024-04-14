@@ -1,2 +1,2 @@
-Last updated: 2024-04-14 18:46:17
-Random Quote: But what is grief, if not love persevering? - Vision
+Last updated: 2024-04-14 18:46:50
+Random Quote: Strip off their skins.  Lord Bolton, he used to say a naked man has few secrets, but a flayed man's got none.  -  Ramsay Bolton
