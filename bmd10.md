@@ -1,2 +1,2 @@
-Last updated: 2024-04-14 18:48:22
-Random Quote: My uncle Kevan would make a passably good regent if someone pressed the duty on him, but he will never reach for it.  The gods shaped him to be a follower, not a leader.  -  Tyrion Lannister
+Last updated: 2024-04-14 18:49:01
+Random Quote: I let each man cut me once, before I kill him.  Count the cuts and you will know how many Strong Belwas has slain.  -  Strong Belwas
