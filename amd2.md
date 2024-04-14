@@ -1,2 +1,2 @@
-Last updated: 2024-04-14 18:41:11
-Random Quote: Why the oldest son, and not the best - fitted?  The crown will suit me, as it never suited Robert and would not suit Stannis. 
+Last updated: 2024-04-14 18:41:45
+Random Quote: Barney: "You have no reason to be nervous. And I'm going to tell you why in one word."Ted: "And what's that word?"Barney: "Dibs!" - Barney Stinson
