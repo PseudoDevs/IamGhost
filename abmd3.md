@@ -1,2 +1,3 @@
-Last updated: 2024-04-14 18:44:04
-Random Quote: One day, we'll wake up, and brush our teeth, and go to work. And at some point, we'll suddenly realize that we haven't thought about it at all. None of it. And that's when we'll know. We'll know we can forget. - Saul Goodman
+Last updated: 2024-04-14 18:44:37
+Random Quote: Journalist: "Mr. Stark, were you injured in the attack?"
+Tony Stark: "No, but I did spill my drink, and it was a '26 Macallan, so I'm pretty sure that's a war crime." - Iron Man
