@@ -1,2 +1,2 @@
-Last updated: 2024-04-14 18:41:22
-Random Quote: Nobody takes an intro class to get on any other path, but the path to not being hungover anymore. I learned that in my intro to something-ology class. - Marshall Eriksen
+Last updated: 2024-04-14 18:41:55
+Random Quote: In my head, it's like If I can conquer men, then I can conquer femininity. - Jules Vaughn
