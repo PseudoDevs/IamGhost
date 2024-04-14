@@ -1,2 +1,2 @@
-Last updated: 2024-04-14 05:07:02
-Random Quote: Strip off their skins.  Lord Bolton, he used to say a naked man has few secrets, but a flayed man's got none.  -  Ramsay Bolton
+Last updated: 2024-04-14 18:39:01
+Random Quote: Barney: "He's the awesomest, most best-lookingest, greatest guy ever!"Lily: "He's exactly like Barney."Barney: "That's what I just said." - Barney Stinson
