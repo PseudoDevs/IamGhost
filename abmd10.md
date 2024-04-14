@@ -1,2 +1,2 @@
-Last updated: 2024-04-14 18:40:40
-Random Quote: Look, I found a rock that looks like a penis with one ball. It's my Lance Armstrong rock. - Piper Chapman
+Last updated: 2024-04-14 18:42:24
+Random Quote: Mother of dragons.  Mother of monsters.  What have I unleashed upon the world?  A queen I am, but my throne is made of burned bones, and it rests on quicksand.  Without dragons, how could she hope to hold Mereen, much less win back Westeros?  I am the blood of the dragon.  If they are monsters, so am I.  -  Daenerys Targaryen
