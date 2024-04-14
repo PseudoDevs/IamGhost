@@ -1,2 +1,2 @@
-Last updated: 2024-04-14 18:45:51
-Random Quote: I was a better smuggler than a knight, he had written to his wife, a better knight than a King's hand, a better King's hand than a husband.  I am so sorry Marya, I have loved you.  Please forgive the wrongs I did you.  -  Davos Seaworth
+Last updated: 2024-04-14 18:46:23
+Random Quote: Barney: "You avoiding the family too?"James: "I'm gay, I'm black and I'm getting a divorce. Those walking skeletons are gonna have more questions for me than their pharmacists." - James Stinson
