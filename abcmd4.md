@@ -1,2 +1,5 @@
-Last updated: 2024-04-13 17:27:24
-Random Quote: The only difference between us is, when I made bad decisions in life, I didn't get caught. - Susan Fischer
+Last updated: 2024-04-14 05:07:01
+Random Quote: Barney: "You can't spell 'game' without 'me' and 'me' has the best game."
+Ted: "Yeah well, I got so much game, I'm Cornish game hen."
+Barney: "Oh, yeah? I'm the New York State gaming commissioner."
+Ted: "Well, I'm The Game. Well-crafted, keep-you-guessing thriller starring Michael Douglas and Sean Penn." - Ted Mosby
