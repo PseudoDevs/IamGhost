@@ -1,2 +1,2 @@
-Last updated: 2024-04-14 18:39:34
-Random Quote: Lord Varys, sometimes I feel as though you are the best friend I have in King's Landing and sometimes I feel you are my worst enemy.  -  Tyrion Lannister
+Last updated: 2024-04-14 18:40:07
+Random Quote: If I hadn't buried my feelings so deep I would totally be tearing up right now. - Maritza Ramos
