@@ -1,2 +1,2 @@
-Last updated: 2024-04-14 18:42:31
-Random Quote: Some people wander around their whole lives looking for a way out, but there’s only one path and it leads you ever deeper. - 
+Last updated: 2024-04-14 18:44:12
+Random Quote: Marshall: "Excuse me, miss. When you get a chance, could you bring over a hundred shots of tequila please?"Barney: "I'll have the same." - Marshall Eriksen

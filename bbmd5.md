@@ -1,2 +1,2 @@
-Last updated: 2024-04-14 18:42:31
-Random Quote: I am the Watcher. I am your guide through these vast new realities. Follow me, and dare to face the unknown. And ponder the question, "What if...?" - The Watcher
+Last updated: 2024-04-14 18:44:12
+Random Quote: There is a savage beast in every man, and it stirs when you put a sword in his hand.  -  Jorah Mormont
