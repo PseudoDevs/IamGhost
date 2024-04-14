@@ -1,2 +1,2 @@
-Last updated: 2024-04-14 18:45:10
-Random Quote: None will be free until the old ways are gone forever. - Kuiil
+Last updated: 2024-04-14 18:45:44
+Random Quote: Rhaegar fought valiantly, Rhaegar fought nobly, and Rhaegar died.  -  Jorah Mormont
