@@ -1,2 +1,2 @@
-Last updated: 2024-04-14 18:45:41
-Random Quote: Some battles are won with swords and spears, others with quills and ravens.  -  Tywin Lannister
+Last updated: 2024-04-14 18:46:47
+Random Quote: The common people pray for rain, healthy children, and a summer that never ends.  It is no matter to them if the high lords play their game of thrones, so long as they are left in peace.  They never are.  -  Jorah Mormont
