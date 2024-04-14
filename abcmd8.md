@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 19:06:53
-Random Quote: She's gotta start working on tightening her pussy muscles, 'cause her fiance's dick is so small, it's like a hot dog in a hallway. - Nicky Nichols
+Last updated: 2024-04-14 05:07:04
+Random Quote: A true man does what he will, not what he must.  -  Cersei Lannister
