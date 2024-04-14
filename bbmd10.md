@@ -1,2 +1,3 @@
-Last updated: 2024-04-14 18:40:17
-Random Quote: I'm not in the meth business. I'm in the empire business. - Walter White
+Last updated: 2024-04-14 18:40:50
+Random Quote: "How do you take your tea?"
+Ted: "Well, normally right back to the counter because there's been a terrible mistake." - Jim Hopper
