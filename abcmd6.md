@@ -1,2 +1,2 @@
-Last updated: 2024-04-14 18:41:16
-Random Quote: The title was but a courtesy due him as a council member; Varys was lord of nothing but the spiderweb, the master of none but his whispers.  -  Catelyn Stark
+Last updated: 2024-04-14 18:41:49
+Random Quote: I have won every battle, yet somehow I'm losing the war.  -  Robb Stark
