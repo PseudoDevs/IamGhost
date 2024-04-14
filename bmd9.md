@@ -1,2 +1,2 @@
-Last updated: 2024-04-14 18:39:41
-Random Quote: You're not gonna believe this because it usually never happens, but I made a mistake! - Rick Sanchez
+Last updated: 2024-04-14 18:41:22
+Random Quote: Nobody takes an intro class to get on any other path, but the path to not being hungover anymore. I learned that in my intro to something-ology class. - Marshall Eriksen
