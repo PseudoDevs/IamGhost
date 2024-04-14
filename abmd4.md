@@ -1,2 +1,2 @@
-Last updated: 2024-04-14 18:44:34
-Random Quote: In commemoration of Barney's induction into the "Hall of Game", this tie, worn on the seventh night of his perfect week, is hereby retired. - Lily Aldrin
+Last updated: 2024-04-14 18:45:40
+Random Quote: When I knew him, he was. - Kim Wexler
