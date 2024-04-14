@@ -1,2 +1,2 @@
-Last updated: 2024-04-14 18:41:12
-Random Quote: Fine I'll fill her in and I am so angry I am not even goin' to make a joke about "filling her in"... which I did three times last night. Self-five! - Barney Stinson
+Last updated: 2024-04-14 18:42:19
+Random Quote: Barney: "I cannot stop staring at that girl's face."Ted: "Face, huh? That's your weirdest nickname for boobs yet." - Ted Mosby
