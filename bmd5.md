@@ -1,2 +1,2 @@
-Last updated: 2024-04-13 17:29:22
-Random Quote: The Crow's Eye brought back monsters from the east... aye, and wizards too.  -  Tristifer Botley
+Last updated: 2024-04-14 05:07:05
+Random Quote: No one had expected the broken boy to live.  The gods could not kill Bran, no more than I could.  It was a strange thought, and stranger still to remember that Bran might still be alive.  -  Theon Greyjoy
