@@ -1,2 +1,2 @@
-Last updated: 2024-04-14 18:41:49
-Random Quote: I think mothers and fathers made up the gods because they wanted their children to sleep through the night.  -  Davos Seaworth
+Last updated: 2024-04-14 18:42:23
+Random Quote: Marshall: "The broken windows?"Lily: "We had to make it look realistic."Marshall: "But why did you break two of them?"Robin: "It looked like fun when she did it, so I wanted to try."Marshall: "I can't believe this whole time it was you guys; I've been blaming Really Tan Dancing Leotard guy." - Marshall Eriksen
