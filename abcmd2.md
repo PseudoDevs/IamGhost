@@ -1,2 +1,2 @@
-Last updated: 2024-04-14 05:07:00
-Random Quote: Pennsatucky: "It weren't my fault. I was just doing as the Spirit commanded."Pussey: "Fuck are you? Joan of Arc?"Pennsatucky: "No, I'm from Waynesboro, my name is Tiffany..." - Tiffany 'Pennsatucky' Doggett
+Last updated: 2024-04-14 18:39:01
+Random Quote: Having just any boyfriend, no matter who he is, is not going to make you happier or change who you are. - Fabiola Torres
