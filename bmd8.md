@@ -1,2 +1,2 @@
-Last updated: 2024-04-14 18:41:55
-Random Quote: Some people wander around their whole lives looking for a way out, but there’s only one path and it leads you ever deeper. - 
+Last updated: 2024-04-14 18:42:28
+Random Quote: There is no such thing as magic, just illusion. Things only change when we change them. But you have to do it skillfully, in secret. Then it seems like magic. - Mikkel Nielsen
