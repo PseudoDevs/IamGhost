@@ -1,2 +1,2 @@
-Last updated: 2024-04-16 16:42:58
-Random Quote: Every night can't be legendary. If all nights are legendary, no nights are legendary! - Ted Mosby
+Last updated: 2024-04-16 16:43:35
+Random Quote: Do you know what it is like to be sold, squire?  I do.  My brother sold me to Khal Drogo for the promise of a golden crown.  Well, Drogo crowned him in gold, though not as he had wished, and I... my sun - and
