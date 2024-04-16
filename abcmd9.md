@@ -1,2 +1,2 @@
-Last updated: 2024-04-16 16:25:22
-Random Quote: What I came to realise is that fear, that’s the worst of it. That’s the real enemy. So, get up, get out in the real world and you kick that bastard as hard you can right in the teeth. - Walter White
+Last updated: 2024-04-16 16:26:37
+Random Quote: Ties and no playoffs? Why do you even do this? - Jim Hopper
