@@ -1,2 +1,2 @@
-Last updated: 2024-04-16 16:45:25
-Random Quote: Oberyn was ever the viper.  Deadly, dangerous, unpredictable.  No man dared tread on him.  I was the grass.  Pleasant, complaisant, sweet - smelling, swaying with every breeze.  Who fears to walk upon the grass?  But it is the grass that hides the viper from his enemies and shelters him until he strikes. 
+Last updated: 2024-04-16 16:46:01
+Random Quote: How many eyes does Lord Bloodraven have?  the riddle ran.  A thousand eyes, and one.  Some claimed the King's Hand was a student of the dark arts who could change his face, put on the likeness of a one - eyed dog, even turn into a mist.  Packs of gaunt gray wolves hunted down his foes, men said, and carrion crows spied for him and whispered secrets in his ear.  Most of the tales were only tales, Dunk did not doubt, but no one could doubt that Bloodraven had informers everywhere. 
