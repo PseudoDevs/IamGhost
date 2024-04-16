@@ -1,2 +1,2 @@
-Last updated: 2024-04-16 16:25:39
-Random Quote: So, what do you want to do tonight? Drink ourselves blind, set a car on fire? Oh, watch a movie that doesn't start with a desk lamp jumping on top of a capital "I"? - Lily Aldrin
+Last updated: 2024-04-16 16:26:12
+Random Quote: You have to be as bad as them above in order to survive. - Polly Gray
