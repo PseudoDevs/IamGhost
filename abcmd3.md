@@ -1,2 +1,2 @@
-Last updated: 2024-04-16 16:46:41
-Random Quote: She studied Theon Greyjoy's sly smile, wondering what it meant.  That young man had a way of looking as though he knew some secret jest that only he was privy to; Catelyn had never liked it.  -  Catelyn Stark
+Last updated: 2024-04-16 16:47:19
+Random Quote: Love is poison.  A sweet poison, yes, but it will kill you all the same.  -  Cersei Lannister
