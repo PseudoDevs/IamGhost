@@ -1,2 +1,2 @@
-Last updated: 2024-04-16 16:29:55
-Random Quote: Lily: "It's nine weeks 'til the wedding, at this point, I'd say yes to just about anything."Barney: "Well..."Lily: "No, Barney." - Lily Aldrin
+Last updated: 2024-04-16 16:30:28
+Random Quote: Jaime, sweetling, I have known you since you were a babe at Joanna's breast.  You smile like Gerion and fight like Tyg and there's some of Keven in you, else you would not wear that cloak... but Tyrion is Tywin's son, not you.  I said that once to your father's face, and he would not speak to me for half a year.  -  Genna Lannister
