@@ -1,2 +1,2 @@
-Last updated: 2024-04-16 16:31:25
-Random Quote: I was wed three times and my wives gave me daughters.  Now only Beth remains to me.  My brother Martyn fathered four strong sons, yet only Jory lived to be a man.  When he was slain, Martyn's line died with him.  When we speak of the morrow nothing is ever certain.  -  Rodrik Cassel
+Last updated: 2024-04-16 16:32:03
+Random Quote: There's something between us. Maybe my head was saying, "nip it in the bud", because my heart was saying something else... - Robin Scherbatsky

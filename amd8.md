@@ -1,2 +1,3 @@
-Last updated: 2024-04-16 16:31:25
-Random Quote: The biggest case of my life and I'd already lost the jury. I mean, I've heard of "Twelve Angry Men",  but this was more like "Twelve Horny Women". - Marshall Eriksen
+Last updated: 2024-04-16 16:32:04
+Random Quote: The boobs on the bus go up and down, up and down, up and down
+The boobs on the bus go up and down, all through the town - Barney Stinson
