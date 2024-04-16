@@ -1,2 +1,2 @@
-Last updated: 2024-04-16 16:47:39
-Random Quote: You guys can judge me if you want, but I do not care! I have never ever been happier! - Cassie Howard
+Last updated: 2024-04-16 16:48:13
+Random Quote: He made me kill a rabbit. I guess he thought it would make me into more of a man or something. I cried for a week. - Jonathan Byers
