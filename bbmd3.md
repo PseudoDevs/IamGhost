@@ -1,2 +1,2 @@
-Last updated: 2024-04-16 16:42:19
-Random Quote: Larry: "Where would you like me to put it then, Piper?"Piper: "Up your ass."Larry: "There's no room. Apparently, my head's already up there." - Larry Bloom
+Last updated: 2024-04-16 16:42:54
+Random Quote: The Citadel took my chain, but they could not take my knowledge.  -  Qyburn
