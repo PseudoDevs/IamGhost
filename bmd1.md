@@ -1,2 +1,2 @@
-Last updated: 2024-04-16 16:47:56
-Random Quote: Get the keys and remove those chains from him, before you make me rue the day I raped your mother.  -  Roose Bolton
+Last updated: 2024-04-16 16:48:33
+Random Quote: I know this hurts little buddy, but you'll love again someday. Because time will heal a broken heart, but not that bitch's window. - Barney Stinson
