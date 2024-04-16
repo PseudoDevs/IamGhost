@@ -1,2 +1,2 @@
-Last updated: 2024-04-16 16:44:46
-Random Quote: Whoever the hell that is. But the Crystal Ship definitely travels. - Jesse Pinkman
+Last updated: 2024-04-16 16:45:25
+Random Quote: Oberyn was ever the viper.  Deadly, dangerous, unpredictable.  No man dared tread on him.  I was the grass.  Pleasant, complaisant, sweet - smelling, swaying with every breeze.  Who fears to walk upon the grass?  But it is the grass that hides the viper from his enemies and shelters him until he strikes. 
