@@ -1,2 +1,2 @@
-Last updated: 2024-04-16 16:44:47
-Random Quote: You need to figure out what the fuck you want. - Nicky Nichols
+Last updated: 2024-04-16 16:46:03
+Random Quote: You know what the happiest animal in the world is? It's a goldfish. It's got a 10 second memory. Be a goldfish! - Rebecca Welton
