@@ -1,2 +1,2 @@
-Last updated: 2024-04-16 16:32:25
-Random Quote: Put me on your magical boat, man, and sail me down your chocolaty river of meth! - Badger
+Last updated: 2024-04-16 16:32:58
+Random Quote: You wear your honor like a suit of armor, Stark.  You think it keeps you safe, but all it does is weigh you down and make it hard for you to move.  -  Petyr Baelish
