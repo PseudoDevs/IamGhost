@@ -1,2 +1,2 @@
-Last updated: 2024-04-16 16:31:59
-Random Quote: There must always be a Stark in Winterfell.  -  Catelyn Stark
+Last updated: 2024-04-16 16:32:33
+Random Quote: I've lost a hand, a father, a son, a sister, and a lover, and soon enough I will lose a brother.  And yet they keep telling me House Lannister has won this war.  -  Jaime Lannister
