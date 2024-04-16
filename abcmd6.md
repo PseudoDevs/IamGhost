@@ -1,2 +1,2 @@
-Last updated: 2024-04-16 16:53:00
-Random Quote: He climbed onto his throne over the corpses of children, though I will grant you he was no Joffrey.  -  Arianne Martell
+Last updated: 2024-04-16 16:53:33
+Random Quote: All I can do is wait... for the cancer to come back. - Skyler White
