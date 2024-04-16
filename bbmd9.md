@@ -1,2 +1,4 @@
-Last updated: 2024-04-16 16:25:59
-Random Quote: I don't want to die, I've only kissed one boy so far. - Missy
+Last updated: 2024-04-16 16:27:16
+Random Quote: Greef: "Nevarro is a very fine planet. And now that the scum and villainy have been washed away, it's very respectable again."
+Mando: "As a bounty hunter hive?"
+Greef: "Some of my favorite people are bounty hunters." - Greef Karga
