@@ -1,2 +1,2 @@
-Last updated: 2024-04-16 16:32:43
-Random Quote: Though I would treasure your friendship, I'm mainly interested in your facility with murder.  And if the day ever comes when you're tempted to sell me out, remember this; whatever their price, I'll beat it.  I like living.  -  Tyrion Lannister
+Last updated: 2024-04-16 16:34:41
+Random Quote: Don Eladio, look into Fring's eyes. There you will see the truth. The Chicken Man hates you. He is our enemy. He plots against us. I demand blood for blood. - Hector Salamanca
