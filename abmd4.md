@@ -1,2 +1,2 @@
-Last updated: 2024-04-16 16:36:56
-Random Quote: Let justice be done though the heavens fall. - Saul Goodman
+Last updated: 2024-04-16 16:37:29
+Random Quote: Did Need Stark dress you like that?  Was it his pleasure to garb you in velvets and silks and make you his own sweet daughter?  -  Balon Greyjoy
