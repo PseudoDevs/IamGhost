@@ -1,2 +1,2 @@
-Last updated: 2024-04-16 16:24:35
-Random Quote: Do you know what it is like to be sold, squire?  I do.  My brother sold me to Khal Drogo for the promise of a golden crown.  Well, Drogo crowned him in gold, though not as he had wished, and I... my sun - and
+Last updated: 2024-04-16 16:25:08
+Random Quote: I have always wanted to have one mahogany desk, but crime and office don’t get along. - Berlin
