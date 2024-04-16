@@ -1,2 +1,3 @@
-Last updated: 2024-04-16 16:44:18
-Random Quote: Think of me as Yoda - only, instead of being little and green, I wear suits and I'm awesome. I'm your bro. I'm Broda. - Barney Stinson
+Last updated: 2024-04-16 16:44:51
+Random Quote: Lily: "Swear on the lifes of your unborn boy and girl!"
+Ted: "I swear... on Luke and Leia!" - Ted Mosby
