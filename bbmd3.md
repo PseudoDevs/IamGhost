@@ -1,3 +1,2 @@
-Last updated: 2024-04-16 16:38:13
-Random Quote: Morty: "What are they mad at you for, anyway?"
-Rick: "Well, we're talking about me. It could be anything." - Rick Sanchez
+Last updated: 2024-04-16 16:38:46
+Random Quote: Would the five of us always live within a few minutes of that booth? No, that's life, kids, but here's what I discovered: Our booth was wherever the five of us were together. - Ted Mosby
