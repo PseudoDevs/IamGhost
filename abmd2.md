@@ -1,2 +1,2 @@
-Last updated: 2024-04-16 16:27:24
-Random Quote: Jon was not afraid of death, but he did not want to die like that, trussed and bound and beheaded like a common brigand.  If he must perish, let it be with a sword in his hand, fighting his father's killers.  He was no true Stark, had never been one... but he could die like one.  Let them say that Eddard Stark had fathered four sons, not three.  -  Jon Snow
+Last updated: 2024-04-16 16:30:05
+Random Quote: Dinner's a very intimate activity. It requires a level of connection and eye contact, that sex just doesn't. Call me old-fashioned, but I need to have sex with a girl at least three times before I'll even consider having dinner with her. - Barney Stinson
