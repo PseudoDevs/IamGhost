@@ -1,2 +1,2 @@
-Last updated: 2024-04-16 16:25:19
-Random Quote: And there's this other band, led by this woman Stoneheart... Lord Beric's lover, according to one tale.  Supposedly she was hanged by the Freys, but Dondarrion kissed her and brought her back to life, and now she cannot die, no more than he.  -  Set Hyle Hunt
+Last updated: 2024-04-16 16:27:01
+Random Quote: A Mandalorian and a Jedi? They'll never see it coming. - Din Djarin
