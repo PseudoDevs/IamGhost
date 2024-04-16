@@ -1,2 +1,2 @@
-Last updated: 2024-04-16 16:52:18
-Random Quote: I have worked at the downfall of Tywin Lannister since the day they told me of Elia and her children.  -  Doran Martell
+Last updated: 2024-04-16 16:52:52
+Random Quote: It doesn't matter how much you push the envelope, it'll still be stationery. - Will Livingston
