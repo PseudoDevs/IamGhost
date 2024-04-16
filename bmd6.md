@@ -1,2 +1,2 @@
-Last updated: 2024-04-16 16:37:53
-Random Quote: That everything’s repeating That this has all happened before Like a massive déjĂ  Vu - 
+Last updated: 2024-04-16 16:38:29
+Random Quote: Never forget what you are, for surely the world will not.  Make it your strength.  Then it can never be your weakness.  Armor yourself in it, and it will never be used to hurt you.  -  Tyrion Lannister
