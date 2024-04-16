@@ -1,2 +1,2 @@
-Last updated: 2024-04-16 16:21:19
-Random Quote: I'm sorry, can you repeat that? I don't speak "I-never-get-laid". - Barney Stinson
+Last updated: 2024-04-16 16:21:52
+Random Quote: Reality is more than neurons firing around in your brain. Reality is not what's on the inside. It's what's happening on the outside. - Daniel Solace
