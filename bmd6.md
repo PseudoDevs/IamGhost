@@ -1,2 +1,2 @@
-Last updated: 2024-04-16 16:24:45
-Random Quote: Oh my god, you have a monocle! Is this real? Is this really happening? Good luck killing James Bond! - Ted Mosby
+Last updated: 2024-04-16 16:25:21
+Random Quote: A ruler who hides behind paid executioners soon forgets what death is.  -  Eddard Stark
