@@ -1,2 +1,2 @@
-Last updated: 2024-04-16 16:21:06
-Random Quote: I am not a rich person. I am a poor person with money. - Pablo Escobar
+Last updated: 2024-04-16 16:21:40
+Random Quote: You wear your honor like a suit of armor, Stark.  You think it keeps you safe, but all it does is weigh you down and make it hard for you to move.  -  Petyr Baelish
