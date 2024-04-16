@@ -1,2 +1,4 @@
-Last updated: 2024-04-16 16:48:05
-Random Quote: It's not like anyone's 100% straight or 100% gay. - Maddy Perez
+Last updated: 2024-04-16 16:48:39
+Random Quote: Joel: "I need you to tell us where we are."
+Man: "If you got a map, why you lost?"
+Ellie: "Must've missed all the street signs in the enormous f-cking forest." - Ellie Williams
