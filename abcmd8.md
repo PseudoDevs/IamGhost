@@ -1,2 +1,2 @@
-Last updated: 2024-04-16 16:23:32
-Random Quote: Everyone wants something, Alayne.  And when you know what a man wants you know who he is, and how to move him.  -  Petyr Baelish
+Last updated: 2024-04-16 16:24:46
+Random Quote: Always look people in the eye. Even if they're blind. Just say, 'I am looking you in the eye.' - Phil Dunphy
