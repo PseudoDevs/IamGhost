@@ -1,3 +1,2 @@
-Last updated: 2024-04-16 16:34:38
-Random Quote: What do you call a fish with no eyes?
-Fsh. - Marshall Eriksen
+Last updated: 2024-04-16 16:35:16
+Random Quote: We all must choose.  Man or woman, young or old, lord or peasant, our choices are the same.  We choose light or we choose darkness.  -  Melisandre
