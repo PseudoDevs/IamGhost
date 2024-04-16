@@ -1,2 +1,2 @@
-Last updated: 2024-04-16 16:21:49
-Random Quote: Talking to a woman that you have already had sex with, is like changing the oil on a rental car! - Barney Stinson
+Last updated: 2024-04-16 16:22:22
+Random Quote: Do not tell me you're gonna start searching for "the one" again. The only time I wanna hear you saying "the one", is if it's followed by the word "hundred". - Barney Stinson
