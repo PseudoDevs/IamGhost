@@ -1,2 +1,2 @@
-Last updated: 2024-04-16 16:24:46
-Random Quote: The more you move up in the world, the more enemies you make. - Rue Bennett
+Last updated: 2024-04-16 16:25:59
+Random Quote: Zoey: "Don't worry Ted, she's cute."Barney: "'Cute' means 'fat'!"Zoey: "She's not fat."Barney: "'Not fat' means 'ugly'." - Barney Stinson
