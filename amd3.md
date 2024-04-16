@@ -1,4 +1,4 @@
-Last updated: 2024-04-16 16:20:33
-Random Quote: Bro McDonald had a farm, E-I-E-I-bro
-And on that farm he had some chicks, E-I-E-I-bro
-With a hot chick here and a dumb chick there... - Barney Stinson
+Last updated: 2024-04-16 16:21:07
+Random Quote: Ellie: "Can I have a gun?"
+Joel: "Absolutely not."
+Ellie: "Okay, Jesus. Fine. I'll have to throw a f-ckin' sandwich at them." - Ellie Williams
