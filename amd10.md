@@ -1,2 +1,2 @@
-Last updated: 2024-04-16 16:38:33
-Random Quote: The frightened child who sheltered in my manse died on the Dothraki Sea, and was reborn in blood and fire.  This dragon queen who wears her name is a true Targaryen.  -  Illyrio Mopatis
+Last updated: 2024-04-16 16:39:10
+Random Quote: First times are special. Unique. But the last times are beyond comparison. They are priceless. But people don’t know it’s their last time. - Berlin
