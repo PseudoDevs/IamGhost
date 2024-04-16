@@ -1,2 +1,2 @@
-Last updated: 2024-04-16 16:41:31
-Random Quote: Speak into the mic, bitch. - Jesse Pinkman
+Last updated: 2024-04-16 16:42:04
+Random Quote: The Night's Watch is a sworn brotherhood.  We have no families.  None of us will ever father sons.  Our wife is duty.  Our mistress is honor.  -  Benjen Stark
