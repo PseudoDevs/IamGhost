@@ -1,2 +1,2 @@
-Last updated: 2024-04-16 16:23:31
-Random Quote: Most of him has gone into the tree... he has lived beyond his mortal span, and yet he lingers.  For us, for you, for the realms of men.  Only a little strength remains in his flesh.  He has a thousand eyes and one, but there is much to watch.  One day you will know.  -  Leaf
+Last updated: 2024-04-16 16:24:45
+Random Quote: Quantum mechanics? We're discussing that now? Stay in your lane! You are not talking about a time machine, which is both a real and theoretical impossibility. You are talking about regrets. So if you want to ask about regrets, just ask about regrets and leave all this time-traveling nonsense out of it! - Walter White
