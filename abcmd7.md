@@ -1,2 +1,3 @@
-Last updated: 2024-04-16 16:27:40
-Random Quote: Tormund Giantsbane seemed to me the sort of man who would make a good friend and a bad enemy, your Grace.  -  Jon Snow
+Last updated: 2024-04-16 16:28:14
+Random Quote: Jay: "I got you a little gift to celebrate. I know it’s not much...-"
+Gloria: "It’s practically nothing!" - Gloria Pritchett
