@@ -1,2 +1,2 @@
-Last updated: 2024-04-16 16:21:53
-Random Quote: They say the king loved to hunt.  The things we love destroy us every time, lad.  Remember that.  -  Jeor Mormont
+Last updated: 2024-04-16 16:22:26
+Random Quote: They get in your head. People tell lies about you, and other people believe them. And it gets to the point where the lies might as well be the truth. - Tyler Down
