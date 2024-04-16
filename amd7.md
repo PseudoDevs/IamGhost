@@ -1,2 +1,2 @@
-Last updated: 2024-04-16 16:49:53
-Random Quote: Tell the Crow's Eye he's afraid of kinslaying and he'll murder one of his own sons just to prove you wrong.  -  Asha Greyjoy
+Last updated: 2024-04-16 16:53:04
+Random Quote: Eleven: "Promise?"Mike: "It means something that you can't break. Ever." - Mike Wheeler
