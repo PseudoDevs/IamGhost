@@ -1,3 +1,2 @@
-Last updated: 2024-04-16 16:41:05
-Random Quote: Freddie: "You think I can't handle Tommy Shelby?"
-Polly: "You can't. I am having trouble these days and I'm twice the man you are." - Polly Gray
+Last updated: 2024-04-16 16:41:44
+Random Quote: You grew up with actors.  You learned their craft and you learned it well.  I grew up with soldiers.  I learned how to die a long time ago.  -  Eddard Stark

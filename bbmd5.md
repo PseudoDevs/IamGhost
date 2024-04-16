@@ -1,2 +1,2 @@
-Last updated: 2024-04-16 16:41:05
-Random Quote: Your heart's talking to you, Barney. Do you have the guts to listen to it? - Lily Aldrin
+Last updated: 2024-04-16 16:41:44
+Random Quote: If ever a man deserved to die screaming, it was Gregor Clegane.  -  Doran Martell
