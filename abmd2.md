@@ -1,2 +1,2 @@
-Last updated: 2024-04-16 16:37:53
-Random Quote: The Freys slashed her throat from ear to ear.  When we found her by the river she was three days dead.  Harwin begged me to give her the kiss of life, but it had been too long.  I would not do it, so Lord Beric put his lips to hers instead, and the flame of life passed from him to her.  And... she rose.  May the Lord of Light protect us.  She rose.  -  Thoros of Myr
+Last updated: 2024-04-16 16:38:29
+Random Quote: Barney: "Before you know it, you'll be marrying a man who once ate a vanilla-scented candle!"Robin: "That was on me. I shouldn't have left it in the kitchen. Though, it was lit. Man, he dumb." - Robin Scherbatsky
