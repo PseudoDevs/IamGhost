@@ -1,2 +1,2 @@
-Last updated: 2024-04-16 16:27:58
-Random Quote: There are worse ways to die than warm and drunk.  I knew a brother drowned himself in wine once.  It was a poor vintage, though, and his corpse did not improve it.  -  Dolorous Edd Tollett
+Last updated: 2024-04-16 16:28:39
+Random Quote: He can hear youHe knows if you've been bad or goodLike Santa, but he can send you to hell. - Missy
