@@ -1,2 +1,2 @@
-Last updated: 2024-04-16 16:28:45
-Random Quote: Kids, you may think your only choices are to swallow your anger or throw it in someone's face, but there's a third option: You can just let it go, and only when you do that is it really gone and you can move forward. - Ted Mosby
+Last updated: 2024-04-16 16:29:23
+Random Quote: When life gives you lemonade, make lemons. Life will be all like, "What?!" - Phil Dunphy
