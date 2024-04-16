@@ -1,2 +1,2 @@
-Last updated: 2024-04-16 16:22:17
-Random Quote: I poured my blood, sweat and tears into that building. Though, to be fair, a lot of that happened the day I accidentally fell down the elevator shaft. - Ted Mosby
+Last updated: 2024-04-16 16:22:52
+Random Quote: I have sinned and must atone, must parade my shame before the eyes of every beggar in the city.  They think that this will break my pride, that it will make an end to me, but they are wrong.  -  Cersei Lannister

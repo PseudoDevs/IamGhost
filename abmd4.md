@@ -1,2 +1,2 @@
-Last updated: 2024-04-16 16:22:17
-Random Quote: Robin: "She was gonna get the last kugel."Ted: "She was 90 years old. It was probably gonna be her last kugel." - Ted Mosby
+Last updated: 2024-04-16 16:22:52
+Random Quote: I was weaned on venom, Dalt.  Any viper takes a bite of me will rue it.  -  Gerold Dayne
