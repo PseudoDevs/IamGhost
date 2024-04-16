@@ -1,2 +1,3 @@
-Last updated: 2024-04-16 16:30:07
-Random Quote: Robin, if you asked a hundred people: "Who's the worst person you could possibly date?" They'd all say "your therapist", except the ones saying "Barney". - Ted Mosby
+Last updated: 2024-04-16 16:30:46
+Random Quote: "Everybody else can see Ben, right?"
+"Yeah, and he's a complete d-ckhead." - Allison Hargreeves
