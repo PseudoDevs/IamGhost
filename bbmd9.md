@@ -1,2 +1,2 @@
-Last updated: 2024-04-16 16:23:33
-Random Quote: Sitting around, smoking marijuana, eating Cheetos and masturbating do not constitute "plans". - Walter White
+Last updated: 2024-04-16 16:24:09
+Random Quote: Rattleshirt, we called him.  Treacherous and bloodthirsty.  If there's honor in him, he hides it down beneath his suit of bones.  -  Jon Snow
