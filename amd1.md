@@ -1,2 +1,2 @@
-Last updated: 2024-04-16 16:44:05
-Random Quote: A feeling of unresolved resentment against injustices suffered, a sense of helplessness because of the overwhelming odds against one, a feeling of acute pain in one's guts and bowels, making the whole body writhe and squirm, and an obstinate urge to take revenge and to right the wrong - all these combined. - Seong Gi-hun
+Last updated: 2024-04-16 16:44:39
+Random Quote: What you have to do is show these suckers what you’re capable of. Show them you’re not scared. - Nairobi
