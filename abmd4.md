@@ -1,2 +1,2 @@
-Last updated: 2024-04-16 16:38:03
-Random Quote: This is Stannis Baratheon.  The man will fight to the bitter end and then some.  -  Tywin Lannister
+Last updated: 2024-04-16 16:38:37
+Random Quote: Strip off their skins.  Lord Bolton, he used to say a naked man has few secrets, but a flayed man's got none.  -  Ramsay Bolton

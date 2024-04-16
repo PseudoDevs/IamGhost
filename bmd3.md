@@ -1,2 +1,2 @@
-Last updated: 2024-04-16 16:36:53
-Random Quote: There are so many great things to do with the human mouth, why waste it on talking? - Barney Stinson
+Last updated: 2024-04-16 16:38:37
+Random Quote: Barney: "On your tombstone, it will be, 'Lily Aldrin. Caring wife. Loving friend. Slapbet-Commissioner.'"Marshall: "And your tombstone will read, 'Got slapped by Marhsall so hard he died.'" - Marshall Eriksen
