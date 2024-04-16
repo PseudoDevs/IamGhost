@@ -1,2 +1,2 @@
-Last updated: 2024-04-16 16:27:18
-Random Quote: Just in case either of us can actually make it out of this hellhole somehow, we'll look after each other's loved ones, okay? - Oh Il-nam
+Last updated: 2024-04-16 16:29:26
+Random Quote: If you don't make it back, there's one thing that I need to tell you... - Klaus Hargreeves
