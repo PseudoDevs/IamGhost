@@ -1,2 +1,2 @@
-Last updated: 2024-04-16 16:23:58
-Random Quote: Penrose chose to die rather than give him up.  It still angers me.  How could he think I would hurt the boy?  I chose Robert, did I not?  When that hard day came, I chose blood over honor.  -  Stannis Baratheon
+Last updated: 2024-04-16 16:24:32
+Random Quote: Thank the Force! This little thing has had me worried sick. Come here, you little womp rat. Looks like it remembers me. How much do you want for it? Just kidding. But not really. - Peli Motto
