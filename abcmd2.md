@@ -1,2 +1,3 @@
-Last updated: 2024-04-16 16:49:02
-Random Quote: If we're together long enough I hope that one day you see yourself like I do. - Kevin
+Last updated: 2024-04-16 16:49:35
+Random Quote: Morty: "What are they mad at you for, anyway?"
+Rick: "Well, we're talking about me. It could be anything." - Rick Sanchez
