@@ -1,2 +1,2 @@
-Last updated: 2024-04-16 16:45:59
-Random Quote: I think sometimes we aren't keeping secrets to hide from other people. I think sometimes we're keeping them to protect those people. - Tony Padilla
+Last updated: 2024-04-16 16:46:33
+Random Quote: The gods be damned.  It was a hollow victory they gave me.  A crown... it was the girl I prayed them for.  Your sister, safe... and mine again, as she was meant to be.  I ask you, Need, what good is it to wear a crown?  The gods mock the prayers of kings and cowherds alike.  -  Robert Baratheon
