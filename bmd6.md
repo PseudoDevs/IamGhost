@@ -1,2 +1,2 @@
-Last updated: 2024-04-14 18:48:34
-Random Quote: Sometimes people make decisions, shit happens, and we gotta act accordingly. - Marty Byrde
+Last updated: 2024-04-16 16:20:07
+Random Quote: A guy opens his door and gets shot and you think that of me? No. I am the one who knocks! - Walter White
