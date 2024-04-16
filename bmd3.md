@@ -1,2 +1,2 @@
-Last updated: 2024-04-16 16:48:39
-Random Quote: Robin: "You mean the whiny, bottomless pit of neediness? He was bugging me so I spiked his echinacea tea with codeine."Ted: "You would be a great mom." - Ted Mosby
+Last updated: 2024-04-16 16:49:15
+Random Quote: A queen must listen to all.  The highborn and the low, the strong and the weak, the noble and the venal.  One voice may speak you false, but in many there is always truth to be found.  -  Daenerys Targaryen
