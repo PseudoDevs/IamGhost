@@ -1,2 +1,2 @@
-Last updated: 2024-04-16 16:50:57
-Random Quote: I did it for me. I liked it. I was good at it. And I was really... I was alive. - Walter White
+Last updated: 2024-04-16 16:51:30
+Random Quote: Death is always inevitable. destiny is nothing but the connection between cause and effect. In light, in shadow. - 
