@@ -1,2 +1,2 @@
-Last updated: 2024-04-16 16:25:10
-Random Quote: Listen, Morty. I hate to break it to you, but what people call 'Love' is just a chemical reaction that compells animals to breed. It hits hard, Morty, then it slowly fades. - Rick Sanchez
+Last updated: 2024-04-16 16:25:43
+Random Quote: Underneath all of those lies is one true thing. One true thing that can support the weight of all the lies in the world, and that's the fact that I love you. - Barney Stinson
