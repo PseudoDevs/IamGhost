@@ -1,2 +1,2 @@
-Last updated: 2024-04-16 16:51:10
-Random Quote: Would the five of us always live within a few minutes of that booth? No, that's life, kids, but here's what I discovered: Our booth was wherever the five of us were together. - Ted Mosby
+Last updated: 2024-04-16 16:51:49
+Random Quote: Reality is more than neurons firing around in your brain. Reality is not what's on the inside. It's what's happening on the outside. - Daniel Solace
