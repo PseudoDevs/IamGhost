@@ -1,2 +1,2 @@
-Last updated: 2024-04-16 16:26:12
-Random Quote: You have to be as bad as them above in order to survive. - Polly Gray
+Last updated: 2024-04-16 16:26:47
+Random Quote: The Burned Men fear nothing.  Timett, son of Timett will ride with the lions.  -  Timett, son of Timett
