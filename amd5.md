@@ -1,2 +1,2 @@
-Last updated: 2024-04-16 16:23:20
-Random Quote: If you don't push, I will shove that baby up your throat and pull it out of your mouth! - Dr. Sonya
+Last updated: 2024-04-16 16:23:53
+Random Quote: I will kill your wife, I will kill your son, I will kill your infant daughter. - Gustavo Fring
