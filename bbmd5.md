@@ -1,3 +1,2 @@
-Last updated: 2024-04-16 16:47:58
-Random Quote: Gor Koresh: "This is no place for a child."
-Mando: "Wherever I go, he goes. I've been quested to bring him to his kind." - Din Djarin
+Last updated: 2024-04-16 16:48:36
+Random Quote: Edric Storm, they call him.  He is said to be the very image of my brother.  If men were to see him, and then look again at Joffrey and Tommen, they could not help but wonder, I would think.  -  Stannis Baratheon
