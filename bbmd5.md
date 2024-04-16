@@ -1,2 +1,2 @@
-Last updated: 2024-04-16 16:48:36
-Random Quote: Edric Storm, they call him.  He is said to be the very image of my brother.  If men were to see him, and then look again at Joffrey and Tommen, they could not help but wonder, I would think.  -  Stannis Baratheon
+Last updated: 2024-04-16 16:49:14
+Random Quote: Congratulations, you’ve just left your family a second-hand Subaru. - Saul Goodman
