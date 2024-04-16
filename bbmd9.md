@@ -1,2 +1,2 @@
-Last updated: 2024-04-16 16:37:56
-Random Quote: Get ready, Cleveland. The last man to screw you that hard and then disappear, was LeBron James! - Barney Stinson
+Last updated: 2024-04-16 16:40:28
+Random Quote: She had made the mistake of speaking when Set Gregor wanted quiet, so the Mountain had smashed her teeth to splinters with a mailed fist and broken her pretty little nose as well.  He would have done worse, no doubt, if Cersei had not called him down to King's Landing to face the Red Viper's spear.  Jaime would not mourn him.  -  Jaime Lannister
