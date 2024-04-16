@@ -1,2 +1,2 @@
-Last updated: 2024-04-16 16:39:02
-Random Quote: I learned form Set Arthur Dayne, the Sword of the Morning, who could have slain all five of you with his left hand while he was taking a piss with the right.  -  Jaime Lannister
+Last updated: 2024-04-16 16:39:35
+Random Quote: Get ready, Cleveland. The last man to screw you that hard and then disappear, was LeBron James! - Barney Stinson
