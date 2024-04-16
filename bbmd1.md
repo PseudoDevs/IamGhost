@@ -1,2 +1,2 @@
-Last updated: 2024-04-16 16:46:41
-Random Quote: You can never tell with men. They go for whoever their dcks point at and there's no changing their minds. - Polly Gray
+Last updated: 2024-04-16 16:47:19
+Random Quote: The brain drives our thoughts, our behavior. It holds all of the secrets of the universe. There's a whole hidden world inside each of us which only needs to be deciphered. - Maura Franklin
