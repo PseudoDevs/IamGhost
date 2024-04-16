@@ -1,2 +1,2 @@
-Last updated: 2024-04-16 16:44:49
-Random Quote: Sometimes, even when you know something's a mistake, you gotta make it anyway. - Ted Mosby
+Last updated: 2024-04-16 16:45:26
+Random Quote: We all must choose.  Man or woman, young or old, lord or peasant, our choices are the same.  We choose light or we choose darkness.  -  Melisandre
