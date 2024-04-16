@@ -1,2 +1,2 @@
-Last updated: 2024-04-16 16:53:03
-Random Quote: Haley: "Dad, can you just please tell mom, that I can take a two hour break and go to a party?"Phil: "No Ma'am, I'm not stepping into that one. We're not playing 'good cop - mom'.'" - Phil Dunphy
+Last updated: 2024-04-16 16:53:39
+Random Quote: In my head, it's like If I can conquer men, then I can conquer femininity. - Jules Vaughn
