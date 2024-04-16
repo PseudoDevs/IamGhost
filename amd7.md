@@ -1,2 +1,2 @@
-Last updated: 2024-04-16 16:24:31
-Random Quote: Anything sounds weird, if you say it a  undred times. Bowl. Bowl. Bowl... - Ted Mosby
+Last updated: 2024-04-16 16:25:04
+Random Quote: For the night is dark and full of terrors.  -  Words of R'hllor
