@@ -1,3 +1,2 @@
-Last updated: 2024-04-16 16:31:34
-Random Quote: Tommy: "I'll have some men watch her house 'til the danger passes."
-Polly: "'Til the danger passes. That'll be the bloody day." - Polly Gray
+Last updated: 2024-04-16 16:32:08
+Random Quote: I don't want to be good. I am going to be great. - Pablo Escobar
