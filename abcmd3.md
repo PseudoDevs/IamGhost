@@ -1,2 +1,2 @@
-Last updated: 2024-04-16 16:44:10
-Random Quote: Fool's blood, king's blood, blood on the maiden's thigh, but chains for the guests and chains for the bridegroom, aye aye aye.  -  Patchface
+Last updated: 2024-04-16 16:44:47
+Random Quote: Robin: "Can you guys keep a secret?"Lily: "Yeah."Marshall: "Well, some of us can..." - Marshall Eriksen

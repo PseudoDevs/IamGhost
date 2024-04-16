@@ -1,2 +1,2 @@
-Last updated: 2024-04-16 16:44:10
-Random Quote: Jon, did you ever wonder why the men of the Night's Watch take no wives and father no children?  So they will not love, for love is the bane of honor, the death of duty.  -  Maester Aemon
+Last updated: 2024-04-16 16:44:47
+Random Quote: Marshall: "Open your eyes, ref! That's not a pregnant lady..."Ted: "...it's a basketball under his shirt. Blow the freakin' whistle!" - Ted Mosby
