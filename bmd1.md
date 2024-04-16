@@ -1,3 +1,2 @@
-Last updated: 2024-04-16 16:51:54
-Random Quote: Mr. Nimbus: "Say goodbye to your precious dry land! For soon it will be wet!"
-Rick: "Yeah, global warming is already doing that. But sure, yeah, go for it. Make us slightly more wet." - Rick Sanchez
+Last updated: 2024-04-16 16:52:28
+Random Quote: His size, Gregor is a very large man.  Also a very stupid one.  Too stupid to know when he should die, it seems.  -  Cersei Lannister
