@@ -1,2 +1,2 @@
-Last updated: 2024-04-16 16:36:03
-Random Quote: Larry: "She's guilty she's leaving. It's a guilt pig roasting box."Pete: "At least you get something. I'm not getting laid for a year too. But what do I get?"Larry: "A baby?"Pete: "You can't eat it." - Pete Harper
+Last updated: 2024-04-16 16:36:39
+Random Quote: Dinner's a very intimate activity. It requires a level of connection and eye contact, that sex just doesn't. Call me old-fashioned, but I need to have sex with a girl at least three times before I'll even consider having dinner with her. - Barney Stinson
