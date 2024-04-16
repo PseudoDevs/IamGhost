@@ -1,5 +1,2 @@
-Last updated: 2024-04-16 16:37:17
-Random Quote: John Flynn: "Rogers, get in there!"
-Peggy Carter: "He can't."
-John Flynn: "Stark, you go in!"
-Howard Stark: "What? Are you crazy? I push the buttons. I'm the buttons guy." - Howard Stark
+Last updated: 2024-04-16 16:38:34
+Random Quote: You're a freak, but what? Do you wanna be normal? Do you wanna be just like everyone else? - Jonathan Byers

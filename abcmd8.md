@@ -1,2 +1,2 @@
-Last updated: 2024-04-16 16:37:55
-Random Quote: Ted: "Cleveland sports are still relevant! 'LeBron who?' Right, guys?"Barney: "Ted, neither you, nor Cleveland knows how to get over someone leaving them." - Barney Stinson
+Last updated: 2024-04-16 16:38:34
+Random Quote: Marshall: "I don't care if the dishes aren't done, okay? If you care, you do it."Lily: "Great, then I don't care if you have an orgasm. If you care, you do it." - Lily Aldrin
