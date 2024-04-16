@@ -1,2 +1,2 @@
-Last updated: 2024-04-16 16:28:32
-Random Quote: Listen, Morty. I hate to break it to you, but what people call 'Love' is just a chemical reaction that compells animals to breed. It hits hard, Morty, then it slowly fades. - Rick Sanchez
+Last updated: 2024-04-16 16:29:05
+Random Quote: People say Hawkins is cursed. They're not way off. - Dustin Henderson
