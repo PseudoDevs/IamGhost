@@ -1,2 +1,2 @@
-Last updated: 2024-04-16 16:34:41
-Random Quote: Small wonder that the Seven Kingdoms thought the free folk scarcely human.  They have no laws, no honor, not even simple decency.  They steal endlessly from each other, breed like beasts, prefer rape to marriage, and fill the world with baseborn children.  Yet he was growing fond of Tormund Giantsbane, great bag of wind and lies though he was.  -  Jon Snow
+Last updated: 2024-04-16 16:35:20
+Random Quote: A ruler who hides behind paid executioners soon forgets what death is.  -  Eddard Stark
