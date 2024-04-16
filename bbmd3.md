@@ -1,2 +1,2 @@
-Last updated: 2024-04-16 16:32:42
-Random Quote: .OkaySomebody's got to teach this kid to swear, it's embarrassing. - Meemaw
+Last updated: 2024-04-16 16:34:02
+Random Quote: You're a beautiful, sweet girl. Fuck this guy! - Nicky Nichols
