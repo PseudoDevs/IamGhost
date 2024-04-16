@@ -1,2 +1,2 @@
-Last updated: 2024-04-16 16:53:40
-Random Quote: Jaime and I are more than brother and sister.  We are one person in two bodies.  We shared a womb together.  He came into this world holding my foot, our old maester said.  When he is in me, I feel... whole.  -  Cersei Lannister
+Last updated: 2024-04-16 16:54:15
+Random Quote: Destined? Aren't you tired of waiting for destiny, Ted? Isn't it time to make your own destiny? - Robin Scherbatsky
