@@ -1,2 +1,2 @@
-Last updated: 2024-04-16 16:43:36
-Random Quote: You fight back with your spirit, little one. You stand up for yourself! - Devi Vishwakumar
+Last updated: 2024-04-16 16:44:46
+Random Quote: No tales were ever told of me.  Do you think I would be sitting here if it were otherwise?  Your amusements are your own, I will not chide you on that count, but you must be more discreet.  A peaceful land, a quiet people.  That has always been my rule.  Make it yours.  -  Roose Bolton
