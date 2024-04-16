@@ -1,2 +1,2 @@
-Last updated: 2024-04-16 16:40:42
-Random Quote: Do you know what someone with no money has in common with someone with too much money? Living is no fun for them. If you have too much money, no matter what you buy, eat, or drink, everything gets boring in the end. - Oh Il-nam
+Last updated: 2024-04-16 16:41:16
+Random Quote: Marshall: "I don't care if the dishes aren't done, okay? If you care, you do it."Lily: "Great, then I don't care if you have an orgasm. If you care, you do it." - Lily Aldrin
