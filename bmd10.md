@@ -1,2 +1,2 @@
-Last updated: 2024-04-16 16:31:49
-Random Quote: He would see this country burn if he could be king of the ashes.  -  Varys
+Last updated: 2024-04-16 16:32:22
+Random Quote: Money is not peace of mind. Money is not happiness. Money is, at its essence, that measure of a man's choices. - Marty Byrde
