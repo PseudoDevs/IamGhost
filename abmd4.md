@@ -1,2 +1,2 @@
-Last updated: 2024-04-16 16:53:41
-Random Quote: Roose Bolton's cold and cunning, aye, but a man can deal with Roose.  We've all known worse.  But this bastard son of his... they say he's mad and cruel, a monster.  -  Locke
+Last updated: 2024-04-16 16:54:16
+Random Quote: Do you remember that cave?  We should have stayed in that cave.  I told you so.  -  Ygritte
