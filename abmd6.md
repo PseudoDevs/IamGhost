@@ -1,2 +1,2 @@
-Last updated: 2024-04-16 16:51:49
-Random Quote: In this fall - this is tough. In this fall I'm going to take my talents to Mouth Beach. - Barney Stinson
+Last updated: 2024-04-16 16:52:27
+Random Quote: Treason is a noxious weed.  It must be torn up, root and stem and seed, lest new traitors sprout from every roadside.  -  Grand Maester Pycelle
