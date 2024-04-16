@@ -1,2 +1,2 @@
-Last updated: 2024-04-16 16:21:44
-Random Quote: In commemoration of Barney's induction into the "Hall of Game", this tie, worn on the seventh night of his perfect week, is hereby retired. - Lily Aldrin
+Last updated: 2024-04-16 16:23:30
+Random Quote: That was the night I was born. I rose like a phoenix from her mentholated bosom and strode into the world, Armani-clad and fully awesome. - Barney Stinson
