@@ -1,3 +1,2 @@
-Last updated: 2024-04-16 16:36:38
-Random Quote: Ted: "So this is what you guys do? You invite other couples over for dinner, to judge them and feel superior?"
-Lily: "Oh, grow up, Ted, that's why any couple invites anyone over ever!" - Lily Aldrin
+Last updated: 2024-04-16 16:37:56
+Random Quote: Lily: "That's Dirty Dancing!"Ted: "It was on last night."Marshall: "No, it was two nights ago. 'She's Like the Wind' has been stuck in my brain for about 40 hours. I just got it out; now it's back in. Damn you, Swayze!" - Marshall Eriksen
