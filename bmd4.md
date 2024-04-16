@@ -1,2 +1,2 @@
-Last updated: 2024-04-16 16:40:24
-Random Quote: His size, Gregor is a very large man.  Also a very stupid one.  Too stupid to know when he should die, it seems.  -  Cersei Lannister
+Last updated: 2024-04-16 16:40:58
+Random Quote: Most people are nothing but pawns on a chessboard led by an unknown hand - Noah
