@@ -1,2 +1,2 @@
-Last updated: 2024-04-16 16:36:39
-Random Quote: I’ve spent my life being a bit of a son of a bitch, but today I think I want to die with dignity. - Berlin
+Last updated: 2024-04-16 16:37:55
+Random Quote: Only a fool humbles himself when the world is so full of men eager to do that job for him.  -  Theon Greyjoy

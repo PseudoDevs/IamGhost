@@ -1,2 +1,2 @@
-Last updated: 2024-04-16 16:37:17
-Random Quote: Someone has to protect this family from the man who protects this family. - Skyler White
+Last updated: 2024-04-16 16:37:56
+Random Quote: I don't take nothin' a drug addict says personally. 'Cause I don't believe nothin' a drug addict say. - Fezco
