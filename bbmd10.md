@@ -1,2 +1,2 @@
-Last updated: 2024-04-16 16:46:02
-Random Quote: Barney: "Or it's a chance to mess with her head by showing up with someone hotter. Even better. Triple-threat: hotter and bigger boobs."Ted: "That's only two?"Barney: "Count again!" - Barney Stinson
+Last updated: 2024-04-16 16:46:39
+Random Quote: They'll bend the knee or I'll destroy them.  -  Stannis Baratheon
