@@ -1,2 +1,2 @@
-Last updated: 2024-04-16 16:23:29
-Random Quote: Frustration and boredom are great motivators to seek out other pleasures. Human behavior is quite predictable. - Virginia Wilson
+Last updated: 2024-04-16 16:24:04
+Random Quote: Qhorin was my enemy.  But also my brother, once.  So... shall I thank you for killing him, Jon Snow?  Or curse you?  -  Mance Rayder
