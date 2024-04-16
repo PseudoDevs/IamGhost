@@ -1,2 +1,2 @@
-Last updated: 2024-04-16 16:33:50
-Random Quote: Barney: "I had a drinking game based on Robin. But it was actually ON Robin: I'd pour peach schnapps in her belly button..."Ted: "Dude, we agreed we wouldn't do this."Barney: "Sorry. You're right. She didn't like it anyway. Said it woke her up." - Barney Stinson
+Last updated: 2024-04-16 16:34:23
+Random Quote: I've had shits that I've liked better than Walder Frey.  -  Brynden Tully
