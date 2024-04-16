@@ -1,2 +1,2 @@
-Last updated: 2024-04-14 18:47:50
-Random Quote: I rose too high, loved too hard, dared too much. I tried to grasp a star, overreached, and fell.  -  Jon Connington
+Last updated: 2024-04-16 16:20:32
+Random Quote: So many vows... they make you swear and swear.  Defend the king.  Obey the king.  Keep his secrets.  Do his bidding.  Your life for his.  But obey your father.  Love your sister.  Protect the innocent.  Defend the week.  Respect the gods.  Obey the laws.  It's too much.  No matter what you do, you're forsaking one vow for the other.  -  Jaime Lannister

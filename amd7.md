@@ -1,2 +1,2 @@
-Last updated: 2024-04-16 16:19:56
-Random Quote: We will take them before last night's beer turns to piss. - Chester Campbell
+Last updated: 2024-04-16 16:20:32
+Random Quote: The Night's Watch is a sworn brotherhood.  We have no families.  None of us will ever father sons.  Our wife is duty.  Our mistress is honor.  -  Benjen Stark
