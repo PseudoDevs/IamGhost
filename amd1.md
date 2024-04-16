@@ -1,2 +1,2 @@
-Last updated: 2024-04-16 16:36:28
-Random Quote: No voting, no debate. It's not a democracy - it's a Rickpublic! - Summer Smith
+Last updated: 2024-04-16 16:37:00
+Random Quote: If you keep all your treasures in one purse, you only make it easier for those who would rob you.  -  Robb Stark
