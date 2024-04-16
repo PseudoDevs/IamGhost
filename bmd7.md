@@ -1,2 +1,2 @@
-Last updated: 2024-04-16 16:38:35
-Random Quote: My uncle Kevan would make a passably good regent if someone pressed the duty on him, but he will never reach for it.  The gods shaped him to be a follower, not a leader.  -  Tyrion Lannister
+Last updated: 2024-04-16 16:40:27
+Random Quote: Give me back my spear, Uncle.  Cersei sent us a head.  We should send her back a bag of them.  -  Obara Sand
