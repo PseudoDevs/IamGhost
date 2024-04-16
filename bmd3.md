@@ -1,2 +1,2 @@
-Last updated: 2024-04-16 16:34:00
-Random Quote: You can never tell with men. They go for whoever their dcks point at and there's no changing their minds. - Polly Gray
+Last updated: 2024-04-16 16:34:37
+Random Quote: I am IRONBORN!  I laugh at death.  -  Victarion Greyjoy
