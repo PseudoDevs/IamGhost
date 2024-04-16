@@ -1,2 +1,2 @@
-Last updated: 2024-04-16 16:49:49
-Random Quote: I don't want to die, I've only kissed one boy so far. - Missy
+Last updated: 2024-04-16 16:50:23
+Random Quote: Adam: "Three viagras."Maeve: "Jesus Christ."Adam: "You said there was gonna be no judgement. Is three viagras bad? Her reaction made it seem like it was bad. I feel lightheaded and I can taste scampi."Maeve: "No wonder. You could besiege a castle with that thing."Adam: "I said stop staring at it!"Maeve: "Sorry, it's like a third leg." - Maeve Wiley
