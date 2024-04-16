@@ -1,2 +1,2 @@
-Last updated: 2024-04-16 16:43:11
-Random Quote: Spare me your empty little compliments, girl... and your ser's.  I am no knight.  I spit on them and their vows.  My brother is a knight.  -  Sandor Clegane
+Last updated: 2024-04-16 16:43:45
+Random Quote: Stop crying. Remember? Crying makes you ugly and weak. - Dayanara Diaz
