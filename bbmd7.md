@@ -1,2 +1,3 @@
-Last updated: 2024-04-16 16:26:38
-Random Quote: The Pork Authority is closed. Looks like it's Hand Central Station for you little buddy. - James Stinson
+Last updated: 2024-04-16 16:27:58
+Random Quote: Morticia: "That boy's family was going to file attempted murder charges. How would that have looked on your record?"
+Wednesday: "Terrible. Everyone would know I failed to get the job done." - Wednesday Addams
