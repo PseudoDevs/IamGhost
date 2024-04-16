@@ -1,3 +1,2 @@
-Last updated: 2024-04-16 16:49:35
-Random Quote: Morty: "What are they mad at you for, anyway?"
-Rick: "Well, we're talking about me. It could be anything." - Rick Sanchez
+Last updated: 2024-04-16 16:50:09
+Random Quote: Then odds are he'll be near a settlement, probably close to another city out there. Ain't too many of 'em in Wyoming. - Joel Miller
