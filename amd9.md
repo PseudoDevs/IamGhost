@@ -1,2 +1,2 @@
-Last updated: 2024-04-16 16:42:00
-Random Quote: He made me kill a rabbit. I guess he thought it would make me into more of a man or something. I cried for a week. - Jonathan Byers
+Last updated: 2024-04-16 16:42:34
+Random Quote: I hate kids. They don't drink, they haven't travelled... - Nicky Nichols
