@@ -1,2 +1,2 @@
-Last updated: 2024-04-16 16:20:32
-Random Quote: The Night's Watch is a sworn brotherhood.  We have no families.  None of us will ever father sons.  Our wife is duty.  Our mistress is honor.  -  Benjen Stark
+Last updated: 2024-04-16 16:21:07
+Random Quote: Lies are necessary, when the truth is too difficult to believe. - Pablo Escobar
