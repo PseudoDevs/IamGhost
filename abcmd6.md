@@ -1,2 +1,2 @@
-Last updated: 2024-04-16 16:40:19
-Random Quote: Any man who steps between a father and his vengeance asks for death.  -  Rickard Karstark
+Last updated: 2024-04-16 16:40:53
+Random Quote: When I look at something, I don't see it for what it is, I see it for what it could be. When I look at something, I see how it ends. - Miguel Angel Felix Gallardo
