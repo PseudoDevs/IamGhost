@@ -1,4 +1,2 @@
-Last updated: 2024-04-16 16:50:32
-Random Quote: Ellie: "Can I have a gun?"
-Joel: "Absolutely not."
-Ellie: "Okay, Jesus. Fine. I'll have to throw a f-ckin' sandwich at them." - Ellie Williams
+Last updated: 2024-04-16 16:51:49
+Random Quote: The end is the beginning, and the beginning is the end - 
