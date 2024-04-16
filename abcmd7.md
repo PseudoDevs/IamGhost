@@ -1,2 +1,3 @@
-Last updated: 2024-04-14 18:48:31
-Random Quote: If there was any shame in a dude getting a pedicure I don't think there would've been a feature about it in Details magazine. - Barney Stinson
+Last updated: 2024-04-16 16:20:04
+Random Quote: Morty: "I don't like how meta this is getting, Rick."
+Rick: "Shut up, Morty, you're 14. You watch videos of people on YouTube reacting to fing YouTube. I'll be the judge of when we get too meta." - Rick Sanchez
