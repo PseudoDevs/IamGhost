@@ -1,2 +1,3 @@
-Last updated: 2024-04-16 16:42:58
-Random Quote: I have my own ghosts, Bran.  A brother that I loved, a brother that I hated, a woman I desired.  Through the trees, I see them still, but no word of mine has ever reached them.  The past remains the past.  We can learn from it, but we cannot change it.  -  Bloodraven
+Last updated: 2024-04-16 16:43:37
+Random Quote: Alex: "What's Jagermeister?"
+Phil: "Well, you know how in a fairytale there's always a potion that makes the princess fall asleep and then the guys start kissing her? Well, this is like that, except you don't wake up in a castle, you wake up in a frat house with a bad reputation." - Phil Dunphy
