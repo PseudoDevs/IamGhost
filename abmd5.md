@@ -1,2 +1,2 @@
-Last updated: 2024-04-16 16:25:08
-Random Quote: I have always wanted to have one mahogany desk, but crime and office don’t get along. - Berlin
+Last updated: 2024-04-16 16:26:14
+Random Quote: Robert was never the same after he put on that crown.  Some men are like swords, made for fighting.  Hang them up and they go to rust.  -  Donal Noye
