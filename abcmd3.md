@@ -1,2 +1,2 @@
-Last updated: 2024-04-16 16:53:41
-Random Quote: A good lord comforts and protects the weak and helpless.  -  Maester Luwin
+Last updated: 2024-04-16 16:54:16
+Random Quote: Fool's blood, king's blood, blood on the maiden's thigh, but chains for the guests and chains for the bridegroom, aye aye aye.  -  Patchface

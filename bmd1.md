@@ -1,2 +1,2 @@
-Last updated: 2024-04-16 16:53:42
-Random Quote: If the cancer doesn't get him, it'll be the cops or a bullet to the head. - Mike Ehrmantraut
+Last updated: 2024-04-16 16:54:16
+Random Quote: Lies are necessary, when the truth is too difficult to believe. - Pablo Escobar
