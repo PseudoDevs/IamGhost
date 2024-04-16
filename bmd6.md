@@ -1,2 +1,2 @@
-Last updated: 2024-04-16 16:31:29
-Random Quote: You want to rule?  This is what ruling is; lying on a bed of weeds, ripping them out by the root, one by one, before they strangle you in your sleep.  -  Cersei Lannister
+Last updated: 2024-04-16 16:32:04
+Random Quote: It's okay to lose yourself in this, just as long as you can find yourself again. - Nina Locke
