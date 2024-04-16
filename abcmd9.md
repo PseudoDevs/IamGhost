@@ -1,2 +1,3 @@
-Last updated: 2024-04-16 16:51:08
-Random Quote: By "entertainment" they mean "table-shuffle-board", Makramee classes and other non-stimulating activities which are only used in Manhatten to calm down drug-addicts and the criminaly insane. - Robin Scherbatsky
+Last updated: 2024-04-16 16:51:45
+Random Quote: This woman has a hold on my heart that I could not break if I wanted to, and there have been times that I wanted to.
+It has been overwhelming and humbling and even painful at times, but I could not stop loving her any more than I could stop breathing. - Barney Stinson

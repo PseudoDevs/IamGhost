@@ -1,3 +1,2 @@
-Last updated: 2024-04-16 16:51:08
-Random Quote: Morticia: "That boy's family was going to file attempted murder charges. How would that have looked on your record?"
-Wednesday: "Terrible. Everyone would know I failed to get the job done." - Wednesday Addams
+Last updated: 2024-04-16 16:51:45
+Random Quote: Animal instinct. When faced with danger, seek refuge in the herd. - Seong Gi-hun
