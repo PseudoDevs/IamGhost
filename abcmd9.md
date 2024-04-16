@@ -1,2 +1,2 @@
-Last updated: 2024-04-16 16:35:59
-Random Quote: No.  You were the betrayer.  You turned against me, against your own blood.  They cheated me.  Your horsey husband and his stinking savages.  They were cheats and liars.  They promised me a golden crown and gave me this.  -  Viserys Targaryen
+Last updated: 2024-04-16 16:36:38
+Random Quote: Missy Cooper: I don't want to die, I've only kissed one boy so far. - Missy Cooper
