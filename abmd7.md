@@ -1,2 +1,2 @@
-Last updated: 2024-04-16 16:21:43
-Random Quote: You have to be as bad as them above in order to survive. - Polly Gray
+Last updated: 2024-04-16 16:22:19
+Random Quote: Ted: "Why wouldn't she just come right out and say what she wants?"Marshall: "Men. It's like, if there weren't pickle jars to open and spiders to kill and computers to back up, what would be their point?"Lily: "Mmh-hmm!"Ted: "Okay, when did Marshall become a slightly more feminine you?" - Ted Mosby
