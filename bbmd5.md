@@ -1,2 +1,2 @@
-Last updated: 2024-04-16 16:33:06
-Random Quote: She don't speak.  You bloody bastards cut her throat too deep for that.  But she remembers.  -  Lem Lemoncloack
+Last updated: 2024-04-16 16:33:40
+Random Quote: In my head, it's like If I can conquer men, then I can conquer femininity. - Jules Vaughn
