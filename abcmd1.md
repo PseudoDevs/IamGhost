@@ -1,2 +1,2 @@
-Last updated: 2024-04-16 16:43:24
-Random Quote: Imagine you were born in a poor family, in a poor city, in a poor country, and by the time you were 28 years old, you have so much money you can't even count it. What do you do? You make your dreams come true. - Steve Murphy
+Last updated: 2024-04-16 16:43:58
+Random Quote: I will see, and hear, and learn, and when I have I will carry the word back to the Wall.  The wildlings had taken him for an oathbreaker, but in his heart he was still a man of the Night's Watch, doing the last duty that Qhorin Halfhand had laid on him.  Before I killed him.  -  Jon Snow
