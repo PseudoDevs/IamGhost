@@ -1,2 +1,2 @@
-Last updated: 2024-04-16 16:21:42
-Random Quote: What good is having all the money in the world if you can't go home? - Tata Escobar
+Last updated: 2024-04-16 16:22:16
+Random Quote: My uncle Kevan would make a passably good regent if someone pressed the duty on him, but he will never reach for it.  The gods shaped him to be a follower, not a leader.  -  Tyrion Lannister
