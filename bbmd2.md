@@ -1,5 +1,2 @@
-Last updated: 2024-04-16 16:47:57
-Random Quote: Marshall: "What the hell happened?"
-Barney: "I said no questions asked."
-Marshall: "Star, clover, horseshoe... Barney, did you swallow real versions of all the Lucky Charms items?"
-Barney: "No questions asked! Now come on. Let's hit the bar. I'm buying. I just won 50 bucks from a little Irish guy on a dare." - Barney Stinson
+Last updated: 2024-04-16 16:48:35
+Random Quote: Well, I think that... when you have a connection with someone, it never really goes away, you know? - Alex Vause
