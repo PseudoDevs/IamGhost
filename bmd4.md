@@ -1,2 +1,2 @@
-Last updated: 2024-04-16 16:45:27
-Random Quote: It is for my prince to command, for Hotah to obey.  -  Areo Hotah
+Last updated: 2024-04-16 16:46:03
+Random Quote: In the United States, the Mafia makes witnesses disappear so they can't testify in court. In Colombia, Pablo Escobar made the whole court disappear. - Steve Murphy
