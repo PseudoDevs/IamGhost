@@ -1,2 +1,3 @@
-Last updated: 2024-04-16 16:35:58
-Random Quote: I can bring you in warm, or I can bring you in cold. - Din Djarin
+Last updated: 2024-04-16 16:36:36
+Random Quote: George: "I love what you done with the place. Did you do it yourself, or did you get some pouf to help ya?"
+Rebecca: "I could ask the same of your hair." - Rebecca Welton
