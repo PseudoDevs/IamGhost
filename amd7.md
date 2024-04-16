@@ -1,3 +1,2 @@
-Last updated: 2024-04-14 18:49:06
-Random Quote: Summer: "Someone out there is trying to kill us."
-Rick: "Someone's always trying to kill us." - Rick Sanchez
+Last updated: 2024-04-16 16:19:56
+Random Quote: We will take them before last night's beer turns to piss. - Chester Campbell
