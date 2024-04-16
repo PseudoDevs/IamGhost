@@ -1,2 +1,2 @@
-Last updated: 2024-04-16 16:26:47
-Random Quote: The Burned Men fear nothing.  Timett, son of Timett will ride with the lions.  -  Timett, son of Timett
+Last updated: 2024-04-16 16:28:01
+Random Quote: Larry: "Where would you like me to put it then, Piper?"Piper: "Up your ass."Larry: "There's no room. Apparently, my head's already up there." - Larry Bloom
