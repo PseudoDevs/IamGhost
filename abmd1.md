@@ -1,2 +1,2 @@
-Last updated: 2024-04-16 16:38:48
-Random Quote: Whats your prescription, Dr. Estrogen? Eat Haagen-Dazs and watch "Love... actually" until your periods sync up? - Barney Stinson
+Last updated: 2024-04-16 16:39:22
+Random Quote: There are so many great things to do with the human mouth, why waste it on talking? - Barney Stinson
