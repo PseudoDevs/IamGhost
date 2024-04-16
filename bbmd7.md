@@ -1,2 +1,2 @@
-Last updated: 2024-04-16 16:32:08
-Random Quote: You don’t love anyone? Of course you don’t, darling. You don’t have the balls for it. To love, you need courage. - Nairobi
+Last updated: 2024-04-16 16:32:44
+Random Quote: Among all the games that kids played back then, it was the most physical and violent. - Seong Gi-hun
