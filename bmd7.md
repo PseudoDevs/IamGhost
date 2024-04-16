@@ -1,2 +1,2 @@
-Last updated: 2024-04-16 16:40:27
-Random Quote: Give me back my spear, Uncle.  Cersei sent us a head.  We should send her back a bag of them.  -  Obara Sand
+Last updated: 2024-04-16 16:41:43
+Random Quote: I watched Jane die. I was there. And I watched her die. - Walter White
