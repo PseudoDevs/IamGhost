@@ -1,2 +1,2 @@
-Last updated: 2024-04-16 16:38:33
-Random Quote: We all must choose.  Man or woman, young or old, lord or peasant, our choices are the same.  We choose light or we choose darkness.  -  Melisandre
+Last updated: 2024-04-16 16:39:11
+Random Quote: Sometimes people make decisions, shit happens, and we gotta act accordingly. - Marty Byrde
