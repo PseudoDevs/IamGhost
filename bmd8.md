@@ -1,2 +1,2 @@
-Last updated: 2024-04-16 16:43:58
-Random Quote: The title was but a courtesy due him as a council member; Varys was lord of nothing but the spiderweb, the master of none but his whispers.  -  Catelyn Stark
+Last updated: 2024-04-16 16:44:31
+Random Quote: When the sun has set, no candle can replace it.  -  Loras Tyrell
