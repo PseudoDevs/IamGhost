@@ -1,2 +1,2 @@
-Last updated: 2024-04-16 16:47:30
-Random Quote: You're the smartest guy I ever met, and you're too stupid to see he made up his mind 10 minutes ago. - Hank Schrader
+Last updated: 2024-04-16 16:48:04
+Random Quote: Sometimes, the people we like don't like us back, and it's painful, but there's nothing we can do about it. I know what it's like when someone doesn't feel the same way about you. Someone you can't stop thinking about. It hurts. But you can't make people like you. Love isn't about grand gestures, or the moon and the stars. It's just dumb luck. And sometimes, you meet someone who feels the same way. And then sometimes, you're unlucky. But one day, you're gonna meet someone who appreciates you for who you are. I mean, there's seven billion people on the planet. I know one of them is gonna climb up on a moon for you. - Otis Milburn
