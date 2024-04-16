@@ -1,3 +1,2 @@
-Last updated: 2024-04-16 16:40:08
-Random Quote: Jerry: "Rick! Beth! You love me after all!"
-Rick: "Eh, I love her, she loves you. Those credits don't transfer." - Rick Sanchez
+Last updated: 2024-04-16 16:40:41
+Random Quote: I needed to get on the shuttle so I could escape this ridiculous planetSpoiler alert, I'm still here. - Sheldon
