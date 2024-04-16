@@ -1,2 +1,2 @@
-Last updated: 2024-04-16 16:38:33
-Random Quote: Barney: "I cannot stop staring at that girl's face."Ted: "Face, huh? That's your weirdest nickname for boobs yet." - Ted Mosby
+Last updated: 2024-04-16 16:39:11
+Random Quote: A ruler who hides behind paid executioners soon forgets what death is.  -  Eddard Stark
