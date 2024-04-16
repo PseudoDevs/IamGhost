@@ -1,2 +1,2 @@
-Last updated: 2024-04-16 16:22:51
-Random Quote: You don't bring a date to a wedding, that's like taking a deer carcass on a hunting trip. - Barney Stinson
+Last updated: 2024-04-16 16:23:24
+Random Quote: Robin: "Sometimes in life you have to be assertive and stand up for yourself."Ted: "You called her a whore!"Robin: "Who wears that much make up?"Ted: "Old ladies!"Robin: "Who take money for sex, exactly!" - Robin Scherbatsky
