@@ -1,2 +1,2 @@
-Last updated: 2024-04-16 16:31:06
-Random Quote: I am the storm, my lord, the first storm, and the last.  -  Euron Greyjoy
+Last updated: 2024-04-16 16:31:41
+Random Quote: All three of you were being a buch of little a-sholes. I was the only reasonable one. - Dustin Henderson
