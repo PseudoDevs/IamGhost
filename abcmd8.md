@@ -1,2 +1,6 @@
-Last updated: 2024-04-16 16:21:47
-Random Quote: Eight years ago I made an ass of myself chasing after you and I made an ass of myself chasing after you a bunch of times since then. And I have no regrets because it led me to something I wouldn't trade for the world, it led to you being my friend. So as your friend and a leading expert in the field of making an ass of yourself. I say to you, from the heart, get the hell out of this car! - Ted Mosby
+Last updated: 2024-04-16 16:22:56
+Random Quote: When Mom was a groupie in the '70s, her scrambled eggs made her the darling of the MSG loading dock. Lot of songs written about those scrambled eggs:
+ZZ Top's "She's Got Legs"? Originally "She's Got Eggs".
+Led Zeppelin? "Scramble On".
+Steve Miller? "The Yolker".
+If you listen to Pink Floyd's "Dark Side of the Moon" while eating her eggs, it lines up perfectly. - Barney Stinson
