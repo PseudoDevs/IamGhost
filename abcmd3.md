@@ -1,2 +1,2 @@
-Last updated: 2024-04-16 16:20:03
-Random Quote: Nymeria was least dangerous when nearly naked.  Elsewise she was sure to have a dozen blades concealed about her person.  -  Areo Hotah
+Last updated: 2024-04-16 16:21:10
+Random Quote: Any man who steps between a father and his vengeance asks for death.  -  Rickard Karstark
