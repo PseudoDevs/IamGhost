@@ -1,2 +1,2 @@
-Last updated: 2024-04-16 16:44:39
-Random Quote: What you have to do is show these suckers what you’re capable of. Show them you’re not scared. - Nairobi
+Last updated: 2024-04-16 16:45:12
+Random Quote: For the night is dark and full of terrors.  -  Words of R'hllor
