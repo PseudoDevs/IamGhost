@@ -1,2 +1,4 @@
-Last updated: 2024-04-16 16:21:53
-Random Quote: Though I would treasure your friendship, I'm mainly interested in your facility with murder.  And if the day ever comes when you're tempted to sell me out, remember this; whatever their price, I'll beat it.  I like living.  -  Tyrion Lannister
+Last updated: 2024-04-16 16:22:59
+Random Quote: Rebecca: "So, I spoke to the owner of The Sun."
+Ted: "You spoke to God?!"
+Rebecca: "No, the newspaper." - Rebecca Welton
