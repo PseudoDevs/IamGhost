@@ -1,2 +1,11 @@
-Last updated: 2024-04-16 16:19:57
-Random Quote: No.  You were the betrayer.  You turned against me, against your own blood.  They cheated me.  Your horsey husband and his stinking savages.  They were cheats and liars.  They promised me a golden crown and gave me this.  -  Viserys Targaryen
+Last updated: 2024-04-16 16:20:33
+Random Quote: From here on in, every single night of our lives will be a night, we'll never forget. Starting tonight!
+ - The night we started a Mariachi Band!
+ - The night we ate everything on the menu!
+ - The night we brought a horse into the bar!
+ - The night we bungee-jumped off the Statue of Liberty!
+ - The night we stole a mummy from the Natural History Museum!
+ - The night we partied with the mole people
+ - The night we tracked down Phil Collins, became best friends with him, and talked him into reuniting with Peter Gabriel, and then we got to sing back-up on the new Genesis album and it was awesome!
+ - The night we stole a camel!
+ - The night you got locked out in your pajamas and Robin landed a freakin' helicopter and there's still time to reunite Genesis! - Barney Stinson

@@ -1,2 +1,2 @@
-Last updated: 2024-04-16 16:19:59
-Random Quote: I prefer my history dead.  Dead history is writ in ink, the living sort in blood.  -  Rodrik Harlaw
+Last updated: 2024-04-16 16:20:34
+Random Quote: Sometimes you gotta do bad things to catch bad people. - Javier Pe�a
