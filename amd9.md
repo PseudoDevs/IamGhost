@@ -1,2 +1,2 @@
-Last updated: 2024-04-16 16:31:24
-Random Quote: Pornstache: "You are not an agent of God, okay? God can do so much better than you. You must know that, right?"Pennsatucky: "Know what?"Pornstache: "Jesus Christ, how the fuck did you survive infancy?"Pennsatucky: "My auntie helped my momma..."Pornstache: "That's a rhetorical question! Do you not understand what a fucking rhetorical question is?" - George 'Pornstache' Mendez
+Last updated: 2024-04-16 16:32:02
+Random Quote: Sitting around, smoking marijuana, eating Cheetos and masturbating do not constitute "plans". - Walter White
