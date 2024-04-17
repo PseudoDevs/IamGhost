@@ -1,2 +1,2 @@
-Last updated: 2024-04-17 08:01:07
-Random Quote: I was pretending to be someone I am not which I should only be doing on stage. - Devi Vishwakumar
+Last updated: 2024-04-17 08:01:44
+Random Quote: Being a Mandalorian is not just learning about how to fight. You also have to know how to navigate the Galaxy. That way you'll never be lost. - Din Djarin
