@@ -1,5 +1,2 @@
-Last updated: 2024-04-17 08:14:14
-Random Quote: Bo-Katan: "I haven't seen battle droids since the Clone Wars."
-Din: "I have."
-Bo-Katan: "Any of 'em look suspicious?"
-Din: "They all look suspicious." - Din Djarin
+Last updated: 2024-04-17 08:14:47
+Random Quote: Time without purpose is a prison. - Jessica
