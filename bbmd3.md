@@ -1,2 +1,2 @@
-Last updated: 2024-04-17 07:59:19
-Random Quote: Robert was never the same after he put on that crown.  Some men are like swords, made for fighting.  Hang them up and they go to rust.  -  Donal Noye
+Last updated: 2024-04-17 08:01:06
+Random Quote: Strip off their skins.  Lord Bolton, he used to say a naked man has few secrets, but a flayed man's got none.  -  Ramsay Bolton
