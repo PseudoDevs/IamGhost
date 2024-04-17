@@ -1,3 +1,2 @@
-Last updated: 2024-04-17 07:57:57
-Random Quote: The boobs on the bus go up and down, up and down, up and down
-The boobs on the bus go up and down, all through the town - Barney Stinson
+Last updated: 2024-04-17 07:58:30
+Random Quote: Cum is kind of like a penis having a sneeze. Ugh, that means when you swallow someone's cum, it's like eating their snot. - Aimee Gibbs
