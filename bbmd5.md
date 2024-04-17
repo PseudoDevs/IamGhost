@@ -1,2 +1,2 @@
-Last updated: 2024-04-17 07:50:52
-Random Quote: Someone has to protect this family from the man who protects this family. - Skyler White
+Last updated: 2024-04-17 07:51:26
+Random Quote: Elia Martell, Princess of Dorne.  You raped her!  You murdered her!  You killed her children!  -  Oberyn Martell
