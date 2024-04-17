@@ -1,2 +1,2 @@
-Last updated: 2024-04-17 07:56:27
-Random Quote: You want to dismantle an empire? Divide it! - Guillermo Gonzalez Calderoni
+Last updated: 2024-04-17 07:57:00
+Random Quote: In his chainmail shirt with a sword in his hand, Gendry looked almost a man grown, and dangerous.  Hot Pie looked like Hot Pie.  -  Arya Stark
