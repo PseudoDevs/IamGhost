@@ -1,2 +1,2 @@
-Last updated: 2024-04-17 07:59:19
-Random Quote: A Dothraki wedding without at least three deaths is considered a dull affair.  -  Illyrio Mopatis
+Last updated: 2024-04-17 07:59:55
+Random Quote: You're the smartest guy I ever met, and you're too stupid to see he made up his mind 10 minutes ago. - Hank Schrader
