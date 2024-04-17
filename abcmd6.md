@@ -1,2 +1,2 @@
-Last updated: 2024-04-17 08:05:33
-Random Quote: By "entertainment" they mean "table-shuffle-board", Makramee classes and other non-stimulating activities which are only used in Manhatten to calm down drug-addicts and the criminaly insane. - Robin Scherbatsky
+Last updated: 2024-04-17 08:06:12
+Random Quote: Lily: "Just give me his name!"Robin: "Fine. It's Bill Pepper."Lily: "Kind of a coincidence there happens to be a bill and a pepper shaker here on the table. Any chance you and Bill had a three-way with Fork Napkin?" - Lily Aldrin
