@@ -1,2 +1,3 @@
-Last updated: 2024-04-17 07:57:57
-Random Quote: Grief never gets any smaller, so you have to make yourself bigger around it. The best way to do that is to open up. Let people in. - Rendell Locke
+Last updated: 2024-04-17 07:58:30
+Random Quote: May: "May Carleton. I breed racehorses and train them. What is it you do?"
+Thommy: "I rarely answer questions is what I do." - Thomas Shelby
