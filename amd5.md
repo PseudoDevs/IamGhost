@@ -1,2 +1,2 @@
-Last updated: 2024-04-17 07:51:09
-Random Quote: Science is neat, but I’m afraid it’s not very forgiving. - Scott Clarke
+Last updated: 2024-04-17 07:51:42
+Random Quote: Barney: "I only smoke in certain situations. Postcoital, when I'm with Germans, sometimes those two overlap, coital, birthdays, to annoy my mom, precoital, on a sailboat, the day the Mets are mathematically eliminated every year and pregnancy scares."Ted: "Why are you smoking right now?"Barney: "I'm always precoital, Ted." - Barney Stinson
