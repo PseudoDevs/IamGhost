@@ -1,2 +1,2 @@
-Last updated: 2024-04-17 07:50:54
-Random Quote: Barney: "Or it's a chance to mess with her head by showing up with someone hotter. Even better. Triple-threat: hotter and bigger boobs."Ted: "That's only two?"Barney: "Count again!" - Barney Stinson
+Last updated: 2024-04-17 07:51:27
+Random Quote: I'm a cool dad. That's my thang. I surf the web... I text LOL - Laugh Out Loud, OMG - Oh My God, WTF - Why The Face. - Phil Dunphy
