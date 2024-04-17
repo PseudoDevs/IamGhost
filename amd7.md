@@ -1,2 +1,2 @@
-Last updated: 2024-04-17 08:07:28
-Random Quote: The absolute worst part of depression is that even though you know you're depressed, You're unable to stop yourself from getting worse. - Rue Bennett
+Last updated: 2024-04-17 08:08:19
+Random Quote: Doctor: "Don't worry, it's totally safe. Unless part of your big date involves connecting yourself to a car battery."Barney: "Well, now it doesn't." - Barney Stinson
