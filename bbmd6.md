@@ -1,2 +1,2 @@
-Last updated: 2024-04-17 08:06:35
-Random Quote: For a joke to work, it has to have part of truth and part of pain. - Berlin
+Last updated: 2024-04-17 08:08:21
+Random Quote: Come with me to the House of the Undying, and you shall drink of truth and wisdom.  -  Pyat Pree
