@@ -1,2 +1,2 @@
-Last updated: 2024-04-17 07:54:40
-Random Quote: Summer friends will melt away like summer snows, but winter friends are friends forever.  -  Mully
+Last updated: 2024-04-17 07:55:14
+Random Quote: Aye, and from what I saw of Joffrey, you are as unfit a mother as you are a ruler.  -  Kevan Lannister
