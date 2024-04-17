@@ -1,2 +1,2 @@
-Last updated: 2024-04-17 08:01:11
-Random Quote: Ted: "You're like Mary Poppins, if her magic purse was also filled with drugs."Robin: "If? Ted, the kids in that movie jumped into a painting and spent 15 minutes chasing a cartoon fox. Spoonful of sugar? Grow Up!" - Robin Scherbatsky
+Last updated: 2024-04-17 08:01:45
+Random Quote: Only their shadows, One most of all.  A tall and twisted thing with one black eye and ten long arms, sailing on a sea of blood.  -  Moqorro
