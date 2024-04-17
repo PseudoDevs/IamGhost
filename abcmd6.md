@@ -1,2 +1,4 @@
-Last updated: 2024-04-17 08:10:35
-Random Quote: Barney: "Your challenge is accepted Lil, there is no girl too prettyFor I am Barney Stinson, Player King of New York City."Ted: "You can't anoint yourself the king, just like that jerk, LeBron."Barney: "He left the Cavs three years ago. Bro, give it up, move on." - Barney Stinson
+Last updated: 2024-04-17 08:12:04
+Random Quote: Ted: "It's freezing out there. Where's your coat?"
+Robin: "Ted, I'm Canadian. I don't need a coat. This kind of weather is nothing for me."
+Marshall: "Yeah. This is like a spring day back in Minnesota." - Marshall Eriksen
