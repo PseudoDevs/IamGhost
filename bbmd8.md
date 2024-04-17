@@ -1,2 +1,4 @@
-Last updated: 2024-04-17 07:55:20
-Random Quote: Robin: "Who wants hot-wings?"Lily: "I'm in... or maybe we should just pour hot-sauce on Barney, since he's a total chicken." - Lily Aldrin
+Last updated: 2024-04-17 07:55:53
+Random Quote: Rick: "F you, Summer! And f the government. And f me for letting my car down, which I will never do again."
+Morty: "Jeez, Rick. You can't say FU to your grand-daughter!"
+Rick: "I just did, Morty. Here's dessert: F you!" - Rick Sanchez
