@@ -1,2 +1,2 @@
-Last updated: 2024-04-17 07:57:18
-Random Quote: Science fact: Sisters are the worst. - Sheldon Cooper
+Last updated: 2024-04-17 07:57:51
+Random Quote: The frightened child who sheltered in my manse died on the Dothraki Sea, and was reborn in blood and fire.  This dragon queen who wears her name is a true Targaryen.  -  Illyrio Mopatis
