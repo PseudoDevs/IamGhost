@@ -1,3 +1,2 @@
-Last updated: 2024-04-17 08:03:21
-Random Quote: Lily: "We don't wanna burden our little angel with all kinds of gender-specific expectations. Boys can do ballet, girls can play football."
-Marshall: "Hell, the Green Bay Packers have been proving that for years." - Marshall Eriksen
+Last updated: 2024-04-17 08:03:54
+Random Quote: I fear the only sorcerer strong enough to stop Dr. Strange is you, Dr. Strange. - Ancient One
