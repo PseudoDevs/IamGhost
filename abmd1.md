@@ -1,2 +1,2 @@
-Last updated: 2024-04-17 07:53:27
-Random Quote: I feel like you ruined me forever. - Maddy Perez
+Last updated: 2024-04-17 07:54:02
+Random Quote: Robb Stark won the war on the battlefield and lost it in a bedchamber.  -  Jaime Lannister
