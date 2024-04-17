@@ -1,2 +1,2 @@
-Last updated: 2024-04-17 08:01:53
-Random Quote: I have sinned and must atone, must parade my shame before the eyes of every beggar in the city.  They think that this will break my pride, that it will make an end to me, but they are wrong.  -  Cersei Lannister
+Last updated: 2024-04-17 08:02:27
+Random Quote: We have to control this fing world, or it will control you. And if you don't protect yourself, it makes a mess and breaks you. - Miguel Angel Felix Gallardo
