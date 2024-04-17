@@ -1,2 +1,2 @@
-Last updated: 2024-04-17 08:08:56
-Random Quote: Master Mott said Thoros could outdrink even King Robert.  They were pease in a pod, he told me, both gluttons and sots.  -  Gendry
+Last updated: 2024-04-17 08:09:30
+Random Quote: The Crow's Eye brought back monsters from the east... aye, and wizards too.  -  Tristifer Botley
