@@ -1,2 +1,2 @@
-Last updated: 2024-04-17 07:57:00
-Random Quote: Ted: "Do not pretend you're not the kind of guy, who keeps a list of all the girls he slept with."Marshall: "I have one. It's called my marriage-license." - Marshall Eriksen
+Last updated: 2024-04-17 07:57:34
+Random Quote: Nobody exists on purpose. Nobody belongs anywhere. We're all going to die. Come watch TV? - Morty Smith
