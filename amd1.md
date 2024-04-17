@@ -1,2 +1,2 @@
-Last updated: 2024-04-17 08:06:29
-Random Quote: You don’t love anyone? Of course you don’t, darling. You don’t have the balls for it. To love, you need courage. - Nairobi
+Last updated: 2024-04-17 08:07:02
+Random Quote: I know this hurts little buddy, but you'll love again someday. Because time will heal a broken heart, but not that bitch's window. - Barney Stinson
