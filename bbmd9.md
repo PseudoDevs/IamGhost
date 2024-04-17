@@ -1,3 +1,2 @@
-Last updated: 2024-04-17 08:11:43
-Random Quote: Aimee: "Did you know you need, like, sugar and flour and an oven to bake? And you don't shove it all in, you have to follow alle these rules."
-Maeve: "Yeah, it's called a recipe." - Maeve Wiley
+Last updated: 2024-04-17 08:12:17
+Random Quote: Reality is more than neurons firing around in your brain. Reality is not what's on the inside. It's what's happening on the outside. - Daniel Solace
