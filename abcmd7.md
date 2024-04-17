@@ -1,2 +1,2 @@
-Last updated: 2024-04-17 08:04:55
-Random Quote: I never asked for this, no more than I asked to be king.  Yet dare I disregard her?  We do not choose our destinies.  Yet we must... we must do our duty, no?  Great or small, we must do our duty.  -  Stannis Baratheon
+Last updated: 2024-04-17 08:05:33
+Random Quote: My name is ASAC Schrader, and you can go f*ck yourself. - Hank Schrader
