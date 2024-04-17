@@ -1,2 +1,3 @@
-Last updated: 2024-04-17 07:54:02
-Random Quote: Robb Stark won the war on the battlefield and lost it in a bedchamber.  -  Jaime Lannister
+Last updated: 2024-04-17 07:54:35
+Random Quote: Gor Koresh: "This is no place for a child."
+Mando: "Wherever I go, he goes. I've been quested to bring him to his kind." - Din Djarin
