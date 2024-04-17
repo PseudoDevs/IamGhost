@@ -1,2 +1,2 @@
-Last updated: 2024-04-16 16:54:07
-Random Quote: I'm not surviving, I'm just existing. - Brook Soso
+Last updated: 2024-04-17 07:50:43
+Random Quote: Hush, Alerie, don't take that tone with me.  And don't call me mother.  If I'd given birth to you, I'm sure I'd remember.  I'm only to blame for your husband, the lord oaf of Highgarden.  -  Olenna Tyrell
