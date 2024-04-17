@@ -1,2 +1,2 @@
-Last updated: 2024-04-17 08:11:18
-Random Quote: Barney: "I am so sorry, Cornelius. You deserve a better end than this."Lily: "You got ketchup on a red tie, you can't even see it!" - Lily Aldrin
+Last updated: 2024-04-17 08:13:43
+Random Quote: I'm a good boyfriend in my sleep. I can rock a killer foot rub with one hand and brew a kick-ass pot of chamomile in the other, that would make you weep. Hell, I've forgotten more about microwaving fat-free popcorn and watching Sandra Bullock movies than you'll ever know, but: thanks for your concern, rook! - Marshall Eriksen

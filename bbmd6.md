@@ -1,2 +1,2 @@
-Last updated: 2024-04-17 08:11:17
-Random Quote: Underneath all of those lies is one true thing. One true thing that can support the weight of all the lies in the world, and that's the fact that I love you. - Barney Stinson
+Last updated: 2024-04-17 08:13:42
+Random Quote: Have you ever been told you're different, odd, or simply don't belong? In a world full of normies, do you feel like an outcast? Me too. But I'm pleased to tell you there's a very special place for people like us. Nevermore Academy. - Wednesday Addams
