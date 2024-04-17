@@ -1,2 +1,2 @@
-Last updated: 2024-04-17 08:04:46
-Random Quote: His blood is bad.  He needs to be leeched.  The leeches suck away the bad blood, all the rage and pain.  No man can think so full of anger.  Ramsay, though... his tainted blood would poison even leeches, I fear.  -  Roose Bolton
+Last updated: 2024-04-17 08:05:18
+Random Quote: A bag of dragons buys a man's silence for a while, but a well - placed quarrel buys it forever. 
