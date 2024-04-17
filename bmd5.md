@@ -1,3 +1,2 @@
-Last updated: 2024-04-17 07:53:35
-Random Quote: Steven Grant: "I'm not trying to slag off marketing, but there's been a major blunder. Because they've got seven gods here, and the Ennead has nine."
-Donna: "I fired two of them for bein' late. Listen, if you don't stop natterin' at me, I swear I'll shove you in a sarcophagus. You can tell the pharaoh in there what's wrong with them and all." - Arthur Harrow
+Last updated: 2024-04-17 07:54:08
+Random Quote: The World is going to come to an end tonight. Yes think about it. End of the World, Nostradamus, Notre Dame, Fighting Irish, Irish, St. Patrick's Day. This is it Bro. Bro-calypse Now... Bro-Mageddon. - Barney Stinson
