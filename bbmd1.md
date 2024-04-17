@@ -1,2 +1,2 @@
-Last updated: 2024-04-17 07:55:17
-Random Quote: Women aren't soldiers, and they sure as hell don't fight on the front lines. They might break a nail. - John Flynn
+Last updated: 2024-04-17 07:55:50
+Random Quote: A good lord comforts and protects the weak and helpless.  -  Maester Luwin
