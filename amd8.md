@@ -1,2 +1,2 @@
-Last updated: 2024-04-17 08:03:35
-Random Quote: Phil: "Little heads up - there's no way I'm not crying at this wedding."Claire: "Phil, you cried on the way here."Phil: "I was on the brink already. I watched 'Dirty Dancing' before we left." - Phil Dunphy
+Last updated: 2024-04-17 08:04:12
+Random Quote: You're like Hitler! But even Hitler cared about Germany or something. - Morty Smith
