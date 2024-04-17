@@ -1,2 +1,2 @@
-Last updated: 2024-04-16 16:53:39
-Random Quote: In my head, it's like If I can conquer men, then I can conquer femininity. - Jules Vaughn
+Last updated: 2024-04-17 07:50:48
+Random Quote: I guess, if we're splitting hairs, then technically... there was a plurality to the times I've lied to women for sex-having-purposes. - Barney Stinson
