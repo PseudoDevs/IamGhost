@@ -1,2 +1,2 @@
-Last updated: 2024-04-17 08:08:21
-Random Quote: When you start moving furniture around, people stub their toes and get upset. - Don Neto
+Last updated: 2024-04-17 08:09:57
+Random Quote: My father won all the battles.  He killed Prince Rhaegar and took the crown, while your father was hiding under Casterly Rock.  A strong king acts boldly, he doesn't just talk.  -  Joffrey Baratheon
