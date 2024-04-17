@@ -1,2 +1,2 @@
-Last updated: 2024-04-17 07:51:25
-Random Quote: What do a bunch o' bloody peasants know about a lord's honor?  We know some about murder, though.  -  Lem Lemoncloak
+Last updated: 2024-04-17 07:51:59
+Random Quote: Lord Pea Pod.  If you were a man, I would kill you for that, but my sword is made of too fine a steel to besmirch with craven's blood.  Aye, men are dying.  More will die before we see Winterfell.  What of it?  This is war.  Men die in war.  That is as it should be.  As it has always been.  -  Hugo Wull
