@@ -1,2 +1,3 @@
-Last updated: 2024-04-17 07:57:34
-Random Quote: Barney: "I cannot stop staring at that girl's face."Ted: "Face, huh? That's your weirdest nickname for boobs yet." - Ted Mosby
+Last updated: 2024-04-17 07:58:08
+Random Quote: Sam: "How do you know about Gandalf?"
+Bucky: "I read 'The Hobbit' in 1937, when it first came out." - Bucky Barnes
