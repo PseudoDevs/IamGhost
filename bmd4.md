@@ -1,2 +1,2 @@
-Last updated: 2024-04-17 07:54:42
-Random Quote: We just don't wanna rush anything, okay? We decided to wait, until she decides to let me have sex with her. - Barney Stinson
+Last updated: 2024-04-17 07:55:16
+Random Quote: I know our relationship isn't exactly what you want it to be. And I know I may not love you the way you love me, but I DO love you. Isn't that worth hanging on to? - Robin Scherbatsky
