@@ -1,2 +1,2 @@
-Last updated: 2024-04-17 08:06:50
-Random Quote: I get my best ideas when everybody else is asleep. - Lalo Salamanca
+Last updated: 2024-04-17 08:07:27
+Random Quote: The frightened child who sheltered in my manse died on the Dothraki Sea, and was reborn in blood and fire.  This dragon queen who wears her name is a true Targaryen.  -  Illyrio Mopatis

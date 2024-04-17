@@ -1,2 +1,2 @@
-Last updated: 2024-04-17 08:06:51
-Random Quote: Knowledge is a weapon, Jon.  Arm yourself well before you ride forth to battle.  -  Maester Aemon
+Last updated: 2024-04-17 08:07:29
+Random Quote: I am the storm, my lord, the first storm, and the last.  -  Euron Greyjoy

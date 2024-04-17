@@ -1,2 +1,2 @@
-Last updated: 2024-04-17 08:06:10
-Random Quote: Robin: "I'm pregnant."Barney: "Are you sure you're not just getting fat?" - Barney Stinson
+Last updated: 2024-04-17 08:07:27
+Random Quote: I was a better smuggler than a knight, he had written to his wife, a better knight than a King's hand, a better King's hand than a husband.  I am so sorry Marya, I have loved you.  Please forgive the wrongs I did you.  -  Davos Seaworth
