@@ -1,2 +1,2 @@
-Last updated: 2024-04-17 07:59:04
-Random Quote: I am one far more accustomed to demanding answers, fool, than to giving them. - Thor
+Last updated: 2024-04-17 07:59:38
+Random Quote: In the game of thrones, even the humblest pieces have wills of their own.  Sometimes they refuse to make the moves you've planned for them.  Mark that well, Alayne.  It's a lesson that Cersei Lannister still has yet to learn.  -  Petyr Baelish
