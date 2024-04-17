@@ -1,4 +1,2 @@
-Last updated: 2024-04-17 07:50:40
-Random Quote: Greef: "Nevarro is a very fine planet. And now that the scum and villainy have been washed away, it's very respectable again."
-Mando: "As a bounty hunter hive?"
-Greef: "Some of my favorite people are bounty hunters." - Greef Karga
+Last updated: 2024-04-17 07:51:16
+Random Quote: I've only known one other being like this. A wise Jedi Master named Yoda. - Ahsoka Tano
