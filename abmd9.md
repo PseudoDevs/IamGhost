@@ -1,2 +1,2 @@
-Last updated: 2024-04-17 07:55:13
-Random Quote: No matter how much we fight it we are connected by our blood. We can feel estranged from our families and not understand what they do. And still, in the end, we will do anything for them. - Adam
+Last updated: 2024-04-17 07:55:46
+Random Quote: You don’t want a criminal lawyer. You want a criminal lawyer. - Jesse Pinkman
