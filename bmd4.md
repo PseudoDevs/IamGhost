@@ -1,4 +1,2 @@
-Last updated: 2024-04-17 07:58:44
-Random Quote: Marshall: "Except the flames of Lucifer keep singein our back bumper as we drive through this hellish, cheese-infected wasteland."
-Lily: "Wisconsin?"
-Marshall: "Wisconsin!" - Marshall Eriksen
+Last updated: 2024-04-17 07:59:20
+Random Quote: If one of the Vancouver Canucks walked in here, my panties would drop so hard, there would be a hole in the floor halfway to China. - Robin Scherbatsky
