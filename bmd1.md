@@ -1,3 +1,2 @@
-Last updated: 2024-04-17 07:56:57
-Random Quote: The Deep: "What do we do? We can't just kill everyone."
-Billy Butcher: "That's exactly what we're gonna do!" - Billy Butcher
+Last updated: 2024-04-17 07:57:32
+Random Quote: Nuncle always had a fondness for freaks and fools.  My father used to fight with him about it.  Let the wizards call upon their gods.  The Damphair will call on ours, and drown them.  -  Asha Greyjoy
