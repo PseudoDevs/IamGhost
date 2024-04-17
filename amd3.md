@@ -1,2 +1,2 @@
-Last updated: 2024-04-17 07:52:17
-Random Quote: Robin: "Have plans with Don on Saturday, he's making me Chinese."Lily: "I'll assume you're talking about food, otherwise, I have some follow-up-questions." - Lily Aldrin
+Last updated: 2024-04-17 07:54:31
+Random Quote: In his chainmail shirt with a sword in his hand, Gendry looked almost a man grown, and dangerous.  Hot Pie looked like Hot Pie.  -  Arya Stark
