@@ -1,2 +1,2 @@
-Last updated: 2024-04-17 07:52:23
-Random Quote: Mitchell: "we've decided we really wanted to have a baby so, we initially asked one of our lesbian friends to be a surrogate."Cameron: "Then we figured, they already mean enough, can you imagine one of them pregnant?" - Cameron Tucker
+Last updated: 2024-04-17 07:52:57
+Random Quote: The Burned Men fear nothing.  Timett, son of Timett will ride with the lions.  -  Timett, son of Timett
