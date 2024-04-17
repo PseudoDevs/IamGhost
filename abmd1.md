@@ -1,2 +1,3 @@
-Last updated: 2024-04-17 08:00:44
-Random Quote: Best way to catch the smart ones? Get an idiot working for them. - Jaime Kuykendall
+Last updated: 2024-04-17 08:01:18
+Random Quote: Wyatt Langmore: "This job's my old man's idea. Something about 'calluses and character'."
+Charlotte Byrde: "Yeah, well, you're blowing leaves, not hiding Anne Frank." - Charlotte Byrde
