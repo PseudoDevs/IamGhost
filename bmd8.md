@@ -1,2 +1,2 @@
-Last updated: 2024-04-17 08:10:31
-Random Quote: Zoey: "Don't worry Ted, she's cute."Barney: "'Cute' means 'fat'!"Zoey: "She's not fat."Barney: "'Not fat' means 'ugly'." - Barney Stinson
+Last updated: 2024-04-17 08:11:12
+Random Quote: Here's the thing about me and tools: The only one I know how to use, is attached to me. And I'm not gonna try putting it in a TV... again. - Barney Stinson
