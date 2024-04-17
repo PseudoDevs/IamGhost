@@ -1,2 +1,2 @@
-Last updated: 2024-04-17 08:09:53
-Random Quote: Young I was, and vain, but the sea washed my follies and my vanities away.  That man drowned, nephew.  His lungs filled with seawater, and the fish ate the scales off his eyes.  When I rose again, I saw clearly.  -  Aeron Greyjoy
+Last updated: 2024-04-17 08:10:27
+Random Quote: Here's the secret, kids: none of us can vow to be perfect. In the end, all we can do is promise to love each other with everything we've got. Because love's the best thing we do. - Ted Mosby
