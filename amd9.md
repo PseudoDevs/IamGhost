@@ -1,2 +1,2 @@
-Last updated: 2024-04-17 08:11:17
-Random Quote: What if Einstein's parents had held him back? We wouldn't even have the... - I was gonna say atomic bomb, but there's probably a better example. - Meemaw
+Last updated: 2024-04-17 08:13:43
+Random Quote: He climbed onto his throne over the corpses of children, though I will grant you he was no Joffrey.  -  Arianne Martell
