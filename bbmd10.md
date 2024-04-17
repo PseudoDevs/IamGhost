@@ -1,2 +1,5 @@
-Last updated: 2024-04-17 08:13:39
-Random Quote: You will never walk again... but you will fly.  -  Bloodraven
+Last updated: 2024-04-17 08:14:14
+Random Quote: Bo-Katan: "I haven't seen battle droids since the Clone Wars."
+Din: "I have."
+Bo-Katan: "Any of 'em look suspicious?"
+Din: "They all look suspicious." - Din Djarin
