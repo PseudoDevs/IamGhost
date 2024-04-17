@@ -1,2 +1,2 @@
-Last updated: 2024-04-17 07:52:20
-Random Quote: Ted: "I made a bid online, I won the auction the next day and I got approval. I just finalized the paperwork."Barney: "And was the Blair Witch easy to deal with, or did she haggle over the closing costs?" - Barney Stinson
+Last updated: 2024-04-17 07:52:54
+Random Quote: The bride weeps... dressing her in grey and white serves no good if the girl is left to sob.  The Freys might not care, but the northmen... they fear the Dreadfort, but they love the Starks.  Not me, but the rest, yes.  Old Whoresbane is only here because the Freys hold the Greatjon captive.  And do you imagine the Hornwood men have forgotten the Bastard's last marriage, and how his lady wife was left to starve, chewing her own fingers?  What do you think passes through their heads when they hear the new bride weeping?  Valiant Ned's precious little girl.  Lady Arya's sobs do us more harm than all of Lord Stannis's swords and spears.  -  Barbrey Dustin
