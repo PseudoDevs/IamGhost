@@ -1,2 +1,2 @@
-Last updated: 2024-04-17 07:52:50
-Random Quote: Piper: "Not every Hispanic person wants the same thing."Lorna: "Oh, sure they do. They all want to come to America."Nicky: "Jesus, your entire world view is based on 'West Side Story', isn't it?" - Nicky Nichols
+Last updated: 2024-04-17 07:53:24
+Random Quote: Oh, come on, ref! I haven't seen that much hooking go unpunished since my last trip to Vegas. - Robin Scherbatsky
