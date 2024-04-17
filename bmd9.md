@@ -1,2 +1,2 @@
-Last updated: 2024-04-17 07:50:49
-Random Quote: You wear your honor like a suit of armor, Stark.  You think it keeps you safe, but all it does is weigh you down and make it hard for you to move.  -  Petyr Baelish
+Last updated: 2024-04-17 07:51:24
+Random Quote: What if God doesn’t know what he’s doing? If the plan is wrong? If God is wrong? - 
