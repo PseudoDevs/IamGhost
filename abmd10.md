@@ -1,2 +1,2 @@
-Last updated: 2024-04-17 07:51:14
-Random Quote: I don't take nothin' a drug addict says personally. 'Cause I don't believe nothin' a drug addict say. - Fezco
+Last updated: 2024-04-17 07:51:48
+Random Quote: If you keep all your treasures in one purse, you only make it easier for those who would rob you.  -  Robb Stark
