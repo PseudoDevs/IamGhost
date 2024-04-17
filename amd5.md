@@ -1,2 +1,2 @@
-Last updated: 2024-04-17 08:02:56
-Random Quote: Robb Stark won the war on the battlefield and lost it in a bedchamber.  -  Jaime Lannister
+Last updated: 2024-04-17 08:04:45
+Random Quote: The longer Cersei waits, the angrier she'll become, and anger makes her stupid.  I much prefer angry and stupid to composed and cunning.  -  Tyrion Lannister
