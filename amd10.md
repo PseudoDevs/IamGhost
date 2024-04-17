@@ -1,2 +1,2 @@
-Last updated: 2024-04-16 16:54:15
-Random Quote: This story is about to take a dark turn. Usually, I love dark turns. Like when the carousel brakes myteriously failed at my eighth birthdays party. - Wednesday Addams
+Last updated: 2024-04-17 07:51:09
+Random Quote: Perhaps we can fly.  All of us.  How will we ever know unless we leap from some tall tower?  No man ever truly knows what he can do unless he dares to leap.  -  Euron Greyjoy
