@@ -1,2 +1,2 @@
-Last updated: 2024-04-17 07:58:42
-Random Quote: Until the Mountain crushed my brother's skull, no Dornishmen had died in this War of the Five Kings.  Tell me, Captain, is that my shame or my glory?  -  Doran Martell
+Last updated: 2024-04-17 07:59:18
+Random Quote: From experience, it often takes a new perspective before one is able to see the light. - Elia Kane
