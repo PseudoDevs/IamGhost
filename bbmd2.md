@@ -1,2 +1,2 @@
-Last updated: 2024-04-17 08:08:16
-Random Quote: You do seem to have a little “shit creek” action going… You know, FYI, you can buy a paddle. - Saul Goodman
+Last updated: 2024-04-17 08:08:56
+Random Quote: Master Mott said Thoros could outdrink even King Robert.  They were pease in a pod, he told me, both gluttons and sots.  -  Gendry
