@@ -1,2 +1,2 @@
-Last updated: 2024-04-17 08:04:18
-Random Quote: The Empire improves every system it touches. Judge by any metric: safety, prosperity, trade, opportunity, peace. Compare Imperial rule to what is happening right now. Is the world more peaceful since the revolution? I see nothing but death and chaos. - The Client
+Last updated: 2024-04-17 08:04:55
+Random Quote: Lily: "We'll all have a wedding dress camp-out. It'll be fun!"Barney: "I can't go. I've got this thing."Lily: "What thing?"Barney: "A penis!" - Barney Stinson
