@@ -1,2 +1,2 @@
-Last updated: 2024-04-17 07:59:54
-Random Quote: Qhorin was my enemy.  But also my brother, once.  So... shall I thank you for killing him, Jon Snow?  Or curse you?  -  Mance Rayder
+Last updated: 2024-04-17 08:01:07
+Random Quote: Everyone sounds like Meryl Streep with a gun to their head. - Mike Ehrmantraut
