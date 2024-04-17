@@ -1,2 +1,2 @@
-Last updated: 2024-04-17 07:53:28
-Random Quote: The Crow's Eye brought back monsters from the east... aye, and wizards too.  -  Tristifer Botley
+Last updated: 2024-04-17 07:54:03
+Random Quote: It seems to me that a queen who trusts no one is as foolish as a queen who trusts everyone.  -  Daenerys Targaryen
