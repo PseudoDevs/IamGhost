@@ -1,2 +1,2 @@
-Last updated: 2024-04-17 07:57:57
-Random Quote: If you wish to give up on playing, the 25.5 billion won will be sent to the bereaved families of the late players. - Jang Deok-su
+Last updated: 2024-04-17 07:58:30
+Random Quote: I'm a criminal, yo. - Jesse Pinkman
