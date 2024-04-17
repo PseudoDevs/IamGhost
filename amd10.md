@@ -1,2 +1,2 @@
-Last updated: 2024-04-17 08:00:37
-Random Quote: I rose too high, loved too hard, dared too much. I tried to grasp a star, overreached, and fell.  -  Jon Connington
+Last updated: 2024-04-17 08:01:10
+Random Quote: When you date someone, it's like you're taking one long course in who that person is and then, when you break up, all that stuff becomes useless. It's the emotional equivalent of an English degree... - Ted Mosby
