@@ -1,2 +1,2 @@
-Last updated: 2024-04-17 07:55:12
-Random Quote: The Lord of Light cherishes the innocent.  There is no sacrifice more precious.  From his king's blood and his untainted fire, a dragon shall be born.  -  Melisandre
+Last updated: 2024-04-17 07:55:45
+Random Quote: In my body, where the shame gland should be, there is a second awesome gland. True story! - Barney Stinson
