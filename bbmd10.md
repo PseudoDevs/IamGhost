@@ -1,2 +1,2 @@
-Last updated: 2024-04-16 16:54:16
-Random Quote: Do you still trust people? Even after what you've been through? - Oh Il-nam
+Last updated: 2024-04-17 07:50:52
+Random Quote: What is the cost of lies? It's not that we mistake them for the truth. The real danger is that if we hear enough lies, then we no longer recognize the truth at all. - Valery Legasov
