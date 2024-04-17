@@ -1,2 +1,2 @@
-Last updated: 2024-04-17 07:55:14
-Random Quote: "Cap'n Cook?" That's not you? Like I said, no one is looking for you. - Walter White
+Last updated: 2024-04-17 07:55:48
+Random Quote: You could turn King's Landing upside down and not find a single man with a mockingbird sewn over his heart but that does not mean I am friendless.  -  Petyr Baelish
