@@ -1,2 +1,2 @@
-Last updated: 2024-04-17 08:01:08
-Random Quote: Once, she had loved Prince Joffrey with all her heart, and admired and trusted his mother, the queen.  They had repaid that love and trust with her father's head.  Sansa would never make that mistake again.  -  Sansa Stark
+Last updated: 2024-04-17 08:01:44
+Random Quote: Sometimes we have to let things go because we can't keep them forever. - Maura Franklin
