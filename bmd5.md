@@ -1,2 +1,2 @@
-Last updated: 2024-04-18 05:45:14
-Random Quote: For the first time in my life, I don't want to find myself in three years with some random girl. No matter how many boobs she has. - Barney Stinson
+Last updated: 2024-04-18 05:45:48
+Random Quote: His blood is bad.  He needs to be leeched.  The leeches suck away the bad blood, all the rage and pain.  No man can think so full of anger.  Ramsay, though... his tainted blood would poison even leeches, I fear.  -  Roose Bolton
