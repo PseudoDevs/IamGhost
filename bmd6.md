@@ -1,2 +1,2 @@
-Last updated: 2024-04-18 05:48:37
-Random Quote: No.  You were the betrayer.  You turned against me, against your own blood.  They cheated me.  Your horsey husband and his stinking savages.  They were cheats and liars.  They promised me a golden crown and gave me this.  -  Viserys Targaryen
+Last updated: 2024-04-18 05:49:44
+Random Quote: The legacy of that shield is... complicated. - Sam Wilson
