@@ -1,2 +1,3 @@
-Last updated: 2024-04-18 05:10:39
-Random Quote: The Empire improves every system it touches. Judge by any metric: safety, prosperity, trade, opportunity, peace. Compare Imperial rule to what is happening right now. Is the world more peaceful since the revolution? I see nothing but death and chaos. - The Client
+Last updated: 2024-04-18 05:11:49
+Random Quote: Joel: "A deep breath in, slow breath out. You squeeze the trigger like you love it. Gentle, steady, nice and slow."
+Ellie: "You gonna shoot this thing or get it pregnant?" - Ellie Williams
