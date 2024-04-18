@@ -1,2 +1,2 @@
-Last updated: 2024-04-18 05:43:25
-Random Quote: Let the matriarchy begin. - Nairobi
+Last updated: 2024-04-18 05:43:59
+Random Quote: My father never bellowed like the Greatjon, but he was no less dangerous in his wroth.  -  Alys Karstark
