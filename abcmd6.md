@@ -1,2 +1,2 @@
-Last updated: 2024-04-18 05:13:50
-Random Quote: Jaime and I are more than brother and sister.  We are one person in two bodies.  We shared a womb together.  He came into this world holding my foot, our old maester said.  When he is in me, I feel... whole.  -  Cersei Lannister
+Last updated: 2024-04-18 05:14:26
+Random Quote: I'd ask what you're up to, Klaus, but then it occurred to me: I don't care. - Number Five
