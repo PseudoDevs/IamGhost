@@ -1,2 +1,2 @@
-Last updated: 2024-04-18 05:47:29
-Random Quote: Back boobs! The visual stimulation of missionary meets the emotional detachment of doggy style... patent pending. - Barney Stinson
+Last updated: 2024-04-18 05:48:03
+Random Quote: Never forget what you are, for surely the world will not.  Make it your strength.  Then it can never be your weakness.  Armor yourself in it, and it will never be used to hurt you.  -  Tyrion Lannister
