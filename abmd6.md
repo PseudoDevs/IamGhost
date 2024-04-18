@@ -1,2 +1,2 @@
-Last updated: 2024-04-18 06:47:32
-Random Quote: All I can do is wait... for the cancer to come back. - Skyler White
+Last updated: 2024-04-18 06:48:04
+Random Quote: Freeways have exits, so do relationships. The first exit, my personal favourite, is six hours in: You meet, you talk, you have sex, you exit when she's in the shower. - Barney Stinson
