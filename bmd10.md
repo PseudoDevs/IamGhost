@@ -1,2 +1,2 @@
-Last updated: 2024-04-18 05:04:53
-Random Quote: The beauty of a moment, is that it's fleeting. - Ted Mosby
+Last updated: 2024-04-18 05:06:45
+Random Quote: Many good men have been bad kings, and some bad men have been good kings.  -  Maester Aemon
