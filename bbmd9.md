@@ -1,2 +1,2 @@
-Last updated: 2024-04-18 05:23:22
-Random Quote: Piper: "Not every Hispanic person wants the same thing."Lorna: "Oh, sure they do. They all want to come to America."Nicky: "Jesus, your entire world view is based on 'West Side Story', isn't it?" - Nicky Nichols
+Last updated: 2024-04-18 05:23:58
+Random Quote: I'm a cool dad. That's my thang. I surf the web... I text LOL - Laugh Out Loud, OMG - Oh My God, WTF - Why The Face. - Phil Dunphy
