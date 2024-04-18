@@ -1,2 +1,2 @@
-Last updated: 2024-04-18 05:17:35
-Random Quote: Whatever happens next, it's not gonna go down the way you think it is. - Mike Ehrmantraut
+Last updated: 2024-04-18 05:18:08
+Random Quote: Winter will never come for the likes of us.  Should we die in battle, they will surely sing of us, and it's always summer in the songs.  In the songs all knights are gallant, all maids are beautiful, and the sun is always shining.  -  Brienne of Tarth
