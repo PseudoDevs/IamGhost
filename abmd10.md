@@ -1,2 +1,2 @@
-Last updated: 2024-04-18 04:58:54
-Random Quote: Tarly, when I was a lad half your age, my lady mother told me that if I stood about with my mouth open, a weasel was like to mistake it for his lair and run down my throat.  If you have something to say, say it.  Otherwise, beware of weasels.  -  Jeor Mormont
+Last updated: 2024-04-18 04:59:28
+Random Quote: It's like, I think about sex 24/7, but I don't really know how to do it. In the movies, you always see the girl kiss her way down the guy's body, but then, she moves off-screen. Is she stopping at the penis or kissing all the way to the foot? - Devi Vishwakumar
