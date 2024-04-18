@@ -1,2 +1,2 @@
-Last updated: 2024-04-18 04:59:37
-Random Quote: Roose Bolton's cold and cunning, aye, but a man can deal with Roose.  We've all known worse.  But this bastard son of his... they say he's mad and cruel, a monster.  -  Locke
+Last updated: 2024-04-18 05:00:10
+Random Quote: Many good men have been bad kings, and some bad men have been good kings.  -  Maester Aemon
