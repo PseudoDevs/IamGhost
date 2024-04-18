@@ -1,2 +1,3 @@
-Last updated: 2024-04-18 05:12:50
-Random Quote: What did the mermaid wear to her math class? An algae bra! - Will Livingston
+Last updated: 2024-04-18 05:13:24
+Random Quote: Dragon: "My name is Balthromaw. Breaker of skies, slayer of mountain."
+Rick: "Rule 1: You're now scooper of your own poops, or I will take you down like the black-light poster you are." - Rick Sanchez
