@@ -1,2 +1,2 @@
-Last updated: 2024-04-18 05:15:08
-Random Quote: The name is Thor, with a "T" and an "R" and an "O" and a "H". But not in that order. - Thor
+Last updated: 2024-04-18 05:15:45
+Random Quote: The septons preach about the seven hells.  What do they know?  Only a man who's been burned knows what hell is truly like.  -  Sandor Clegane
