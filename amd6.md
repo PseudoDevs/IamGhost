@@ -1,2 +1,2 @@
-Last updated: 2024-04-18 05:38:40
-Random Quote: I'd ask what you're up to, Klaus, but then it occurred to me: I don't care. - Number Five
+Last updated: 2024-04-18 05:39:14
+Random Quote: They are knights now, all three, and your sister has promised them further advancement.  And the eldest, Set Osmund of the Kingsguard, dreams of certain other... favors... as well.  You can match the queen coin for coin, I have no doubt, but she has a second purse that is quite inexhaustible.  -  Varys
