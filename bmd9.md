@@ -1,2 +1,2 @@
-Last updated: 2024-04-18 05:18:21
-Random Quote: Judy: "Who got Cousin Daphne drunk? She is 15 years old."Robin: "Whoa, they grow big out here."Barney: "And here's your phone number back." - Barney Stinson
+Last updated: 2024-04-18 05:20:49
+Random Quote: Robert could piss in a cup and men would call it wine, but I offer them cold clear water and they squint in suspicion and mutter to each other about how queer it tastes.  -  Stannis Baratheon
