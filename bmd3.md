@@ -1,2 +1,3 @@
-Last updated: 2024-04-18 05:17:42
-Random Quote: The longer Cersei waits, the angrier she'll become, and anger makes her stupid.  I much prefer angry and stupid to composed and cunning.  -  Tyrion Lannister
+Last updated: 2024-04-18 05:18:20
+Random Quote: What's in the box? What's in the box? WHAT'S IN THE BOX?
+Right? Brad pitt? Seven? - Robin Scherbatsky
