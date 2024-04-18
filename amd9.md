@@ -1,2 +1,3 @@
-Last updated: 2024-04-18 05:57:00
-Random Quote: This is New York City, don't get close to the neighbours. You nod at them politely in the hall, you call the cops if you haven't seen them in a while and you smell something funny and that's it! - Ted Mosby
+Last updated: 2024-04-18 05:57:32
+Random Quote: Morty: "So, time moves faster in there? Is it like a Narnia thing?"
+Rick: "I'm not a beaver who believes in Jesus Christ, Morty. But yeah, it's pretty much a Narnia thing." - Rick Sanchez
