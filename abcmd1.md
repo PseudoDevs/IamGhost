@@ -1,4 +1,2 @@
-Last updated: 2024-04-18 05:28:14
-Random Quote: Joel: "I need you to tell us where we are."
-Man: "If you got a map, why you lost?"
-Ellie: "Must've missed all the street signs in the enormous f-cking forest." - Ellie Williams
+Last updated: 2024-04-18 05:28:47
+Random Quote: Frustration and boredom are great motivators to seek out other pleasures. Human behavior is quite predictable. - Virginia Wilson
