@@ -1,2 +1,2 @@
-Last updated: 2024-04-18 04:57:50
-Random Quote: Barney: "Canada sucks."Robin: "Okay, well, you're one-quarter Canadian, so by that logic you one-quarter suck!"Barney: "I'm 100% awesome and you know it!"Robin: "Yeah, I do." - Robin Scherbatsky
+Last updated: 2024-04-18 04:58:23
+Random Quote: Might be you fooled these others, crow, but don't think you'll be fooling Mance.  He'll take one look a' you and know you're false.  And when he does, I'll make a cloak o' your wolf there, and open your soft boy's belly and sew a weasel up inside.  -  the Lord of Bones
