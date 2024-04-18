@@ -1,2 +1,2 @@
-Last updated: 2024-04-18 05:41:31
-Random Quote: Ted: "Robin and I already had our backslide. Last Thanksgiving, not even that long ago."Stella: "Did you place a large bet against yourself?" - Stella Zinman
+Last updated: 2024-04-18 05:42:04
+Random Quote: Bronn was no knight, that was true.  Bronn was a battle - hardened killer. 
