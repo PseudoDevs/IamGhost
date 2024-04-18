@@ -1,2 +1,2 @@
-Last updated: 2024-04-18 05:31:16
-Random Quote: My skin has gone from porcelain, to ivory, to steel.  -  Sansa Stark
+Last updated: 2024-04-18 05:31:49
+Random Quote: You're Reek.  You'll always be Reek, no matter how sweet you smell.  Your nose may lie to you.  Remember your name.  Remember who you are.  -  Ramsay Bolton
