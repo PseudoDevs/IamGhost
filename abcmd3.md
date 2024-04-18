@@ -1,2 +1,2 @@
-Last updated: 2024-04-18 05:12:35
-Random Quote: I'll never find that kind of love. There's just no darkness. It's just sweet. I don't know if that would ever be enough for me. - Maddy Perez
+Last updated: 2024-04-18 05:13:14
+Random Quote: New York! Home of the Mets, the Chrysler Building, those ladies from Sex and the City and now, the zombie apocalypse. If you can make it here, you can make it anywhere - but first, you have to not get eaten. - Spider-Man
