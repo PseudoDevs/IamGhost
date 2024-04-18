@@ -1,2 +1,3 @@
-Last updated: 2024-04-18 05:53:03
-Random Quote: I learned form Set Arthur Dayne, the Sword of the Morning, who could have slain all five of you with his left hand while he was taking a piss with the right.  -  Jaime Lannister
+Last updated: 2024-04-18 05:53:36
+Random Quote: Sam: "What's going on in that cyborg brain of yours?"
+Bucky: "You don't wanna know!" - Bucky Barnes
