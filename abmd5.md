@@ -1,2 +1,2 @@
-Last updated: 2024-04-18 06:33:13
-Random Quote: When you meet someone special, suddenly life is full of firsts: The first kiss, the first night together, the first weekend together. - Ted Mosby
+Last updated: 2024-04-18 06:33:45
+Random Quote: The World is going to come to an end tonight. Yes think about it. End of the World, Nostradamus, Notre Dame, Fighting Irish, Irish, St. Patrick's Day. This is it Bro. Bro-calypse Now... Bro-Mageddon. - Barney Stinson
