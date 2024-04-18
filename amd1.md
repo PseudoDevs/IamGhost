@@ -1,2 +1,2 @@
-Last updated: 2024-04-18 05:04:27
-Random Quote: Brother, you're driving the "I-wanna-have-sex-with-her-truck" and its got a huge blind spot. - Marshall Eriksen
+Last updated: 2024-04-18 05:05:00
+Random Quote: Think of me as Yoda - only, instead of being little and green, I wear suits and I'm awesome. I'm your bro. I'm Broda. - Barney Stinson
