@@ -1,2 +1,2 @@
-Last updated: 2024-04-18 05:04:01
-Random Quote: Ted: "Barney, I don't know if the oven is deep enough. Plus, it's a display made of cardboard."Barney: "Huh. I should probably disconnect the gas." - Barney Stinson
+Last updated: 2024-04-18 05:04:35
+Random Quote: Did the boy charm you?  He has that gift.  He got it from his father, with the blood.  He knows he is a king's son, but chooses to forget that he is bastard - born. 
