@@ -1,3 +1,2 @@
-Last updated: 2024-04-18 05:33:07
-Random Quote: "How do you take your tea?"
-Ted: "Well, normally right back to the counter because there's been a terrible mistake." - Jim Hopper
+Last updated: 2024-04-18 05:33:40
+Random Quote: They'll bend the knee or I'll destroy them.  -  Stannis Baratheon
