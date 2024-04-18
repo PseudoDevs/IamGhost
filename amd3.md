@@ -1,2 +1,2 @@
-Last updated: 2024-04-18 05:33:16
-Random Quote: Winter will never come for the likes of us.  Should we die in battle, they will surely sing of us, and it's always summer in the songs.  In the songs all knights are gallant, all maids are beautiful, and the sun is always shining.  -  Brienne of Tarth
+Last updated: 2024-04-18 05:33:52
+Random Quote: You'd have been the last lawyer I'd have gone to. - Walter White
