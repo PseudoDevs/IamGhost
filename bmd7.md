@@ -1,4 +1,2 @@
-Last updated: 2024-04-18 05:37:31
-Random Quote: Marshall: "Except the flames of Lucifer keep singein our back bumper as we drive through this hellish, cheese-infected wasteland."
-Lily: "Wisconsin?"
-Marshall: "Wisconsin!" - Marshall Eriksen
+Last updated: 2024-04-18 05:38:04
+Random Quote: Per the student dress and grooming code, this boy's hair is too longThis boy's wearing sports attire outside a designated areaAnd this girl's blouse is diaphanous, which means I can see her brassiere. - Sheldon
