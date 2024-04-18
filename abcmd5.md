@@ -1,2 +1,2 @@
-Last updated: 2024-04-18 05:13:12
-Random Quote: When the sun rises in the west and sets in the east.  When the seas go dry and mountains blow in the wind like leaves.  When your womb quickens again, and you bear a living child.  Then he will return, and not before.  -  Mirri Maz Duur
+Last updated: 2024-04-18 05:13:51
+Random Quote: You're a beautiful, sweet girl. Fuck this guy! - Nicky Nichols

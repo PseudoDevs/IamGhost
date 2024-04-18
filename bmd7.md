@@ -1,2 +1,2 @@
-Last updated: 2024-04-18 05:13:12
-Random Quote: Drugs are kind of cool. I mean, they're cool before they wreck your skin. And your life. And your family. That's when they get uncool. It's actually a very narrow window of cool. - Rue Bennett
+Last updated: 2024-04-18 05:13:52
+Random Quote: There's only one thing that could blind a man as smart as you, Tommy. Love. - Polly Gray
