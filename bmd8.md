@@ -1,3 +1,3 @@
-Last updated: 2024-04-18 05:52:29
-Random Quote: Journalist: "Mr. Stark, were you injured in the attack?"
-Tony Stark: "No, but I did spill my drink, and it was a '26 Macallan, so I'm pretty sure that's a war crime." - Iron Man
+Last updated: 2024-04-18 05:53:02
+Random Quote: Steven Grant: "I'm not trying to slag off marketing, but there's been a major blunder. Because they've got seven gods here, and the Ennead has nine."
+Donna: "I fired two of them for bein' late. Listen, if you don't stop natterin' at me, I swear I'll shove you in a sarcophagus. You can tell the pharaoh in there what's wrong with them and all." - Arthur Harrow
