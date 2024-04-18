@@ -1,2 +1,2 @@
-Last updated: 2024-04-18 06:30:01
-Random Quote: Science fact: Sisters are the worst. - Sheldon
+Last updated: 2024-04-18 06:30:33
+Random Quote: I dream of a tree sometimes.  A weirwood, like the one in the godswood.  It calls to me.  The wolf dreams are better.  I smell things, and sometimes I can taste the blood.  -  Bran Stark
