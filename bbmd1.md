@@ -1,2 +1,2 @@
-Last updated: 2024-04-18 04:59:04
-Random Quote: I pray for a glimpse of Azor Ahai, and R'hllor shows me only Snow.  -  Melisandre
+Last updated: 2024-04-18 05:00:43
+Random Quote: When dead men come hunting us in the night, do you think it matters who sits the Iron Throne?  -  Jeor Mormont
