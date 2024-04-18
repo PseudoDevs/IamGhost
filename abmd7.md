@@ -1,2 +1,2 @@
-Last updated: 2024-04-18 05:12:30
-Random Quote: Lily: "It's nine weeks 'til the wedding, at this point, I'd say yes to just about anything."Barney: "Well..."Lily: "No, Barney." - Lily Aldrin
+Last updated: 2024-04-18 05:13:03
+Random Quote: A wolf is not a kraken.  What the kraken grasps it does not lose, be it longship or leviathan.  -  Victarion Greyjoy
