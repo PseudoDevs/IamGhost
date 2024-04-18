@@ -1,2 +1,2 @@
-Last updated: 2024-04-18 06:23:04
-Random Quote: They are children, Sansa thought.  They are silly little girls, even Elinor.  They've never seen a battle, they've never seen a man die, they know nothing.  Their dreams were full of songs and stories, the way hers had been before Joffrey cut her father's head off.  Sansa pitied them.  Sansa envied them.  -  Sansa Stark
+Last updated: 2024-04-18 06:23:36
+Random Quote: Send him to Belize? I'll send YOU to Belize. - Walter White
