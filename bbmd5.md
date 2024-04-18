@@ -1,2 +1,2 @@
-Last updated: 2024-04-18 04:59:04
-Random Quote: Power tastes best when sweetened by courtesy; you had best learn that if you ever hope to rule.  -  Roose Bolton
+Last updated: 2024-04-18 04:59:38
+Random Quote: Kids, morals usually come at the end of stories, but this one is so important, I'm gonna tell you now. Don't ever, ever invite an ex to your wedding. - Ted Mosby
