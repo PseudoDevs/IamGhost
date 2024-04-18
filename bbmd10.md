@@ -1,2 +1,6 @@
-Last updated: 2024-04-18 05:19:37
-Random Quote: Summer friends will melt away like summer snows, but winter friends are friends forever.  -  Mully
+Last updated: 2024-04-18 05:20:14
+Random Quote: When Mom was a groupie in the '70s, her scrambled eggs made her the darling of the MSG loading dock. Lot of songs written about those scrambled eggs:
+ZZ Top's "She's Got Legs"? Originally "She's Got Eggs".
+Led Zeppelin? "Scramble On".
+Steve Miller? "The Yolker".
+If you listen to Pink Floyd's "Dark Side of the Moon" while eating her eggs, it lines up perfectly. - Barney Stinson
