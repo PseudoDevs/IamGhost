@@ -1,2 +1,2 @@
-Last updated: 2024-04-18 05:08:15
-Random Quote: I thought you where vomit-free since nintythree... so that was a lie? - Marshall Eriksen
+Last updated: 2024-04-18 05:08:48
+Random Quote: When dead men come hunting us in the night, do you think it matters who sits the Iron Throne?  -  Jeor Mormont
