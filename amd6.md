@@ -1,2 +1,2 @@
-Last updated: 2024-04-18 05:09:56
-Random Quote: Obara would make Oldtown our father's funeral pyre, but I am not so greedy.  Four lives will suffice for me.  Lord Tywin's golden twins, as payment for Elia's children.  The old lion, for Elia herself.  And last of all the little king, for my father... only royal blood can wash out my father's murder.  -  Nymeria Sand
+Last updated: 2024-04-18 05:10:29
+Random Quote: Pornstache: "You are not an agent of God, okay? God can do so much better than you. You must know that, right?"Pennsatucky: "Know what?"Pornstache: "Jesus Christ, how the fuck did you survive infancy?"Pennsatucky: "My auntie helped my momma..."Pornstache: "That's a rhetorical question! Do you not understand what a fucking rhetorical question is?" - George 'Pornstache' Mendez
