@@ -1,2 +1,3 @@
-Last updated: 2024-04-18 06:03:12
-Random Quote: Need found it hard to imagine what could frighten Stannis Baratheon, who had once held Storm's End through a year of siege, surviving on rats and boot leather while the Lords Tyrell and Redwyne sat outside with their hosts, banqueting in sight of his walls.  -  Eddard Stark
+Last updated: 2024-04-18 06:03:44
+Random Quote: Sam: "What's going on in that cyborg brain of yours?"
+Bucky: "You don't wanna know!" - Bucky Barnes
