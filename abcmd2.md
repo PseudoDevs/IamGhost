@@ -1,2 +1,2 @@
-Last updated: 2024-04-18 05:17:09
-Random Quote: Master Mott said Thoros could outdrink even King Robert.  They were pease in a pod, he told me, both gluttons and sots.  -  Gendry
+Last updated: 2024-04-18 05:17:44
+Random Quote: The world is one great web, and no man dare not touch a single strand lest all the others tremble.  -  Illyrio Mopatis
