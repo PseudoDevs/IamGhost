@@ -1,2 +1,2 @@
-Last updated: 2024-04-18 05:37:56
-Random Quote: There is entirely too much tut - tutting in this realm, if you ask me.  All these kings would do a deal better if they put down their swords and listended to their mothers. 
+Last updated: 2024-04-18 05:38:29
+Random Quote: It's okay to lose yourself in this, just as long as you can find yourself again. - Nina Locke
