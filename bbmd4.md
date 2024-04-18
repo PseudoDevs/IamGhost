@@ -1,2 +1,3 @@
-Last updated: 2024-04-18 05:04:16
-Random Quote: A man lives three lives. The first one ends with the loss of naivety, the second, with the loss of innocence and the third… with the loss of life itself. It’s inevitable that we go through all three stages. - Adam
+Last updated: 2024-04-18 05:05:29
+Random Quote: Freddie Thorne: "What kind of a list would have the name of a communist and the name of a bookmaker side by side?"
+Thomas Shelby: "Perhaps it's a list of men who give false hope to the poor." - Thomas Shelby
