@@ -1,2 +1,2 @@
-Last updated: 2024-04-18 05:06:53
-Random Quote: You two suck at peddling meth. - Saul Goodman
+Last updated: 2024-04-18 05:07:26
+Random Quote: "I never win anything.  The gods always smiled on Watt, though.  When the wildlings knocked him off the Bridge of Skulls, somehow he landed in a nice deep pool of water.  How lucky was that, missing all those rocks?"  "Was it a long fall?  Did landing in the pool of water save his life?"  "No.  He was dead already, from that axe in his head.  Still, it was pretty lucky, missing the rocks."  -  Dolorous Edd and Grenn
