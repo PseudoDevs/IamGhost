@@ -1,2 +1,7 @@
-Last updated: 2024-04-18 04:58:30
-Random Quote: I don't take nothin' a drug addict says personally. 'Cause I don't believe nothin' a drug addict say. - Fezco
+Last updated: 2024-04-18 04:59:04
+Random Quote: Bo-Katan: "You are a disgrace to your armor."
+Boba Fett: "This armor belonged to my father."
+Bo-Katan: "Don't you mean your donor?"
+Boba Fett: "Careful, princess."
+Bo-Katan: "You are a clone. I've heard your voice thousands of times."
+Boba Fett: "Mine might be the last one you hear." - Boba Fett
