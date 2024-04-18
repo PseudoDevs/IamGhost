@@ -1,2 +1,2 @@
-Last updated: 2024-04-18 05:35:35
-Random Quote: Larry Bloom: "Are we at least gonna talk about other options?"Piper Chapman: "You mean..."Larry Bloom: "It's not Voldemort, you can say it. Abortion." - Larry Bloom
+Last updated: 2024-04-18 05:36:08
+Random Quote: I heard enough to know she saved your a-s. - Mike Ehrmantraut
