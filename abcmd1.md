@@ -1,2 +1,2 @@
-Last updated: 2024-04-18 06:22:25
-Random Quote: Nobody takes an intro class to get on any other path, but the path to not being hungover anymore. I learned that in my intro to something-ology class. - Marshall Eriksen
+Last updated: 2024-04-18 06:22:57
+Random Quote: That everything’s repeating That this has all happened before Like a massive déjĂ  Vu - 
