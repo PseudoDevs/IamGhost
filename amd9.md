@@ -1,2 +1,2 @@
-Last updated: 2024-04-18 06:33:50
-Random Quote: No, only a boy who dreams.  The greenseers were more than that.  They were wargs as well, as you are, and the greatest of them could wear the skins of any beast that flies or swims or crawls, and could look through the eyes of the weirwoods as well, and see the truth that lies beneath the world.  -  Jojen Reed
+Last updated: 2024-04-18 06:34:22
+Random Quote: Ted: "You know, as your best friend, if called upon, I'd be honored to raise Marvin."Robin: "If you want him to be raised by his underwear on a flagpole, Ted's your guy. If you want him pulling the chord on some other nerd's panties, I'm your guy."Barney: "I'll teach that kid how to be awesome in ways you and Lily never could. It's going to be legend- wait for it... no, I won't wait for it and neither should little baby Marvin, so maybe it's better if you two just die right now... -dary!" - Barney Stinson
