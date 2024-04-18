@@ -1,2 +1,2 @@
-Last updated: 2024-04-18 05:05:01
-Random Quote: You two suck at peddling meth. - Saul Goodman
+Last updated: 2024-04-18 05:05:33
+Random Quote: Drugs are kind of cool. I mean, they're cool before they wreck your skin. And your life. And your family. That's when they get uncool. It's actually a very narrow window of cool. - Rue Bennett
