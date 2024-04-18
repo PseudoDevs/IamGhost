@@ -1,2 +1,2 @@
-Last updated: 2024-04-18 05:18:21
-Random Quote: You want to rule?  This is what ruling is; lying on a bed of weeds, ripping them out by the root, one by one, before they strangle you in your sleep.  -  Cersei Lannister
+Last updated: 2024-04-18 05:20:13
+Random Quote: He would have killed me but for Howland Reed.  -  Eddard Stark
