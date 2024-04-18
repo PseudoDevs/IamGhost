@@ -1,2 +1,6 @@
-Last updated: 2024-04-18 05:32:04
-Random Quote: "Cap'n Cook?" That's not you? Like I said, no one is looking for you. - Walter White
+Last updated: 2024-04-18 05:32:41
+Random Quote: Polly: "Six."
+John: "Six what?"
+Polly: "Six questions since you walked through that door. Soon you'll have to start being the man with the answers."
+John: "Why?"
+Polly: "Seven." - Polly Gray
