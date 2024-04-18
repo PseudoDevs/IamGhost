@@ -1,2 +1,2 @@
-Last updated: 2024-04-18 06:51:17
-Random Quote: There are moments in life we should just be able to have a damn remote control, so you could pause it. Even if just for five minutes. But sometimes things happen with irreverent obscenity and there’s nothing you can do to help it. - Tokyo
+Last updated: 2024-04-18 06:51:49
+Random Quote: So, what do you want to do tonight? Drink ourselves blind, set a car on fire? Oh, watch a movie that doesn't start with a desk lamp jumping on top of a capital "I"? - Lily Aldrin
