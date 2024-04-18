@@ -1,2 +1,2 @@
-Last updated: 2024-04-18 05:02:28
-Random Quote: I hate it when you talk sometimes. No... all the time. - Nicky Nichols
+Last updated: 2024-04-18 05:03:04
+Random Quote: Brandon Stark was never shy about taking what he wanted.  I am old now, a dried - up thing, too long a widow, but I still remember the look of my maiden's blood on his cock the night he claimed me.  I think Brandon liked the sight as well.  A bloody sword is a beautiful thing, yes.  It hurt, but it was a sweet pain. 
