@@ -1,2 +1,2 @@
-Last updated: 2024-04-18 05:27:58
-Random Quote: That's the thing with guys like Nate. They don't actually want a person. They want something they can own and possess. - Rue Bennett
+Last updated: 2024-04-18 05:28:31
+Random Quote: Hush, Alerie, don't take that tone with me.  And don't call me mother.  If I'd given birth to you, I'm sure I'd remember.  I'm only to blame for your husband, the lord oaf of Highgarden.  -  Olenna Tyrell
