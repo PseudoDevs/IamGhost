@@ -1,2 +1,2 @@
-Last updated: 2024-04-18 05:09:54
-Random Quote: You're both young, you're both unsure about your place in the universe, and you both want to be Grandpa's favorite. I can fix this. Morty, sit here. Summer, you sit here. Now, listen - I know the two of you are very different from each other in a lot of ways, but you have to understand that as far as Grandpa's concerned, you're both pieces of sh-! Yeah, I can prove it mathematically. Actually, l-l-let me grab my whiteboard. This has been a long time coming, anyways. - Rick Sanchez
+Last updated: 2024-04-18 05:10:27
+Random Quote: Robert... he is in my dreams as well.  Laughing.  Drinking.  Boasting.  Those were the things he was best at.  Those, and fighting.  I never bested him at anything.  -  Stannis Baratheon
