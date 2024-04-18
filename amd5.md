@@ -1,2 +1,2 @@
-Last updated: 2024-04-18 05:35:42
-Random Quote: You two suck at peddling meth. - Saul Goodman
+Last updated: 2024-04-18 05:36:17
+Random Quote: There have always been men who found it easier to speak vows than to keep them.  -  Arys Oakheart
