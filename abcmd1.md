@@ -1,2 +1,2 @@
-Last updated: 2024-04-18 06:06:24
-Random Quote: If you want my advice? Get out of your own goddamn drama for a minute. - Nicky Nichols
+Last updated: 2024-04-18 06:06:56
+Random Quote: You'd have been the last lawyer I'd have gone to. - Walter White
