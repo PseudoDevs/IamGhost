@@ -1,2 +1,2 @@
-Last updated: 2024-04-18 05:37:01
-Random Quote: What I came to realise is that fear, that’s the worst of it. That’s the real enemy. So, get up, get out in the real world and you kick that bastard as hard you can right in the teeth. - Walter White
+Last updated: 2024-04-18 05:37:34
+Random Quote: All the decisions we made in the past leads us inexorably into the future. - Tokyo
