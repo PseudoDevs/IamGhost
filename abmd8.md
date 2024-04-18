@@ -1,2 +1,2 @@
-Last updated: 2024-04-18 05:21:23
-Random Quote: Free folk don't follow names, or little cloth animals sewn on a tunic.  They won't dance for coins, they don't care how you style yourself or what that chain of office means or who your grandsire was.  They follow strength.  They follow the man.  -  Mance Rayder
+Last updated: 2024-04-18 05:21:56
+Random Quote: I hate kids. They don't drink, they haven't travelled... - Nicky Nichols
