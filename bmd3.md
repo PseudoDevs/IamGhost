@@ -1,2 +1,2 @@
-Last updated: 2024-04-18 05:17:03
-Random Quote: Fool's blood, king's blood, blood on the maiden's thigh, but chains for the guests and chains for the bridegroom, aye aye aye.  -  Patchface
+Last updated: 2024-04-18 05:17:42
+Random Quote: The longer Cersei waits, the angrier she'll become, and anger makes her stupid.  I much prefer angry and stupid to composed and cunning.  -  Tyrion Lannister
