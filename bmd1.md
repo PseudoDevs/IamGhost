@@ -1,2 +1,2 @@
-Last updated: 2024-04-18 05:01:14
-Random Quote: Or I look single, 34 and single, which must mean there's something wrong with me. Like, you keep large reptiles in tanks, or I have a very special relationship with my mother. - Larry Bloom
+Last updated: 2024-04-18 05:01:51
+Random Quote: If you wish to give up on playing, the 25.5 billion won will be sent to the bereaved families of the late players. - Jang Deok-su
