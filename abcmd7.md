@@ -1,2 +1,2 @@
-Last updated: 2024-04-18 05:45:11
-Random Quote: Bronn was no knight, that was true.  Bronn was a battle - hardened killer. 
+Last updated: 2024-04-18 05:45:46
+Random Quote: It's just, I know I can be a jerk like him sometimes, and I do not want to be like him. Ever. - Max Mayfield
