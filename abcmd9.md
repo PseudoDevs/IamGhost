@@ -1,2 +1,2 @@
-Last updated: 2024-04-18 05:29:36
-Random Quote: I could keep you safe.  They're all afraid of me.  No one would hurt you again, or I'd kill them.  -  Sandor Clegane
+Last updated: 2024-04-18 05:32:39
+Random Quote: Kids, morals usually come at the end of stories, but this one is so important, I'm gonna tell you now. Don't ever, ever invite an ex to your wedding. - Ted Mosby
