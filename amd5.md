@@ -1,2 +1,2 @@
-Last updated: 2024-04-18 05:01:39
-Random Quote: I had nothing but time. Endless time. At first, it was madness. Then enlightment. Then madness again. But perhaps it was a gift. I could see the life of time. And as I watched the life of time in all its fleeting, terrible light, I wondered, had I lived? Was I just the object in another's story? Was that all I ever was? Could I be more? I had nothing but time and still no answer. Time without purpose is a prison. I have glimpsed into the mind of eternity. Perhaps the mind of God. And found nothing but silence. - Jessica
+Last updated: 2024-04-18 05:02:12
+Random Quote: How do you keep a girl from becoming your girlfriend?1. Never get them wet. In other words, don't let her take a shower at your place.2. Keep them away from sunlight - i. e. don't ever see them during the day.3. Never feed them after midnight. Meaning she doesn't sleep over and you don't have breakfast. - Barney Stinson
