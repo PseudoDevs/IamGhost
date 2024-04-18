@@ -1,2 +1,2 @@
-Last updated: 2024-04-18 05:32:04
-Random Quote: America, Freddie. They've already had their revolution, you won't have to bother. - Ada Thorne
+Last updated: 2024-04-18 05:32:41
+Random Quote: Knowledge is a weapon, Jon.  Arm yourself well before you ride forth to battle.  -  Maester Aemon

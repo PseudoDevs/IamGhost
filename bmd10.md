@@ -1,2 +1,5 @@
-Last updated: 2024-04-18 05:32:03
-Random Quote: 'You leaving already, Chief?"Jim Hopper: "Oh, come on, you think I actually wanted to come to this thing? I was just hungry."'Oh, yeah, that's the spirit."Jim Hopper: "Well, your wife doesn't have time to cook for me, you know what I'm saying." - Jim Hopper
+Last updated: 2024-04-18 05:32:41
+Random Quote: Barney: "You can't spell 'game' without 'me' and 'me' has the best game."
+Ted: "Yeah well, I got so much game, I'm Cornish game hen."
+Barney: "Oh, yeah? I'm the New York State gaming commissioner."
+Ted: "Well, I'm The Game. Well-crafted, keep-you-guessing thriller starring Michael Douglas and Sean Penn." - Ted Mosby
