@@ -1,2 +1,3 @@
-Last updated: 2024-04-18 05:07:25
-Random Quote: Never trust a pirate. - Din Djarin
+Last updated: 2024-04-18 05:08:04
+Random Quote: Jang Deok-su: "Tell me what you're good at?"
+Han Mi-nyeo: "Everything, except the things I can't do." - Oh Il-nam
