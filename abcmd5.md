@@ -1,2 +1,2 @@
-Last updated: 2024-04-18 05:30:26
-Random Quote: People say Hawkins is cursed. They're not way off. - Dustin Henderson
+Last updated: 2024-04-18 05:30:59
+Random Quote: Because they are the knights of summer, and winter is coming.  -  Catelyn Stark
