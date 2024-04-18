@@ -1,2 +1,2 @@
-Last updated: 2024-04-18 05:05:22
-Random Quote: Animal instinct. When faced with danger, seek refuge in the herd. - Seong Gi-hun
+Last updated: 2024-04-18 05:05:54
+Random Quote: Take the foundling to the city of Calodan on the forest planet Corvus. There, you will find Ahsoka Tano. Tell her you were sent by Bo-Katan. - Bo-Katan
