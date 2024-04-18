@@ -1,2 +1,2 @@
-Last updated: 2024-04-18 05:04:17
-Random Quote: Barney: "Check it out, I made a little game."Lottery Girl: "And tonight's lotto numbers are: 19..."Barney: "...age you moved to New York after a photographer 'discovered' you at a food court and said he would get you into Vogue Magazine."Lotto Girl: "53..."Barney: "...number of semi-nude pictures he took of you before you realized he had no connection to Vogue Magazine."Lotto Girl: "22..."Barney: "...age you claim you are."Lotto Girl: "31..."Barney: "...age you actually are."Lotto Girl: "45..."Barney: "...number of minutes it would take me to get you into a cab, out of your dress and into my Jacuzzi."Lotto Girl: "And tonight's Super Big Ball is..."Barney: "...what happens after we get out of the Jacuzzi. What Up?!" - Barney Stinson
+Last updated: 2024-04-18 05:05:28
+Random Quote: Think of me as Yoda - only, instead of being little and green, I wear suits and I'm awesome. I'm your bro. I'm Broda. - Barney Stinson
