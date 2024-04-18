@@ -1,3 +1,2 @@
-Last updated: 2024-04-18 06:13:27
-Random Quote: Morty: "I don't deserve this. I was just having fun."
-Rick: "So was Jeffrey Dahmer." - Rick Sanchez
+Last updated: 2024-04-18 06:13:59
+Random Quote: Barney: "Fine, we'll just have a nice, tasteful rehearsal dinner. Maybe at a French restaurant, I know just the place."Robin: "What's the name of the restaurant?"Barney: "La Sertag." - Barney Stinson
