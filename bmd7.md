@@ -1,2 +1,7 @@
-Last updated: 2024-04-18 05:02:26
-Random Quote: Italy doesn't need something that is wrinkled, red and leaky, and smells like booze and narcotics. They've already got former Prime Minister Silvio Berlusconi. - Marshall Eriksen
+Last updated: 2024-04-18 05:03:40
+Random Quote: "Nevermore was founded over 200 years ago to educate outcasts."
+"Students from all walks of life."
+"And death."
+"Our mission is to help each student master their unique abilities. So we offer a full range of extracurricular activities. From painting... to archery."
+"For centuries, notable alumni have roamed these majestic halls, from the master of macabre, Edgar Allan Poe, to personal heroes like Ignatius Itt, and of course, Morticia and Gomez Addams."
+"Our highly trained faculty educate our young outcasts on a wide range of subjects. Everything from werewolf reproduction to Gorgon anatomy." - Larissa Weems
