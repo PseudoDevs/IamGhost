@@ -1,2 +1,2 @@
-Last updated: 2024-04-18 05:28:59
-Random Quote: Mando: "I was not born on Mandalore."Greef Karga: "But you're Mandalorian?"Cara Dune: "Mandalorian isn't a race."Mando: "It's a Creed." - Din Djarin
+Last updated: 2024-04-18 05:29:35
+Random Quote: Never trust a pirate. - Din Djarin
