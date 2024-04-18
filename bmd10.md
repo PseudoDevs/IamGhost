@@ -1,2 +1,2 @@
-Last updated: 2024-04-18 05:37:28
-Random Quote: Grey Wind ate two of his fingers, and he laughed about it.  -  Robb Stark on Greatjon Umber
+Last updated: 2024-04-18 05:38:38
+Random Quote: Be proud of your penis and your heritage. 'Cause neither are going anywhere. You should work with what you've got. - Otis Milburn

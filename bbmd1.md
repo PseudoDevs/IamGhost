@@ -1,3 +1,2 @@
-Last updated: 2024-04-18 05:38:02
-Random Quote: Ravonna: "You really believe in this Loki variant?"
-Mobius: "Luckily, he believes in himself enough for the both of us." - Mobius M. Mobius
+Last updated: 2024-04-18 05:38:38
+Random Quote: We all must choose.  Man or woman, young or old, lord or peasant, our choices are the same.  We choose light or we choose darkness.  -  Melisandre
