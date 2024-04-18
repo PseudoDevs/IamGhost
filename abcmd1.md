@@ -1,2 +1,2 @@
-Last updated: 2024-04-18 04:57:48
-Random Quote: You will never walk again... but you will fly.  -  Bloodraven
+Last updated: 2024-04-18 04:58:22
+Random Quote: You must be blind as well as maimed, Set.  Lift your eyes, and you will see the direwolf still flies above our walls.  -  Brynden Tully
