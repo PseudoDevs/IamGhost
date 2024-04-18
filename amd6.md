@@ -1,2 +1,2 @@
-Last updated: 2024-04-18 05:17:17
-Random Quote: I'm a Mandalorian. Weapons are part of my religion. - Din Djarin
+Last updated: 2024-04-18 05:17:50
+Random Quote: Nuncle always had a fondness for freaks and fools.  My father used to fight with him about it.  Let the wizards call upon their gods.  The Damphair will call on ours, and drown them.  -  Asha Greyjoy
