@@ -1,3 +1,2 @@
-Last updated: 2024-04-18 05:05:30
-Random Quote: May: "May Carleton. I breed racehorses and train them. What is it you do?"
-Thommy: "I rarely answer questions is what I do." - Thomas Shelby
+Last updated: 2024-04-18 05:06:07
+Random Quote: Piper: "Not every Hispanic person wants the same thing."Lorna: "Oh, sure they do. They all want to come to America."Nicky: "Jesus, your entire world view is based on 'West Side Story', isn't it?" - Nicky Nichols
