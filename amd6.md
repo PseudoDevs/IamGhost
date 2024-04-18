@@ -1,2 +1,2 @@
-Last updated: 2024-04-18 05:35:56
-Random Quote: I learned form Set Arthur Dayne, the Sword of the Morning, who could have slain all five of you with his left hand while he was taking a piss with the right.  -  Jaime Lannister
+Last updated: 2024-04-18 05:36:29
+Random Quote: You see, ladies? When you're out with a Blinder, you don't have to queue. - Arthur Shelby
