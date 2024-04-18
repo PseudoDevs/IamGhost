@@ -1,2 +1,2 @@
-Last updated: 2024-04-18 05:25:55
-Random Quote: To be a scientist is to be naive. - Valery Legasov
+Last updated: 2024-04-18 05:26:34
+Random Quote: Spare me your empty little compliments, girl... and your ser's.  I am no knight.  I spit on them and their vows.  My brother is a knight.  -  Sandor Clegane
