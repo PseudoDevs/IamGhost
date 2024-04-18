@@ -1,2 +1,2 @@
-Last updated: 2024-04-18 05:05:44
-Random Quote: 14 seconds! And already some dingdong is stepping up, thinking he can get some of this broke off. - Robin Scherbatsky
+Last updated: 2024-04-18 05:06:17
+Random Quote: We were king's men, knights, and heroes... but some knights are dark and full of terror, my lady.  War makes monsters of us all.  -  Thoros of Myr
