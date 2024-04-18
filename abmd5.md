@@ -1,2 +1,3 @@
-Last updated: 2024-04-18 06:12:55
-Random Quote: Take care of this little one or maybe, it'll take care of you. - Greef Karga
+Last updated: 2024-04-18 06:13:27
+Random Quote: Morty: "I don't deserve this. I was just having fun."
+Rick: "So was Jeffrey Dahmer." - Rick Sanchez
