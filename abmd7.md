@@ -1,4 +1,2 @@
-Last updated: 2024-04-18 05:30:29
-Random Quote: Jimmy: "I can't believe Wanda and Vision are having a baby."
-Darcy Lewis: "You want any?"
-Jimmy: "Heck, I thought about it for sure. A little Jimmy Woo. Get him a tiny little FBI badge... oh, you... chip? Sure." - Jimmy Woo
+Last updated: 2024-04-18 05:31:02
+Random Quote: Secrets are worth more than silver or sapphires.  -  Varys
