@@ -1,2 +1,2 @@
-Last updated: 2024-04-18 05:35:41
-Random Quote: Elia Martell, Princess of Dorne.  You raped her!  You murdered her!  You killed her children!  -  Oberyn Martell
+Last updated: 2024-04-18 05:36:15
+Random Quote: We've discussed this, mornings are for coffee and contemplation. - Jim Hopper
