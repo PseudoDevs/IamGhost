@@ -1,2 +1,2 @@
-Last updated: 2024-04-18 05:14:24
-Random Quote: Have you ever been told you're different, odd, or simply don't belong? In a world full of normies, do you feel like an outcast? Me too. But I'm pleased to tell you there's a very special place for people like us. Nevermore Academy. - Wednesday Addams
+Last updated: 2024-04-18 05:14:57
+Random Quote: Usually after a sandwich, I feel paranoid, but I'm not. WHY AM I NOT BEING PARANOID?? - Marshall Eriksen
