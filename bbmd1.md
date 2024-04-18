@@ -1,2 +1,2 @@
-Last updated: 2024-04-18 05:10:11
-Random Quote: Come with me to the House of the Undying, and you shall drink of truth and wisdom.  -  Pyat Pree
+Last updated: 2024-04-18 05:10:45
+Random Quote: I know the poison that my father used, and there is none slower or more agonizing.  Soon we may hear the Mountain screaming, even here in Sunspear.  -  Tyene Sand
