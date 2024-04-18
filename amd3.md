@@ -1,2 +1,2 @@
-Last updated: 2024-04-18 05:47:29
-Random Quote: A feeling of unresolved resentment against injustices suffered, a sense of helplessness because of the overwhelming odds against one, a feeling of acute pain in one's guts and bowels, making the whole body writhe and squirm, and an obstinate urge to take revenge and to right the wrong - all these combined. - Seong Gi-hun
+Last updated: 2024-04-18 05:48:03
+Random Quote: When dead men come hunting us in the night, do you think it matters who sits the Iron Throne?  -  Jeor Mormont
