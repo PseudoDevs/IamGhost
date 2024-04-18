@@ -1,2 +1,2 @@
-Last updated: 2024-04-18 05:03:41
-Random Quote: I know the poison that my father used, and there is none slower or more agonizing.  Soon we may hear the Mountain screaming, even here in Sunspear.  -  Tyene Sand
+Last updated: 2024-04-18 05:04:53
+Random Quote: I think maybe you're the only person who really knows who I am and still likes me anyway. - Allison Hargreeves

@@ -1,3 +1,2 @@
-Last updated: 2024-04-18 05:04:17
-Random Quote: George: "I love what you done with the place. Did you do it yourself, or did you get some pouf to help ya?"
-Rebecca: "I could ask the same of your hair." - Rebecca Welton
+Last updated: 2024-04-18 05:04:53
+Random Quote: What you have to do is show these suckers what you’re capable of. Show them you’re not scared. - Nairobi
