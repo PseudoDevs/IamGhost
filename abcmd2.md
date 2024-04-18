@@ -1,2 +1,2 @@
-Last updated: 2024-04-18 05:46:54
-Random Quote: My father won all the battles.  He killed Prince Rhaegar and took the crown, while your father was hiding under Casterly Rock.  A strong king acts boldly, he doesn't just talk.  -  Joffrey Baratheon
+Last updated: 2024-04-18 05:47:29
+Random Quote: Too many crazies had my old number, so now I'm all about disposable cell phones. I'll use one for a while, have my fun, then dump it and get a new one. And then I'll do the same with my phone. - Barney Stinson
