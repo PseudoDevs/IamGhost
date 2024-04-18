@@ -1,2 +1,2 @@
-Last updated: 2024-04-18 06:14:03
-Random Quote: I dream of a tree sometimes.  A weirwood, like the one in the godswood.  It calls to me.  The wolf dreams are better.  I smell things, and sometimes I can taste the blood.  -  Bran Stark
+Last updated: 2024-04-18 06:14:35
+Random Quote: Hey, want to come to my house and play telephone? I got the string, you got the cans. - Barney Stinson
