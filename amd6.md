@@ -1,2 +1,3 @@
-Last updated: 2024-04-18 05:33:53
-Random Quote: Lily: "I'm pregnant."Barney: "I've never seen that woman before in my life! Sorry - force of habit, congratulations!" - Barney Stinson
+Last updated: 2024-04-18 05:34:29
+Random Quote: Robin: "I'm drinking 'til I forget the 1999 NFC Championship?"
+Marshall: "The Vikings were two minutes away from going to the Super Bowl, when our kicker, who hadn't missed all year, shanked a field goal, and we lost in overtime. Damn!" - Marshall Eriksen
