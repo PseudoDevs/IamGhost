@@ -1,3 +1,2 @@
-Last updated: 2024-04-17 08:07:31
-Random Quote: Lily: "We're going to Atlantic City to elope - right now!"
-Barney: "Oh, congratulations Lily! Marshall, you're getting married? What the hell?" - Barney Stinson
+Last updated: 2024-04-18 04:58:51
+Random Quote: Barney: "I was having such a good time greasing 12-year-olds."Ted: "LaserTag."Marshall: "Helpful. Continue." - Marshall Eriksen
