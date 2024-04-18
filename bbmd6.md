@@ -1,2 +1,2 @@
-Last updated: 2024-04-18 05:06:07
-Random Quote: Piper: "Not every Hispanic person wants the same thing."Lorna: "Oh, sure they do. They all want to come to America."Nicky: "Jesus, your entire world view is based on 'West Side Story', isn't it?" - Nicky Nichols
+Last updated: 2024-04-18 05:07:24
+Random Quote: Sitting around, smoking marijuana, eating Cheetos and masturbating do not constitute "plans". - Walter White

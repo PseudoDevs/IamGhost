@@ -1,2 +1,2 @@
-Last updated: 2024-04-18 05:06:46
-Random Quote: Ted: "Oh, screw 'The One'!"Barney: "What?"Ted: "Every date I've been on lately has been brutal. Last week, I went out with a girl whose favorite band was Glee. Plus, it's almost Valentine's Day and I'm alone without anything close to a girlfriend. So... all aboard!"Barney: "I have never been more proud of you." - Barney Stinson
+Last updated: 2024-04-18 05:07:25
+Random Quote: The wolf will prove the boy is who we say he is, should the Dreadfort attempt to deny him.  That is my price, Lord Davos.  Smuggle me back my liege lord, and I will take Stannis Baratheon as my king.  -  Wyman Manderly

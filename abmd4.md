@@ -1,2 +1,2 @@
-Last updated: 2024-04-18 05:05:33
-Random Quote: You know what else is scary? Walking home alone at night. But us women keep doing it. Take fear by the hand and keep living. Because you have to live, gentlemen! You have to live until the end! - Nairobi
+Last updated: 2024-04-18 05:07:25
+Random Quote: The common people pray for rain, healthy children, and a summer that never ends.  It is no matter to them if the high lords play their game of thrones, so long as they are left in peace.  They never are.  -  Jorah Mormont
