@@ -1,2 +1,2 @@
-Last updated: 2024-04-18 05:17:26
-Random Quote: I am one far more accustomed to demanding answers, fool, than to giving them. - Thor
+Last updated: 2024-04-18 05:17:59
+Random Quote: My son lies here broken and dying, Luwin, and you wish to discuss a new master of horse?  Do you think I care what happens in the stables?  Do you think it matters to me one whit?  I would gladly butcher every horse in Winterfell with my own hands if it would open Bran's eyes, do you understand that?  Do you?  -  Catelyn Stark
