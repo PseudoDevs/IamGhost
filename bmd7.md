@@ -1,2 +1,2 @@
-Last updated: 2024-04-18 05:28:22
-Random Quote: I want you to allow yourself to aknowledge the pain that you so clearly feel. - Fabiola Torres
+Last updated: 2024-04-18 05:28:59
+Random Quote: Aye, and from what I saw of Joffrey, you are as unfit a mother as you are a ruler.  -  Kevan Lannister
