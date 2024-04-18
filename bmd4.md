@@ -1,2 +1,2 @@
-Last updated: 2024-04-18 05:09:44
-Random Quote: Haley: "Dad, can you just please tell mom, that I can take a two hour break and go to a party?"Phil: "No Ma'am, I'm not stepping into that one. We're not playing 'good cop - mom'.'" - Phil Dunphy
+Last updated: 2024-04-18 05:10:17
+Random Quote: A good lord comforts and protects the weak and helpless.  -  Maester Luwin

@@ -1,2 +1,2 @@
-Last updated: 2024-04-18 05:09:44
-Random Quote: A man who sees nothing has no use for his eyes, cut them out and give them to your next outrider.  Tell him you hope that four eyes might see better than two... and if not, the man after him will have six.  -  Gregor Clegane
+Last updated: 2024-04-18 05:10:17
+Random Quote: Because you're so broken you don't even trust yourself. And that's scary. - Nate Jacobs
