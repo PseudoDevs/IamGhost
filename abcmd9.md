@@ -1,2 +1,4 @@
-Last updated: 2024-04-18 05:05:52
-Random Quote: Lord Balon's eldest brother had never given up the Old Way, even for a day.  His Silence, with its black sails and dark red hull, was infamous in every port from Ibben to Asshai, it was said.  -  Theon Greyjoy
+Last updated: 2024-04-18 05:06:25
+Random Quote: Greef: "Nevarro is a very fine planet. And now that the scum and villainy have been washed away, it's very respectable again."
+Mando: "As a bounty hunter hive?"
+Greef: "Some of my favorite people are bounty hunters." - Greef Karga
