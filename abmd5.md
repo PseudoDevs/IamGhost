@@ -1,2 +1,2 @@
-Last updated: 2024-04-18 04:59:27
-Random Quote: Death, he knew, but slow.  I still have time.  A year.  Two years.  Five.  Some stone men live for ten.  Time enough to cross the sea, to see Griffin's Roost again.  To end the Usurper's line for good and all, and put Rhaegar's son upon the Iron Throne.  Then Lord Jon Connington could die content.  -  Jon Connington
+Last updated: 2024-04-18 05:00:01
+Random Quote: Lord Seaworth is a man of humble birth, but he reminded me of my duty, when all I could think of was my rights.  I had the cart before the horse, Davos said.  I was trying to win the throne to save the kingdom, when I should have been trying to save the kingdom to win the throne.  -  Stannis Baratheon
