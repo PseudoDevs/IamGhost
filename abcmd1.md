@@ -1,2 +1,2 @@
-Last updated: 2024-04-17 08:14:26
-Random Quote: I drank when I was pregnant with you, you turned out fine. There's everybody saying 'don't drink, don't smoke'. I swear - Texas is turning into California. - Meemaw
+Last updated: 2024-04-18 04:57:48
+Random Quote: You will never walk again... but you will fly.  -  Bloodraven
