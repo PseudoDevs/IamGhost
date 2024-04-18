@@ -1,3 +1,2 @@
-Last updated: 2024-04-18 05:24:31
-Random Quote: Joel: "A deep breath in, slow breath out. You squeeze the trigger like you love it. Gentle, steady, nice and slow."
-Ellie: "You gonna shoot this thing or get it pregnant?" - Ellie Williams
+Last updated: 2024-04-18 05:25:04
+Random Quote: Reality is more than neurons firing around in your brain. Reality is not what's on the inside. It's what's happening on the outside. - Daniel Solace
