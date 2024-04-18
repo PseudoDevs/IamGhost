@@ -1,2 +1,2 @@
-Last updated: 2024-04-18 05:42:52
-Random Quote: Mrs. Buckminster was a spoonful of sugar. But so far, everyone we can afford on this website HeyNannyNanny.com is "Scary Poppins". - Lily Aldrin
+Last updated: 2024-04-18 05:43:26
+Random Quote: Some battles are won with swords and spears, others with quills and ravens.  -  Tywin Lannister
