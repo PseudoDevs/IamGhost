@@ -1,2 +1,2 @@
-Last updated: 2024-04-18 05:42:29
-Random Quote: I like my testicles attached to my body, rather than rolling around next to some eyeliner in Robin's purse. Stinson out! - Barney Stinson
+Last updated: 2024-04-18 05:43:02
+Random Quote: I prefer my history dead.  Dead history is writ in ink, the living sort in blood.  -  Rodrik Harlaw
