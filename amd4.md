@@ -1,2 +1,2 @@
-Last updated: 2024-04-18 05:28:22
-Random Quote: The Night's Watch is a sworn brotherhood.  We have no families.  None of us will ever father sons.  Our wife is duty.  Our mistress is honor.  -  Benjen Stark
+Last updated: 2024-04-18 05:29:34
+Random Quote: There's only one thing that could blind a man as smart as you, Tommy. Love. - Polly Gray
