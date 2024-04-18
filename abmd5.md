@@ -1,4 +1,2 @@
-Last updated: 2024-04-18 06:00:39
-Random Quote: Tony Stark: "Lieutenant Killmonger? What is that? German?"
-Killmonger: "A nickname."
-Tony Stark: "That's clearly a good fit." - Killmonger
+Last updated: 2024-04-18 06:01:11
+Random Quote: In my body, where the shame gland should be, there is a second awesome gland. True story! - Barney Stinson
