@@ -1,2 +1,2 @@
-Last updated: 2024-04-18 06:18:52
-Random Quote: The end of a rope has been this man's destiny since the night he was born. - Chester Campbell
+Last updated: 2024-04-18 06:19:24
+Random Quote: Never fear the darkness, Bran.  The strongest trees are rooted in the dark places of the earth.  Darkness will be your cloak, your shield, your mother's milk.  Darkness will make you strong.  -  Bloodraven
