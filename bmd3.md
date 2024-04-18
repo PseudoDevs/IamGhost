@@ -1,2 +1,2 @@
-Last updated: 2024-04-18 05:00:39
-Random Quote: Among all the games that kids played back then, it was the most physical and violent. - Seong Gi-hun
+Last updated: 2024-04-18 05:01:14
+Random Quote: The more you give a king, the more he wants.  We are walking on a bridge of ice with an abyss on either side.  Pleasing one king is difficult enough.  Pleasing two is hardly possible.  -  Jon Snow
