@@ -1,2 +1,2 @@
-Last updated: 2024-04-18 05:12:33
-Random Quote: Old gods or new, it makes no matter, no man is so accursed as the kinslayer.  -  Rickard Karstark
+Last updated: 2024-04-18 05:13:10
+Random Quote: You don't parley when you're on the back foot. We'll strike a blow back first. - Thomas Shelby
