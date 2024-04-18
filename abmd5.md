@@ -1,2 +1,2 @@
-Last updated: 2024-04-18 06:16:39
-Random Quote: I am afraid of panic. Turns out it's bad for business. - Miguel Angel Felix Gallardo
+Last updated: 2024-04-18 06:17:11
+Random Quote: He climbed onto his throne over the corpses of children, though I will grant you he was no Joffrey.  -  Arianne Martell
