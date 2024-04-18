@@ -1,3 +1,2 @@
-Last updated: 2024-04-18 05:34:46
-Random Quote: Morty: "So, time moves faster in there? Is it like a Narnia thing?"
-Rick: "I'm not a beaver who believes in Jesus Christ, Morty. But yeah, it's pretty much a Narnia thing." - Rick Sanchez
+Last updated: 2024-04-18 05:35:18
+Random Quote: Listen, you have a choice, okay? You can pay up now or bleed to death in court. - Saul Goodman
