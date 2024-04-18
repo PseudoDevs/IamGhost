@@ -1,2 +1,2 @@
-Last updated: 2024-04-18 05:09:17
-Random Quote: I prefer my history dead.  Dead history is writ in ink, the living sort in blood.  -  Rodrik Harlaw
+Last updated: 2024-04-18 05:09:50
+Random Quote: He would see this country burn if he could be king of the ashes.  -  Varys
