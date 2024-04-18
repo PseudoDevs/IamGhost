@@ -1,2 +1,4 @@
-Last updated: 2024-04-18 05:38:35
-Random Quote: Judging from how many clients that hooker has serviced, I'd say we've been here almost an hour. - Robin Scherbatsky
+Last updated: 2024-04-18 05:39:09
+Random Quote: Joel: "Long way or short way?"
+Tess: "I mean, it's the long way or the 'we're fuckin' dead' way."
+Ellie: "Well, I vote long way just based on that limited information." - Ellie Williams
