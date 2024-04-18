@@ -1,2 +1,2 @@
-Last updated: 2024-04-18 06:35:14
-Random Quote: You want to rule?  This is what ruling is; lying on a bed of weeds, ripping them out by the root, one by one, before they strangle you in your sleep.  -  Cersei Lannister
+Last updated: 2024-04-18 06:35:46
+Random Quote: Words are wind, and the only good wind is that which fills our sails.  -  Victarion Greyjoy
