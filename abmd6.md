@@ -1,2 +1,2 @@
-Last updated: 2024-04-18 05:33:10
-Random Quote: In the United States, the Mafia makes witnesses disappear so they can't testify in court. In Colombia, Pablo Escobar made the whole court disappear. - Steve Murphy
+Last updated: 2024-04-18 05:33:43
+Random Quote: Fire in the hole, bitch! - Jesse Pinkman
