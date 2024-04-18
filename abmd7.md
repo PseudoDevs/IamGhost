@@ -1,2 +1,2 @@
-Last updated: 2024-04-18 05:27:44
-Random Quote: What you have to do is show these suckers what you’re capable of. Show them you’re not scared. - Nairobi
+Last updated: 2024-04-18 05:28:17
+Random Quote: Minds are like swords, I do fear.  The old ones go to rust.  -  Grand Maester Pycelle
