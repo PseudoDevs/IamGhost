@@ -1,2 +1,2 @@
-Last updated: 2024-04-18 05:17:05
-Random Quote: When you do one good deed, it creates a ripple effect. One good deed leads to another and another. - Marshall Eriksen
+Last updated: 2024-04-18 05:17:43
+Random Quote: I was wed three times and my wives gave me daughters.  Now only Beth remains to me.  My brother Martyn fathered four strong sons, yet only Jory lived to be a man.  When he was slain, Martyn's line died with him.  When we speak of the morrow nothing is ever certain.  -  Rodrik Cassel
