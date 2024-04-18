@@ -1,2 +1,2 @@
-Last updated: 2024-04-18 05:17:05
-Random Quote: Lily: "Your job is very simple. At the wedding, do not sleep with anyone even remotely related to me."Barney: "Yeah. Lily, you know I can't promise that" - Barney Stinson
+Last updated: 2024-04-18 05:17:43
+Random Quote: You need to figure out what the fuck you want. - Nicky Nichols
