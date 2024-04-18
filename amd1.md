@@ -1,2 +1,2 @@
-Last updated: 2024-04-18 05:23:49
-Random Quote: I got thirty this time, men and boys all bound for the Wall, and don't be thinking they're like that bastard brother o' yours.  Lord Eddard gave me pick o' the dungeons, and I didn't find no little lordlings down there.  This log, half o' them would turn you over to the queen quick as spit for a pardon and maybe a few silvers.  The other half'd do the same, only they'd rape you first.  -  Yoren of the Night's Watch
+Last updated: 2024-04-18 05:24:22
+Random Quote: Barney: "How's the single life?"Ted: "I wouldn't know. After this whole Robin thing, I'm laying low."Barney: "Laying low as in sleeping with a really short chick? You guys doing thirty-nine?" - Barney Stinson
