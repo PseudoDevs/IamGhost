@@ -1,2 +1,2 @@
-Last updated: 2024-04-18 05:10:50
-Random Quote: Oh, come on, ref! I haven't seen that much hooking go unpunished since my last trip to Vegas. - Robin Scherbatsky
+Last updated: 2024-04-18 05:11:24
+Random Quote: I was a better smuggler than a knight, he had written to his wife, a better knight than a King's hand, a better King's hand than a husband.  I am so sorry Marya, I have loved you.  Please forgive the wrongs I did you.  -  Davos Seaworth
