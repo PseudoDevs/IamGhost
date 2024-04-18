@@ -1,2 +1,2 @@
-Last updated: 2024-04-18 05:13:13
-Random Quote: Love can’t be timed. It has to be lived. - Berlin
+Last updated: 2024-04-18 05:14:31
+Random Quote: If you had to fall into a woman's arms, my son, why couldn't they have been Margaery Tyrell's?  -  Catelyn Stark
