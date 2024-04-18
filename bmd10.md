@@ -1,2 +1,2 @@
-Last updated: 2024-04-18 06:24:58
-Random Quote: Nobody takes an intro class to get on any other path, but the path to not being hungover anymore. I learned that in my intro to something-ology class. - Marshall Eriksen
+Last updated: 2024-04-18 06:25:30
+Random Quote: I have worked at the downfall of Tywin Lannister since the day they told me of Elia and her children.  -  Doran Martell
