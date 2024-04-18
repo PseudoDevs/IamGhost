@@ -1,2 +1,2 @@
-Last updated: 2024-04-18 05:52:30
-Random Quote: What do a bunch o' bloody peasants know about a lord's honor?  We know some about murder, though.  -  Lem Lemoncloak
+Last updated: 2024-04-18 05:53:03
+Random Quote: I learned form Set Arthur Dayne, the Sword of the Morning, who could have slain all five of you with his left hand while he was taking a piss with the right.  -  Jaime Lannister
