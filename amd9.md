@@ -1,2 +1,2 @@
-Last updated: 2024-04-18 06:23:41
-Random Quote: My only aim is to take many lives. The more the better I feel. - 
+Last updated: 2024-04-18 06:24:13
+Random Quote: You grew up with actors.  You learned their craft and you learned it well.  I grew up with soldiers.  I learned how to die a long time ago.  -  Eddard Stark
