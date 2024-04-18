@@ -1,2 +1,2 @@
-Last updated: 2024-04-18 05:20:34
-Random Quote: Here are a few fun facts about Long Island... Number 1: It's Brooklyn's fart-trail. - Robin Scherbatsky
+Last updated: 2024-04-18 05:21:07
+Random Quote: The common people pray for rain, healthy children, and a summer that never ends.  It is no matter to them if the high lords play their game of thrones, so long as they are left in peace.  They never are.  -  Jorah Mormont
