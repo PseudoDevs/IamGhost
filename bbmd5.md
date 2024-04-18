@@ -1,2 +1,2 @@
-Last updated: 2024-04-17 08:14:26
-Random Quote: Hello heart... thought I'd lost ya. - Rue Bennett
+Last updated: 2024-04-18 04:57:58
+Random Quote: She studied Theon Greyjoy's sly smile, wondering what it meant.  That young man had a way of looking as though he knew some secret jest that only he was privy to; Catelyn had never liked it.  -  Catelyn Stark
