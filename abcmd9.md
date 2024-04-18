@@ -1,2 +1,2 @@
-Last updated: 2024-04-18 05:05:19
-Random Quote: Ted: "In a city of eight million people, you happened to walk into the club where she works? Maybe it's destiny."Barney: "No, Destiny strips at 'The Melon Patch'. They're people, Ted. Try to keep them straight!" - Barney Stinson
+Last updated: 2024-04-18 05:05:52
+Random Quote: Lord Balon's eldest brother had never given up the Old Way, even for a day.  His Silence, with its black sails and dark red hull, was infamous in every port from Ibben to Asshai, it was said.  -  Theon Greyjoy
