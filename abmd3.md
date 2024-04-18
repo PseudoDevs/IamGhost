@@ -1,2 +1,4 @@
-Last updated: 2024-04-18 05:09:21
-Random Quote: Who knows more of gods than I?  Horse gods and fire gods, gods made of gold with gemstone eyes, gods carved of cedar wood, gods chiseled into mountains, gods of empty air... I know them all.  I have seen their peoples garland them with flowers, and shed the blood of goats and bulls and children in their names.  And I have heard the prayers, in half a hundred tongues.  Cure my withered leg, make the maiden love me, grant me a healthy son.  Save me, succor me, make me walthy... protect me!  Protect me from mine enemies, protect me from the darkness, protect me from the crabs inside my belly, from the horselords, from the slavers, from the sellswords at my door.  Protect me from the Silence.  Godless?  Why, Aeron, I am the godliest man ever to raise sail!  You serve one god, Damphair, but I have served ten thousand.  From Ib to Asshai, when men see my sails, they pray.  -  Euron Greyjoy
+Last updated: 2024-04-18 05:09:59
+Random Quote: Jimmy: "I can't believe Wanda and Vision are having a baby."
+Darcy Lewis: "You want any?"
+Jimmy: "Heck, I thought about it for sure. A little Jimmy Woo. Get him a tiny little FBI badge... oh, you... chip? Sure." - Jimmy Woo
