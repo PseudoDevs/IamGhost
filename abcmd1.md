@@ -1,2 +1,2 @@
-Last updated: 2024-04-18 05:56:16
-Random Quote: I was a better smuggler than a knight, he had written to his wife, a better knight than a King's hand, a better King's hand than a husband.  I am so sorry Marya, I have loved you.  Please forgive the wrongs I did you.  -  Davos Seaworth
+Last updated: 2024-04-18 05:56:48
+Random Quote: Ted: "Trying to get them interested in architecture as a career."Barney: "Why? Are we running out of buildings?"Robin: "Are we running out of boring people?" - Robin Scherbatsky
