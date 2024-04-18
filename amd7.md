@@ -1,5 +1,2 @@
-Last updated: 2024-04-18 05:01:06
-Random Quote: Barney: "You can't spell 'game' without 'me' and 'me' has the best game."
-Ted: "Yeah well, I got so much game, I'm Cornish game hen."
-Barney: "Oh, yeah? I'm the New York State gaming commissioner."
-Ted: "Well, I'm The Game. Well-crafted, keep-you-guessing thriller starring Michael Douglas and Sean Penn." - Ted Mosby
+Last updated: 2024-04-18 05:01:39
+Random Quote: Karen: "I'm sure all the exploited diamond miners in Sierra Leone would give you a high-five if they still had all their fingers. But really pretty - meet me upstairs!"Robin: "They only need one finger to give her what I'm thinking." - Robin Scherbatsky
