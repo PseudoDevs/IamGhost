@@ -1,2 +1,2 @@
-Last updated: 2024-04-18 05:45:13
-Random Quote: Only Renly could vex me so with a piece of fruit.  He brought his doom on himself with his treason, but I did love him, Davos.  I know that now.  I swear, I will go to my grave thinking of my brother's peach.  -  Stannis Baratheon
+Last updated: 2024-04-18 05:46:22
+Random Quote: We're cosigning birthday cards, we got toothbrushes at each other's places, foreplay's out the window. I'm in, I'm out, I'm sleeping - it's great. - Ted Mosby
