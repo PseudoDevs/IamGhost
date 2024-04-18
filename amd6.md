@@ -1,2 +1,2 @@
-Last updated: 2024-04-18 05:15:38
-Random Quote: There are no true knights, no more than there are gods.  If you can't protect yourself, die and get out of the way of those who can.  Sharp steel and strong arms rule this world, don't ever believe any different.  -  Sandor Clegane
+Last updated: 2024-04-18 05:16:11
+Random Quote: To have power does not mean that one can abuse the poor. - Pablo Escobar
