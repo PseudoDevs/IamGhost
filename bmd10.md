@@ -1,2 +1,2 @@
-Last updated: 2024-04-18 06:34:35
-Random Quote: Such a large bounty for such a small package. - The Client
+Last updated: 2024-04-18 06:35:07
+Random Quote: I dreamed of the man who came today, the one they call Reek.  You and your brother lay dead at his feet, and he was skinning off your faces with a long red blade.  -  Jojen Reed
