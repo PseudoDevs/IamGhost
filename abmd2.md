@@ -1,2 +1,2 @@
-Last updated: 2024-04-18 05:43:01
-Random Quote: The children are gone from the world, and their wisdom with them.  It had to do with the faces in the trees, we think.  The First Men believed that the greenseers could see through the eyes of the weirwoods.  That was why they cut down the trees whenever they warred upon the children.  Supposedly the greenseers also had the power over the beasts of the wood and the birds in the trees.  Even fish.  -  Maester Luwin
+Last updated: 2024-04-18 05:43:34
+Random Quote: Dismissing Selmy, where was the sense in that?  Yes, the man was old, but the name of Barristan the Bold still has meaning in the realm.  He lent honor to any man he served.  -  Tywin Lannister
