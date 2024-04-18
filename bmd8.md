@@ -1,2 +1,2 @@
-Last updated: 2024-04-18 05:39:12
-Random Quote: Think of the pickup plays we can run as a father-son duo. There's the "Father Knows Breast", there's the "Bush Dynasty", the "Lick Father, Lick Son". - Barney Stinson
+Last updated: 2024-04-18 05:39:50
+Random Quote: There's proving and there's knowing. -  Bill Oakley
