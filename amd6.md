@@ -1,2 +1,3 @@
-Last updated: 2024-04-18 05:04:25
-Random Quote: Yesterday, today and tomorrow are not consecutive, they are connected in a never-ending circle. Everything is connected - The Stranger
+Last updated: 2024-04-18 05:04:58
+Random Quote: Ellie: "Everybody I've cared for, either died or left me."
+Joel: "You have no idea what loss is." - Joel Miller
