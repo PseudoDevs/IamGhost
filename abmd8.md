@@ -1,2 +1,2 @@
-Last updated: 2024-04-18 05:29:29
-Random Quote: Robert wanted smiles and cheers, always, so he went where he found them, to his friends and his whores.  Robert wanted to be loved.  My brother Tyrion has the same disease.  -  Cersei Lannister
+Last updated: 2024-04-18 05:30:02
+Random Quote: I hate it when you talk sometimes. No... all the time. - Nicky Nichols
