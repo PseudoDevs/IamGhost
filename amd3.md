@@ -1,3 +1,2 @@
-Last updated: 2024-04-18 05:24:40
-Random Quote: Wednesday: "So you were guided by latent chivalry, the tool of the patriarchy, to extract my undying gratitude?"
-Xavier: "Most people just say 'thank you'." - Xavier Thorpe
+Last updated: 2024-04-18 05:25:16
+Random Quote: Oh, Cersei is lovely to look at, truly, but cold... the way she guards her cunt, you'd think she had all the gold of Casterly Rock between her legs.  -  Robert Baratheon
