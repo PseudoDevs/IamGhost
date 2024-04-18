@@ -1,2 +1,2 @@
-Last updated: 2024-04-18 05:21:56
-Random Quote: I hate kids. They don't drink, they haven't travelled... - Nicky Nichols
+Last updated: 2024-04-18 05:22:29
+Random Quote: A man will tell you poison is dishonorable, but a woman's honor is different.  The Mother shaped us to protect our children, and our only dishonor is failure.  -  Lysa Arryn
