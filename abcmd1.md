@@ -1,2 +1,2 @@
-Last updated: 2024-04-18 05:23:27
-Random Quote: The children are gone from the world, and their wisdom with them.  It had to do with the faces in the trees, we think.  The First Men believed that the greenseers could see through the eyes of the weirwoods.  That was why they cut down the trees whenever they warred upon the children.  Supposedly the greenseers also had the power over the beasts of the wood and the birds in the trees.  Even fish.  -  Maester Luwin
+Last updated: 2024-04-18 05:24:40
+Random Quote: Ted: "Grinch, Grinch, Grinch, Grinch!"[The lights turn out]Lily: "Happy? Now you pissed up the big guy upstairs!"Ted: "Yeah, I'm sure god cares if I..."Man: "You use that language again and I turn off your water!"Lily: "It's my super - he lives above me." - Lily Aldrin

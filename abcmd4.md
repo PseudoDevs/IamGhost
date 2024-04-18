@@ -1,2 +1,2 @@
-Last updated: 2024-04-18 05:22:47
-Random Quote: The brain drives our thoughts, our behavior. It holds all of the secrets of the universe. There's a whole hidden world inside each of us which only needs to be deciphered. - Maura Franklin
+Last updated: 2024-04-18 05:24:40
+Random Quote: The septons preach about the seven hells.  What do they know?  Only a man who's been burned knows what hell is truly like.  -  Sandor Clegane
