@@ -1,2 +1,2 @@
-Last updated: 2024-04-18 05:13:50
-Random Quote: You want to rule?  This is what ruling is; lying on a bed of weeds, ripping them out by the root, one by one, before they strangle you in your sleep.  -  Cersei Lannister
+Last updated: 2024-04-18 05:14:29
+Random Quote: It's like...It's like I'm a fucked-up-shit magnet. - Maria Ruiz
