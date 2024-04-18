@@ -1,4 +1,3 @@
-Last updated: 2024-04-18 06:02:33
-Random Quote: Ted: "It's freezing out there. Where's your coat?"
-Robin: "Ted, I'm Canadian. I don't need a coat. This kind of weather is nothing for me."
-Marshall: "Yeah. This is like a spring day back in Minnesota." - Marshall Eriksen
+Last updated: 2024-04-18 06:03:05
+Random Quote: Darcy Lewis: "No one would notice if you blew up a Dakota. Honestly, I can't tell them apart."
+Carol Danvers: "South Dakota is on the bottom." - Captain Marvel
