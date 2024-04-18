@@ -1,2 +1,2 @@
-Last updated: 2024-04-18 05:30:53
-Random Quote: I'm pretty much the master of handling things completely wrong. - Alex Vause
+Last updated: 2024-04-18 05:31:28
+Random Quote: Now my bastards presume to teach me courtesy.  I'll speak any way I like, damn you.  I've had three kings to guest in my life, and queens as well, do you think I require lessons from the likes of you, Ryger?  Your mother was milking goats the first time I gave her my seed.  -  Walder Frey
