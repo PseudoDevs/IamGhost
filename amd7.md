@@ -1,2 +1,2 @@
-Last updated: 2024-04-18 05:26:47
-Random Quote: War. Such a fascinating concept. A temporary salve for a permanent human flaw. - The Handler
+Last updated: 2024-04-18 05:27:20
+Random Quote: This is Hawkins, okay? You wanna know the worst thing that's ever happened here in the four years I've been working here? It was when an owl attacked Eleanor Gillespie's head because it though that her hair was a nest. - Jim Hopper
