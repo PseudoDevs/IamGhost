@@ -1,2 +1,2 @@
-Last updated: 2024-04-18 05:01:43
-Random Quote: Or I look single, 34 and single, which must mean there's something wrong with me. Like, you keep large reptiles in tanks, or I have a very special relationship with my mother. - Larry Bloom
+Last updated: 2024-04-18 05:02:15
+Random Quote: If you die before you say her name, Set, I will hunt you through the seven hells.  -  Oberyn Martell
