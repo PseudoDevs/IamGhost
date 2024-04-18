@@ -1,2 +1,2 @@
-Last updated: 2024-04-18 06:30:51
-Random Quote: Never fear the darkness, Bran.  The strongest trees are rooted in the dark places of the earth.  Darkness will be your cloak, your shield, your mother's milk.  Darkness will make you strong.  -  Bloodraven
+Last updated: 2024-04-18 06:31:23
+Random Quote: Robin: "I'm such a mess. Why do you even like me?"Barney: "I guess cause you're almost as messed up as I am." - Barney Stinson
