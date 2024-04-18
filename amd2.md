@@ -1,2 +1,2 @@
-Last updated: 2024-04-18 04:58:51
-Random Quote: Aye, and from what I saw of Joffrey, you are as unfit a mother as you are a ruler.  -  Kevan Lannister
+Last updated: 2024-04-18 04:59:59
+Random Quote: I'd say hump her brain out, but somebody obviously already has. - Ted Mosby
