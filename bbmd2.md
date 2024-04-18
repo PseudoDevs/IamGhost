@@ -1,2 +1,3 @@
-Last updated: 2024-04-18 05:44:01
-Random Quote: Lily: "We'll all have a wedding dress camp-out. It'll be fun!"Barney: "I can't go. I've got this thing."Lily: "What thing?"Barney: "A penis!" - Barney Stinson
+Last updated: 2024-04-18 05:46:55
+Random Quote: Jerry: "Well, traditionally, science faires are a father-son thing."
+Rick: "Well, scientifically, traditions are an idiot thing." - Rick Sanchez
