@@ -1,4 +1,2 @@
-Last updated: 2024-04-18 05:26:02
-Random Quote: Marshall: "Except the flames of Lucifer keep singein our back bumper as we drive through this hellish, cheese-infected wasteland."
-Lily: "Wisconsin?"
-Marshall: "Wisconsin!" - Marshall Eriksen
+Last updated: 2024-04-18 05:26:35
+Random Quote: Lily: "A big package just arrived."Marshall: "Yeah, it did."Lily: "No, no. It's a real package from your dad."Marshall: "Well, that's a little weird, but yeah, it is." - Marshall Eriksen
