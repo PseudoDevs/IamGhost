@@ -1,2 +1,3 @@
-Last updated: 2024-04-18 05:21:48
-Random Quote: When someone is in love, they look through rose-tinted glasses. Everything’s wonderful. They transform into a soft teddy bear that’s smiling all the time. - Professor
+Last updated: 2024-04-18 05:22:20
+Random Quote: Wyatt Langmore: "This job's my old man's idea. Something about 'calluses and character'."
+Charlotte Byrde: "Yeah, well, you're blowing leaves, not hiding Anne Frank." - Charlotte Byrde
