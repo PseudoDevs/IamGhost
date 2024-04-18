@@ -1,2 +1,2 @@
-Last updated: 2024-04-18 05:02:16
-Random Quote: What did the mermaid wear to her math class? An algae bra! - Will Livingston
+Last updated: 2024-04-18 05:02:49
+Random Quote: Knowledge is a weapon, Jon.  Arm yourself well before you ride forth to battle.  -  Maester Aemon
