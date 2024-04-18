@@ -1,2 +1,2 @@
-Last updated: 2024-04-18 05:05:05
-Random Quote: I understand that if any more words come pouring out of your cunt mouth I'm going to have to eat every fucking chicken in this room.  -  Sandor Clegane
+Last updated: 2024-04-18 05:05:38
+Random Quote: They may separate us, but they'll never be able to destroy us. - Pablo Escobar
