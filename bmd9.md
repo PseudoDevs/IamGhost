@@ -1,2 +1,2 @@
-Last updated: 2024-04-18 05:50:17
-Random Quote: Barney: "The Disappearing Salami... Mr. Flanagan's wife shot him before he could ever tell me what the trick was."Quinn: "Yeah, that guy was banging your mom!" - Quinn Garvey
+Last updated: 2024-04-18 05:50:50
+Random Quote: Apart, we're okay. But together we're poison. - Kim Wexler
