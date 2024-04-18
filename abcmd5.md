@@ -1,2 +1,2 @@
-Last updated: 2024-04-18 05:22:45
-Random Quote: Spare me your empty little compliments, girl... and your ser's.  I am no knight.  I spit on them and their vows.  My brother is a knight.  -  Sandor Clegane
+Last updated: 2024-04-18 05:23:23
+Random Quote: Out there, I don't stand a chance. I do in here. - Jang Deok-su
