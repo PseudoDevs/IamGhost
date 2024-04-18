@@ -1,2 +1,2 @@
-Last updated: 2024-04-18 05:22:21
-Random Quote: Lily: "Okay, stop! Every time he lands, that chair farts out ten-year-old Dorito dust."Marshall: "Yeah, it's the chair..." - Marshall Eriksen
+Last updated: 2024-04-18 05:22:54
+Random Quote: Barney: "I only smoke in certain situations. Postcoital, when I'm with Germans, sometimes those two overlap, coital, birthdays, to annoy my mom, precoital, on a sailboat, the day the Mets are mathematically eliminated every year and pregnancy scares."Ted: "Why are you smoking right now?"Barney: "I'm always precoital, Ted." - Barney Stinson
