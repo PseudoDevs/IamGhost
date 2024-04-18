@@ -1,2 +1,2 @@
-Last updated: 2024-04-17 08:10:40
-Random Quote: Knowledge is a weapon, Jon.  Arm yourself well before you ride forth to battle.  -  Maester Aemon
+Last updated: 2024-04-18 04:57:45
+Random Quote: Ramsay.  Snow, my wife called me before she ate her fingers, but I say Bolton.  -  Ramsay Bolton
