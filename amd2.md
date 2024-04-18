@@ -1,2 +1,2 @@
-Last updated: 2024-04-18 05:00:35
-Random Quote: The Pork Authority is closed. Looks like it's Hand Central Station for you little buddy. - James Stinson
+Last updated: 2024-04-18 05:01:09
+Random Quote: It's not Aerys I rue, it's Robert... Why is it no one names Robert oathbreaker?  He tore the realm apart, yet I am the one with shit for honor.  -  Jaime Lannister
