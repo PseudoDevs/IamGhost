@@ -1,2 +1,2 @@
-Last updated: 2024-04-17 08:09:09
-Random Quote: Good and evil are a question of perspective - Mikkel
+Last updated: 2024-04-18 04:57:42
+Random Quote: I was weaned on venom, Dalt.  Any viper takes a bite of me will rue it.  -  Gerold Dayne
