@@ -1,2 +1,3 @@
-Last updated: 2024-04-18 05:02:27
-Random Quote: I just want to stand on top of the Wall and piss off the edge of the world.  -  Tyrion Lannister
+Last updated: 2024-04-18 05:03:41
+Random Quote: Kids, you can't talk yourself into falling in love. It doesn't take days of deliberation. When it's real, you know pretty quickly and with absolute certainty.
+I had forgotten that, but I was about to be reminded... - Ted Mosby
