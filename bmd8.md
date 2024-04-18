@@ -1,2 +1,4 @@
-Last updated: 2024-04-18 05:30:13
-Random Quote: Kevin: "Well, it's a close one. Lily made 14 awkward references to marriage and Marshall made an even 60."Robin: "I'm so sorry, Kevin."Kevin: "It's okay. I'm gonna go to bed, but you guys think tomorrow we can stop with all the marriage talk?"Lily: "I do."Marshall: "I do."Kevin: "That's a half a point each." - Kevin
+Last updated: 2024-04-18 05:31:27
+Random Quote: Bro McDonald had a farm, E-I-E-I-bro
+And on that farm he had some chicks, E-I-E-I-bro
+With a hot chick here and a dumb chick there... - Barney Stinson
