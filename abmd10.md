@@ -1,2 +1,3 @@
-Last updated: 2024-04-18 05:06:14
-Random Quote: There is a savage beast in every man, and it stirs when you put a sword in his hand.  -  Jorah Mormont
+Last updated: 2024-04-18 05:06:48
+Random Quote: Freddie Thorne: "What kind of a list would have the name of a communist and the name of a bookmaker side by side?"
+Thomas Shelby: "Perhaps it's a list of men who give false hope to the poor." - Thomas Shelby

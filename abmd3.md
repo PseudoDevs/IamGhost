@@ -1,2 +1,2 @@
-Last updated: 2024-04-18 05:06:14
-Random Quote: Place was overrun with rats when we moved in.  The spearwives killed the nasty buggers.  Now the place is overrun with spearwives.  There's days I want the rats back.  -  Dolorous Edd Tollett
+Last updated: 2024-04-18 05:06:48
+Random Quote: All the decisions we made in the past leads us inexorably into the future. - Tokyo
