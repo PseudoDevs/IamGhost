@@ -1,2 +1,2 @@
-Last updated: 2024-04-18 05:43:34
-Random Quote: Did Need Stark dress you like that?  Was it his pleasure to garb you in velvets and silks and make you his own sweet daughter?  -  Balon Greyjoy
+Last updated: 2024-04-18 05:44:07
+Random Quote: Words are wind, and the only good wind is that which fills our sails.  -  Victarion Greyjoy
