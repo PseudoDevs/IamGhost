@@ -1,2 +1,2 @@
-Last updated: 2024-04-18 05:19:38
-Random Quote: Jaime, sweetling, I have known you since you were a babe at Joanna's breast.  You smile like Gerion and fight like Tyg and there's some of Keven in you, else you would not wear that cloak... but Tyrion is Tywin's son, not you.  I said that once to your father's face, and he would not speak to me for half a year.  -  Genna Lannister
+Last updated: 2024-04-18 05:20:14
+Random Quote: Quinn: "What is an executive strategy coordinator?"Barney: "It's three corporate-sounding words which, when added together, equal a fake job for which you get a real paycheck." - Barney Stinson
