@@ -1,2 +1,2 @@
-Last updated: 2024-04-18 06:49:00
-Random Quote: Catelyn would sooner Lord Umber had seen fit to stay sober, but telling the Greatjon not to drink was like telling him not to breathe for a few hours.  -  Catelyn Stark
+Last updated: 2024-04-18 06:49:32
+Random Quote: Yes, Lord Umber, leave me to the king.  He means to give me a scolding before he forgives me.  That's how he deals with treason, our King in the North.  Or should I call you the King Who Lost the North, your Grace?  -  Rickard Karstark
