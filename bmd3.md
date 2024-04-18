@@ -1,3 +1,2 @@
-Last updated: 2024-04-18 05:38:03
-Random Quote: Enid Sinclair: "Want to take a stab at being social?"
-Wednesday: "I do like stabbing. The social part, not so much." - Wednesday Addams
+Last updated: 2024-04-18 05:38:37
+Random Quote: Dismissing Selmy, where was the sense in that?  Yes, the man was old, but the name of Barristan the Bold still has meaning in the realm.  He lent honor to any man he served.  -  Tywin Lannister
