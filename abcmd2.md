@@ -1,2 +1,4 @@
-Last updated: 2024-04-17 08:14:26
-Random Quote: Get the f out of here and don't stop walking until you hear them speak English! - Guillermo Gonzalez Calderoni
+Last updated: 2024-04-18 04:57:48
+Random Quote: Rick: "Guests are fans, Morty, which we are not. We'd like professional badges."
+"Do you have a crew?"
+Rick: "Yes. He's a getaway driver with Asperger's and my butt is a demolitions expert." - Rick Sanchez
