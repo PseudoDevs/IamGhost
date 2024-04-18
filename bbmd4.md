@@ -1,2 +1,2 @@
-Last updated: 2024-04-18 05:37:28
-Random Quote: Know the men who follow you and let them know you.  Don't ask your men to die for a stranger.  -  Eddard Stark
+Last updated: 2024-04-18 05:38:03
+Random Quote: That's it. Three rules. I call 'em the 'Don't be stupid'-rules. 'Cause we're not stupid, alright? - Jim Hopper
