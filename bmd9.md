@@ -1,2 +1,2 @@
-Last updated: 2024-04-18 05:27:09
-Random Quote: A thousand eyes, a hundred skins, wisdom deep as the roots of ancient trees.  Greenseers.  -  Bloodraven
+Last updated: 2024-04-18 05:27:46
+Random Quote: The more you give a king, the more he wants.  We are walking on a bridge of ice with an abyss on either side.  Pleasing one king is difficult enough.  Pleasing two is hardly possible.  -  Jon Snow
