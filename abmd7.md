@@ -1,2 +1,2 @@
-Last updated: 2024-04-18 05:11:15
-Random Quote: So young.  Though mayhaps this was a blessing.  Had he lived, he would have grown up to be a Frey.  -  Wyman Manderly
+Last updated: 2024-04-18 05:11:53
+Random Quote: We should have never gotten on this ship. It was a mistake. All of it, a huge mistake. - Yuk Je
