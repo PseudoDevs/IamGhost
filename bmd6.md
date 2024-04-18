@@ -1,2 +1,2 @@
-Last updated: 2024-04-18 05:09:11
-Random Quote: Rick: "If it's all the same, could we still get our stories straight? Because you're a terrible liar."Jerry: "You called me a master convincer!"Rick: "You believed me?" - Rick Sanchez
+Last updated: 2024-04-18 05:09:44
+Random Quote: There is no creature on earth half so terrifying as a truly just man.  -  Varys
