@@ -1,2 +1,3 @@
-Last updated: 2024-04-18 05:00:05
-Random Quote: Please.  A sword, that's all I ask.  Let me die as Theon, not as Reek.  -  Theon Greyjoy
+Last updated: 2024-04-18 05:00:39
+Random Quote: Lily: "I can't believe I unloaded like that on a high-school senior."
+Robin: "I can't believe a high-school senior unloaded like that on me." - Robin Scherbatsky
