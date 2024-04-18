@@ -1,2 +1,2 @@
-Last updated: 2024-04-18 05:23:24
-Random Quote: Mitchell: "we've decided we really wanted to have a baby so, we initially asked one of our lesbian friends to be a surrogate."Cameron: "Then we figured, they already mean enough, can you imagine one of them pregnant?" - Cameron Tucker
+Last updated: 2024-04-18 05:24:38
+Random Quote: I'd say hump her brain out, but somebody obviously already has. - Ted Mosby
