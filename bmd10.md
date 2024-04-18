@@ -1,2 +1,2 @@
-Last updated: 2024-04-18 05:48:02
-Random Quote: I will put you under the jail. - Hank Schrader
+Last updated: 2024-04-18 05:48:36
+Random Quote: Mitchell: "We didn't just go to Vietnam for pleasure. We kinda have some big news."Jay: "Oh God, if Cam comes out there with boobs, I'm leaving." - Jay Pritchett

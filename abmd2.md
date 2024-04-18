@@ -1,2 +1,2 @@
-Last updated: 2024-04-18 05:48:03
-Random Quote: Come with me to the House of the Undying, and you shall drink of truth and wisdom.  -  Pyat Pree
+Last updated: 2024-04-18 05:48:37
+Random Quote: The only way to keep your people loyal is to make certain they fear you more than they do the enemy.  -  Cersei Lannister
