@@ -1,2 +1,2 @@
-Last updated: 2024-04-18 05:29:00
-Random Quote: Aye, and from what I saw of Joffrey, you are as unfit a mother as you are a ruler.  -  Kevan Lannister
+Last updated: 2024-04-18 05:29:36
+Random Quote: I could keep you safe.  They're all afraid of me.  No one would hurt you again, or I'd kill them.  -  Sandor Clegane
