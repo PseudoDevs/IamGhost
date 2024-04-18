@@ -1,2 +1,2 @@
-Last updated: 2024-04-18 06:10:01
-Random Quote: I learned form Set Arthur Dayne, the Sword of the Morning, who could have slain all five of you with his left hand while he was taking a piss with the right.  -  Jaime Lannister
+Last updated: 2024-04-18 06:10:33
+Random Quote: The pain is his vessel, desire his compass. It is all that man is capable of. - 
