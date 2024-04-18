@@ -1,2 +1,2 @@
-Last updated: 2024-04-18 05:27:45
-Random Quote: So young.  Though mayhaps this was a blessing.  Had he lived, he would have grown up to be a Frey.  -  Wyman Manderly
+Last updated: 2024-04-18 05:28:21
+Random Quote: In the end, a gentle heart may be worth more than pride or valor.  -  Doran Martell
