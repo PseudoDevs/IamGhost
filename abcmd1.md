@@ -1,2 +1,2 @@
-Last updated: 2024-04-18 04:58:22
-Random Quote: You must be blind as well as maimed, Set.  Lift your eyes, and you will see the direwolf still flies above our walls.  -  Brynden Tully
+Last updated: 2024-04-18 04:58:55
+Random Quote: I’ve spent my life being a bit of a son of a bitch, but today I think I want to die with dignity. - Berlin
