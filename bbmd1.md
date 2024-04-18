@@ -1,2 +1,2 @@
-Last updated: 2024-04-18 05:21:30
-Random Quote: We will take them before last night's beer turns to piss. - Chester Campbell
+Last updated: 2024-04-18 05:22:08
+Random Quote: Oberyn was ever the viper.  Deadly, dangerous, unpredictable.  No man dared tread on him.  I was the grass.  Pleasant, complaisant, sweet - smelling, swaying with every breeze.  Who fears to walk upon the grass?  But it is the grass that hides the viper from his enemies and shelters him until he strikes. 
