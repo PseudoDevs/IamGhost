@@ -1,2 +1,2 @@
-Last updated: 2024-04-18 05:16:24
-Random Quote: Man cannot tame what God wishes to be wild. - Jacob Snell
+Last updated: 2024-04-18 05:17:02
+Random Quote: You could turn King's Landing upside down and not find a single man with a mockingbird sewn over his heart but that does not mean I am friendless.  -  Petyr Baelish
