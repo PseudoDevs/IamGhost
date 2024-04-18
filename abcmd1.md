@@ -1,4 +1,3 @@
-Last updated: 2024-04-18 05:19:34
-Random Quote: Joel: "Where'd you get the money for this?"
-Sarah: "Drugs. I sell hardcore drugs."
-Joel: "It's better than what I do." - Joel Miller
+Last updated: 2024-04-18 05:20:10
+Random Quote: Darcy Lewis: "No one would notice if you blew up a Dakota. Honestly, I can't tell them apart."
+Carol Danvers: "South Dakota is on the bottom." - Captain Marvel
