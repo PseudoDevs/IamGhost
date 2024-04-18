@@ -1,2 +1,2 @@
-Last updated: 2024-04-18 05:51:24
-Random Quote: When I was 13, my father caught me kissing a boy, so he sent me to our family's ranch for foaling season. Once you see a baby horse erupt through that birth canal, you stop even touching yourself! - Robin Scherbatsky
+Last updated: 2024-04-18 05:52:30
+Random Quote: The more you give a king, the more he wants.  We are walking on a bridge of ice with an abyss on either side.  Pleasing one king is difficult enough.  Pleasing two is hardly possible.  -  Jon Snow

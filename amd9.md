@@ -1,2 +1,2 @@
-Last updated: 2024-04-18 05:51:56
-Random Quote: Now my bastards presume to teach me courtesy.  I'll speak any way I like, damn you.  I've had three kings to guest in my life, and queens as well, do you think I require lessons from the likes of you, Ryger?  Your mother was milking goats the first time I gave her my seed.  -  Walder Frey
+Last updated: 2024-04-18 05:52:29
+Random Quote: Barney: "Looks like that bee got busy."Ted: "Looks like that French maid didn't turn down somebody's bed."Marshall: "Oh, looks like Pocahontas has a couple of wounded knees." - Marshall Eriksen
