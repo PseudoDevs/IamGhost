@@ -1,2 +1,2 @@
-Last updated: 2024-04-18 06:14:24
-Random Quote: Ted: "I just thought he needed to listen to common sense and reasonable discourse."Robin: "Oh, God. Tell me those aren't the names of your fists."Ted: "They're my feet. I'm actually more of a kicker." - Ted Mosby
+Last updated: 2024-04-18 06:14:56
+Random Quote: So I will only ask you once, Lord Snow.  Are you a brother of the Night's Watch, or a bastard boy who wants to play at war?  -  Jeor Mormont
