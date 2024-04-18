@@ -1,3 +1,2 @@
-Last updated: 2024-04-18 05:37:52
-Random Quote: Lily: "We're going to Atlantic City to elope - right now!"
-Barney: "Oh, congratulations Lily! Marshall, you're getting married? What the hell?" - Barney Stinson
+Last updated: 2024-04-18 05:38:25
+Random Quote: I wouldn't lie to you. Well... that's a lie. - Rick Sanchez
