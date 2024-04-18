@@ -1,2 +1,2 @@
-Last updated: 2024-04-18 05:12:50
-Random Quote: You're Reek.  You'll always be Reek, no matter how sweet you smell.  Your nose may lie to you.  Remember your name.  Remember who you are.  -  Ramsay Bolton
+Last updated: 2024-04-18 05:13:23
+Random Quote: We are not husband and wife... anymore. We're just business partners. And our job is to raise those kids. - Marty Byrde
