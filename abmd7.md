@@ -1,2 +1,2 @@
-Last updated: 2024-04-18 05:27:08
-Random Quote: Only their shadows, One most of all.  A tall and twisted thing with one black eye and ten long arms, sailing on a sea of blood.  -  Moqorro
+Last updated: 2024-04-18 05:27:44
+Random Quote: What you have to do is show these suckers what you’re capable of. Show them you’re not scared. - Nairobi
