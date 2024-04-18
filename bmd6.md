@@ -1,2 +1,2 @@
-Last updated: 2024-04-18 05:29:04
-Random Quote: Everyone sounds like Meryl Streep with a gun to their head. - Mike Ehrmantraut
+Last updated: 2024-04-18 05:29:38
+Random Quote: Barney: "Fine, we'll just have a nice, tasteful rehearsal dinner. Maybe at a French restaurant, I know just the place."Robin: "What's the name of the restaurant?"Barney: "La Sertag." - Barney Stinson
