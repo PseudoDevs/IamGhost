@@ -1,2 +1,2 @@
-Last updated: 2024-04-18 05:12:35
-Random Quote: If you love something, you can never let it go. Not even for a second. Or it's gone forever. - Ted Mosby
+Last updated: 2024-04-18 05:13:13
+Random Quote: Not all final girls make it to the end by fighting the monster. Some of them hide. They stay quiet when their family needs them. They're not waiting for their moment. They don't even know if another moment's coming. They just close their eyes and wait for it to be over. Truth is, some final girls are cowards. - Kinsey Locke
