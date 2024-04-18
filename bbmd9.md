@@ -1,2 +1,2 @@
-Last updated: 2024-04-17 08:15:07
-Random Quote: Pain is always there cause life is freaking painful, okay? - Tiffany 'Pennsatucky' Doggett
+Last updated: 2024-04-18 04:58:00
+Random Quote: You have a passing clever father, Devan.  He makes me wish I had more smugglers in my service.  And fewer lords.  -  Stannis Baratheon
