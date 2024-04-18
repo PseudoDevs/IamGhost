@@ -1,2 +1,2 @@
-Last updated: 2024-04-18 05:26:18
-Random Quote: Well, maybe this isn't a breakup. Maybe this is two friends getting back together. - Robin Scherbatsky
+Last updated: 2024-04-18 05:26:51
+Random Quote: Penrose chose to die rather than give him up.  It still angers me.  How could he think I would hurt the boy?  I chose Robert, did I not?  When that hard day came, I chose blood over honor.  -  Stannis Baratheon
