@@ -1,2 +1,2 @@
-Last updated: 2024-04-18 05:48:36
-Random Quote: I don't care if you're so scared you foul your breeches, and I don't care if a thousand wildlings are coming over the walls howling for your blood, you get those birds off, or I swear I'll hunt you through all seven hells and make you damn sorry that you didn't.  -  Jeor Mormont
+Last updated: 2024-04-18 05:49:11
+Random Quote: The Stranger: We’re not free in what we do, because we’re not free in what we want. We can’t overcome what’s deep within us. - 
