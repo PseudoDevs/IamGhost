@@ -1,2 +1,2 @@
-Last updated: 2024-04-18 06:27:47
-Random Quote: I mean she just walked out. At least when I walk out on a girl I have the common courtesy to sleep with her first. It's called manners! - Barney Stinson
+Last updated: 2024-04-18 06:28:19
+Random Quote: It's probably his... I've spent years, training my boys to swim the other way. - Barney Stinson
