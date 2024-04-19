@@ -1,2 +1,2 @@
-Last updated: 2024-04-19 17:33:14
-Random Quote: (Love is) pain, horrible pain, that you want again and again. - Sophia Burset
+Last updated: 2024-04-19 17:33:47
+Random Quote: Until the Mountain crushed my brother's skull, no Dornishmen had died in this War of the Five Kings.  Tell me, Captain, is that my shame or my glory?  -  Doran Martell
