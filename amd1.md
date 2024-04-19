@@ -1,2 +1,2 @@
-Last updated: 2024-04-19 18:57:30
-Random Quote: I don't want to die, I've only kissed one boy so far. - Missy
+Last updated: 2024-04-19 18:58:03
+Random Quote: Dear Billy, I don't know if you can even hear this. Ever since you left, everything's been a total disaster. For a while, we tried to be happy... normal. I know that's impossible. - Max Mayfield
