@@ -1,2 +1,2 @@
-Last updated: 2024-04-19 15:37:42
-Random Quote: The septons preach about the seven hells.  What do they know?  Only a man who's been burned knows what hell is truly like.  -  Sandor Clegane
+Last updated: 2024-04-19 15:38:15
+Random Quote: At least I know they didn't spot you. No one could stay that aroused with your mug peeking through the window. - Saul Goodman
