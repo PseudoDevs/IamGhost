@@ -1,2 +1,2 @@
-Last updated: 2024-04-19 19:30:36
-Random Quote: Miss Garvey's parents may stay at our place as long as they like. Provided they each arrive in an urn. - Barney Stinson
+Last updated: 2024-04-19 19:31:09
+Random Quote: I'm a good boyfriend in my sleep. I can rock a killer foot rub with one hand and brew a kick-ass pot of chamomile in the other, that would make you weep. Hell, I've forgotten more about microwaving fat-free popcorn and watching Sandra Bullock movies than you'll ever know, but: thanks for your concern, rook! - Marshall Eriksen
