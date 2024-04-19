@@ -1,2 +1,2 @@
-Last updated: 2024-04-19 15:49:47
-Random Quote: There's something between us. Maybe my head was saying, "nip it in the bud", because my heart was saying something else... - Robin Scherbatsky
+Last updated: 2024-04-19 15:50:20
+Random Quote: Do you think I can't tell Lord Stannis from Lord Tywin?  They're both bungholes who think they're too noble to shit, but never mind about that, I know the difference.  -  Walder Frey
