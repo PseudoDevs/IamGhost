@@ -1,2 +1,2 @@
-Last updated: 2024-04-19 16:14:01
-Random Quote: Ted: "Barney, I don't know if the oven is deep enough. Plus, it's a display made of cardboard."Barney: "Huh. I should probably disconnect the gas." - Barney Stinson
+Last updated: 2024-04-19 16:14:34
+Random Quote: All you Westerosi make a shame of loving.  Ther is no shame in loving.  If your septons say there is, your seven gods must be demons.  In the isles we know better.  Our gods gave us legs to run with, noses to smell with, hands to touch and feel.  What mad cruel god would give a man eyes and tell him he must forever keep them shut, and never look at all the beauty in the world?  Only a monster god, a demon of the darkness.  -  Kojja Mo
