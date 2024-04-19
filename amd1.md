@@ -1,2 +1,2 @@
-Last updated: 2024-04-19 18:11:53
-Random Quote: This is New York City, don't get close to the neighbours. You nod at them politely in the hall, you call the cops if you haven't seen them in a while and you smell something funny and that's it! - Ted Mosby
+Last updated: 2024-04-19 18:12:26
+Random Quote: If ever a man deserved to die screaming, it was Gregor Clegane.  -  Doran Martell
