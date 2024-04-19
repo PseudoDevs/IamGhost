@@ -1,2 +1,2 @@
-Last updated: 2024-04-19 19:17:21
-Random Quote: No, that you think you'll graduate High-School. - Meemaw
+Last updated: 2024-04-19 19:17:54
+Random Quote: The common people pray for rain, healthy children, and a summer that never ends.  It is no matter to them if the high lords play their game of thrones, so long as they are left in peace.  They never are.  -  Jorah Mormont
