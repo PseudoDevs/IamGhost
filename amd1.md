@@ -1,2 +1,2 @@
-Last updated: 2024-04-19 17:24:18
-Random Quote: Jesus was a fag! He said: 'This is my body. Eat me.' - Big Boo
+Last updated: 2024-04-19 17:24:51
+Random Quote: In the game of thrones, even the humblest pieces have wills of their own.  Sometimes they refuse to make the moves you've planned for them.  Mark that well, Alayne.  It's a lesson that Cersei Lannister still has yet to learn.  -  Petyr Baelish
