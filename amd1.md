@@ -1,2 +1,2 @@
-Last updated: 2024-04-19 19:06:53
-Random Quote: Qhorin was my enemy.  But also my brother, once.  So... shall I thank you for killing him, Jon Snow?  Or curse you?  -  Mance Rayder
+Last updated: 2024-04-19 19:07:26
+Random Quote: Did Need Stark dress you like that?  Was it his pleasure to garb you in velvets and silks and make you his own sweet daughter?  -  Balon Greyjoy
