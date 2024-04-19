@@ -1,2 +1,2 @@
-Last updated: 2024-04-19 15:47:35
-Random Quote: Rattleshirt, we called him.  Treacherous and bloodthirsty.  If there's honor in him, he hides it down beneath his suit of bones.  -  Jon Snow
+Last updated: 2024-04-19 15:48:08
+Random Quote: Ted: "You know Robin? Been thinking about it. Guess it's kind of nice you're such a bad-ass."Robin: "It's pretty bad-ass you're so nice, Ted." - Robin Scherbatsky
