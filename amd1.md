@@ -1,2 +1,2 @@
-Last updated: 2024-04-19 19:11:18
-Random Quote: Stacey, six kids in five years! The woman's basically a ride to the waterpark. - Ted Mosby
+Last updated: 2024-04-19 19:11:51
+Random Quote: When you tear out a man's tongue, you are not proving him a liar, you're only telling the world that you fear what he might say.  -  Tyrion Lannister
