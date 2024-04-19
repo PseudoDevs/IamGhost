@@ -1,2 +1,2 @@
-Last updated: 2024-04-19 17:38:44
-Random Quote: Where has it gotten me? Nowhere. I can't talk to the person I love. People still don't take me seriously. I wanna be numb again. - Klaus Hargreeves
+Last updated: 2024-04-19 17:39:17
+Random Quote: It's not even the lies that hurt, you know? It's the fact that you're never really emotionally prepared for someone to leave you. - Rue Bennett
