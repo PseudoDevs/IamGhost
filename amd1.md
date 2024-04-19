@@ -1,2 +1,2 @@
-Last updated: 2024-04-19 16:35:08
-Random Quote: I learned form Set Arthur Dayne, the Sword of the Morning, who could have slain all five of you with his left hand while he was taking a piss with the right.  -  Jaime Lannister
+Last updated: 2024-04-19 16:35:41
+Random Quote: I act as if I don't care if people dislike me. Deep down, I actually enjoy it. - Wednesday Addams
