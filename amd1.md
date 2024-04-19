@@ -1,2 +1,2 @@
-Last updated: 2024-04-19 19:52:08
-Random Quote: When I was 13, my father caught me kissing a boy, so he sent me to our family's ranch for foaling season. Once you see a baby horse erupt through that birth canal, you stop even touching yourself! - Robin Scherbatsky
+Last updated: 2024-04-19 19:52:42
+Random Quote: Some of you cared. None of you cared enough. - Hannah Baker
