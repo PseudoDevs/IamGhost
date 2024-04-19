@@ -1,2 +1,2 @@
-Last updated: 2024-04-19 15:21:09
-Random Quote: Marshall: "The broken windows?"Lily: "We had to make it look realistic."Marshall: "But why did you break two of them?"Robin: "It looked like fun when she did it, so I wanted to try."Marshall: "I can't believe this whole time it was you guys; I've been blaming Really Tan Dancing Leotard guy." - Marshall Eriksen
+Last updated: 2024-04-19 15:21:42
+Random Quote: Airport bar! Flight attendants, they'll get your tray table in it's full upright position. Say what? - Barney Stinson
