@@ -1,2 +1,2 @@
-Last updated: 2024-04-19 16:04:05
-Random Quote: Be careful who you put your faith in. The only people who can betray us, are the ones we trust. - Maria Miller
+Last updated: 2024-04-19 16:04:38
+Random Quote: Just remember who your friends and who your enemies are. - Billy Butcher
