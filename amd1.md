@@ -1,2 +1,3 @@
-Last updated: 2024-04-19 17:21:32
-Random Quote: Mitchell: "we've decided we really wanted to have a baby so, we initially asked one of our lesbian friends to be a surrogate."Cameron: "Then we figured, they already mean enough, can you imagine one of them pregnant?" - Cameron Tucker
+Last updated: 2024-04-19 17:22:05
+Random Quote: Morty: "I don't deserve this. I was just having fun."
+Rick: "So was Jeffrey Dahmer." - Rick Sanchez
