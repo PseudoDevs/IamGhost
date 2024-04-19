@@ -1,2 +1,2 @@
-Last updated: 2024-04-19 15:44:50
-Random Quote: A hall to die in, and men to bury me.  I thank you, my lords... but I spit on your pity... I am a knight... I shall die a knight.  -  Barristan Selmy
+Last updated: 2024-04-19 15:45:23
+Random Quote: The Empire improves every system it touches. Judge by any metric: safety, prosperity, trade, opportunity, peace. Compare Imperial rule to what is happening right now. Is the world more peaceful since the revolution? I see nothing but death and chaos. - The Client
