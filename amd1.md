@@ -1,2 +1,2 @@
-Last updated: 2024-04-19 17:08:17
-Random Quote: When Barney overhears that Ted and Robin have a secret to reveal at the wedding reception, he begins to guess what it might be. - Lily Aldrin
+Last updated: 2024-04-19 17:08:50
+Random Quote: He would see this country burn if he could be king of the ashes.  -  Varys
