@@ -1,2 +1,2 @@
-Last updated: 2024-04-19 15:20:35
-Random Quote: That changes everything, how do you know who to trust? - Meemaw
+Last updated: 2024-04-19 15:21:07
+Random Quote: Marshall: "Lily dream-banged someone we know."Barney: "Okay, you caught me vermilion-handed. The truth is, I've spent the last five years trying to inception your wife."Marshall: "That movie only came out two years ago."Barney: "What movie?" - Barney Stinson
