@@ -1,2 +1,2 @@
-Last updated: 2024-04-19 17:48:40
-Random Quote: Kids, Robin and Barney had recently shared an awkward moment. After that, they did what any two mature adults would do: They pretended it never happened. - Ted Mosby
+Last updated: 2024-04-19 17:49:13
+Random Quote: The man who passes the sentence should swing the sword.  If you would take a man's life, you owe it to him to look into his eyes and hear his final words.  And if you cannot bear to do that, then perhaps the man does not deserve to die.  -  Eddard Stark
