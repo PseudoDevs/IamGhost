@@ -1,2 +1,2 @@
-Last updated: 2024-04-19 20:08:40
-Random Quote: Marshall, you being 18 isn't a bad thing. It just means you get to spend even more of your life with her. - Ted Mosby
+Last updated: 2024-04-19 20:09:13
+Random Quote: Power resides where men believe it resides... It's a trick, a shadow on the wall.  -  Varys
