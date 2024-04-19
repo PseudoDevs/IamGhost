@@ -1,2 +1,2 @@
-Last updated: 2024-04-19 15:31:05
-Random Quote: The only way Ralph would remember our anniversary is if there was a beer named "June 2nd". - Agatha Harkness
+Last updated: 2024-04-19 15:31:38
+Random Quote: Never forget what you are, for surely the world will not.  Make it your strength.  Then it can never be your weakness.  Armor yourself in it, and it will never be used to hurt you.  -  Tyrion Lannister
