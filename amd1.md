@@ -1,2 +1,2 @@
-Last updated: 2024-04-19 15:28:20
-Random Quote: A mind needs books as a sword needs a whetstone, if it is to keep its edge.  -  Tyrion Lannister
+Last updated: 2024-04-19 15:28:53
+Random Quote: What is the cost of lies? It's not that we mistake them for the truth. The real danger is that if we hear enough lies, then we no longer recognize the truth at all. - Valery Legasov
