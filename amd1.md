@@ -1,2 +1,2 @@
-Last updated: 2024-04-19 16:31:46
-Random Quote: If you don't trust your men with your money, you have bigger problems than if you trust Saul Goodman. - Kim Wexler
+Last updated: 2024-04-19 16:32:20
+Random Quote: "Cap'n Cook?" That's not you? Like I said, no one is looking for you. - Walter White
