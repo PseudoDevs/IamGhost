@@ -1,2 +1,2 @@
-Last updated: 2024-04-19 19:25:05
-Random Quote: The Boltons have always been as cruel as they are cunning, but this one seems a beast in human skin.  -  Robett Glover
+Last updated: 2024-04-19 19:25:38
+Random Quote: I understand that if any more words come pouring out of your cunt mouth I'm going to have to eat every fucking chicken in this room.  -  Sandor Clegane
