@@ -1,2 +1,2 @@
-Last updated: 2024-04-19 18:17:24
-Random Quote: Of course, nobody I knew in East-Texas in 1989 cared about Newtonian Physics. The only Newtons they cared about were Wayne and Fig. - Sheldon Cooper
+Last updated: 2024-04-19 18:17:57
+Random Quote: That was the night I was born. I rose like a phoenix from her mentholated bosom and strode into the world, Armani-clad and fully awesome. - Barney Stinson
