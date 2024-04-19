@@ -1,2 +1,2 @@
-Last updated: 2024-04-19 17:59:44
-Random Quote: I know about the promiese... Maester Theomore, tell them!  A thousand years before the Conquest, a promise was made, and oaths were sworn in the Wolf's Den before the Old Gods and the new.  When we were sore beset and friendless, hounded from our homes and in peril of our lives, the wolves took us in and nourished us and protected us against our enemies.  The city is built upon the land they gave us.  In return we swore that we should always be their men.  Stark men!  -  Wylla Manderly
+Last updated: 2024-04-19 18:00:17
+Random Quote: You're wrong.  Need Stark was my gaoler, but my blood is still salt and iron.  -  Theon Greyjoy
