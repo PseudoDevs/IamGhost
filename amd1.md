@@ -1,2 +1,2 @@
-Last updated: 2024-04-19 19:04:40
-Random Quote: Whatever you do in this life, it's not legendary, unless your friends are there to see it. - Barney Stinson
+Last updated: 2024-04-19 19:05:13
+Random Quote: See, lad, that's why he's the king and I'm not.  I can outdrink, outfight, and outsing him, and my member's thrice the size o' his, but Mance has cunning.  -  Tormund Giantsbane
