@@ -1,2 +1,2 @@
-Last updated: 2024-04-19 15:27:14
-Random Quote: Roose Bolton's cold and cunning, aye, but a man can deal with Roose.  We've all known worse.  But this bastard son of his... they say he's mad and cruel, a monster.  -  Locke
+Last updated: 2024-04-19 15:27:47
+Random Quote: It was the white cloak that soiled me, not the other way around.  -  Jaime Lannister
