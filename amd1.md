@@ -1,2 +1,2 @@
-Last updated: 2024-04-19 18:18:30
-Random Quote: The Boltons have always been as cruel as they are cunning, but this one seems a beast in human skin.  -  Robett Glover
+Last updated: 2024-04-19 18:19:04
+Random Quote: Bulls are strong.  Bears.  I have seen my bastard fight.  He is not entirely to blame.  Reek was his tutor, the first Reek, and Reek was never trained at arms.  Ramsay is ferocious, I will grant you, but he swings that sword like a butcher hacking meat.  -  Roose Bolton
