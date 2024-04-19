@@ -1,2 +1,2 @@
-Last updated: 2024-04-19 15:21:31
-Random Quote: I know this hurts little buddy, but you'll love again someday. Because time will heal a broken heart, but not that bitch's window. - Barney Stinson
+Last updated: 2024-04-19 15:22:03
+Random Quote: I just want to stand on top of the Wall and piss off the edge of the world.  -  Tyrion Lannister
