@@ -1,2 +1,2 @@
-Last updated: 2024-04-19 18:27:54
-Random Quote: Stella: "Ted, you're staring at my breasts."Ted: "In fairness... they were staring at me." - Ted Mosby
+Last updated: 2024-04-19 18:28:27
+Random Quote: I feel like her sobriety is completely dependent on how available I am to her. - Jules Vaughn
