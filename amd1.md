@@ -1,2 +1,2 @@
-Last updated: 2024-04-19 19:54:54
-Random Quote: Shoot me and tomorrow those names are released. But save a bullet for yourself. Cause the system doesn't like heroes. - Miguel Angel Felix Gallardo
+Last updated: 2024-04-19 19:55:26
+Random Quote: A true man does what he will, not what he must.  -  Cersei Lannister
