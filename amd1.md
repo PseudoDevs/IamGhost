@@ -1,3 +1,2 @@
-Last updated: 2024-04-19 17:43:42
-Random Quote: I hired a decorator and I asked him: "What would the inside of Tinkerbell's vagina look like?"
-And the kid just ran with it! - Quinn Garvey
+Last updated: 2024-04-19 17:44:15
+Random Quote: People deserve a second chance, just like businesses. - Marty Byrde
