@@ -1,2 +1,2 @@
-Last updated: 2024-04-19 19:36:06
-Random Quote: They're all running away from something. Why else would someone want to go somewhere different? - Virginia Wilson
+Last updated: 2024-04-19 19:36:39
+Random Quote: A man will tell you poison is dishonorable, but a woman's honor is different.  The Mother shaped us to protect our children, and our only dishonor is failure.  -  Lysa Arryn
