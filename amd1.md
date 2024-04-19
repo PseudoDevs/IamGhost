@@ -1,2 +1,2 @@
-Last updated: 2024-04-19 18:16:18
-Random Quote: Ted, I believe you and I met for a reason. It's like the universe was saying: "Hey Barney, there's this dude, he's pretty cool, but it's your job to make him awesome." - Barney Stinson
+Last updated: 2024-04-19 18:16:51
+Random Quote: "Cap'n Cook?" That's not you? Like I said, no one is looking for you. - Walter White
