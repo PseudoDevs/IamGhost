@@ -1,2 +1,2 @@
-Last updated: 2024-04-19 19:47:40
-Random Quote: This is the one that you saved? You are as its father. A clan of two. But you have removed your helmet. Then you are a Mandalorian no more. - The Armorer
+Last updated: 2024-04-19 19:48:17
+Random Quote: Do you know how much I make a year? I mean, even if I told you, you wouldn't believe it. - Walter White
