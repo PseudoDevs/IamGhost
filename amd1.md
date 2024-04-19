@@ -1,2 +1,2 @@
-Last updated: 2024-04-19 18:32:19
-Random Quote: Marshall: "Excuse me, miss. When you get a chance, could you bring over a hundred shots of tequila please?"Barney: "I'll have the same." - Marshall Eriksen
+Last updated: 2024-04-19 18:32:52
+Random Quote: I feel like I've framed my entire womanhood around men. - Jules Vaughn
