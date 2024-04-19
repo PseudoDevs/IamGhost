@@ -1,2 +1,3 @@
-Last updated: 2024-04-19 15:22:44
-Random Quote: Lily: "Anytime a single guy hangs out with a married woman there are rules that must be followed: Rule number one..."Barney: "Don't use the husband's condoms, that's just rude!" - Barney Stinson
+Last updated: 2024-04-19 15:23:16
+Random Quote: Jerry: "Why Florida?"
+Cat: "Because they don't ask questions. They play Volleyball, they party and they have fun." - Rick and Morty
