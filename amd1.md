@@ -1,2 +1,2 @@
-Last updated: 2024-04-19 19:49:56
-Random Quote: Rickard Karstark killed more than a Frey and a Lannister.  He killed my honor.  -  Robb Stark
+Last updated: 2024-04-19 19:50:29
+Random Quote: In the end, a gentle heart may be worth more than pride or valor.  -  Doran Martell
