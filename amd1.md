@@ -1,2 +1,2 @@
-Last updated: 2024-04-19 17:31:33
-Random Quote: We all face the same end. Those above have long forgotten us. They do not judge us. In death, I am all alone, and my only judge… is me. - Martha
+Last updated: 2024-04-19 17:32:07
+Random Quote: I guess, if we're splitting hairs, then technically... there was a plurality to the times I've lied to women for sex-having-purposes. - Barney Stinson
