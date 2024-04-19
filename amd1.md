@@ -1,2 +1,2 @@
-Last updated: 2024-04-19 18:56:57
-Random Quote: This is New York City, don't get close to the neighbours. You nod at them politely in the hall, you call the cops if you haven't seen them in a while and you smell something funny and that's it! - Ted Mosby
+Last updated: 2024-04-19 18:57:30
+Random Quote: I don't want to die, I've only kissed one boy so far. - Missy
