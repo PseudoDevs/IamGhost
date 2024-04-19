@@ -1,2 +1,2 @@
-Last updated: 2024-04-19 15:43:44
-Random Quote: Robin: "Who wants hot-wings?"Lily: "I'm in... or maybe we should just pour hot-sauce on Barney, since he's a total chicken." - Lily Aldrin
+Last updated: 2024-04-19 15:44:17
+Random Quote: Ted: "First it was too much eye-contact, then not enough - where do you look during sex?"Barney: "Into the hidden camera at future me, watching it." - Barney Stinson
