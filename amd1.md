@@ -1,2 +1,3 @@
-Last updated: 2024-04-19 15:40:59
-Random Quote: Love can’t be timed. It has to be lived. - Berlin
+Last updated: 2024-04-19 15:41:32
+Random Quote: Billy: "Halloween's a magical holiday. All about family, friends, and the thrill of getting to be someone else for a day."
+Tommy: "Wrong! Halloween's about candy. And scaring people, but mostly candy." - Tommy Maximoff
