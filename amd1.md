@@ -1,2 +1,2 @@
-Last updated: 2024-04-19 17:28:43
-Random Quote: Robin: "We're like sisters."Ted: "You've never gotten through even one exchange without screaming at her."Robin: "Sisters fight, Ted!" - Robin Scherbatsky
+Last updated: 2024-04-19 17:29:16
+Random Quote: I've lost a hand, a father, a son, a sister, and a lover, and soon enough I will lose a brother.  And yet they keep telling me House Lannister has won this war.  -  Jaime Lannister
