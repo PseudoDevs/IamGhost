@@ -1,2 +1,2 @@
-Last updated: 2024-04-19 19:15:42
-Random Quote: A reader lives a thousand lives before he dies.  The man who never reads lives only one.  -  Jojen Reed
+Last updated: 2024-04-19 19:16:15
+Random Quote: The years pass in their hundreds and their thousands, and what does any man see of life but a few summers, a few winters?  -  Maester Luwin
