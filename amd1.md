@@ -1,2 +1,2 @@
-Last updated: 2024-04-19 19:18:27
-Random Quote: Tarly, when I was a lad half your age, my lady mother told me that if I stood about with my mouth open, a weasel was like to mistake it for his lair and run down my throat.  If you have something to say, say it.  Otherwise, beware of weasels.  -  Jeor Mormont
+Last updated: 2024-04-19 19:19:00
+Random Quote: Pictures can be twisted and used against you and haunt you forever. - Hannah Baker
