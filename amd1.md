@@ -1,3 +1,2 @@
-Last updated: 2024-04-19 17:15:27
-Random Quote: Joel: "A deep breath in, slow breath out. You squeeze the trigger like you love it. Gentle, steady, nice and slow."
-Ellie: "You gonna shoot this thing or get it pregnant?" - Ellie Williams
+Last updated: 2024-04-19 17:16:00
+Random Quote: Mike: "Where are you going? You just said, 'stick to the plan'."Dustin: "I am. I'm just gonna go get some chocolate pudding." - Dustin Henderson
