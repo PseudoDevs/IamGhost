@@ -1,2 +1,3 @@
-Last updated: 2024-04-19 20:07:01
-Random Quote: You want to know if I was ever really in love with you? Every morning, I wake up wishing I wasn't. You are a constant reminder of what I can't have. A life. Love. You. - Lucien
+Last updated: 2024-04-19 20:07:34
+Random Quote: Marylin Thornhill: "I trust Enid has given you the old Nevermore welcome."
+Wednesday: "She's been smothering me with hospitality. I hope to return the favor... in her sleep." - Wednesday Addams
