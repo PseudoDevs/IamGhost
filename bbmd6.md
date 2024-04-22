@@ -1,2 +1,3 @@
-Last updated: 2024-04-22 11:25:24
-Random Quote: Only their shadows, One most of all.  A tall and twisted thing with one black eye and ten long arms, sailing on a sea of blood.  -  Moqorro
+Last updated: 2024-04-22 11:25:57
+Random Quote: The boobs on the bus go up and down, up and down, up and down
+The boobs on the bus go up and down, all through the town - Barney Stinson
