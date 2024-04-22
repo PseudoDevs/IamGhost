@@ -1,2 +1,2 @@
-Last updated: 2024-04-22 11:08:16
-Random Quote: Put me on your magical boat, man, and sail me down your chocolaty river of meth! - Badger
+Last updated: 2024-04-22 11:08:55
+Random Quote: Lord Varys, sometimes I feel as though you are the best friend I have in King's Landing and sometimes I feel you are my worst enemy.  -  Tyrion Lannister
