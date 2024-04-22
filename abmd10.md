@@ -1,4 +1,2 @@
-Last updated: 2024-04-22 11:53:45
-Random Quote: Stark: "Red, green, blue... who paints a button blue?"
-Carter: "Don't tell me the American playboy needs help pushing buttons."
-Stark: "Hedy Lamarr and I spent a weekend together, but she wasn't teaching me German." - Howard Stark
+Last updated: 2024-04-22 11:54:20
+Random Quote: Kids, morals usually come at the end of stories, but this one is so important, I'm gonna tell you now. Don't ever, ever invite an ex to your wedding. - Ted Mosby
