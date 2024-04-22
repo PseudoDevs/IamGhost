@@ -1,2 +1,2 @@
-Last updated: 2024-04-22 10:50:39
-Random Quote: I don't care if you're so scared you foul your breeches, and I don't care if a thousand wildlings are coming over the walls howling for your blood, you get those birds off, or I swear I'll hunt you through all seven hells and make you damn sorry that you didn't.  -  Jeor Mormont
+Last updated: 2024-04-22 10:51:13
+Random Quote: "Cap'n Cook?" That's not you? Like I said, no one is looking for you. - Walter White
