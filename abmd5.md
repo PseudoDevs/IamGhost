@@ -1,2 +1,2 @@
-Last updated: 2024-04-22 10:59:40
-Random Quote: I don't take nothin' a drug addict says personally. 'Cause I don't believe nothin' a drug addict say. - Fezco
+Last updated: 2024-04-22 11:00:13
+Random Quote: A true man does what he will, not what he must.  -  Cersei Lannister
