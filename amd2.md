@@ -1,2 +1,2 @@
-Last updated: 2024-04-22 10:52:51
-Random Quote: Ted: "I hate how you're always right."Lily: "It's my best, and most annoying, trait." - Lily Aldrin
+Last updated: 2024-04-22 10:53:25
+Random Quote: If there's one thing I've learned in the narco world, it's that life is more complicated than you think. Good and bad, they're relative concepts. - Steve Murphy
