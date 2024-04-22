@@ -1,2 +1,2 @@
-Last updated: 2024-04-22 11:06:00
-Random Quote: Ted, the only reason to wait a month for sex is if the girl is 17 years and 11 months old. - Barney Stinson
+Last updated: 2024-04-22 11:06:35
+Random Quote: In his chainmail shirt with a sword in his hand, Gendry looked almost a man grown, and dangerous.  Hot Pie looked like Hot Pie.  -  Arya Stark

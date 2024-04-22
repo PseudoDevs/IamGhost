@@ -1,2 +1,2 @@
-Last updated: 2024-04-22 11:04:52
-Random Quote: If you don't like where you're heading, there's no shame in going back and changing your path. - Chuck McGill
+Last updated: 2024-04-22 11:06:35
+Random Quote: There are worse ways to die than warm and drunk.  I knew a brother drowned himself in wine once.  It was a poor vintage, though, and his corpse did not improve it.  -  Dolorous Edd Tollett
