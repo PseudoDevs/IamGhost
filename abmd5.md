@@ -1,2 +1,2 @@
-Last updated: 2024-04-22 10:52:57
-Random Quote: Lily: "I am gonna have to walk this earth, knowing Barney has touched my boobs."Robin: "Yeah it stays with ya. His e-mail reminders don't help." - Robin Scherbatsky
+Last updated: 2024-04-22 10:53:30
+Random Quote: Best way to catch the smart ones? Get an idiot working for them. - Jaime Kuykendall
