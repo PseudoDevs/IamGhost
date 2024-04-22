@@ -1,3 +1,2 @@
-Last updated: 2024-04-22 10:51:21
-Random Quote: Man: "Hello, sir. Can I talk to you?"
-Gi-hun: "I don't believe in Jesus." - Seong Gi-hun
+Last updated: 2024-04-22 10:51:55
+Random Quote: Never fear the darkness, Bran.  The strongest trees are rooted in the dark places of the earth.  Darkness will be your cloak, your shield, your mother's milk.  Darkness will make you strong.  -  Bloodraven
