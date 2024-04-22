@@ -1,2 +1,2 @@
-Last updated: 2024-04-22 11:00:15
-Random Quote: Shoot me and tomorrow those names are released. But save a bullet for yourself. Cause the system doesn't like heroes. - Miguel Angel Felix Gallardo
+Last updated: 2024-04-22 11:00:49
+Random Quote: The absolute worst part of depression is that even though you know you're depressed, You're unable to stop yourself from getting worse. - Rue Bennett
