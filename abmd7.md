@@ -1,2 +1,2 @@
-Last updated: 2024-04-22 10:59:07
-Random Quote: Saul Goodman is the last line of defense for the little guy. Are you getting sold down the river? He's a life raft. You getting stepped on? He's a sharp stick. You got Goliath on your back - Saul's the guy with the slingshot. He's the righter of wrongs. He's friend to the friendless. - Saul Goodman
+Last updated: 2024-04-22 11:00:15
+Random Quote: I have sinned and must atone, must parade my shame before the eyes of every beggar in the city.  They think that this will break my pride, that it will make an end to me, but they are wrong.  -  Cersei Lannister
