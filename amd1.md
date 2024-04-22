@@ -1,3 +1,5 @@
-Last updated: 2024-04-22 10:56:16
-Random Quote: Dragon: "My name is Balthromaw. Breaker of skies, slayer of mountain."
-Rick: "Rule 1: You're now scooper of your own poops, or I will take you down like the black-light poster you are." - Rick Sanchez
+Last updated: 2024-04-22 10:56:49
+Random Quote: Morty: "Mom, I have a friend coming over. Is that cool?"
+Beth: "I told your sister no parties."
+Morty: "It's one friend."
+Beth: "That's a party to you." - Beth Smith
