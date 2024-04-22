@@ -1,2 +1,2 @@
-Last updated: 2024-04-22 11:14:02
-Random Quote: I've got to find a way to introduce some wood into Bilson's dark atrium. I think you know what I meant. - Ted Mosby
+Last updated: 2024-04-22 11:14:41
+Random Quote: Robert... he is in my dreams as well.  Laughing.  Drinking.  Boasting.  Those were the things he was best at.  Those, and fighting.  I never bested him at anything.  -  Stannis Baratheon
