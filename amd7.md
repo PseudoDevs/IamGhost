@@ -1,2 +1,2 @@
-Last updated: 2024-04-22 11:08:57
-Random Quote: Everyone wants something, Alayne.  And when you know what a man wants you know who he is, and how to move him.  -  Petyr Baelish
+Last updated: 2024-04-22 11:09:34
+Random Quote: The more you move up in the world, the more enemies you make. - Rue Bennett
