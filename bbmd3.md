@@ -1,3 +1,2 @@
-Last updated: 2024-04-22 11:10:13
-Random Quote: Bo-Katan: "You are not a Mandalorian."
-Boba: "Never said I was." - Boba Fett
+Last updated: 2024-04-22 11:10:49
+Random Quote: You're like Hitler! But even Hitler cared about Germany or something. - Morty Smith
