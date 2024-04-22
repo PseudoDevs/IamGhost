@@ -1,2 +1,3 @@
-Last updated: 2024-04-22 11:25:47
-Random Quote: Kids, sometimes the universe sends exactly what you ask for. Other times... it sends Lily's dad. - Ted Mosby
+Last updated: 2024-04-22 11:26:24
+Random Quote: Sal: "Does Lily have any other plates? I don't let Sammy eat off this plastic."
+Pepper: "How does she breastfeed him if she doesn't let him near plastic?" - Pepper Saltzman
