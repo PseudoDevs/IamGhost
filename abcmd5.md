@@ -1,3 +1,2 @@
-Last updated: 2024-04-22 11:28:43
-Random Quote: Morticia: "That boy's family was going to file attempted murder charges. How would that have looked on your record?"
-Wednesday: "Terrible. Everyone would know I failed to get the job done." - Wednesday Addams
+Last updated: 2024-04-22 11:29:16
+Random Quote: Serve, Obey, Protect.  Simple vows for a simple man.  -  Areo Hotah
