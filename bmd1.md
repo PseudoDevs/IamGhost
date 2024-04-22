@@ -1,2 +1,2 @@
-Last updated: 2024-04-22 11:27:41
-Random Quote: I was pretending to be someone I am not which I should only be doing on stage. - Devi Vishwakumar
+Last updated: 2024-04-22 11:28:17
+Random Quote: The truth isn't always to most exciting version of things, or the best, or the worst. It's somewhere inbetween. But it deserves to be heard and remembered. 'The truth will out', like someone said once. It remains. - Hannah Baker
