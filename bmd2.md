@@ -1,2 +1,2 @@
-Last updated: 2024-04-22 11:48:58
-Random Quote: We are the ironborn, and once we were conquerors.  Our writ ran everywhere the sound of the waves was heard.  My brother would have been content with the cold and dismal north, my niece with even less... but I shall give you Lannisport.  Highgarden.  The Arbor.  Oldtown.  The Riverlands and the Reach, the Kingswood and the Rainwood, Dorne and the Marches, the Mountains of the Moon and the Vale of Arryn, Tarth and the Stepstones.  I say we take it all!  I say, we take Westeros.  -  Euron Greyjoy
+Last updated: 2024-04-22 11:49:31
+Random Quote: Know the men who follow you and let them know you.  Don't ask your men to die for a stranger.  -  Eddard Stark
