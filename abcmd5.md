@@ -1,2 +1,2 @@
-Last updated: 2024-04-22 11:25:09
-Random Quote: Yes, Lord Umber, leave me to the king.  He means to give me a scolding before he forgives me.  That's how he deals with treason, our King in the North.  Or should I call you the King Who Lost the North, your Grace?  -  Rickard Karstark
+Last updated: 2024-04-22 11:26:23
+Random Quote: Foes and false friends are all around me, Lord Davos.  They infest my city like roaches, and at night I feel them crawling over me.  My son Wendel came to the Twins as a guest.  He ate Lord Walder's bread and salt, and hung his sword upon the wall to feast with his friends.  And they murdered him.  Murdered, I say, and may the Freys choke upon their fables.  I drink with Jared, jape with Symond, promise Rhaegar the hand of my own beloved granddaughter... but never think that means I have forgotten.  The North remembers, Lord Davos.  The North remembers, and the mummer's farce is almost done.  My son is home.  -  Wyman Manderly.
