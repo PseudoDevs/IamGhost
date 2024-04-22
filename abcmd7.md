@@ -1,3 +1,2 @@
-Last updated: 2024-04-22 10:53:36
-Random Quote: Morty: "Rick, can we not leave without my sister?"
-Rick: "Ugh. You have infinite sisters, Morty. Not that I want to spend the rest of my day looking for another one. Sum-Sum, let's go! Grandpa's concern for your safety is fleeting." - Rick Sanchez
+Last updated: 2024-04-22 10:54:10
+Random Quote: Is it your fault that Bronn's an insolent black - hearted rogue?  He's always been an insolent black
