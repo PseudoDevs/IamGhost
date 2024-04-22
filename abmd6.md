@@ -1,2 +1,2 @@
-Last updated: 2024-04-22 11:07:35
-Random Quote: No one had expected the broken boy to live.  The gods could not kill Bran, no more than I could.  It was a strange thought, and stranger still to remember that Bran might still be alive.  -  Theon Greyjoy
+Last updated: 2024-04-22 11:08:09
+Random Quote: Fear is the worst enemy of progress. - 
