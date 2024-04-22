@@ -1,2 +1,2 @@
-Last updated: 2024-04-22 11:43:48
-Random Quote: What do you think a knight is for, girl?  You think it's all taking favors from ladies and looking fine in gold plate?  Knights are for killing.  I killed my first man at twelve.  I've lost count of how many I've killed since then.  High lords with old names, fat rich men dressed in velvet, knights puffed up like bladders with their honors, yes, and women and children too... they're all meat, and I'm the butcher.  -  Sandor Clegane
+Last updated: 2024-04-22 11:44:24
+Random Quote: A bag of dragons buys a man's silence for a while, but a well - placed quarrel buys it forever. 
