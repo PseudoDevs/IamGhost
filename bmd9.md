@@ -1,2 +1,2 @@
-Last updated: 2024-04-22 11:18:22
-Random Quote: Do you still trust people? Even after what you've been through? - Oh Il-nam
+Last updated: 2024-04-22 11:18:56
+Random Quote: A man lives three lives. The first one ends with the loss of naivety, the second, with the loss of innocence and the third… with the loss of life itself. It’s inevitable that we go through all three stages. - Adam
