@@ -1,2 +1,2 @@
-Last updated: 2024-04-22 10:54:38
-Random Quote: Ramsay.  Snow, my wife called me before she ate her fingers, but I say Bolton.  -  Ramsay Bolton
+Last updated: 2024-04-22 10:55:45
+Random Quote: It's probably his... I've spent years, training my boys to swim the other way. - Barney Stinson
