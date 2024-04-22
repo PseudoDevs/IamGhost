@@ -1,2 +1,2 @@
-Last updated: 2024-04-22 10:50:52
-Random Quote: What if God doesn’t know what he’s doing? If the plan is wrong? If God is wrong? - 
+Last updated: 2024-04-22 10:51:25
+Random Quote: The longer Cersei waits, the angrier she'll become, and anger makes her stupid.  I much prefer angry and stupid to composed and cunning.  -  Tyrion Lannister
