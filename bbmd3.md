@@ -1,2 +1,2 @@
-Last updated: 2024-04-22 11:05:12
-Random Quote: She had made the mistake of speaking when Set Gregor wanted quiet, so the Mountain had smashed her teeth to splinters with a mailed fist and broken her pretty little nose as well.  He would have done worse, no doubt, if Cersei had not called him down to King's Landing to face the Red Viper's spear.  Jaime would not mourn him.  -  Jaime Lannister
+Last updated: 2024-04-22 11:05:47
+Random Quote: Ted: "Why wouldn't she just come right out and say what she wants?"Marshall: "Men. It's like, if there weren't pickle jars to open and spiders to kill and computers to back up, what would be their point?"Lily: "Mmh-hmm!"Ted: "Okay, when did Marshall become a slightly more feminine you?" - Ted Mosby
