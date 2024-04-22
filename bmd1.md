@@ -1,2 +1,2 @@
-Last updated: 2024-04-22 11:31:42
-Random Quote: He is strong with the Force, but talent without training is nothing. I will give my life to protect the child, but he will not be safe until he masters his abilities. - Luke Skywalker
+Last updated: 2024-04-22 11:32:16
+Random Quote: I feel like you ruined me forever. - Maddy Perez
