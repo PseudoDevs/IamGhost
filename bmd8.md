@@ -1,2 +1,2 @@
-Last updated: 2024-04-22 11:18:22
-Random Quote: You need to figure out what the fuck you want. - Nicky Nichols
+Last updated: 2024-04-22 11:18:56
+Random Quote: Barney: "Fine, we'll just have a nice, tasteful rehearsal dinner. Maybe at a French restaurant, I know just the place."Robin: "What's the name of the restaurant?"Barney: "La Sertag." - Barney Stinson
