@@ -1,2 +1,2 @@
-Last updated: 2024-04-22 11:37:41
-Random Quote: Always keep your foes confused.  If they are never certain who you are or what you want, they cannot know what you are like to do next.  Sometimes the best way to baffle them is to make moves that have no purpose, or even seem to work against you.  Remember that, Sansa, when you come to play the game.  -  Petyr Baelish
+Last updated: 2024-04-22 11:38:17
+Random Quote: Smoking marijuana, eating cheetos, and masturbating do not constitute plans in my book. - Walter White
