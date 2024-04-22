@@ -1,2 +1,2 @@
-Last updated: 2024-04-22 10:54:38
-Random Quote: You sentimentalize property, you can kiss profits goodbye. - Marty Byrde
+Last updated: 2024-04-22 10:55:11
+Random Quote: The World is going to come to an end tonight. Yes think about it. End of the World, Nostradamus, Notre Dame, Fighting Irish, Irish, St. Patrick's Day. This is it Bro. Bro-calypse Now... Bro-Mageddon. - Barney Stinson
