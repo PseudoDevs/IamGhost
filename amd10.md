@@ -1,2 +1,3 @@
-Last updated: 2024-04-22 11:52:00
-Random Quote: Knowledge is a weapon, Jon.  Arm yourself well before you ride forth to battle.  -  Maester Aemon
+Last updated: 2024-04-22 11:53:08
+Random Quote: Lily: "We're going to Atlantic City to elope - right now!"
+Barney: "Oh, congratulations Lily! Marshall, you're getting married? What the hell?" - Barney Stinson
