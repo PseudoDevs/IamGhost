@@ -1,2 +1,2 @@
-Last updated: 2024-04-22 11:44:25
-Random Quote: Remember. Once they find out who you are, you die. - Jang Deok-su
+Last updated: 2024-04-22 11:45:01
+Random Quote: Now you may be asking yourself why is sports icon John McEnroe narrating this tale? It'll make sense later I promise. - John McEnroe
