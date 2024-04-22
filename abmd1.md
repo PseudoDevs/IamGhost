@@ -1,2 +1,2 @@
-Last updated: 2024-04-22 11:06:26
-Random Quote: Will you explain to me how that was offside? No, I'm asking you, seriously. Explain offside to me! It makes no sense. - Rebecca Welton
+Last updated: 2024-04-22 11:07:38
+Random Quote: Heroes are not born, they're forged in darkness. Shaped in battle. Defined by sacrifice. - The Watcher
