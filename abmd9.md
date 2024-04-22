@@ -1,2 +1,2 @@
-Last updated: 2024-04-22 11:24:23
-Random Quote: Ted: "First it was too much eye-contact, then not enough - where do you look during sex?"Barney: "Into the hidden camera at future me, watching it." - Barney Stinson
+Last updated: 2024-04-22 11:24:56
+Random Quote: Whisky's good proofing water. Tells you who's real and who isn't. - Thomas Shelby
