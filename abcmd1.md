@@ -1,2 +1,2 @@
-Last updated: 2024-04-22 11:48:35
-Random Quote: A sorcerer is a wizard without a hat. - Sam Wilson
+Last updated: 2024-04-22 11:50:17
+Random Quote: You are her perfect prince, agreed, bright and bold and comely as any maid could wish.  Daenerys Targaryen is no maid, however.  She is the widow of a Dothraki Khal, a mother of dragons and sacker of cities, Aegon the Conquereror with teats.  She may not prove as willing as you wish.  -  Tyrion Lannister
