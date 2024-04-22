@@ -1,2 +1,2 @@
-Last updated: 2024-04-22 11:47:22
-Random Quote: When I look at something, I don't see it for what it is, I see it for what it could be. When I look at something, I see how it ends. - Miguel Angel Felix Gallardo
+Last updated: 2024-04-22 11:47:57
+Random Quote: Think of me as Yoda - only, instead of being little and green, I wear suits and I'm awesome. I'm your bro. I'm Broda. - Barney Stinson
