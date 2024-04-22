@@ -1,2 +1,2 @@
-Last updated: 2024-04-22 11:50:51
-Random Quote: Ted: "What could she possibly have to say me, that she couldn't write in an email?"Robin: "I've cut out all my fingers?" - Robin Scherbatsky
+Last updated: 2024-04-22 11:51:25
+Random Quote: I didn't realize you were small potatoes. And to be clear, I am referring to your testicles. - Robin Scherbatsky
