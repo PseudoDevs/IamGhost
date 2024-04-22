@@ -1,3 +1,2 @@
-Last updated: 2024-04-22 11:51:58
-Random Quote: Tommy: "I'll have some men watch her house 'til the danger passes."
-Polly: "'Til the danger passes. That'll be the bloody day." - Polly Gray
+Last updated: 2024-04-22 11:52:32
+Random Quote: Lily: "I am gonna have to walk this earth, knowing Barney has touched my boobs."Robin: "Yeah it stays with ya. His e-mail reminders don't help." - Robin Scherbatsky
