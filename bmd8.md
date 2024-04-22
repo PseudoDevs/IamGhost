@@ -1,2 +1,2 @@
-Last updated: 2024-04-22 11:31:15
-Random Quote: It doesn't matter how much you push the envelope, it'll still be stationery. - Will Livingston
+Last updated: 2024-04-22 11:31:48
+Random Quote: Winter will never come for the likes of us.  Should we die in battle, they will surely sing of us, and it's always summer in the songs.  In the songs all knights are gallant, all maids are beautiful, and the sun is always shining.  -  Brienne of Tarth
