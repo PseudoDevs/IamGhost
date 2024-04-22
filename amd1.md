@@ -1,2 +1,2 @@
-Last updated: 2024-04-22 11:12:03
-Random Quote: Sorry, got caught up again. God, do I need to take more Adderall or am I taking too much Adderall? - Rick Sanchez
+Last updated: 2024-04-22 11:12:41
+Random Quote: I mean she just walked out. At least when I walk out on a girl I have the common courtesy to sleep with her first. It's called manners! - Barney Stinson
