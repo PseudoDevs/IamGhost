@@ -1,2 +1,2 @@
-Last updated: 2024-04-22 11:22:05
-Random Quote: Quentyn had never felt so much a boy as when he'd stood before Daenerys Targaryen, pleading for her hand.  The thought of bedding her terrified him almost as much as her dragons had.  -  Quentyn Martell
+Last updated: 2024-04-22 11:22:39
+Random Quote: You have to be as bad as them above in order to survive. - Polly Gray
