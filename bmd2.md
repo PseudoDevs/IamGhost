@@ -1,2 +1,2 @@
-Last updated: 2024-04-22 11:17:10
-Random Quote: Do not tell me you're gonna start searching for "the one" again. The only time I wanna hear you saying "the one", is if it's followed by the word "hundred". - Barney Stinson
+Last updated: 2024-04-22 11:17:49
+Random Quote: When I'm king in my own right, I'm going to outlaw beets.  -  Tommen Baratheon
