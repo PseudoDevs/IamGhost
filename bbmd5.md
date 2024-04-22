@@ -1,4 +1,2 @@
-Last updated: 2024-04-22 11:22:45
-Random Quote: Greef: "Nevarro is a very fine planet. And now that the scum and villainy have been washed away, it's very respectable again."
-Mando: "As a bounty hunter hive?"
-Greef: "Some of my favorite people are bounty hunters." - Greef Karga
+Last updated: 2024-04-22 11:25:46
+Random Quote: I feel like her sobriety is completely dependent on how available I am to her. - Jules Vaughn
