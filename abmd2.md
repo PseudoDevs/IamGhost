@@ -1,2 +1,2 @@
-Last updated: 2024-04-22 11:42:21
-Random Quote: I didn't realize you were small potatoes. And to be clear, I am referring to your testicles. - Robin Scherbatsky
+Last updated: 2024-04-22 11:42:54
+Random Quote: When you date someone, it's like you're taking one long course in who that person is and then, when you break up, all that stuff becomes useless. It's the emotional equivalent of an English degree... - Ted Mosby
