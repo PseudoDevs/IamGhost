@@ -1,2 +1,2 @@
-Last updated: 2024-04-22 11:18:27
-Random Quote: Discouraging premarital sex is against my religion. - Barney Stinson
+Last updated: 2024-04-22 11:19:05
+Random Quote: Quinn: "In the event of divorce, Miss Garvey shall get full custody of Mr. Stinson's suits."Barney: "Why? What would you do with them?"Quinn: "Nothing. I'd just sit around and watch them go out of style." - Quinn Garvey
