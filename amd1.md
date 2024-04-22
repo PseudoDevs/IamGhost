@@ -1,2 +1,2 @@
-Last updated: 2024-04-22 11:28:22
-Random Quote: We just miss our old friend, but right now, you're not her. You just seem lost. - Devi Vishwakumar
+Last updated: 2024-04-22 11:28:57
+Random Quote: Bulls are strong.  Bears.  I have seen my bastard fight.  He is not entirely to blame.  Reek was his tutor, the first Reek, and Reek was never trained at arms.  Ramsay is ferocious, I will grant you, but he swings that sword like a butcher hacking meat.  -  Roose Bolton
