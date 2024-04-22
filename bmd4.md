@@ -1,2 +1,2 @@
-Last updated: 2024-04-22 11:03:08
-Random Quote: No, only a boy who dreams.  The greenseers were more than that.  They were wargs as well, as you are, and the greatest of them could wear the skins of any beast that flies or swims or crawls, and could look through the eyes of the weirwoods as well, and see the truth that lies beneath the world.  -  Jojen Reed
+Last updated: 2024-04-22 11:04:16
+Random Quote: I did it for me. I liked it. I was good at it. And... I was really... I was alive. - Walter White
