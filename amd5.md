@@ -1,2 +1,2 @@
-Last updated: 2024-04-22 11:17:47
-Random Quote: Harry and Meghan, move over! This is what fairy tales are made of. They'd been together for two whole weeks, which for teenagers is basically a lifetime of monogamy. Although between us, it had been a surprisingly PG-13 two weeks. - John McEnroe
+Last updated: 2024-04-22 11:18:24
+Random Quote: Quentyn had never felt so much a boy as when he'd stood before Daenerys Targaryen, pleading for her hand.  The thought of bedding her terrified him almost as much as her dragons had.  -  Quentyn Martell
