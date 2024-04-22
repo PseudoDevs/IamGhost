@@ -1,2 +1,2 @@
-Last updated: 2024-04-22 11:00:39
-Random Quote: By "entertainment" they mean "table-shuffle-board", Makramee classes and other non-stimulating activities which are only used in Manhatten to calm down drug-addicts and the criminaly insane. - Robin Scherbatsky
+Last updated: 2024-04-22 11:01:12
+Random Quote: Rickard Karstark killed more than a Frey and a Lannister.  He killed my honor.  -  Robb Stark
