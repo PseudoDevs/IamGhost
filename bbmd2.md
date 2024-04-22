@@ -1,2 +1,2 @@
-Last updated: 2024-04-22 10:57:07
-Random Quote: All the tales agreed that the green men had strange magic powers.  Maybe they could help him walk again, even turn him into a knight.  They turned the little crannogman into a knight, even if it was only for a day, he thought.  A day would be enough.  -  Bran Stark
+Last updated: 2024-04-22 10:57:40
+Random Quote: All three of you were being a buch of little a-sholes. I was the only reasonable one. - Dustin Henderson
