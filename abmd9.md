@@ -1,2 +1,2 @@
-Last updated: 2024-04-22 11:30:45
-Random Quote: She had seen Bronn fight on the high road; it was no accident that he had survived the journey while other men had died.  He moved like a panther, and that ugly sword of his seemed a part of his arm.  -  Catelyn Stark
+Last updated: 2024-04-22 11:31:20
+Random Quote: I am Maura Franklin. Born in Morefield. Today is October 19th, 1899. I am not crazy. - Maura Franklin
