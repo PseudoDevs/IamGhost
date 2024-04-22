@@ -1,2 +1,2 @@
-Last updated: 2024-04-22 11:28:59
-Random Quote: Dear, in the end, love is what makes us see life in another color, and lately, you have only seen everything black. - Mariví Fuentes
+Last updated: 2024-04-22 11:29:35
+Random Quote: There is only one god, and his name is Death.  And there is only one thing we say to Death: not today.  -  Syrio Forel
