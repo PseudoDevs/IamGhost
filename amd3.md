@@ -1,2 +1,2 @@
-Last updated: 2024-04-22 11:51:25
-Random Quote: I didn't give up on my dream house, because that's the thing about stupid decisions - we all make them, but time is funny and sometimes a little magical. It can take a stupid decision, and turn it into something else entirely. - Ted Mosby
+Last updated: 2024-04-22 11:52:35
+Random Quote: Our secrecy is our survival. our survival is our strength. - The Armorer
