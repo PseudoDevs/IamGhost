@@ -1,2 +1,2 @@
-Last updated: 2024-04-22 11:22:51
-Random Quote: Marshall: "Lily dream-banged someone we know."Barney: "Okay, you caught me vermilion-handed. The truth is, I've spent the last five years trying to inception your wife."Marshall: "That movie only came out two years ago."Barney: "What movie?" - Barney Stinson
+Last updated: 2024-04-22 11:23:24
+Random Quote: "I never win anything.  The gods always smiled on Watt, though.  When the wildlings knocked him off the Bridge of Skulls, somehow he landed in a nice deep pool of water.  How lucky was that, missing all those rocks?"  "Was it a long fall?  Did landing in the pool of water save his life?"  "No.  He was dead already, from that axe in his head.  Still, it was pretty lucky, missing the rocks."  -  Dolorous Edd and Grenn
