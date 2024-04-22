@@ -1,2 +1,2 @@
-Last updated: 2024-04-22 11:06:35
-Random Quote: In his chainmail shirt with a sword in his hand, Gendry looked almost a man grown, and dangerous.  Hot Pie looked like Hot Pie.  -  Arya Stark
+Last updated: 2024-04-22 11:07:43
+Random Quote: You Westerosi are all the same.  You sew some beast upon a scrap of silk, and suddenly you are all lions or dragons or eagles.  -  Illyrio Mopatis
