@@ -1,2 +1,2 @@
-Last updated: 2024-04-22 11:49:55
-Random Quote: Jerry: "I wish that shotgun was my penis."Beth: "If it were, you could call me Ernest Hemingway." - Beth Smith
+Last updated: 2024-04-22 11:51:01
+Random Quote: This is New York City, don't get close to the neighbours. You nod at them politely in the hall, you call the cops if you haven't seen them in a while and you smell something funny and that's it! - Ted Mosby
