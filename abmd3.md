@@ -1,2 +1,2 @@
-Last updated: 2024-04-22 11:13:23
-Random Quote: Why stop at one world, when we can show you all of them? - Yondu Udonta
+Last updated: 2024-04-22 11:14:41
+Random Quote: Obara would make Oldtown our father's funeral pyre, but I am not so greedy.  Four lives will suffice for me.  Lord Tywin's golden twins, as payment for Elia's children.  The old lion, for Elia herself.  And last of all the little king, for my father... only royal blood can wash out my father's murder.  -  Nymeria Sand
