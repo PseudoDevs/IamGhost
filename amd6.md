@@ -1,3 +1,3 @@
-Last updated: 2024-04-22 10:56:10
-Random Quote: Freddie: "You think I can't handle Tommy Shelby?"
-Polly: "You can't. I am having trouble these days and I'm twice the man you are." - Polly Gray
+Last updated: 2024-04-22 10:56:44
+Random Quote: Kids, you can't talk yourself into falling in love. It doesn't take days of deliberation. When it's real, you know pretty quickly and with absolute certainty.
+I had forgotten that, but I was about to be reminded... - Ted Mosby
