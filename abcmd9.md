@@ -1,2 +1,3 @@
-Last updated: 2024-04-22 11:02:51
-Random Quote: The singers of the forest had no books.  No ink, no parchment, no written language.  Instead they had the trees, and the weirwoods above all.  When they died, they went into the wood, into leaf and limb and root, and the trees remembered.  All their songs and spells, their histories and prayers, everything they knew about this world.  Maesters will tell you that the weirwoods are sacred to the old gods.  The singers believe they are the old gods.  When singers die they become part of that godhood.  -  Jojen Reed
+Last updated: 2024-04-22 11:03:26
+Random Quote: Sal: "Does Lily have any other plates? I don't let Sammy eat off this plastic."
+Pepper: "How does she breastfeed him if she doesn't let him near plastic?" - Pepper Saltzman
