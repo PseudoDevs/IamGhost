@@ -1,2 +1,2 @@
-Last updated: 2024-04-22 11:50:51
-Random Quote: Jerry: "I wish that shotgun was my penis."Beth: "If it were, you could call me Ernest Hemingway." - Beth Smith
+Last updated: 2024-04-22 11:51:24
+Random Quote: When things go well, people start thinking it's because they're so fing smart. - Walt Breslin
