@@ -1,2 +1,2 @@
-Last updated: 2024-04-22 11:36:50
-Random Quote: Robert was the true steel.  Stannis is pure iron, black and hard and strong, yes, but brittle, the way iron gets.  He'll break before he bends.  And Renly, that one, he's copper, bright and shiny, pretty to look at but not worth all that much at the end of the day.  -  Donal Noye
+Last updated: 2024-04-22 11:37:23
+Random Quote: Have you been arrested in a mall?Dumped in a mall?Turned out you're Canadian in a mall? - Ted Mosby
