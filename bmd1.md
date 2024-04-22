@@ -1,2 +1,3 @@
-Last updated: 2024-04-22 11:51:24
-Random Quote: The name is Thor, with a "T" and an "R" and an "O" and a "H". But not in that order. - Thor
+Last updated: 2024-04-22 11:51:58
+Random Quote: Tommy: "I'll have some men watch her house 'til the danger passes."
+Polly: "'Til the danger passes. That'll be the bloody day." - Polly Gray
