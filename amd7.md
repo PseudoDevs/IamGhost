@@ -1,2 +1,3 @@
-Last updated: 2024-04-22 11:22:39
-Random Quote: You have to be as bad as them above in order to survive. - Polly Gray
+Last updated: 2024-04-22 11:23:12
+Random Quote: Dragon: "My name is Balthromaw. Breaker of skies, slayer of mountain."
+Rick: "Rule 1: You're now scooper of your own poops, or I will take you down like the black-light poster you are." - Rick Sanchez
