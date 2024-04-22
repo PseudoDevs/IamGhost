@@ -1,2 +1,2 @@
-Last updated: 2024-04-22 11:53:43
-Random Quote: Men of honor will do things for their children that they would never consider doing for themselves.  -  Petyr Baelish
+Last updated: 2024-04-22 11:54:18
+Random Quote: We were king's men, knights, and heroes... but some knights are dark and full of terror, my lady.  War makes monsters of us all.  -  Thoros of Myr
