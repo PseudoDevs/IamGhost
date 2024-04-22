@@ -1,2 +1,2 @@
-Last updated: 2024-04-22 11:12:01
-Random Quote: It's not even the lies that hurt, you know? It's the fact that you're never really emotionally prepared for someone to leave you. - Rue Bennett
+Last updated: 2024-04-22 11:12:37
+Random Quote: Marshall: "It's kind of a big, professional meeting. You might want to trade out that lollipop for a shirt."Ted: "Yeah. I'll just give it to one of these kids."Marshall: "Oh, buddy. You're half naked, you're not a parent to any of these children. Don't offer 'em candy!" - Marshall Eriksen
