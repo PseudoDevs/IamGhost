@@ -1,2 +1,2 @@
-Last updated: 2024-04-22 11:41:59
-Random Quote: You have to be as bad as them above in order to survive. - Polly Gray
+Last updated: 2024-04-22 11:43:13
+Random Quote: Is she worth the pain? A man does not suffer like this for his own glory. There is a fine line between devotion and delusion. Love can break more than your heart. It can shatter your mind. - O-Bengh
