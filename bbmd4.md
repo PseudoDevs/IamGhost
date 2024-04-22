@@ -1,3 +1,2 @@
-Last updated: 2024-04-22 11:15:54
-Random Quote: "I thought Mandalorians were honorable."
-Koska Reeves: "We are, kid. All it takes is a few credits." - Din Djarin
+Last updated: 2024-04-22 11:16:32
+Random Quote: Phil: "What a beautiful dress."Gloria: "Thank you, Phil."Phil: "Oh, okay."Claire: "Phil! She said Phil, not feel!" - Claire Dunphy
