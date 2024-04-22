@@ -1,2 +1,2 @@
-Last updated: 2024-04-22 11:00:59
-Random Quote: You want to know if I was ever really in love with you? Every morning, I wake up wishing I wasn't. You are a constant reminder of what I can't have. A life. Love. You. - Lucien
+Last updated: 2024-04-22 11:01:32
+Random Quote: A dad makes a toilet look like R2-D2 and it breaks the front page of Reddit. But I'm Charles Manson because I gave you your own world instead of an iPad. - Rick Sanchez
