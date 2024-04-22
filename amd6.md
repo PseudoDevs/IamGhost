@@ -1,3 +1,2 @@
-Last updated: 2024-04-22 11:15:16
-Random Quote: George: "I love what you done with the place. Did you do it yourself, or did you get some pouf to help ya?"
-Rebecca: "I could ask the same of your hair." - Rebecca Welton
+Last updated: 2024-04-22 11:15:53
+Random Quote: A wolf is not a kraken.  What the kraken grasps it does not lose, be it longship or leviathan.  -  Victarion Greyjoy
