@@ -1,2 +1,2 @@
-Last updated: 2024-04-22 11:37:43
-Random Quote: Do you know how much I make a year? I mean, even if I told you, you wouldn't believe it. - Walter White
+Last updated: 2024-04-22 11:39:33
+Random Quote: Phil: "Little heads up - there's no way I'm not crying at this wedding."Claire: "Phil, you cried on the way here."Phil: "I was on the brink already. I watched 'Dirty Dancing' before we left." - Phil Dunphy
