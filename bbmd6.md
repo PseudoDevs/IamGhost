@@ -1,4 +1,2 @@
-Last updated: 2024-04-22 11:14:57
-Random Quote: Bro McDonald had a farm, E-I-E-I-bro
-And on that farm he had some chicks, E-I-E-I-bro
-With a hot chick here and a dumb chick there... - Barney Stinson
+Last updated: 2024-04-22 11:15:30
+Random Quote: I am not a rich person. I am a poor person with money. - Pablo Escobar
