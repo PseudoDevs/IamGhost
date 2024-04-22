@@ -1,2 +1,2 @@
-Last updated: 2024-04-22 11:12:04
-Random Quote: Nobody takes an intro class to get on any other path, but the path to not being hungover anymore. I learned that in my intro to something-ology class. - Marshall Eriksen
+Last updated: 2024-04-22 11:13:21
+Random Quote: There's nothing more powerful than a fat girl who doesn't give a f. - Kat Hernandez
