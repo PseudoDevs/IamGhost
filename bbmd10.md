@@ -1,2 +1,2 @@
-Last updated: 2024-04-22 10:51:59
-Random Quote: My real father died in King's Landing.  I made a choice, and I chose wrong.  -  Theon Greyjoy
+Last updated: 2024-04-22 10:52:32
+Random Quote: I just want to stand on top of the Wall and piss off the edge of the world.  -  Tyrion Lannister
