@@ -1,2 +1,2 @@
-Last updated: 2024-04-22 11:16:33
-Random Quote: I was pretending to be someone I am not which I should only be doing on stage. - Devi Vishwakumar
+Last updated: 2024-04-22 11:17:49
+Random Quote: I don't care if you're so scared you foul your breeches, and I don't care if a thousand wildlings are coming over the walls howling for your blood, you get those birds off, or I swear I'll hunt you through all seven hells and make you damn sorry that you didn't.  -  Jeor Mormont
