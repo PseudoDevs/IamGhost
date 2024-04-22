@@ -1,2 +1,2 @@
-Last updated: 2024-04-22 11:13:54
-Random Quote: Judy: "Who got Cousin Daphne drunk? She is 15 years old."Robin: "Whoa, they grow big out here."Barney: "And here's your phone number back." - Barney Stinson
+Last updated: 2024-04-22 11:14:28
+Random Quote: Lily, I think we made a mistake moving out to the suburbs. I miss our home. I miss our booth with our friends. And I'm pretty sure I have a drumstick... somewhere bad. - Marshall Eriksen
