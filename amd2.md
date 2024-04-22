@@ -1,2 +1,2 @@
-Last updated: 2024-04-22 11:29:29
-Random Quote: Aunties are older Indian women who have no blood-relation to you. But are allowed to have opinions about your life and all your shortcomings. And you have to be nice to them because you're Indian. - John McEnroe
+Last updated: 2024-04-22 11:30:01
+Random Quote: Any man who steps between a father and his vengeance asks for death.  -  Rickard Karstark
