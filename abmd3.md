@@ -1,2 +1,2 @@
-Last updated: 2024-04-22 11:19:51
-Random Quote: Winter will never come for the likes of us.  Should we die in battle, they will surely sing of us, and it's always summer in the songs.  In the songs all knights are gallant, all maids are beautiful, and the sun is always shining.  -  Brienne of Tarth
+Last updated: 2024-04-22 11:20:24
+Random Quote: Bear Island knows no king save the King in the North, whose name is Stark.  -  Lyanna Mormont
