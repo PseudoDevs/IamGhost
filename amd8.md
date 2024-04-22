@@ -1,2 +1,2 @@
-Last updated: 2024-04-22 11:16:33
-Random Quote: The "no more surprises"-thing is the best part of being married. - Lily Aldrin
+Last updated: 2024-04-22 11:17:47
+Random Quote: I just want to stand on top of the Wall and piss off the edge of the world.  -  Tyrion Lannister
