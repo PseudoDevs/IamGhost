@@ -1,3 +1,2 @@
-Last updated: 2024-04-22 10:50:42
-Random Quote: Grace Burgess: "You think I am a wh-re?"
-Tommy Shelby: "Everyone's a wh-re, Grace. We just sell different parts of ourselves." - Thomas Shelby
+Last updated: 2024-04-22 10:51:15
+Random Quote: That went surprisingly well. You came off like a naive idiot - and naive idiots are not a threat. - Viktor Bryukhanov
