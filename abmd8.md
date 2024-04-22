@@ -1,2 +1,2 @@
-Last updated: 2024-04-22 10:55:45
-Random Quote: Then perhaps Lord Eddard should have kept you chained to a dungeon wall.  Instead he raised you among his own sons, the sweet boys you have butchered, and to my undying shame I trained you in the arts of war.  Would that I had thrust a sword through your belly instead of placing one in your hand.  -  Rodrik Cassel
+Last updated: 2024-04-22 10:56:19
+Random Quote: And at some point you make a choice about who you are and what you want. - Rue Bennett
