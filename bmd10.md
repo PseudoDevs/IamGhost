@@ -1,2 +1,2 @@
-Last updated: 2024-04-22 11:15:34
-Random Quote: Our brain isn't always entirely reliable. Everything that we see and feel and hear are the result of electrical impulses. And sometimes we misinterpret those impulses. It's what makes people go mad. - Maura Franklin
+Last updated: 2024-04-22 11:16:07
+Random Quote: I buried an axe so deep into Willem's skull, they had to bury him with it.  -  Yoren of the Knight's Watch
