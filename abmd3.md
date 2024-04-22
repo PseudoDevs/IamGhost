@@ -1,2 +1,2 @@
-Last updated: 2024-04-22 11:28:47
-Random Quote: The brain drives our thoughts, our behavior. It holds all of the secrets of the universe. There's a whole hidden world inside each of us which only needs to be deciphered. - Maura Franklin
+Last updated: 2024-04-22 11:29:20
+Random Quote: When you spend years thinking about something obsessively, that something is your whole world, your perfect world. - Tokyo
