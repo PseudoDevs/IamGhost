@@ -1,6 +1,2 @@
-Last updated: 2024-04-22 11:01:06
-Random Quote: Polly: "Six."
-John: "Six what?"
-Polly: "Six questions since you walked through that door. Soon you'll have to start being the man with the answers."
-John: "Why?"
-Polly: "Seven." - Polly Gray
+Last updated: 2024-04-22 11:03:26
+Random Quote: Animal instinct. When faced with danger, seek refuge in the herd. - Seong Gi-hun
