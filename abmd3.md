@@ -1,2 +1,2 @@
-Last updated: 2024-04-22 11:10:03
-Random Quote: Journey to face the unknown and ponder the question, "What if...?" - The Watcher
+Last updated: 2024-04-22 11:11:10
+Random Quote: If you mean when will Chernobyl be completly save - the half-life of Plutonium 239 is 24,000 years. Perhaps we should just say, 'not in our lifetimes'. - Valery Legasov
