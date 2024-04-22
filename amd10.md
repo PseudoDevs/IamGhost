@@ -1,2 +1,2 @@
-Last updated: 2024-04-22 10:57:26
-Random Quote: Our country is vulnerable. We need new heroes. - Bucky Barnes
+Last updated: 2024-04-22 10:58:00
+Random Quote: I can teach you history, healing, herblore.  I can teach you the speech of ravens, and how to build a castle, and the way a sailor steers his ship by the stars I can teach you to measure the days and marks the seasons, and at the Citadel in Oldtown they can teach you a thousand things more.  But, Bran, no man can teach you magic.  -  Maester Luwin
