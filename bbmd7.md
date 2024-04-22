@@ -1,4 +1,2 @@
-Last updated: 2024-04-22 11:19:05
-Random Quote: Joel: "I need you to tell us where we are."
-Man: "If you got a map, why you lost?"
-Ellie: "Must've missed all the street signs in the enormous f-cking forest." - Ellie Williams
+Last updated: 2024-04-22 11:21:33
+Random Quote: Marshall: "All pregnant ladies have crazy sex dreams. It's just her hormones going berserk."Barney: "So who's responsible for her rapid thigh movement this time?"Ted: "Oh, my favorite was when she banged George Washington."Barney: "I liked the three-way with Bill Cosby and Papa Smurf."Ted: "Oh, he smurfed the smurf out of her."Marshall: "Yes, while The Cos smurfed off in the corner - we all remember." - Marshall Eriksen

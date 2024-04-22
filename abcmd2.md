@@ -1,2 +1,2 @@
-Last updated: 2024-04-22 11:20:20
-Random Quote: So how do you take down a crook who's at the top of his game? Who has every cop in town in his pocket? Well, you hold your breath and you hope you get lucky. - Walt Breslin
+Last updated: 2024-04-22 11:21:33
+Random Quote: Grief never gets any smaller, so you have to make yourself bigger around it. The best way to do that is to open up. Let people in. - Rendell Locke
