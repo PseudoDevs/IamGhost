@@ -1,2 +1,2 @@
-Last updated: 2024-04-22 10:50:43
-Random Quote: Real love is when you can't exist without someone, when you'd rather die than be apart. And the whole world goes dark and nothing else matters but the person standing in front of you. - Rue Bennett
+Last updated: 2024-04-22 10:51:16
+Random Quote: Of course, nobody I knew in East-Texas in 1989 cared about Newtonian Physics. The only Newtons they cared about were Wayne and Fig. - Sheldon Cooper
