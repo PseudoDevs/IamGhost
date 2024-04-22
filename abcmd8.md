@@ -1,2 +1,3 @@
-Last updated: 2024-04-22 11:17:37
-Random Quote: Ted: "We can do it against the door. It will be hot. It will be like a three-way: you, me and the door."Stella: "Yeah, but then it's going to be weird between me and the door tomorrow." - Stella Zinman
+Last updated: 2024-04-22 11:18:09
+Random Quote: What do I think love is? It's like when someone makes your stomach feel all tight, but floaty at the same time, you know? And your cheeks hurt from smiling. And you smile so much, that people think something's wrong with you.
+...And also fucking. Twenty-four seven, deep-dick, can't-walk-right fucking. - Aleida Diaz
