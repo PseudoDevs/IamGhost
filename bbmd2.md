@@ -1,2 +1,2 @@
-Last updated: 2024-04-22 11:16:13
-Random Quote: Pictures can be twisted and used against you and haunt you forever. - Hannah Baker
+Last updated: 2024-04-22 11:16:46
+Random Quote: This is Hawkins, okay? You wanna know the worst thing that's ever happened here in the four years I've been working here? It was when an owl attacked Eleanor Gillespie's head because it though that her hair was a nest. - Jim Hopper
