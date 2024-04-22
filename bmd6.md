@@ -1,2 +1,5 @@
-Last updated: 2024-04-22 11:38:17
-Random Quote: Smoking marijuana, eating cheetos, and masturbating do not constitute plans in my book. - Walter White
+Last updated: 2024-04-22 11:38:51
+Random Quote: Morty: "I'm dying, Rick!"
+Rick: "People who are really dying don't keep bringing it up."
+Morty: "Is that true?"
+Rick: "I don't know. I'm just usually around people that die faster." - Rick Sanchez
