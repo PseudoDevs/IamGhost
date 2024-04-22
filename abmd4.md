@@ -1,2 +1,2 @@
-Last updated: 2024-04-22 11:07:03
-Random Quote: Too many crazies had my old number, so now I'm all about disposable cell phones. I'll use one for a while, have my fun, then dump it and get a new one. And then I'll do the same with my phone. - Barney Stinson
+Last updated: 2024-04-22 11:08:16
+Random Quote: They are knights now, all three, and your sister has promised them further advancement.  And the eldest, Set Osmund of the Kingsguard, dreams of certain other... favors... as well.  You can match the queen coin for coin, I have no doubt, but she has a second purse that is quite inexhaustible.  -  Varys
