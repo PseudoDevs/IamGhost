@@ -1,2 +1,2 @@
-Last updated: 2024-04-22 11:50:17
-Random Quote: Only when we’ve freed ourselves of emotion can we be truly free. Only when you’re willing to sacrifice what you hold dearest. - Adam
+Last updated: 2024-04-22 11:50:51
+Random Quote: I only have one rule. For every three 10's you bang, throw a bone to a 5. They're grateful and hard working and let's face it, sometimes you just want to lay there. - Barney Stinson
