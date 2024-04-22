@@ -1,2 +1,2 @@
-Last updated: 2024-04-19 15:23:34
-Random Quote: A hall to die in, and men to bury me.  I thank you, my lords... but I spit on your pity... I am a knight... I shall die a knight.  -  Barristan Selmy
+Last updated: 2024-04-22 10:49:41
+Random Quote: The bad guys need to get lucky every time. The good guys just need to get lucky once. - Steve Murphy
