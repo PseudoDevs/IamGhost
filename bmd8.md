@@ -1,2 +1,2 @@
-Last updated: 2024-04-22 10:57:06
-Random Quote: Larry Bloom: "Are we at least gonna talk about other options?"Piper Chapman: "You mean..."Larry Bloom: "It's not Voldemort, you can say it. Abortion." - Larry Bloom
+Last updated: 2024-04-22 10:57:41
+Random Quote: Death is always inevitable. destiny is nothing but the connection between cause and effect. In light, in shadow. - 
