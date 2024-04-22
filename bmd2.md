@@ -1,2 +1,2 @@
-Last updated: 2024-04-22 11:43:49
-Random Quote: Any man who steps between a father and his vengeance asks for death.  -  Rickard Karstark
+Last updated: 2024-04-22 11:44:25
+Random Quote: Rattleshirt, we called him.  Treacherous and bloodthirsty.  If there's honor in him, he hides it down beneath his suit of bones.  -  Jon Snow

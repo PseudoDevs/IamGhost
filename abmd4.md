@@ -1,2 +1,3 @@
-Last updated: 2024-04-22 11:43:48
-Random Quote: Kingthlayer... you are my captifth.  -  Vargo Hoat
+Last updated: 2024-04-22 11:44:25
+Random Quote: Lily: "Swear on the lifes of your unborn boy and girl!"
+Ted: "I swear... on Luke and Leia!" - Ted Mosby
