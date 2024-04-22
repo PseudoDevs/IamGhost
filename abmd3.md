@@ -1,2 +1,2 @@
-Last updated: 2024-04-22 11:22:10
-Random Quote: I will see, and hear, and learn, and when I have I will carry the word back to the Wall.  The wildlings had taken him for an oathbreaker, but in his heart he was still a man of the Night's Watch, doing the last duty that Qhorin Halfhand had laid on him.  Before I killed him.  -  Jon Snow
+Last updated: 2024-04-22 11:22:45
+Random Quote: Ted: "Robin, this show is so dirty, I don't know whether to hug you, or run a shower for you, so you can sit there alone, crying and clenching your knees."Robin: "It's just bad camera work, okay? Wayne, our camera guy - he wasn't that great."Marshall: "I don't know. I think he did a pretty good job, considering he was probably only using one hand." - Marshall Eriksen
