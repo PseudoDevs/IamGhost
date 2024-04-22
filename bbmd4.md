@@ -1,2 +1,2 @@
-Last updated: 2024-04-22 11:04:37
-Random Quote: Never give power to the big man. - Alfie Solomons
+Last updated: 2024-04-22 11:05:50
+Random Quote: We just don't wanna rush anything, okay? We decided to wait, until she decides to let me have sex with her. - Barney Stinson
