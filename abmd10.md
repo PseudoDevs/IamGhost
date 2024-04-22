@@ -1,2 +1,2 @@
-Last updated: 2024-04-22 10:54:44
-Random Quote: Robin: "Barney, I am not ready for them to find out about us."Barney: "Then you're gonna have to stay in there for the entire trilogy. Don't worry, it's only 382 minutes."Robin: "Nerd!" - Robin Scherbatsky
+Last updated: 2024-04-22 10:55:17
+Random Quote: Take the foundling to the city of Calodan on the forest planet Corvus. There, you will find Ahsoka Tano. Tell her you were sent by Bo-Katan. - Bo-Katan
