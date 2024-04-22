@@ -1,2 +1,2 @@
-Last updated: 2024-04-22 11:43:12
-Random Quote: Robin, I'm his best friend, that's a commitment. Girlfriend, that's like a bad flu. Out of your system after a couple of weeks in bed. - Barney Stinson
+Last updated: 2024-04-22 11:43:48
+Random Quote: Kingthlayer... you are my captifth.  -  Vargo Hoat
