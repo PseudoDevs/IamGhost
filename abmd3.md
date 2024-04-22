@@ -1,2 +1,2 @@
-Last updated: 2024-04-22 11:53:20
-Random Quote: I'm growing a child in my belly, a child that just developed ears, and it's a very thin sweater. So, please, if you must tell your story, just make it cheerful. - Lily Aldrin
+Last updated: 2024-04-22 11:53:53
+Random Quote: Summer: "It is a hot photo. I think grief flushes her cheeks. Dad, you hardly put any sirup on."Beth: "Honey, stop raising your father's colesterol so you can take a hot funeral selfie."Summer: "I never get to do anything." - Summer Smith
