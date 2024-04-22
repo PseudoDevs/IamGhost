@@ -1,6 +1,2 @@
-Last updated: 2024-04-22 11:21:11
-Random Quote: You lie to your husband all the time...
-"That shirt looks great on you."
-"I love your mom."
-"I never fantasize about Barney when we're doing it."
-Sound familiar, Pinocchio? - Barney Stinson
+Last updated: 2024-04-22 11:21:44
+Random Quote: Lies are necessary, when the truth is too difficult to believe. - Pablo Escobar
