@@ -1,2 +1,2 @@
-Last updated: 2024-04-22 11:34:35
-Random Quote: What I came to realise is that fear, that’s the worst of it. That’s the real enemy. So, get up, get out in the real world and you kick that bastard as hard you can right in the teeth. - Walter White
+Last updated: 2024-04-22 11:35:14
+Random Quote: We’re wanderers in the darkness. - 
