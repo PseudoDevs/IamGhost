@@ -1,2 +1,2 @@
-Last updated: 2024-04-22 11:14:24
-Random Quote: A true man does what he will, not what he must.  -  Cersei Lannister
+Last updated: 2024-04-22 11:14:57
+Random Quote: Why should I go running to my aunt as if I were a beggar?  My claim is better than her own.  Let her come to me... in Westeros.  -  Aegon Targaryen
