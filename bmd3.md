@@ -1,2 +1,2 @@
-Last updated: 2024-04-22 11:03:42
-Random Quote: A thousand eyes, a hundred skins, wisdom deep as the roots of ancient trees.  Greenseers.  -  Bloodraven
+Last updated: 2024-04-22 11:04:16
+Random Quote: They'll bend the knee or I'll destroy them.  -  Stannis Baratheon
