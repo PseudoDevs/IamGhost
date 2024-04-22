@@ -1,2 +1,2 @@
-Last updated: 2024-04-22 11:18:26
-Random Quote: Ramsay.  Snow, my wife called me before she ate her fingers, but I say Bolton.  -  Ramsay Bolton
+Last updated: 2024-04-22 11:19:04
+Random Quote: Lily: "It's nine weeks 'til the wedding, at this point, I'd say yes to just about anything."Barney: "Well..."Lily: "No, Barney." - Lily Aldrin

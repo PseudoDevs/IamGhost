@@ -1,2 +1,4 @@
-Last updated: 2024-04-22 11:18:27
-Random Quote: Little did I know that I would be stepping into a nightmare full of mystery, mayhem and murder. I think I'm going to love it here. - Wednesday Addams
+Last updated: 2024-04-22 11:19:05
+Random Quote: Joel: "I need you to tell us where we are."
+Man: "If you got a map, why you lost?"
+Ellie: "Must've missed all the street signs in the enormous f-cking forest." - Ellie Williams
