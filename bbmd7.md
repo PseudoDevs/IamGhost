@@ -1,2 +1,2 @@
-Last updated: 2024-04-22 11:49:41
-Random Quote: Lily: "Ted, you did this all yourself?"Ted: "Just like Ryan Gosling in 'The Notebook'. It was pretty manly 'til I mentioned Ryan Gosling in 'The Notebook', huh?" - Ted Mosby
+Last updated: 2024-04-22 11:50:15
+Random Quote: I watched Jane die. I was there. And I watched her die. - Walter White
