@@ -1,2 +1,2 @@
-Last updated: 2024-04-22 11:16:31
-Random Quote: There's chaos in you. Embrace the chaos! - Arthur Harrow
+Last updated: 2024-04-22 11:17:10
+Random Quote: Death is always inevitable. destiny is nothing but the connection between cause and effect. In light, in shadow. - 

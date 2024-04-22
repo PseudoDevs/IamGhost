@@ -1,2 +1,2 @@
-Last updated: 2024-04-22 11:15:55
-Random Quote: Of course, nobody I knew in East-Texas in 1989 cared about Newtonian Physics. The only Newtons they cared about were Wayne and Fig. - Sheldon Cooper
+Last updated: 2024-04-22 11:17:09
+Random Quote: Hey, want to come to my house and play telephone? I got the string, you got the cans. - Barney Stinson

@@ -1,2 +1,2 @@
-Last updated: 2024-04-22 11:14:40
-Random Quote: I don't remember much between the ages of eight and twelve. Just that the world moved fast and my brain moved slow. And every now and then, if I focused too closely on the way I breathed, I'd die. Until every second of every day, you find yourself trying to outrun your anxiety. - Rue Bennett
+Last updated: 2024-04-22 11:17:09
+Random Quote: I'm mature enough to be on my own. Now, if you'll excuse me, I'm gonna Google how to buy a credit card. - Devi Vishwakumar
