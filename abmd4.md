@@ -1,2 +1,2 @@
-Last updated: 2024-04-22 11:27:03
-Random Quote: Want to know what God thinks of money? Take a look at who he gives it to. - Pacho Herrera
+Last updated: 2024-04-22 11:27:41
+Random Quote: Every man's a piece to start with, and every maid as well.  Even some who think they are players.  Cersei, for one.  She thinks herself sly, but in truth she is utterly predictable.  Her strength rests on her beauty, birth, and riches.  Only the first of those is truly her own, and it will soon desert her.  I pity her then.  She wants power, but has no notion what to do with it when she gets it.  -  Petyr Baelish
