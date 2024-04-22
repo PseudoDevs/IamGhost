@@ -1,2 +1,2 @@
-Last updated: 2024-04-22 10:58:49
-Random Quote: I never asked for this crown.  Gold is cold and heavy on the head, but so long as I am the king, I have a duty... if I must sacrifice one child to the flames to save a million from the dark... sacrifice... is never easy, Davos.  Or it is no true sacrifice.  -  Stannis Baratheon
+Last updated: 2024-04-22 10:59:23
+Random Quote: You, Vision, are the piece of the Mind Stone that lives in me. You are a body of wires and blood and bone that I created. You are my sadness and my hope. But mostly, you're my love. - Wanda Maximoff
