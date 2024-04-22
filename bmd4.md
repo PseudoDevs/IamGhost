@@ -1,2 +1,2 @@
-Last updated: 2024-04-22 11:00:50
-Random Quote: There is a tool for every task, and a task for every tool.  -  Tywin Lannister
+Last updated: 2024-04-22 11:02:00
+Random Quote: Money. That's what seperates the haves from the have-nots. But what is money? It's everything if you don't have it, right? - Marty Byrde
