@@ -1,2 +1,2 @@
-Last updated: 2024-04-22 11:18:25
-Random Quote: Sex now, we'll do the foreplay after. - Lily Aldrin
+Last updated: 2024-04-22 11:19:02
+Random Quote: Tell the Crow's Eye he's afraid of kinslaying and he'll murder one of his own sons just to prove you wrong.  -  Asha Greyjoy
