@@ -1,2 +1,2 @@
-Last updated: 2024-04-22 11:37:35
-Random Quote: You have a passing clever father, Devan.  He makes me wish I had more smugglers in my service.  And fewer lords.  -  Stannis Baratheon
+Last updated: 2024-04-22 11:38:08
+Random Quote: People taking power who don't deserve it. It never ends well. - Jérôme
