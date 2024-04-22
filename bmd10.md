@@ -1,2 +1,2 @@
-Last updated: 2024-04-22 10:54:11
-Random Quote: The Drowned God gives every man a gift, even him; no man could piss longer or farther than Aeron Greyjoy, as he proved at every feast.  Once he bet his new longship against a herd of goats that he could quench a hearthfire with no more than his cock.  Aeron feasted on goat for a year, and named the longship Golden Storm, though Balon threatened to hang him from her mast when he heard what sort of ram his brother proposed to mount upon her prow.  -  Aeron Greyjoy
+Last updated: 2024-04-22 10:54:47
+Random Quote: So you're the therapist. You know it's one thing to pretend to be a shrink and bang your patients, that's normal. But to do it for real? Little creepy bro. - Barney Stinson
