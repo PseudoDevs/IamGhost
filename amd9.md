@@ -1,4 +1,2 @@
-Last updated: 2024-04-22 10:57:54
-Random Quote: Jimmy: "I can't believe Wanda and Vision are having a baby."
-Darcy Lewis: "You want any?"
-Jimmy: "Heck, I thought about it for sure. A little Jimmy Woo. Get him a tiny little FBI badge... oh, you... chip? Sure." - Jimmy Woo
+Last updated: 2024-04-22 10:58:27
+Random Quote: What we know is a drop. What we don’t know is an ocean - 
