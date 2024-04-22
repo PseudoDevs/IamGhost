@@ -1,2 +1,2 @@
-Last updated: 2024-04-22 11:15:20
-Random Quote: Barney: "Let me choose your child's middle name! Because I have thought up the most awesome name of all time."Marshall: "What's the middle name?"Barney: "Wait for it."Marshall: "I'm waiting."Barney: "Wait for it."Marshall: "I said I'm waiting."Barney: "Wait for it."Marshall: "What's the middle name?"Barney: "No, the middle name is 'Wait For It'. Let's say his first name is, oh, I don't know, 'Barney'. He'd be Barney 'Wait For It' Eriksen. How awesome is that?" - Barney Stinson
+Last updated: 2024-04-22 11:15:56
+Random Quote: So you're the therapist. You know it's one thing to pretend to be a shrink and bang your patients, that's normal. But to do it for real? Little creepy bro. - Barney Stinson
