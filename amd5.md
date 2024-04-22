@@ -1,2 +1,2 @@
-Last updated: 2024-04-22 11:53:46
-Random Quote: When you date someone, it's like you're taking one long course in who that person is and then, when you break up, all that stuff becomes useless. It's the emotional equivalent of an English degree... - Ted Mosby
+Last updated: 2024-04-22 11:54:22
+Random Quote: It was the white cloak that soiled me, not the other way around.  -  Jaime Lannister

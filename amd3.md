@@ -1,2 +1,2 @@
-Last updated: 2024-04-22 11:53:46
-Random Quote: I am not a rich person. I am a poor person with money. - Pablo Escobar
+Last updated: 2024-04-22 11:54:22
+Random Quote: I am Pablo Emilio Escobar Gaviria. My eyes are everywhere. That means you guys can't move a finger in all of Antioquia without me knowing about it. Do you understand? Not a finger. One day, I'm going to be president of the Republic of Colombia. So look, I make deals for a living. Now, you can stay calm and accept my deal, or accept the consequences. - Pablo Escobar
