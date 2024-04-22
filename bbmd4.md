@@ -1,2 +1,2 @@
-Last updated: 2024-04-22 11:03:27
-Random Quote: I think it would put us at a disadvantage if we just choose one. There's this saying in investing, "Try not to keep your eggs in the same basket." - Cho Sang-woo
+Last updated: 2024-04-22 11:04:02
+Random Quote: A ruler who hides behind paid executioners soon forgets what death is.  -  Eddard Stark
