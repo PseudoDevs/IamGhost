@@ -1,2 +1,2 @@
-Last updated: 2024-04-22 11:33:12
-Random Quote: Baby, can we grow sandwiches behind the garage? - Marshall Eriksen
+Last updated: 2024-04-22 11:33:45
+Random Quote: Birds are lost, messages stolen or sold... there are things I might tell you of that eunuch that would chill your blood...  -  Grand Maester Pycelle
