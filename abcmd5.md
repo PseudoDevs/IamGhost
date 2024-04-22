@@ -1,2 +1,4 @@
-Last updated: 2024-04-22 10:54:07
-Random Quote: There is no creature on earth half so terrifying as a truly just man.  -  Varys
+Last updated: 2024-04-22 10:54:41
+Random Quote: Rick: "Wait a minute! Is that Mountain Dew in my quantum-transport-solution?"
+Morty: "I saw you were marking the level so I had to top it off."
+Rick: "Top it off? Do you know how dangerously toxic this stuff is? And you added it to my portal fluid?" - Rick Sanchez
