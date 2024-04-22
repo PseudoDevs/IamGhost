@@ -1,2 +1,2 @@
-Last updated: 2024-04-22 11:17:32
-Random Quote: Elia Martell, Princess of Dorne.  You raped her!  You murdered her!  You killed her children!  -  Oberyn Martell
+Last updated: 2024-04-22 11:18:05
+Random Quote: When you're younger, everything feels so permanent. But as you get older, you begin to realize nothing is and everyone you love can drift away. - Rue Bennett
