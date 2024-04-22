@@ -1,5 +1,2 @@
-Last updated: 2024-04-22 10:50:42
-Random Quote: Abby: "Do we have to go back this way?"
-Owen: "Consider it an opportunity to work on your fears."
-Abby: "How about I work my foot up your ass?"
-Owen: "Abby, stop flirting!" - Joel Miller
+Last updated: 2024-04-22 10:51:16
+Random Quote: Nerds who aren't good at math?Life is going to be rough boys! - Robin Scherbatsky
