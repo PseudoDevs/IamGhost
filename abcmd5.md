@@ -1,2 +1,2 @@
-Last updated: 2024-04-22 11:40:09
-Random Quote: Weakness is not in us, it is what we have outside. - Professor
+Last updated: 2024-04-22 11:40:46
+Random Quote: Marshall: "I don't care if the dishes aren't done, okay? If you care, you do it."Lily: "Great, then I don't care if you have an orgasm. If you care, you do it." - Lily Aldrin
