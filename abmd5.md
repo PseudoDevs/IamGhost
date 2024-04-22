@@ -1,3 +1,2 @@
-Last updated: 2024-04-22 11:08:55
-Random Quote: Joel: "You got any advice on the best way west?"
-Man: "Yeah. Go east." - Ellie Williams
+Last updated: 2024-04-22 11:09:32
+Random Quote: I guess we all have things we try to hide. But they can't stay hidden forever. - Hannah Baker
