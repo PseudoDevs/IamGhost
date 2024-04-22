@@ -1,3 +1,2 @@
-Last updated: 2024-04-22 10:57:07
-Random Quote: Jessica: "I miss you."
-Morty: "You miss the old me. You miss someone that loved you so much, you never had to love him back." - Morty Smith
+Last updated: 2024-04-22 10:57:41
+Random Quote: You think you're the only one he whispers secrets to?  He gives each of us just enough to convince us that we'd be helpless without him.  -  Cersei Lannister
