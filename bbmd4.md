@@ -1,2 +1,4 @@
-Last updated: 2024-04-22 10:50:17
-Random Quote: Lily: "That's Dirty Dancing!"Ted: "It was on last night."Marshall: "No, it was two nights ago. 'She's Like the Wind' has been stuck in my brain for about 40 hours. I just got it out; now it's back in. Damn you, Swayze!" - Marshall Eriksen
+Last updated: 2024-04-22 10:50:50
+Random Quote: Rick: "F you, Summer! And f the government. And f me for letting my car down, which I will never do again."
+Morty: "Jeez, Rick. You can't say FU to your grand-daughter!"
+Rick: "I just did, Morty. Here's dessert: F you!" - Rick Sanchez
