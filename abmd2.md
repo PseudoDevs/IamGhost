@@ -1,2 +1,2 @@
-Last updated: 2024-04-22 10:58:00
-Random Quote: Think of me as Yoda - only, instead of being little and green, I wear suits and I'm awesome. I'm your bro. I'm Broda. - Barney Stinson
+Last updated: 2024-04-22 10:58:33
+Random Quote: Morty: "Why don't you admit you don't want anyone else to be happy because you're a sad old fart?"Rick: "How do you saddle a fart?" - Rick Sanchez
