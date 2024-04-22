@@ -1,2 +1,2 @@
-Last updated: 2024-04-22 11:11:15
-Random Quote: You want to rule?  This is what ruling is; lying on a bed of weeds, ripping them out by the root, one by one, before they strangle you in your sleep.  -  Cersei Lannister
+Last updated: 2024-04-22 11:11:48
+Random Quote: When life gives you lemonade, make lemons. Life will be all like, "What?!" - Phil Dunphy
