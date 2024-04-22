@@ -1,2 +1,2 @@
-Last updated: 2024-04-22 11:35:51
-Random Quote: Ted, every little boy wants to grow up to nail the doctor, or the lawyer. Somebody's gotta nail the receptionist. - Barney Stinson
+Last updated: 2024-04-22 11:36:29
+Random Quote: In the United States, the Mafia makes witnesses disappear so they can't testify in court. In Colombia, Pablo Escobar made the whole court disappear. - Steve Murphy
