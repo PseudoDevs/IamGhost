@@ -1,2 +1,2 @@
-Last updated: 2024-04-22 11:02:39
-Random Quote: People are making apocalypse jokes like there's no tomorrow. - Will Livingston
+Last updated: 2024-04-22 11:03:12
+Random Quote: Grey Wind ate two of his fingers, and he laughed about it.  -  Robb Stark on Greatjon Umber
