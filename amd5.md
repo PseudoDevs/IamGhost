@@ -1,2 +1,2 @@
-Last updated: 2024-04-22 11:00:39
-Random Quote: All men are fools, if truth be told, but the ones in motley are more amusing than the ones with crowns.  -  Olenna Tyrell
+Last updated: 2024-04-22 11:01:12
+Random Quote: Red Rahloo means nothing here  You will only make the old gods angry.  They are watching from their island.  -  Hugo Wull
