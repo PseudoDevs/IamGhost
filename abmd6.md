@@ -1,3 +1,2 @@
-Last updated: 2024-04-22 11:45:36
-Random Quote: Enid Sinclair: "Want to take a stab at being social?"
-Wednesday: "I do like stabbing. The social part, not so much." - Wednesday Addams
+Last updated: 2024-04-22 11:46:47
+Random Quote: Why is it always the innocents who suffer most, when you high lords play your game of thrones?  -  Varys
