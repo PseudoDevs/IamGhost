@@ -1,2 +1,2 @@
-Last updated: 2024-04-22 11:37:05
-Random Quote: Do you still trust people? Even after what you've been through? - Oh Il-nam
+Last updated: 2024-04-22 11:37:41
+Random Quote: Always keep your foes confused.  If they are never certain who you are or what you want, they cannot know what you are like to do next.  Sometimes the best way to baffle them is to make moves that have no purpose, or even seem to work against you.  Remember that, Sansa, when you come to play the game.  -  Petyr Baelish

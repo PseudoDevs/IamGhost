@@ -1,2 +1,2 @@
-Last updated: 2024-04-22 11:37:05
-Random Quote: "I never win anything.  The gods always smiled on Watt, though.  When the wildlings knocked him off the Bridge of Skulls, somehow he landed in a nice deep pool of water.  How lucky was that, missing all those rocks?"  "Was it a long fall?  Did landing in the pool of water save his life?"  "No.  He was dead already, from that axe in his head.  Still, it was pretty lucky, missing the rocks."  -  Dolorous Edd and Grenn
+Last updated: 2024-04-22 11:37:41
+Random Quote: I was a better smuggler than a knight, he had written to his wife, a better knight than a King's hand, a better King's hand than a husband.  I am so sorry Marya, I have loved you.  Please forgive the wrongs I did you.  -  Davos Seaworth
