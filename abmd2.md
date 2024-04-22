@@ -1,3 +1,2 @@
-Last updated: 2024-04-22 11:11:26
-Random Quote: Joel: "You got any advice on the best way west?"
-Man: "Yeah. Go east." - Ellie Williams
+Last updated: 2024-04-22 11:14:41
+Random Quote: You see, ladies? When you're out with a Blinder, you don't have to queue. - Arthur Shelby
