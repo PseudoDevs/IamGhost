@@ -1,2 +1,2 @@
-Last updated: 2024-04-22 11:40:31
-Random Quote: Think of me as Yoda - only, instead of being little and green, I wear suits and I'm awesome. I'm your bro. I'm Broda. - Barney Stinson
+Last updated: 2024-04-22 11:41:04
+Random Quote: I'm KFC baby - you don't mess with the Colonel's recipe! - Barney Stinson
