@@ -1,3 +1,2 @@
-Last updated: 2024-04-22 10:50:06
-Random Quote: What's in the box? What's in the box? WHAT'S IN THE BOX?
-Right? Brad pitt? Seven? - Robin Scherbatsky
+Last updated: 2024-04-22 10:50:39
+Random Quote: Many good men have been bad kings, and some bad men have been good kings.  -  Maester Aemon
