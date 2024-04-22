@@ -1,2 +1,2 @@
-Last updated: 2024-04-22 11:34:32
-Random Quote: Never trust a pirate. - Din Djarin
+Last updated: 2024-04-22 11:35:09
+Random Quote: Lord Varys, sometimes I feel as though you are the best friend I have in King's Landing and sometimes I feel you are my worst enemy.  -  Tyrion Lannister
