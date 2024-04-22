@@ -1,2 +1,2 @@
-Last updated: 2024-04-22 10:50:17
-Random Quote: Having just any boyfriend, no matter who he is, is not going to make you happier or change who you are. - Fabiola Torres
+Last updated: 2024-04-22 10:50:50
+Random Quote: So young.  Though mayhaps this was a blessing.  Had he lived, he would have grown up to be a Frey.  -  Wyman Manderly
