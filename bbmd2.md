@@ -1,4 +1,3 @@
-Last updated: 2024-04-22 11:52:40
-Random Quote: Tony Stark: "Lieutenant Killmonger? What is that? German?"
-Killmonger: "A nickname."
-Tony Stark: "That's clearly a good fit." - Killmonger
+Last updated: 2024-04-22 11:53:14
+Random Quote: Tommy: "I'll have some men watch her house 'til the danger passes."
+Polly: "'Til the danger passes. That'll be the bloody day." - Polly Gray
