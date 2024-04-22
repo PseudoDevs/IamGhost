@@ -1,2 +1,2 @@
-Last updated: 2024-04-22 10:59:29
-Random Quote: Discouraging premarital sex is against my religion. - Barney Stinson
+Last updated: 2024-04-22 11:00:02
+Random Quote: I've lost a hand, a father, a son, a sister, and a lover, and soon enough I will lose a brother.  And yet they keep telling me House Lannister has won this war.  -  Jaime Lannister
