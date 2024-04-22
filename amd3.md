@@ -1,3 +1,2 @@
-Last updated: 2024-04-22 11:17:10
-Random Quote: Elliot: "I'm not sure it's a good thing we met."
-Rue: "What are you talking about? You're my new favorite person." - Rue Bennett
+Last updated: 2024-04-22 11:20:57
+Random Quote: The frightened child who sheltered in my manse died on the Dothraki Sea, and was reborn in blood and fire.  This dragon queen who wears her name is a true Targaryen.  -  Illyrio Mopatis
