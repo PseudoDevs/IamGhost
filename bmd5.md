@@ -1,2 +1,2 @@
-Last updated: 2024-04-22 11:00:10
-Random Quote: You ever touch me again, I will burn your eyes out! - Starlight
+Last updated: 2024-04-22 11:00:43
+Random Quote: I've lost a hand, a father, a son, a sister, and a lover, and soon enough I will lose a brother.  And yet they keep telling me House Lannister has won this war.  -  Jaime Lannister
