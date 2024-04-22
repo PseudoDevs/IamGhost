@@ -1,2 +1,2 @@
-Last updated: 2024-04-22 10:52:33
-Random Quote: You'd have been the last lawyer I'd have gone to. - Walter White
+Last updated: 2024-04-22 10:53:07
+Random Quote: Freeways have exits, so do relationships. The first exit, my personal favourite, is six hours in: You meet, you talk, you have sex, you exit when she's in the shower. - Barney Stinson
