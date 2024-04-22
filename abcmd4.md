@@ -1,2 +1,2 @@
-Last updated: 2024-04-22 10:57:02
-Random Quote: So you're mining stuff to craft with and crafting stuff to mine with? Did your dad write this game? - Rick Sanchez
+Last updated: 2024-04-22 10:57:35
+Random Quote: Robert was the true steel.  Stannis is pure iron, black and hard and strong, yes, but brittle, the way iron gets.  He'll break before he bends.  And Renly, that one, he's copper, bright and shiny, pretty to look at but not worth all that much at the end of the day.  -  Donal Noye
