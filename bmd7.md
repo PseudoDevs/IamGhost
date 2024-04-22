@@ -1,2 +1,2 @@
-Last updated: 2024-04-19 15:20:19
-Random Quote: Past a certain point, all the dates grow hazy and confused, and the clarity of history becomes the fog of legend.  -  Hoster Blackwood
+Last updated: 2024-04-22 10:49:40
+Random Quote: I'll have to take a page from Robert's book, not that he ever read one.  -  Stannis Baratheon
