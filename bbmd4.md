@@ -1,2 +1,2 @@
-Last updated: 2024-04-22 11:28:49
-Random Quote: Robin, I'm his best friend, that's a commitment. Girlfriend, that's like a bad flu. Out of your system after a couple of weeks in bed. - Barney Stinson
+Last updated: 2024-04-22 11:29:22
+Random Quote: He would have killed me but for Howland Reed.  -  Eddard Stark
