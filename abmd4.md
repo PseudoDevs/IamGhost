@@ -1,2 +1,2 @@
-Last updated: 2024-04-22 10:59:06
-Random Quote: So roll me further bitch! - Jesse Pinkman
+Last updated: 2024-04-22 10:59:39
+Random Quote: It's not Aerys I rue, it's Robert... Why is it no one names Robert oathbreaker?  He tore the realm apart, yet I am the one with shit for honor.  -  Jaime Lannister
