@@ -1,2 +1,2 @@
-Last updated: 2024-04-22 10:56:32
-Random Quote: Ted: "She was 15?!"Barney: "No. A 15. Like in blackjack."Ted: "As in.. not sure whether you'd hit it?"Barney: "Exactly!" - Barney Stinson
+Last updated: 2024-04-22 10:57:07
+Random Quote: People taking power who don't deserve it. It never ends well. - Jérôme
