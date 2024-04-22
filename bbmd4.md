@@ -1,2 +1,2 @@
-Last updated: 2024-04-22 11:39:33
-Random Quote: Phil: "Little heads up - there's no way I'm not crying at this wedding."Claire: "Phil, you cried on the way here."Phil: "I was on the brink already. I watched 'Dirty Dancing' before we left." - Phil Dunphy
+Last updated: 2024-04-22 11:40:46
+Random Quote: Bulls are strong.  Bears.  I have seen my bastard fight.  He is not entirely to blame.  Reek was his tutor, the first Reek, and Reek was never trained at arms.  Ramsay is ferocious, I will grant you, but he swings that sword like a butcher hacking meat.  -  Roose Bolton
