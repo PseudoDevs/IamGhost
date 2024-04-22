@@ -1,2 +1,2 @@
-Last updated: 2024-04-22 10:53:30
-Random Quote: A hall to die in, and men to bury me.  I thank you, my lords... but I spit on your pity... I am a knight... I shall die a knight.  -  Barristan Selmy
+Last updated: 2024-04-22 10:54:03
+Random Quote: I'm also pleased to announce The Bro Code is now available in select airlines across the country. And Lufthansa. 'Der Bro Code' is, like, huge in Germany. - Barney Stinson
