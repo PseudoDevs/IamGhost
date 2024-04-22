@@ -1,3 +1,2 @@
-Last updated: 2024-04-22 11:08:49
-Random Quote: Jerry: "Why Florida?"
-Cat: "Because they don't ask questions. They play Volleyball, they party and they have fun." - Rick and Morty
+Last updated: 2024-04-22 11:09:22
+Random Quote: Free folk don't follow names, or little cloth animals sewn on a tunic.  They won't dance for coins, they don't care how you style yourself or what that chain of office means or who your grandsire was.  They follow strength.  They follow the man.  -  Mance Rayder
