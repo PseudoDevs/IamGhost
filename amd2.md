@@ -1,2 +1,2 @@
-Last updated: 2024-04-22 11:53:45
-Random Quote: If I now change my past, I will change who I am right now - The Stranger
+Last updated: 2024-04-22 11:54:20
+Random Quote: Old gods or new, it makes no matter, no man is so accursed as the kinslayer.  -  Rickard Karstark
