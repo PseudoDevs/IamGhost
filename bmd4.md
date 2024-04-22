@@ -1,2 +1,2 @@
-Last updated: 2024-04-22 11:40:53
-Random Quote: I think it passing odd that I am loved by one for a kindness I never did, and reviled by so many for my finest act.  -  Jaime Lannister
+Last updated: 2024-04-22 11:41:26
+Random Quote: My real father died in King's Landing.  I made a choice, and I chose wrong.  -  Theon Greyjoy

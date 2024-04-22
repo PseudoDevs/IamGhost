@@ -1,2 +1,2 @@
-Last updated: 2024-04-22 11:40:53
-Random Quote: Robin: "What? I am not keeping Mike on a hook!"Ted: "You are Captain Hook!"Robin: "Dude, I'm a girl, ok? Our girl parts are like a spider webs; sometimes you are gonna catch stuff you don't want." - Robin Scherbatsky
+Last updated: 2024-04-22 11:41:26
+Random Quote: Robin: "I'm pregnant."Barney: "Are you sure you're not just getting fat?" - Barney Stinson
