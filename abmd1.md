@@ -1,3 +1,2 @@
-Last updated: 2024-04-22 11:45:01
-Random Quote: Dragon: "My name is Balthromaw. Breaker of skies, slayer of mountain."
-Rick: "Rule 1: You're now scooper of your own poops, or I will take you down like the black-light poster you are." - Rick Sanchez
+Last updated: 2024-04-22 11:45:36
+Random Quote: Science fact: Sisters are the worst. - Sheldon
