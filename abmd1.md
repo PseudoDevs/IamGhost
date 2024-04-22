@@ -1,2 +1,3 @@
-Last updated: 2024-04-22 10:50:05
-Random Quote: In this world, everything is governed by balance. There’s what you stand to gain and what you stand to lose. And when you think you’ve got nothing to lose, you become overconfident - Professor
+Last updated: 2024-04-22 10:50:38
+Random Quote: HR: "I know this is classic HR to say, but: You're not alone."
+Steven: "Yeah. That's like, part of the problem, innit?" - Arthur Harrow
