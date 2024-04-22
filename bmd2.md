@@ -1,2 +1,2 @@
-Last updated: 2024-04-22 11:33:16
-Random Quote: Women aren't soldiers, and they sure as hell don't fight on the front lines. They might break a nail. - John Flynn
+Last updated: 2024-04-22 11:33:52
+Random Quote: Young or old, a true knight is sworn to protect those who are weaker than himself, or die in the attempt.  -  Brienne of Tarth
