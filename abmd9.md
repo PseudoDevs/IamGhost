@@ -1,2 +1,2 @@
-Last updated: 2024-04-22 11:15:30
-Random Quote: You want to rule?  This is what ruling is; lying on a bed of weeds, ripping them out by the root, one by one, before they strangle you in your sleep.  -  Cersei Lannister
+Last updated: 2024-04-22 11:16:03
+Random Quote: I've been dreaming of that since I was five. Well, that and my own operational Death Star. - Barney Stinson
