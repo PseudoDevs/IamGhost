@@ -1,2 +1,2 @@
-Last updated: 2024-04-22 11:11:43
-Random Quote: Lord Wyman is not the only one who lost kin at your Red Wedding, Frey.  Do you imagine Whoresbane loves you any better?  If you did not hold the Greatjon, he would pull out your entrails and make you eat them, as Lady Hornwood ate her fingers.  Flints, Cerwyns, Tallharts, Slates... they all had men with the Young Wolf.  The North remembers, Frey.  -  Barbrey Dustin
+Last updated: 2024-04-22 11:12:16
+Random Quote: There is one difference between you and me: I'm not saying any of this to get in your pants. - How I Met Your Mother
