@@ -1,2 +1,2 @@
-Last updated: 2024-04-22 11:49:08
-Random Quote: Colombians say, God made our land so beautiful it was unfair to the rest of the world. So to even the score, God populated the land with a race of evil men. - C� sar Gaviria
+Last updated: 2024-04-22 11:49:42
+Random Quote: And there's this other band, led by this woman Stoneheart... Lord Beric's lover, according to one tale.  Supposedly she was hanged by the Freys, but Dondarrion kissed her and brought her back to life, and now she cannot die, no more than he.  -  Set Hyle Hunt
