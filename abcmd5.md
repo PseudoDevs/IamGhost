@@ -1,2 +1,3 @@
-Last updated: 2024-04-22 11:46:11
-Random Quote: You gotta move...The fuck...On! - Gloria Mendoza
+Last updated: 2024-04-22 11:46:46
+Random Quote: Summer: "I think it's in our best interest to work as a team."
+Morty: "Yeah, most people would call that 'family'." - Morty Smith
