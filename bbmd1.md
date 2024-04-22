@@ -1,2 +1,2 @@
-Last updated: 2024-04-22 11:03:45
-Random Quote: I am the Greyjoy, Lord Reaper of Pyke, King of Salt and Rock, Son of the Sea Wind, and no man gives me a crown.  I pay the iron price.  I will take my crown, as Urron Redhand did five thousand years ago.  -  Balon Greyjoy
+Last updated: 2024-04-22 11:04:18
+Random Quote: If I got serious with Nora, it would be like if Mother Teresa focused all her attention on one really hot orphan. With great penis comes great responsibility. - Barney Stinson

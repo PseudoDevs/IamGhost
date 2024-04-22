@@ -1,2 +1,2 @@
-Last updated: 2024-04-22 11:03:45
-Random Quote: Not all final girls make it to the end by fighting the monster. Some of them hide. They stay quiet when their family needs them. They're not waiting for their moment. They don't even know if another moment's coming. They just close their eyes and wait for it to be over. Truth is, some final girls are cowards. - Kinsey Locke
+Last updated: 2024-04-22 11:04:19
+Random Quote: So you're the therapist. You know it's one thing to pretend to be a shrink and bang your patients, that's normal. But to do it for real? Little creepy bro. - Barney Stinson
