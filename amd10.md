@@ -1,3 +1,2 @@
-Last updated: 2024-04-22 11:03:03
-Random Quote: Kids, you can't talk yourself into falling in love. It doesn't take days of deliberation. When it's real, you know pretty quickly and with absolute certainty.
-I had forgotten that, but I was about to be reminded... - Ted Mosby
+Last updated: 2024-04-22 11:03:36
+Random Quote: Never bring a knife to a sword fight. Unless it's concealed. - Wednesday Addams
