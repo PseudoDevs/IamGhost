@@ -1,2 +1,2 @@
-Last updated: 2024-04-22 10:59:14
-Random Quote: Alex: "Luke got his head stuck in the banister again."Phil: "I got it. Where's the babyoil?"Claire: "It's on our bedside tip- I Don't know, find it!" - Claire Dunphy
+Last updated: 2024-04-22 10:59:47
+Random Quote: You can never tell with men. They go for whoever their dcks point at and there's no changing their minds. - Polly Gray
