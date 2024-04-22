@@ -1,2 +1,5 @@
-Last updated: 2024-04-22 10:57:06
-Random Quote: The Universe is Random. Not Inevitable. It's simple Chaos. - Walter White
+Last updated: 2024-04-22 10:58:15
+Random Quote: Abby: "Do we have to go back this way?"
+Owen: "Consider it an opportunity to work on your fears."
+Abby: "How about I work my foot up your ass?"
+Owen: "Abby, stop flirting!" - Joel Miller
