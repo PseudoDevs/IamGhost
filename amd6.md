@@ -1,2 +1,2 @@
-Last updated: 2024-04-22 11:41:11
-Random Quote: Larry Bloom: "Piper, you put a pee stick in my rinsing cup."Piper Chapman: "Well, you put your pee stick in my vagina. And that's why we're in this situation." - Piper Chapman
+Last updated: 2024-04-22 11:41:44
+Random Quote: Our power comes from the perception of our power. - Mikhail Gorbachev
