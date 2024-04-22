@@ -1,3 +1,2 @@
-Last updated: 2024-04-22 11:48:32
-Random Quote: "How do you take your tea?"
-Ted: "Well, normally right back to the counter because there's been a terrible mistake." - Jim Hopper
+Last updated: 2024-04-22 11:49:07
+Random Quote: This little bogwing is what all the fuss was about. What a precious little creature! I can see why you didn't want to harm a hair on its wrinkled little head. - Greef Karga
