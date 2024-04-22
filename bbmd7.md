@@ -1,2 +1,2 @@
-Last updated: 2024-04-22 11:37:06
-Random Quote: If you don't think there's hope for the world, why bother going on? - Ellie Williams
+Last updated: 2024-04-22 11:37:43
+Random Quote: Ted: "You're not gonna do it at your wedding?"Lily: "Hell, yeah! I'm gonna take that flower-grenade and chuck it to the crowd and scream, 'Crawl for it, bitches!'" - Lily Aldrin
