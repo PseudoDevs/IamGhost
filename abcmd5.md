@@ -1,2 +1,3 @@
-Last updated: 2024-04-22 11:28:10
-Random Quote: When the sun has set, no candle can replace it.  -  Loras Tyrell
+Last updated: 2024-04-22 11:28:43
+Random Quote: Morticia: "That boy's family was going to file attempted murder charges. How would that have looked on your record?"
+Wednesday: "Terrible. Everyone would know I failed to get the job done." - Wednesday Addams
