@@ -1,2 +1,2 @@
-Last updated: 2024-04-22 10:53:34
-Random Quote: Robert... he is in my dreams as well.  Laughing.  Drinking.  Boasting.  Those were the things he was best at.  Those, and fighting.  I never bested him at anything.  -  Stannis Baratheon
+Last updated: 2024-04-22 10:54:07
+Random Quote: There is no creature on earth half so terrifying as a truly just man.  -  Varys
