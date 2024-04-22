@@ -1,2 +1,2 @@
-Last updated: 2024-04-22 10:55:17
-Random Quote: There's kids playing hockey in the back. It's like you want us to make fun of you! - Barney Stinson
+Last updated: 2024-04-22 10:55:51
+Random Quote: This is Hawkins, okay? You wanna know the worst thing that's ever happened here in the four years I've been working here? It was when an owl attacked Eleanor Gillespie's head because it though that her hair was a nest. - Jim Hopper
