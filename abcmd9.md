@@ -1,3 +1,2 @@
-Last updated: 2024-04-22 11:01:06
-Random Quote: "Crutch down and bend over a little bit."
-Barney: "Wow, It took five shots of tequila to have you in that position." - Barney Stinson
+Last updated: 2024-04-22 11:01:40
+Random Quote: You know how they say 'it's been a pleasure'? Well... it hasn't. - Mike Ehrmantraut
