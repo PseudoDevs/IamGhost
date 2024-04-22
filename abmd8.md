@@ -1,2 +1,2 @@
-Last updated: 2024-04-22 11:07:37
-Random Quote: Marshall: "When a woman puts on an engagement ring, it's like when Bilbo Baggins wears the One Ring in The Hobbit."Robin: "Okay, can you say that again, but not in nerd?"Marshall: "Sure. Uh, the ring is like the cloak that Harry Potter wears to sneak around Hogwarts."Robin: "Yeah, I don't speak virgin either." - Robin Scherbatsky
+Last updated: 2024-04-22 11:08:52
+Random Quote: Words are wind, and the only good wind is that which fills our sails.  -  Victarion Greyjoy
