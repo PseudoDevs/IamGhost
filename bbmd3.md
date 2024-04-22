@@ -1,2 +1,2 @@
-Last updated: 2024-04-22 11:10:49
-Random Quote: You're like Hitler! But even Hitler cared about Germany or something. - Morty Smith
+Last updated: 2024-04-22 11:11:26
+Random Quote: Do you know what it is like to be sold, squire?  I do.  My brother sold me to Khal Drogo for the promise of a golden crown.  Well, Drogo crowned him in gold, though not as he had wished, and I... my sun - and
