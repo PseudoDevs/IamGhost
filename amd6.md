@@ -1,5 +1,2 @@
-Last updated: 2024-04-22 11:23:56
-Random Quote: Marshall: "What the hell happened?"
-Barney: "I said no questions asked."
-Marshall: "Star, clover, horseshoe... Barney, did you swallow real versions of all the Lucky Charms items?"
-Barney: "No questions asked! Now come on. Let's hit the bar. I'm buying. I just won 50 bucks from a little Irish guy on a dare." - Barney Stinson
+Last updated: 2024-04-22 11:24:32
+Random Quote: The children are gone from the world, and their wisdom with them.  It had to do with the faces in the trees, we think.  The First Men believed that the greenseers could see through the eyes of the weirwoods.  That was why they cut down the trees whenever they warred upon the children.  Supposedly the greenseers also had the power over the beasts of the wood and the birds in the trees.  Even fish.  -  Maester Luwin
