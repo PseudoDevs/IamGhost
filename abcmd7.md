@@ -1,2 +1,2 @@
-Last updated: 2024-04-22 11:32:00
-Random Quote: Robert was never the same after he put on that crown.  Some men are like swords, made for fighting.  Hang them up and they go to rust.  -  Donal Noye
+Last updated: 2024-04-22 11:32:38
+Random Quote: Did Need Stark dress you like that?  Was it his pleasure to garb you in velvets and silks and make you his own sweet daughter?  -  Balon Greyjoy
