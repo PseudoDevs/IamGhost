@@ -1,2 +1,3 @@
-Last updated: 2024-04-22 11:23:57
-Random Quote: Do you think I can't tell Lord Stannis from Lord Tywin?  They're both bungholes who think they're too noble to shit, but never mind about that, I know the difference.  -  Walder Frey
+Last updated: 2024-04-22 11:24:34
+Random Quote: Grace: "I had the phone put in. It's in the back."
+Tommy: "If we knew someone else who had a phone, we could call them." - Thomas Shelby
