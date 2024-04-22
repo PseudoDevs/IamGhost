@@ -1,2 +1,2 @@
-Last updated: 2024-04-19 15:23:37
-Random Quote: It's only once you've stopped, that you realize how hard it is to start again. So you force yourself not to want it. - Ted Mosby
+Last updated: 2024-04-22 10:49:40
+Random Quote: It's not even the lies that hurt, you know? It's the fact that you're never really emotionally prepared for someone to leave you. - Rue Bennett
