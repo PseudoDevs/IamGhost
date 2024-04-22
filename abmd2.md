@@ -1,2 +1,2 @@
-Last updated: 2024-04-22 11:29:34
-Random Quote: Quinn: "In the event of divorce, Miss Garvey shall get full custody of Mr. Stinson's suits."Barney: "Why? What would you do with them?"Quinn: "Nothing. I'd just sit around and watch them go out of style." - Quinn Garvey
+Last updated: 2024-04-22 11:30:11
+Random Quote: Ted: "I hate how you're always right."Lily: "It's my best, and most annoying, trait." - Lily Aldrin
