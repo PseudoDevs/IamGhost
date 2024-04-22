@@ -1,2 +1,2 @@
-Last updated: 2024-04-22 10:55:45
-Random Quote: You're like Hitler! But even Hitler cared about Germany or something. - Morty Smith
+Last updated: 2024-04-22 10:56:53
+Random Quote: Fool's blood, king's blood, blood on the maiden's thigh, but chains for the guests and chains for the bridegroom, aye aye aye.  -  Patchface
