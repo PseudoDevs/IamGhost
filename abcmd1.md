@@ -1,2 +1,2 @@
-Last updated: 2024-04-22 11:41:56
-Random Quote: You think you've lost everything? You have no idea! - Kim Wexler
+Last updated: 2024-04-22 11:42:31
+Random Quote: Gustavo. When I looked into your eyes... hate. A little bit's okay. As long as you never forget who's boss. - Don Eladio
