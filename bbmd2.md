@@ -1,2 +1,2 @@
-Last updated: 2024-04-22 11:09:40
-Random Quote: Marshall: "I don't care if the dishes aren't done, okay? If you care, you do it."Lily: "Great, then I don't care if you have an orgasm. If you care, you do it." - Lily Aldrin
+Last updated: 2024-04-22 11:10:13
+Random Quote: The men of Westeros are ever rushing.  What good is this, I ask you?  He who hurries through life hurries to his grave.  -  Salladhor Saan
