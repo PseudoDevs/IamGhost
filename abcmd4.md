@@ -1,2 +1,3 @@
-Last updated: 2024-04-22 10:55:55
-Random Quote: Oberyn wanted vengeance for Elia.  Now the three of you want vengeance for him.  I have four daughters, I remind you.  Your sisters.  My Elia is fourteen, almost a woman.  Obella is twelve, on the brink of maiden - hood.  They worship you, as Dorea and Loreza worship them.  If you should die, must El and Obella seek vengeance for you, then Dorea and Loree for them?  Is that how it goes, round and round forever?  I ask again, where does it end? 
+Last updated: 2024-04-22 10:56:29
+Random Quote: Freddie: "If you want me out of Birmingham, it'll have to be in a wooden box."
+Polly: "You lay a hand on our Ada, I'll put you in a wooden box myself!" - Polly Gray
