@@ -1,3 +1,2 @@
-Last updated: 2024-04-22 11:02:22
-Random Quote: Larissa: "So you automatically assume a Nevermore student is the murderer, even though there's no evidence a crime was even committed."
-Donovan: "I'm sorry. I forgot, you only teach the good outcasts here, right?" - Donovan Galpin
+Last updated: 2024-04-22 11:02:55
+Random Quote: Sometimes a truce is the most important part of a war. - Professor
