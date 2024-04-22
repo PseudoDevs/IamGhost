@@ -1,2 +1,2 @@
-Last updated: 2024-04-22 10:50:09
-Random Quote: The Horned Lord once said that sorcery is a sword without a hilt.  There is no safe way to grasp it.  -  Dalla
+Last updated: 2024-04-22 10:50:42
+Random Quote: Lily: "I am gonna have to walk this earth, knowing Barney has touched my boobs."Robin: "Yeah it stays with ya. His e-mail reminders don't help." - Robin Scherbatsky
