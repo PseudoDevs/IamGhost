@@ -1,2 +1,2 @@
-Last updated: 2024-04-22 11:00:46
-Random Quote: Oh my God, Larry, by the time I get out, there will've been like three new generations of iPhones! - Piper Chapman
+Last updated: 2024-04-22 11:01:19
+Random Quote: The truth isn't always to most exciting version of things, or the best, or the worst. It's somewhere inbetween. But it deserves to be heard and remembered. 'The truth will out', like someone said once. It remains. - Hannah Baker
