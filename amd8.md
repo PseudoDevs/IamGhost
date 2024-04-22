@@ -1,2 +1,2 @@
-Last updated: 2024-04-22 11:30:34
-Random Quote: You're both young, you're both unsure about your place in the universe, and you both want to be Grandpa's favorite. I can fix this. Morty, sit here. Summer, you sit here. Now, listen - I know the two of you are very different from each other in a lot of ways, but you have to understand that as far as Grandpa's concerned, you're both pieces of sh-! Yeah, I can prove it mathematically. Actually, l-l-let me grab my whiteboard. This has been a long time coming, anyways. - Rick Sanchez
+Last updated: 2024-04-22 11:31:07
+Random Quote: I'm mature enough to be on my own. Now, if you'll excuse me, I'm gonna Google how to buy a credit card. - Devi Vishwakumar
