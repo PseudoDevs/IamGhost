@@ -1,2 +1,2 @@
-Last updated: 2024-04-22 10:59:24
-Random Quote: There was this sadness in his eyes. The kind you sometimes see in those who want to die, but life won’t let them - Noah
+Last updated: 2024-04-22 11:00:33
+Random Quote: They say the king loved to hunt.  The things we love destroy us every time, lad.  Remember that.  -  Jeor Mormont
