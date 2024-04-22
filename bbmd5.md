@@ -1,2 +1,4 @@
-Last updated: 2024-04-22 11:22:09
-Random Quote: Never forget what you are, for surely the world will not.  Make it your strength.  Then it can never be your weakness.  Armor yourself in it, and it will never be used to hurt you.  -  Tyrion Lannister
+Last updated: 2024-04-22 11:22:45
+Random Quote: Greef: "Nevarro is a very fine planet. And now that the scum and villainy have been washed away, it's very respectable again."
+Mando: "As a bounty hunter hive?"
+Greef: "Some of my favorite people are bounty hunters." - Greef Karga
