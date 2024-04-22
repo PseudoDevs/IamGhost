@@ -1,2 +1,2 @@
-Last updated: 2024-04-22 11:20:24
-Random Quote: Bear Island knows no king save the King in the North, whose name is Stark.  -  Lyanna Mormont
+Last updated: 2024-04-22 11:20:58
+Random Quote: Whisky's good proofing water. Tells you who's real and who isn't. - Thomas Shelby
