@@ -1,2 +1,2 @@
-Last updated: 2024-04-22 11:36:06
-Random Quote: Until the Mountain crushed my brother's skull, no Dornishmen had died in this War of the Five Kings.  Tell me, Captain, is that my shame or my glory?  -  Doran Martell
+Last updated: 2024-04-22 11:36:39
+Random Quote: It wasn't the violence that scared her. It was the fact that she knew no matter what he did, she'd still love him. - Rue Bennett
