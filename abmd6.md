@@ -1,2 +1,2 @@
-Last updated: 2024-04-22 11:25:43
-Random Quote: Have no fear, sers, your king is safe... no thanks to you.  Even know, I could cut through the five of you as easy as a dagger cuts cheese.  If you would serve under the Kingslayer, not a one of you is fit to wear the white.  Here, boy.  Melt it down and add it to the others, if you like.  It will do you more good than the swords in the hands of these five.  Perhaps Lord Stannis will chance to sit on it when he takes your throne.  -  Barristan Selmy
+Last updated: 2024-04-22 11:26:17
+Random Quote: I was wed three times and my wives gave me daughters.  Now only Beth remains to me.  My brother Martyn fathered four strong sons, yet only Jory lived to be a man.  When he was slain, Martyn's line died with him.  When we speak of the morrow nothing is ever certain.  -  Rodrik Cassel
