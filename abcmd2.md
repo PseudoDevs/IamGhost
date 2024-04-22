@@ -1,2 +1,2 @@
-Last updated: 2024-04-22 10:51:50
-Random Quote: Jon was not afraid of death, but he did not want to die like that, trussed and bound and beheaded like a common brigand.  If he must perish, let it be with a sword in his hand, fighting his father's killers.  He was no true Stark, had never been one... but he could die like one.  Let them say that Eddard Stark had fathered four sons, not three.  -  Jon Snow
+Last updated: 2024-04-22 10:52:26
+Random Quote: People make fun of the guy who stays at home every night doing nothing, but the truth is that guy is a genius. - Ted Mosby
