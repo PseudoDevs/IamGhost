@@ -1,2 +1,2 @@
-Last updated: 2024-04-22 10:57:20
-Random Quote: Marshall: "Are you sure this poo-poo didn't happen on your watch and you just ran out the clock until it was my problem?"Lily: "Oh, yeah. Yeah, yeah, right. What kind of mother lets her son sit in his own filth for an extra nine minutes and 42 seconds?" - Lily Aldrin
+Last updated: 2024-04-22 10:57:53
+Random Quote: Robin, if you asked a hundred people: "Who's the worst person you could possibly date?" They'd all say "your therapist", except the ones saying "Barney". - Ted Mosby
