@@ -1,3 +1,2 @@
-Last updated: 2024-04-22 11:43:51
-Random Quote: Sam: "What's going on in that cyborg brain of yours?"
-Bucky: "You don't wanna know!" - Bucky Barnes
+Last updated: 2024-04-22 11:45:01
+Random Quote: Sometimes I think everyone is just pretending to be brave, and none of us really are.  Maybe pretending is how you get brave, I don't know.  -  Grenn
