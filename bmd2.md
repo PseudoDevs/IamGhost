@@ -1,2 +1,3 @@
-Last updated: 2024-04-22 11:28:30
-Random Quote: You think you're the only one he whispers secrets to?  He gives each of us just enough to convince us that we'd be helpless without him.  -  Cersei Lannister
+Last updated: 2024-04-22 11:29:04
+Random Quote: Ellie: "There's not gonna be anything bad in here?"
+Joel: "Just you." - Joel Miller
