@@ -1,2 +1,2 @@
-Last updated: 2024-04-22 10:54:47
-Random Quote: Mike Wheeler: "I'm not prostituting my sister."Lucas Sinclair: "But it's for a good cause." - Lucas Sinclair
+Last updated: 2024-04-22 10:55:22
+Random Quote: Being a Mandalorian is not just learning about how to fight. You also have to know how to navigate the Galaxy. That way you'll never be lost. - Din Djarin
