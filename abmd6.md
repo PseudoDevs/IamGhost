@@ -1,2 +1,2 @@
-Last updated: 2024-04-22 10:51:12
-Random Quote: When you tear out a man's tongue, you are not proving him a liar, you're only telling the world that you fear what he might say.  -  Tyrion Lannister
+Last updated: 2024-04-22 10:51:47
+Random Quote: The bad guys need to get lucky every time. The good guys just need to get lucky once. - Steve Murphy
