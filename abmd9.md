@@ -1,2 +1,2 @@
-Last updated: 2024-04-22 11:32:26
-Random Quote: Marshall: "Baby, you're like 20 slutty chicks all rolled into one."Lily: "Sweet-talk is not gonna change my mind!" - Lily Aldrin
+Last updated: 2024-04-22 11:32:59
+Random Quote: You ever touch me again, I will burn your eyes out! - Starlight
