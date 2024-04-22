@@ -1,2 +1,2 @@
-Last updated: 2024-04-22 11:12:45
-Random Quote: Penrose chose to die rather than give him up.  It still angers me.  How could he think I would hurt the boy?  I chose Robert, did I not?  When that hard day came, I chose blood over honor.  -  Stannis Baratheon
+Last updated: 2024-04-22 11:14:01
+Random Quote: I am not in danger, Skyler. I AM the danger! - Walter White
