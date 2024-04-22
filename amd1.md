@@ -1,2 +1,2 @@
-Last updated: 2024-04-22 10:51:12
-Random Quote: Barney: "How's the single life?"Ted: "I wouldn't know. After this whole Robin thing, I'm laying low."Barney: "Laying low as in sleeping with a really short chick? You guys doing thirty-nine?" - Barney Stinson
+Last updated: 2024-04-22 10:51:47
+Random Quote: Quinn: "I have to pay $2,000 every time I gain a pound?"Barney: "Not every time. Just if it shows up at the weekly weigh-in." - Barney Stinson
