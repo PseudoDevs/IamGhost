@@ -1,3 +1,2 @@
-Last updated: 2024-04-22 11:23:28
-Random Quote: Joel: "A deep breath in, slow breath out. You squeeze the trigger like you love it. Gentle, steady, nice and slow."
-Ellie: "You gonna shoot this thing or get it pregnant?" - Ellie Williams
+Last updated: 2024-04-22 11:24:01
+Random Quote: Woman: "How can you not remember my name? it rhymes with your name?"Barney: "And I said my name was...?" - Barney Stinson
