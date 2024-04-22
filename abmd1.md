@@ -1,2 +1,4 @@
-Last updated: 2024-04-22 11:10:04
-Random Quote: We've discussed this, mornings are for coffee and contemplation. - Jim Hopper
+Last updated: 2024-04-22 11:10:37
+Random Quote: Joel: "Where'd you get the money for this?"
+Sarah: "Drugs. I sell hardcore drugs."
+Joel: "It's better than what I do." - Joel Miller
