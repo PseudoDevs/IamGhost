@@ -1,2 +1,2 @@
-Last updated: 2024-04-22 10:51:47
-Random Quote: Ted: "You're scared of the seven dwarves?"Robin: "Just of Doc. He's creepy... I mean, the guy went to medical school, what is he doing living with six coalminers." - Robin Scherbatsky
+Last updated: 2024-04-22 10:52:57
+Random Quote: What men want does not matter.  Winter is almost upon us, boy.  And winter is death.  I would sooner my men die fighting for the Ned's little girl than alone and hungry in the snow, weeping tears that freeze upon their cheeks.  No one sings songs of men who die like that.  As for me, I am old.  This will be my last winter.  Let me bathe in Bolton blood before I die.  I want to feel it splatter across my face when my axe bites deep into a Bolton skull.  I want to lick it off my lips and die with the taste of it on my tongue.  -  Hugo Wull
