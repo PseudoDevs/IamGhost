@@ -1,2 +1,2 @@
-Last updated: 2024-04-22 11:51:10
-Random Quote: She don't speak.  You bloody bastards cut her throat too deep for that.  But she remembers.  -  Lem Lemoncloack
+Last updated: 2024-04-22 11:51:43
+Random Quote: I watched Jane die. I was there. And I watched her die. - Walter White
