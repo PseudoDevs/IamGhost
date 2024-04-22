@@ -1,2 +1,2 @@
-Last updated: 2024-04-22 10:58:00
-Random Quote: Our secrecy is our survival. our survival is our strength. - The Armorer
+Last updated: 2024-04-22 10:58:33
+Random Quote: This is Stannis Baratheon.  The man will fight to the bitter end and then some.  -  Tywin Lannister
