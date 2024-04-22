@@ -1,2 +1,2 @@
-Last updated: 2024-04-22 11:14:57
-Random Quote: Strip off their skins.  Lord Bolton, he used to say a naked man has few secrets, but a flayed man's got none.  -  Ramsay Bolton
+Last updated: 2024-04-22 11:15:30
+Random Quote: You want to rule?  This is what ruling is; lying on a bed of weeds, ripping them out by the root, one by one, before they strangle you in your sleep.  -  Cersei Lannister
