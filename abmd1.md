@@ -1,2 +1,2 @@
-Last updated: 2024-04-22 11:21:02
-Random Quote: Family members help each other, no questions asked. Because it makes you happy and your life depends on it. You have your plan, I know. Well, I have one, too. You’ve taught me that we help each other. That’s who we are. - Nairobi
+Last updated: 2024-04-22 11:21:36
+Random Quote: Lily: "We'll all have a wedding dress camp-out. It'll be fun!"Barney: "I can't go. I've got this thing."Lily: "What thing?"Barney: "A penis!" - Barney Stinson
