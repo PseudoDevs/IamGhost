@@ -1,2 +1,2 @@
-Last updated: 2024-04-22 10:59:09
-Random Quote: His size, Gregor is a very large man.  Also a very stupid one.  Too stupid to know when he should die, it seems.  -  Cersei Lannister
+Last updated: 2024-04-22 10:59:42
+Random Quote: Sex now, we'll do the foreplay after. - Lily Aldrin
