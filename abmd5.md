@@ -1,2 +1,2 @@
-Last updated: 2024-04-22 11:15:23
-Random Quote: If you don't trust your men with your money, you have bigger problems than if you trust Saul Goodman. - Kim Wexler
+Last updated: 2024-04-22 11:15:56
+Random Quote: The Lion does not concern itself with the opinions of sheep.  -  Tywin Lannister
