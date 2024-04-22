@@ -1,2 +1,2 @@
-Last updated: 2024-04-22 11:40:44
-Random Quote: Stannis Baratheon with a grievance was like a mastiff with a bone; he gnawed it down to splinters.  -  Jon Snow
+Last updated: 2024-04-22 11:41:19
+Random Quote: We all have things we keep hidden. Sometimes, keeping secrets is how you survive. Because in High School, one rumor, one picture, one incident, can define you forever. - Hannah Baker
