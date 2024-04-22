@@ -1,2 +1,2 @@
-Last updated: 2024-04-22 11:35:12
-Random Quote: It's not even the lies that hurt, you know? It's the fact that you're never really emotionally prepared for someone to leave you. - Rue Bennett
+Last updated: 2024-04-22 11:35:48
+Random Quote: Talking to a woman that you have already had sex with, is like changing the oil on a rental car! - Barney Stinson
