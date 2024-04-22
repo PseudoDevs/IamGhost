@@ -1,2 +1,2 @@
-Last updated: 2024-04-22 11:01:06
-Random Quote: I wouldn't lie to you. Well... that's a lie. - Rick Sanchez
+Last updated: 2024-04-22 11:01:41
+Random Quote: Quentyn had never felt so much a boy as when he'd stood before Daenerys Targaryen, pleading for her hand.  The thought of bedding her terrified him almost as much as her dragons had.  -  Quentyn Martell
