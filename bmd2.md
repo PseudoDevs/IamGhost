@@ -1,2 +1,2 @@
-Last updated: 2024-04-22 10:58:15
-Random Quote: Anyone who goes after him is gonna have to come through me. - Mike Ehrmantraut
+Last updated: 2024-04-22 10:58:49
+Random Quote: I never asked for this crown.  Gold is cold and heavy on the head, but so long as I am the king, I have a duty... if I must sacrifice one child to the flames to save a million from the dark... sacrifice... is never easy, Davos.  Or it is no true sacrifice.  -  Stannis Baratheon
