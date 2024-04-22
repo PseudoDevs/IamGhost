@@ -1,2 +1,2 @@
-Last updated: 2024-04-22 11:10:28
-Random Quote: Barney: "Tell me more. Tell me more. Like did he have a car?"Marshall: "So is he the guy who... how shall I say this like a gentleman? Robin, did he take your maple leaf?"Barney: "Sounds to me like he gave you your first 'O Canada' face!" - Barney Stinson
+Last updated: 2024-04-22 11:11:01
+Random Quote: For some women it was the ashes of my parents. For others it was the trophy from Wimbledon and believe it or not, for one busty dullard, it was both. Game, enormous set and match! - Barney Stinson
