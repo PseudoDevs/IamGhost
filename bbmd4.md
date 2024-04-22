@@ -1,2 +1,2 @@
-Last updated: 2024-04-22 11:48:33
-Random Quote: Barney: "This is one of those things you have to do before you turn 30."Ted: "Sleep with a prostitute?!"Barney: "No, lose your virginity!... What up?" - Barney Stinson
+Last updated: 2024-04-22 11:49:08
+Random Quote: Ted: "Those Robin's boobies?"Barney: "When new nubile hotties lean in to inspect your bundle of joy, you can inspect their bundles of joy. The Broller. God, I come up with a lot of good stuff!" - Barney Stinson
