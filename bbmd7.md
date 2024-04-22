@@ -1,2 +1,2 @@
-Last updated: 2024-04-22 11:12:04
-Random Quote: Kids, you can't cling to the past. Because no matter how tight you hold on... it's already gone. - Ted Mosby
+Last updated: 2024-04-22 11:15:17
+Random Quote: I just want to stand on top of the Wall and piss off the edge of the world.  -  Tyrion Lannister

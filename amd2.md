@@ -1,2 +1,3 @@
-Last updated: 2024-04-22 11:14:02
-Random Quote: You're gonna get endless requests to play some game, that has something to do with gangsters and farming! - Marshall Eriksen
+Last updated: 2024-04-22 11:15:18
+Random Quote: I hired a decorator and I asked him: "What would the inside of Tinkerbell's vagina look like?"
+And the kid just ran with it! - Quinn Garvey
