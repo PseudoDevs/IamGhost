@@ -1,2 +1,2 @@
-Last updated: 2024-04-22 10:54:13
-Random Quote: Marshall: "Excuse me, miss. When you get a chance, could you bring over a hundred shots of tequila please?"Barney: "I'll have the same." - Marshall Eriksen
+Last updated: 2024-04-22 10:55:23
+Random Quote: They get in your head. People tell lies about you, and other people believe them. And it gets to the point where the lies might as well be the truth. - Tyler Down
