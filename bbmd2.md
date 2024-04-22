@@ -1,2 +1,2 @@
-Last updated: 2024-04-22 10:49:41
-Random Quote: Well, if there is something wrong with him, it ain't constipation. - Meemaw
+Last updated: 2024-04-22 10:50:16
+Random Quote: In the game of thrones, even the humblest pieces have wills of their own.  Sometimes they refuse to make the moves you've planned for them.  Mark that well, Alayne.  It's a lesson that Cersei Lannister still has yet to learn.  -  Petyr Baelish
