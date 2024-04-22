@@ -1,2 +1,4 @@
-Last updated: 2024-04-22 10:57:21
-Random Quote: What you're doing right now. I'm getting a de-rection! - Barney Stinson
+Last updated: 2024-04-22 10:57:54
+Random Quote: Joel: "I need you to tell us where we are."
+Man: "If you got a map, why you lost?"
+Ellie: "Must've missed all the street signs in the enormous f-cking forest." - Ellie Williams
