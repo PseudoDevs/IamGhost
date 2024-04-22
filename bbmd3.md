@@ -1,2 +1,2 @@
-Last updated: 2024-04-22 11:11:26
-Random Quote: Do you know what it is like to be sold, squire?  I do.  My brother sold me to Khal Drogo for the promise of a golden crown.  Well, Drogo crowned him in gold, though not as he had wished, and I... my sun - and
+Last updated: 2024-04-22 11:12:04
+Random Quote: Nobody takes an intro class to get on any other path, but the path to not being hungover anymore. I learned that in my intro to something-ology class. - Marshall Eriksen
