@@ -1,2 +1,2 @@
-Last updated: 2024-04-22 11:33:18
-Random Quote: I love hospitals. If I could spend the rest of my life in a hospital, I would. Because when you're in a hospital, you have zero responsibilities. - Rue Bennett
+Last updated: 2024-04-22 11:33:56
+Random Quote: If there's one thing I've learned in the narco world, it's that life is more complicated than you think. Good and bad, they're relative concepts. - Steve Murphy
