@@ -1,2 +1,2 @@
-Last updated: 2024-04-22 10:50:47
-Random Quote: All the tales agreed that the green men had strange magic powers.  Maybe they could help him walk again, even turn him into a knight.  They turned the little crannogman into a knight, even if it was only for a day, he thought.  A day would be enough.  -  Bran Stark
+Last updated: 2024-04-22 10:51:21
+Random Quote: You shouldn't like things because people tell you you're supposed to. - Jonathan Byers
