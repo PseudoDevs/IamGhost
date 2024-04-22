@@ -1,2 +1,2 @@
-Last updated: 2024-04-22 11:50:37
-Random Quote: It's "The Little Engine with Wood", "The Whore-ient Express", "The Long Island Tail Road"! - Barney Stinson
+Last updated: 2024-04-22 11:51:10
+Random Quote: Love is poison.  A sweet poison, yes, but it will kill you all the same.  -  Cersei Lannister
