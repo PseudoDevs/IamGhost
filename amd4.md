@@ -1,2 +1,2 @@
-Last updated: 2024-04-22 11:10:03
-Random Quote: Having just any boyfriend, no matter who he is, is not going to make you happier or change who you are. - Fabiola Torres
+Last updated: 2024-04-22 11:10:36
+Random Quote: He made me kill a rabbit. I guess he thought it would make me into more of a man or something. I cried for a week. - Jonathan Byers
