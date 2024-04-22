@@ -1,2 +1,2 @@
-Last updated: 2024-04-22 11:34:29
-Random Quote: I have served six kings, but here before us lies the greatest man I ever knew.  Lord Tywin wore no crown, yet he was all a king should be.  -  Grand Maester Pycelle
+Last updated: 2024-04-22 11:35:02
+Random Quote: Demons made of snow and ice and cold.  The ancient enemy.  The only enemy that matters.  -  Stannis Baratheon
