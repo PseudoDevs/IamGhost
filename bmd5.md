@@ -1,2 +1,2 @@
-Last updated: 2024-04-22 11:03:28
-Random Quote: You ever touch me again, I will burn your eyes out! - Starlight
+Last updated: 2024-04-22 11:04:02
+Random Quote: Jaime and I are more than brother and sister.  We are one person in two bodies.  We shared a womb together.  He came into this world holding my foot, our old maester said.  When he is in me, I feel... whole.  -  Cersei Lannister
