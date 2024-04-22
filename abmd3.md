@@ -1,2 +1,2 @@
-Last updated: 2024-04-22 11:47:15
-Random Quote: Only their shadows, One most of all.  A tall and twisted thing with one black eye and ten long arms, sailing on a sea of blood.  -  Moqorro
+Last updated: 2024-04-22 11:47:48
+Random Quote: That girl was just crying. She's so sad and defenseless... anyone have a condom? - Barney Stinson
