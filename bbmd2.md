@@ -1,2 +1,2 @@
-Last updated: 2024-04-22 11:33:56
-Random Quote: When treating with liars, even an honest man must lie.  -  Wyman Manderly
+Last updated: 2024-04-22 11:34:35
+Random Quote: Give me back my spear, Uncle.  Cersei sent us a head.  We should send her back a bag of them.  -  Obara Sand
