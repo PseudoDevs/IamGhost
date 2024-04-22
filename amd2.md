@@ -1,2 +1,2 @@
-Last updated: 2024-04-22 11:35:12
-Random Quote: I am the Watcher. I am your guide through these vast new realities. Follow me, and dare to face the unknown. And ponder the question, "What if...?" - The Watcher
+Last updated: 2024-04-22 11:35:49
+Random Quote: People say Hawkins is cursed. They're not way off. - Dustin Henderson
