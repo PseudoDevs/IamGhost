@@ -1,2 +1,2 @@
-Last updated: 2024-04-22 10:54:41
-Random Quote: This sacred text was eventually brought to the New World in 1776 by none other than Christopher Brolumbus. And that's why he got to bang Pocahontas. - Barney Stinson
+Last updated: 2024-04-22 10:55:14
+Random Quote: From this day forth, you will not call yourself a craven.  You've faced more things this past year than most men face in a lifetime.  You can face the Citadel, but you'll face it as a Sworn Brother of the Night's Watch.  I can't command you to be brave, but I can command you to hide your fears.  -  Jon Snow
