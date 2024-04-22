@@ -1,2 +1,3 @@
-Last updated: 2024-04-22 11:32:47
-Random Quote: Reality is more than neurons firing around in your brain. Reality is not what's on the inside. It's what's happening on the outside. - Daniel Solace
+Last updated: 2024-04-22 11:33:20
+Random Quote: Freddie Thorne: "What kind of a list would have the name of a communist and the name of a bookmaker side by side?"
+Thomas Shelby: "Perhaps it's a list of men who give false hope to the poor." - Thomas Shelby
