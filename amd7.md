@@ -1,2 +1,2 @@
-Last updated: 2024-04-22 11:27:04
-Random Quote: Name one thing in this world that is non negotiable. - Walter White
+Last updated: 2024-04-22 11:28:56
+Random Quote: I know that new situations can be intimidating. You look around, and it's all scary and different. But meeting them head-on, charging right into them like a bull, that's how we grow as people. - Rick Sanchez
