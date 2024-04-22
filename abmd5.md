@@ -1,2 +1,2 @@
-Last updated: 2024-04-22 10:56:18
-Random Quote: Presumptuous... that's a good thing, right? - Dustin Henderson
+Last updated: 2024-04-22 10:56:52
+Random Quote: For the night is dark and full of terrors.  -  Words of R'hllor
