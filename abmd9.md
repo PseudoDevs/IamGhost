@@ -1,3 +1,2 @@
-Last updated: 2024-04-22 11:30:10
-Random Quote: "How do you take your tea?"
-Ted: "Well, normally right back to the counter because there's been a terrible mistake." - Jim Hopper
+Last updated: 2024-04-22 11:30:45
+Random Quote: She had seen Bronn fight on the high road; it was no accident that he had survived the journey while other men had died.  He moved like a panther, and that ugly sword of his seemed a part of his arm.  -  Catelyn Stark
