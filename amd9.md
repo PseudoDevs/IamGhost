@@ -1,2 +1,2 @@
-Last updated: 2024-04-22 11:36:06
-Random Quote: Karen: "I'm sure all the exploited diamond miners in Sierra Leone would give you a high-five if they still had all their fingers. But really pretty - meet me upstairs!"Robin: "They only need one finger to give her what I'm thinking." - Robin Scherbatsky
+Last updated: 2024-04-22 11:36:40
+Random Quote: Take the foundling to the city of Calodan on the forest planet Corvus. There, you will find Ahsoka Tano. Tell her you were sent by Bo-Katan. - Bo-Katan
