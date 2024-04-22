@@ -1,2 +1,2 @@
-Last updated: 2024-04-22 11:17:09
-Random Quote: Hey, want to come to my house and play telephone? I got the string, you got the cans. - Barney Stinson
+Last updated: 2024-04-22 11:18:58
+Random Quote: A queen must listen to all.  The highborn and the low, the strong and the weak, the noble and the venal.  One voice may speak you false, but in many there is always truth to be found.  -  Daenerys Targaryen
