@@ -1,2 +1,2 @@
-Last updated: 2024-04-22 11:09:28
-Random Quote: I can bring you in warm, or I can bring you in cold. - Din Djarin
+Last updated: 2024-04-22 11:10:02
+Random Quote: I never asked for this, no more than I asked to be king.  Yet dare I disregard her?  We do not choose our destinies.  Yet we must... we must do our duty, no?  Great or small, we must do our duty.  -  Stannis Baratheon
