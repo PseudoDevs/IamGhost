@@ -1,2 +1,2 @@
-Last updated: 2024-04-22 11:27:01
-Random Quote: In my head, it's like If I can conquer men, then I can conquer femininity. - Jules Vaughn
+Last updated: 2024-04-22 11:27:39
+Random Quote: If the cancer doesn't get him, it'll be the cops or a bullet to the head. - Mike Ehrmantraut
