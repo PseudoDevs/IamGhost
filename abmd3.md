@@ -1,2 +1,2 @@
-Last updated: 2024-04-22 11:17:38
-Random Quote: Young I was, and vain, but the sea washed my follies and my vanities away.  That man drowned, nephew.  His lungs filled with seawater, and the fish ate the scales off his eyes.  When I rose again, I saw clearly.  -  Aeron Greyjoy
+Last updated: 2024-04-22 11:18:11
+Random Quote: Because they are the knights of summer, and winter is coming.  -  Catelyn Stark
