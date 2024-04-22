@@ -1,4 +1,2 @@
-Last updated: 2024-04-22 10:50:50
-Random Quote: Rick: "F you, Summer! And f the government. And f me for letting my car down, which I will never do again."
-Morty: "Jeez, Rick. You can't say FU to your grand-daughter!"
-Rick: "I just did, Morty. Here's dessert: F you!" - Rick Sanchez
+Last updated: 2024-04-22 10:51:24
+Random Quote: We all must choose.  Man or woman, young or old, lord or peasant, our choices are the same.  We choose light or we choose darkness.  -  Melisandre
