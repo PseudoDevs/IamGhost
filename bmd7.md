@@ -1,2 +1,2 @@
-Last updated: 2024-04-22 11:05:25
-Random Quote: The most beautiful woman in the world has urgent need of my axe.  -  Victarion Greyjoy.
+Last updated: 2024-04-22 11:07:09
+Random Quote: We all must choose.  Man or woman, young or old, lord or peasant, our choices are the same.  We choose light or we choose darkness.  -  Melisandre
