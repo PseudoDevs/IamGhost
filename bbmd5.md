@@ -1,2 +1,2 @@
-Last updated: 2024-04-22 11:33:45
-Random Quote: Birds are lost, messages stolen or sold... there are things I might tell you of that eunuch that would chill your blood...  -  Grand Maester Pycelle
+Last updated: 2024-04-22 11:34:18
+Random Quote: I am one far more accustomed to demanding answers, fool, than to giving them. - Thor
