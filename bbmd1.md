@@ -1,2 +1,2 @@
-Last updated: 2024-04-22 11:13:51
-Random Quote: If you don't make it back, there's one thing that I need to tell you... - Klaus Hargreeves
+Last updated: 2024-04-22 11:14:24
+Random Quote: A true man does what he will, not what he must.  -  Cersei Lannister
