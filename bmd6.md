@@ -1,2 +1,2 @@
-Last updated: 2024-04-22 11:45:01
-Random Quote: Sometimes I think everyone is just pretending to be brave, and none of us really are.  Maybe pretending is how you get brave, I don't know.  -  Grenn
+Last updated: 2024-04-22 11:45:35
+Random Quote: The Lion does not concern itself with the opinions of sheep.  -  Tywin Lannister
