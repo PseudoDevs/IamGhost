@@ -1,2 +1,2 @@
-Last updated: 2024-04-22 11:42:54
-Random Quote: When you date someone, it's like you're taking one long course in who that person is and then, when you break up, all that stuff becomes useless. It's the emotional equivalent of an English degree... - Ted Mosby
+Last updated: 2024-04-22 11:43:27
+Random Quote: I hate kids. They don't drink, they haven't travelled... - Nicky Nichols
