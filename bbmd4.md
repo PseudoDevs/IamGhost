@@ -1,3 +1,2 @@
-Last updated: 2024-04-22 11:25:11
-Random Quote: Larissa: "So you automatically assume a Nevermore student is the murderer, even though there's no evidence a crime was even committed."
-Donovan: "I'm sorry. I forgot, you only teach the good outcasts here, right?" - Donovan Galpin
+Last updated: 2024-04-22 11:26:23
+Random Quote: If a song makes a maid want to slip off her clothes and feel the good warm sun kiss her skin, why is that the singer's fault?  -  Tom of Sevenstreams
