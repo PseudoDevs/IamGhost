@@ -1,2 +1,2 @@
-Last updated: 2024-04-22 11:07:43
-Random Quote: Ran: "We were all young, tryin' to make a name for ourselves. But runnin' with a Mandalorian, that brought us some reputation."Mayfeld: "Oh, yeah? What did he get out of it?"Ran: "I asked him that one time. You remember what you said, Mando? Target Practice." - Din Djarin
+Last updated: 2024-04-22 11:08:19
+Random Quote: Barney: "Fine, we'll just have a nice, tasteful rehearsal dinner. Maybe at a French restaurant, I know just the place."Robin: "What's the name of the restaurant?"Barney: "La Sertag." - Barney Stinson

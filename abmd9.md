@@ -1,2 +1,2 @@
-Last updated: 2024-04-22 11:07:08
-Random Quote: That girl was just crying. She's so sad and defenseless... anyone have a condom? - Barney Stinson
+Last updated: 2024-04-22 11:08:18
+Random Quote: Barney: "He's the awesomest, most best-lookingest, greatest guy ever!"Lily: "He's exactly like Barney."Barney: "That's what I just said." - Barney Stinson

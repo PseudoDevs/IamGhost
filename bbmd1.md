@@ -1,2 +1,2 @@
-Last updated: 2024-04-22 11:06:35
-Random Quote: There are worse ways to die than warm and drunk.  I knew a brother drowned himself in wine once.  It was a poor vintage, though, and his corpse did not improve it.  -  Dolorous Edd Tollett
+Last updated: 2024-04-22 11:08:19
+Random Quote: We all make our choices and those choices they put us on a road. And sometimes those choices seem small but they put you on the road. You think about getting off but eventually, you're back on it. - Mike Ehrmantraut
