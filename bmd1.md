@@ -1,2 +1,2 @@
-Last updated: 2024-04-22 10:51:55
-Random Quote: Think about it, this is perfect.a) It'll make Robin insanly jealousb) You get to have sex with herc) Maybe by getting to know Mary, you'll come to see that cortisens are people tooand d) B! All night long! - Barney Stinson
+Last updated: 2024-04-22 10:52:28
+Random Quote: I have my own ghosts, Bran.  A brother that I loved, a brother that I hated, a woman I desired.  Through the trees, I see them still, but no word of mine has ever reached them.  The past remains the past.  We can learn from it, but we cannot change it.  -  Bloodraven
