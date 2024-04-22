@@ -1,4 +1,2 @@
-Last updated: 2024-04-22 11:47:41
-Random Quote: Greef: "Be careful, my friend. They've got you outnumbered ten to one."
-Din: "I like these odds."
-Greef: "I bet you do." - Greef Karga
+Last updated: 2024-04-22 11:48:48
+Random Quote: You want to know what's really interesting? Aristotle thought that the sound of thunder was due to a collision between two cloudsHe believed the clouds were expelling air, in the way a log on a fire crackles. - Sheldon
