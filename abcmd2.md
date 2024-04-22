@@ -1,2 +1,2 @@
-Last updated: 2024-04-22 10:52:26
-Random Quote: People make fun of the guy who stays at home every night doing nothing, but the truth is that guy is a genius. - Ted Mosby
+Last updated: 2024-04-22 10:53:00
+Random Quote: The Red God has his due, sweet girl, and only death may pay for life.  This girl took three that were his.  This girl must give three in their places.  Speak the names, and a man will do the rest.  -  Jaqen H'ghar
