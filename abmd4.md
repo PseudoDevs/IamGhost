@@ -1,2 +1,2 @@
-Last updated: 2024-04-22 11:12:35
-Random Quote: Every year, there are a million new, hot 22-year-olds walking into bars and call me "glass-half-full"... but I think they're getting dumber. - Barney Stinson
+Last updated: 2024-04-22 11:13:08
+Random Quote: I prefer my history dead.  Dead history is writ in ink, the living sort in blood.  -  Rodrik Harlaw
