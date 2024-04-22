@@ -1,4 +1,2 @@
-Last updated: 2024-04-22 10:53:04
-Random Quote: Bro McDonald had a farm, E-I-E-I-bro
-And on that farm he had some chicks, E-I-E-I-bro
-With a hot chick here and a dumb chick there... - Barney Stinson
+Last updated: 2024-04-22 10:53:38
+Random Quote: Khaleesi, better a man should swallow scorpions than trust in the spawn of shadows, who dare not show their face beneath the sun.  It is known.  -  Rakharo
