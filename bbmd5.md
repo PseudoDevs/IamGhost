@@ -1,2 +1,2 @@
-Last updated: 2024-04-22 10:50:50
-Random Quote: So young.  Though mayhaps this was a blessing.  Had he lived, he would have grown up to be a Frey.  -  Wyman Manderly
+Last updated: 2024-04-22 10:51:25
+Random Quote: I put up a good fight but I lost. For the first time, but not the last. - Rue Bennett
