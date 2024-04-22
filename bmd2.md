@@ -1,2 +1,2 @@
-Last updated: 2024-04-22 11:41:22
-Random Quote: No.  You were the betrayer.  You turned against me, against your own blood.  They cheated me.  Your horsey husband and his stinking savages.  They were cheats and liars.  They promised me a golden crown and gave me this.  -  Viserys Targaryen
+Last updated: 2024-04-22 11:41:59
+Random Quote: You have to be as bad as them above in order to survive. - Polly Gray
