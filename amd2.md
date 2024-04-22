@@ -1,2 +1,2 @@
-Last updated: 2024-04-22 10:53:25
-Random Quote: If there's one thing I've learned in the narco world, it's that life is more complicated than you think. Good and bad, they're relative concepts. - Steve Murphy
+Last updated: 2024-04-22 10:53:58
+Random Quote: Because there's no way watching it can be more fun than playing it yourself. - Oh Il-nam
