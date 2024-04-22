@@ -1,2 +1,2 @@
-Last updated: 2024-04-22 10:58:23
-Random Quote: When it comes to locker rooms, I like 'em just like my mother's bathing suits: I only wanna see 'em in one piece. - Jim Hopper
+Last updated: 2024-04-22 10:58:56
+Random Quote: You're Reek.  You'll always be Reek, no matter how sweet you smell.  Your nose may lie to you.  Remember your name.  Remember who you are.  -  Ramsay Bolton
