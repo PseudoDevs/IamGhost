@@ -1,2 +1,2 @@
-Last updated: 2024-04-22 11:30:36
-Random Quote: Kids, you can't cling to the past. Because no matter how tight you hold on... it's already gone. - Ted Mosby
+Last updated: 2024-04-22 11:31:09
+Random Quote: When a maester donned his collar, he put aside the hope of children, yet Cressen had oft felt a father nonetheless.  Robert, Stannis, Renly: three sons he had raised after the angry sea claimed Lord Steffon.  -  Maester Cressen
