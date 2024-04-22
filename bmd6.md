@@ -1,2 +1,2 @@
-Last updated: 2024-04-22 11:42:10
-Random Quote: Marshall: "During that time, I have been, how do I put this delicately, saving all my love for you."Lily: "I have read eleven books on conception, I have cut out alcohol, caffeine and sugar. I take my temperature every hour. But good for you for not playing with yourself!" - Lily Aldrin
+Last updated: 2024-04-22 11:42:43
+Random Quote: You do seem to have a little “shit creek” action going… You know, FYI, you can buy a paddle. - Saul Goodman
