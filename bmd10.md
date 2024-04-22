@@ -1,2 +1,2 @@
-Last updated: 2024-04-22 11:16:41
-Random Quote: I don't need a calculator, dad. I am one. - Sheldon Cooper
+Last updated: 2024-04-22 11:17:14
+Random Quote: Spare me your empty little compliments, girl... and your ser's.  I am no knight.  I spit on them and their vows.  My brother is a knight.  -  Sandor Clegane
