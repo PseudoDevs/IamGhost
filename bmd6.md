@@ -1,2 +1,2 @@
-Last updated: 2024-04-19 15:20:16
-Random Quote: Pain is always there cause life is freaking painful, okay? - Tiffany 'Pennsatucky' Doggett
+Last updated: 2024-04-22 10:49:45
+Random Quote: Just in case either of us can actually make it out of this hellhole somehow, we'll look after each other's loved ones, okay? - Oh Il-nam
