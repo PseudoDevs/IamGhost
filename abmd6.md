@@ -1,2 +1,2 @@
-Last updated: 2024-04-22 10:58:33
-Random Quote: We go home with an army, sweet sister.  With Khal Drogo's army, that is how we go home.  And if you must wed him and bed him for that, you will.  I'd let his whole khalasar fuck you if need be, sweet sister, all forty thousand men, and their horses too if that was what it took to get my army.  -  Viserys Targaryen
+Last updated: 2024-04-22 10:59:06
+Random Quote: Why is it always the innocents who suffer most, when you high lords play your game of thrones?  -  Varys
