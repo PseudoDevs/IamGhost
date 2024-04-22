@@ -1,2 +1,2 @@
-Last updated: 2024-04-22 11:13:43
-Random Quote: I know this hurts little buddy, but you'll love again someday. Because time will heal a broken heart, but not that bitch's window. - Barney Stinson
+Last updated: 2024-04-22 11:14:17
+Random Quote: People say Hawkins is cursed. They're not way off. - Dustin Henderson
