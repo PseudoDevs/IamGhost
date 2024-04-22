@@ -1,2 +1,2 @@
-Last updated: 2024-04-22 10:59:06
-Random Quote: Why is it always the innocents who suffer most, when you high lords play your game of thrones?  -  Varys
+Last updated: 2024-04-22 10:59:40
+Random Quote: Sometimes our best decisions are the ones that don't make any sense at all. - Ted Mosby
