@@ -1,2 +1,4 @@
-Last updated: 2024-04-22 10:57:21
-Random Quote: The Horned Lord once said that sorcery is a sword without a hilt.  There is no safe way to grasp it.  -  Dalla
+Last updated: 2024-04-22 10:57:54
+Random Quote: Jimmy: "I can't believe Wanda and Vision are having a baby."
+Darcy Lewis: "You want any?"
+Jimmy: "Heck, I thought about it for sure. A little Jimmy Woo. Get him a tiny little FBI badge... oh, you... chip? Sure." - Jimmy Woo
