@@ -1,2 +1,3 @@
-Last updated: 2024-04-22 10:55:57
-Random Quote: I dream of a tree sometimes.  A weirwood, like the one in the godswood.  It calls to me.  The wolf dreams are better.  I smell things, and sometimes I can taste the blood.  -  Bran Stark
+Last updated: 2024-04-22 10:56:32
+Random Quote: Journalist: "Mr. Stark, were you injured in the attack?"
+Tony Stark: "No, but I did spill my drink, and it was a '26 Macallan, so I'm pretty sure that's a war crime." - Iron Man

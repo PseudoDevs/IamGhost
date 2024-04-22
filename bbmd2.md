@@ -1,2 +1,2 @@
-Last updated: 2024-04-22 10:55:57
-Random Quote: Jane Goodall had to go to Africa to study the apes. I just had to go to dinner. - Sheldon Cooper
+Last updated: 2024-04-22 10:56:32
+Random Quote: Once, she had loved Prince Joffrey with all her heart, and admired and trusted his mother, the queen.  They had repaid that love and trust with her father's head.  Sansa would never make that mistake again.  -  Sansa Stark
