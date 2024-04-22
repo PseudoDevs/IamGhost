@@ -1,2 +1,2 @@
-Last updated: 2024-04-22 11:04:49
-Random Quote: To be a scientist is to be naive. - Valery Legasov
+Last updated: 2024-04-22 11:05:23
+Random Quote: We can only die.  Why else do we don these black cloaks, but to die in defense of the realm?  -  Qhorin Halfhand
