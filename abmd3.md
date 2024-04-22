@@ -1,2 +1,2 @@
-Last updated: 2024-04-22 11:18:11
-Random Quote: Because they are the knights of summer, and winter is coming.  -  Catelyn Stark
+Last updated: 2024-04-22 11:18:44
+Random Quote: Did you think your dad was the only Mandalorian? - Bo-Katan
