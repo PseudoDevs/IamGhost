@@ -1,2 +1,2 @@
-Last updated: 2024-04-22 11:13:19
-Random Quote: I've had shits that I've liked better than Walder Frey.  -  Brynden Tully
+Last updated: 2024-04-22 11:13:54
+Random Quote: You're like Hitler! But even Hitler cared about Germany or something. - Morty Smith
