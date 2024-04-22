@@ -1,2 +1,3 @@
-Last updated: 2024-04-22 11:44:59
-Random Quote: Lily: "I'm pregnant."Barney: "I've never seen that woman before in my life! Sorry - force of habit, congratulations!" - Barney Stinson
+Last updated: 2024-04-22 11:45:33
+Random Quote: Grace Burgess: "You think I am a wh-re?"
+Tommy Shelby: "Everyone's a wh-re, Grace. We just sell different parts of ourselves." - Thomas Shelby
