@@ -1,3 +1,2 @@
-Last updated: 2024-04-22 10:57:35
-Random Quote: Darcy Lewis: "No one would notice if you blew up a Dakota. Honestly, I can't tell them apart."
-Carol Danvers: "South Dakota is on the bottom." - Captain Marvel
+Last updated: 2024-04-22 10:58:08
+Random Quote: There are no true knights, no more than there are gods.  If you can't protect yourself, die and get out of the way of those who can.  Sharp steel and strong arms rule this world, don't ever believe any different.  -  Sandor Clegane
