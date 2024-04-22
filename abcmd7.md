@@ -1,2 +1,2 @@
-Last updated: 2024-04-22 11:18:20
-Random Quote: There is a 83% correlation between times when men are wearing a boutonniere and when they are getting laid... proms, weddings, funerals... thanks for the redhead, grandma! By the way, did you know that "boutonniere" is french for "booty is near"? - Barney Stinson
+Last updated: 2024-04-22 11:18:53
+Random Quote: Yes, it's you who ought to run, you and Lord Tywin and the Mountain and Set Addam and Set Amory and stupid Set Lyonel whoever he is, all of you better run or my brother will kill you, he's a Stark, he's more wolf than man, and so am I.  -  Arya Stark
