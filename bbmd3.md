@@ -1,2 +1,2 @@
-Last updated: 2024-04-22 11:53:48
-Random Quote: That everything’s repeating That this has all happened before Like a massive déjĂ  Vu - 
+Last updated: 2024-04-22 11:54:56
+Random Quote: Yes, it's you who ought to run, you and Lord Tywin and the Mountain and Set Addam and Set Amory and stupid Set Lyonel whoever he is, all of you better run or my brother will kill you, he's a Stark, he's more wolf than man, and so am I.  -  Arya Stark
