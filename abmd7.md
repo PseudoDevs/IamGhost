@@ -1,2 +1,2 @@
-Last updated: 2024-04-22 11:25:19
-Random Quote: This sacred text was eventually brought to the New World in 1776 by none other than Christopher Brolumbus. And that's why he got to bang Pocahontas. - Barney Stinson
+Last updated: 2024-04-22 11:25:52
+Random Quote: Nobody takes an intro class to get on any other path, but the path to not being hungover anymore. I learned that in my intro to something-ology class. - Marshall Eriksen
