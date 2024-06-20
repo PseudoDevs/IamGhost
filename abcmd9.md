@@ -1,2 +1,2 @@
-Last updated: 2024-06-20 06:59:55
-Random Quote: There is a savage beast in every man, and it stirs when you put a sword in his hand.  -  Jorah Mormont
+Last updated: 2024-06-20 07:00:28
+Random Quote: I hate kids. They don't drink, they haven't travelled... - Nicky Nichols
