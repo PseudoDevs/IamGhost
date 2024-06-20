@@ -1,2 +1,3 @@
-Last updated: 2024-06-20 06:48:09
-Random Quote: The only person who gets to torture my brother is me. - Wednesday Addams
+Last updated: 2024-06-20 06:48:43
+Random Quote: Jay: "I got you a little gift to celebrate. I know it’s not much...-"
+Gloria: "It’s practically nothing!" - Gloria Pritchett
