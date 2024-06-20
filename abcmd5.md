@@ -1,2 +1,2 @@
-Last updated: 2024-06-20 07:02:30
-Random Quote: Discouraging premarital sex is against my religion. - Barney Stinson
+Last updated: 2024-06-20 07:03:02
+Random Quote: Knowledge is a weapon, Jon.  Arm yourself well before you ride forth to battle.  -  Maester Aemon
