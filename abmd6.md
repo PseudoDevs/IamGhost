@@ -1,2 +1,2 @@
-Last updated: 2024-06-20 06:40:15
-Random Quote: You don't get to tell me what to look at, I've seen your Pornhub account! Also, who makes a Pornhub account? - Rick Sanchez
+Last updated: 2024-06-20 06:40:50
+Random Quote: Foes and false friends are all around me, Lord Davos.  They infest my city like roaches, and at night I feel them crawling over me.  My son Wendel came to the Twins as a guest.  He ate Lord Walder's bread and salt, and hung his sword upon the wall to feast with his friends.  And they murdered him.  Murdered, I say, and may the Freys choke upon their fables.  I drink with Jared, jape with Symond, promise Rhaegar the hand of my own beloved granddaughter... but never think that means I have forgotten.  The North remembers, Lord Davos.  The North remembers, and the mummer's farce is almost done.  My son is home.  -  Wyman Manderly.
