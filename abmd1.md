@@ -1,2 +1,2 @@
-Last updated: 2024-06-20 07:01:26
-Random Quote: If you're looking for the word that means caring for someone beyond all rationality and wanting them to have everything they want, no matter how much it destroys you, it's love! - Ted Mosby
+Last updated: 2024-06-20 07:02:00
+Random Quote: Once a horse is broken to the saddle, any man can mount him.  Once a beast's been joined to a man, any skinchanger can slip inside and ride him.  Orell was withering inside his feathers, so I took the eagle for my own.  But the joining works both ways, warg.  Orell lives inside me now, whispering how much he hates you.  And I can soar above the Wall, and see with eagle eyes.  -  Varamyr Sixskins
