@@ -1,2 +1,2 @@
-Last updated: 2024-06-20 06:31:56
-Random Quote: "Cap'n Cook?" That's not you? Like I said, no one is looking for you. - Walter White
+Last updated: 2024-06-20 06:32:28
+Random Quote: I swear to you, I was never so alive as when I was winning this throne, or so dead as now that I've won it.  -  Robert Baratheon
