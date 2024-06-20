@@ -1,2 +1,2 @@
-Last updated: 2024-06-20 06:32:17
-Random Quote: Some of you cared. None of you cared enough. - Hannah Baker
+Last updated: 2024-06-20 06:32:50
+Random Quote: Only Renly could vex me so with a piece of fruit.  He brought his doom on himself with his treason, but I did love him, Davos.  I know that now.  I swear, I will go to my grave thinking of my brother's peach.  -  Stannis Baratheon
