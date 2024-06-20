@@ -1,2 +1,2 @@
-Last updated: 2024-06-20 06:49:25
-Random Quote: 'Damn, you look like hell, Chief."Jim Hopper: "Oh yeah? Well, I looked better than your wife when I left her this morning." - Jim Hopper
+Last updated: 2024-06-20 06:49:58
+Random Quote: A true man does what he will, not what he must.  -  Cersei Lannister
