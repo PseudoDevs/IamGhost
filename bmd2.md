@@ -1,4 +1,2 @@
-Last updated: 2024-06-20 06:45:19
-Random Quote: Joel: "Long way or short way?"
-Tess: "I mean, it's the long way or the 'we're fuckin' dead' way."
-Ellie: "Well, I vote long way just based on that limited information." - Ellie Williams
+Last updated: 2024-06-20 06:46:27
+Random Quote: No voting, no debate. It's not a democracy - it's a Rickpublic! - Summer Smith
