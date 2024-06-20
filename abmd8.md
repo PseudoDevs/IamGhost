@@ -1,2 +1,2 @@
-Last updated: 2024-06-20 06:47:36
-Random Quote: If you love something, set it free. Unless it's a tiger. - Phil Dunphy
+Last updated: 2024-06-20 06:49:51
+Random Quote: And there's this other band, led by this woman Stoneheart... Lord Beric's lover, according to one tale.  Supposedly she was hanged by the Freys, but Dondarrion kissed her and brought her back to life, and now she cannot die, no more than he.  -  Set Hyle Hunt
