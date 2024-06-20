@@ -1,2 +1,2 @@
-Last updated: 2024-06-20 06:57:22
-Random Quote: You can tell a lot about a person from his biography. - Phil Dunphy
+Last updated: 2024-06-20 06:58:31
+Random Quote: Young or old, a true knight is sworn to protect those who are weaker than himself, or die in the attempt.  -  Brienne of Tarth
