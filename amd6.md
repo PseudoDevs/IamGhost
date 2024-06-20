@@ -1,2 +1,3 @@
-Last updated: 2024-06-20 06:40:08
-Random Quote: Gloria: "It seemd like all what we did was fight and make love. One time, I'm not kidding you, we fell out of the window together."Jay: "Which one were you doing?" - Jay Pritchett
+Last updated: 2024-06-20 06:40:41
+Random Quote: Bro, bro, bro your broat, gently to the bar
+Hit on sluts, then do ten shots and... - Barney Stinson
