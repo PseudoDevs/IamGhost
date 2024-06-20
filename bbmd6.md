@@ -1,2 +1,2 @@
-Last updated: 2024-06-20 07:07:43
-Random Quote: When you play the game of thrones, you win or you die.  There is no middle ground.  -  Cersei Lannister
+Last updated: 2024-06-20 07:09:26
+Random Quote: All I know is, he's not in the same grade as me anymoreAnd I'm thrilled. - Missy
