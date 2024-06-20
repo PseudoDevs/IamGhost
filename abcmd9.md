@@ -1,3 +1,2 @@
-Last updated: 2024-06-20 06:50:00
-Random Quote: Marylin Thornhill: "I trust Enid has given you the old Nevermore welcome."
-Wednesday: "She's been smothering me with hospitality. I hope to return the favor... in her sleep." - Wednesday Addams
+Last updated: 2024-06-20 06:50:33
+Random Quote: Because you're so broken you don't even trust yourself. And that's scary. - Nate Jacobs
