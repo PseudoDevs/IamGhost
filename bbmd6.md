@@ -1,2 +1,2 @@
-Last updated: 2024-06-20 06:45:53
-Random Quote: In King's Landing, there are two sorts of people.  The players and the pieces.  -  Petyr Baelish
+Last updated: 2024-06-20 06:48:43
+Random Quote: Why is it always the innocents who suffer most, when you high lords play your game of thrones?  -  Varys
