@@ -1,2 +1,2 @@
-Last updated: 2024-06-20 06:59:51
-Random Quote: They'll bend the knee or I'll destroy them.  -  Stannis Baratheon
+Last updated: 2024-06-20 07:00:56
+Random Quote: You could turn King's Landing upside down and not find a single man with a mockingbird sewn over his heart but that does not mean I am friendless.  -  Petyr Baelish
