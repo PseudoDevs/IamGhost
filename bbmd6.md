@@ -1,2 +1,2 @@
-Last updated: 2024-06-20 06:43:05
-Random Quote: A mind needs books as a sword needs a whetstone, if it is to keep its edge.  -  Tyrion Lannister
+Last updated: 2024-06-20 06:43:39
+Random Quote: Why is it always the innocents who suffer most, when you high lords play your game of thrones?  -  Varys
