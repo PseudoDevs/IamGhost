@@ -1,2 +1,2 @@
-Last updated: 2024-06-20 07:08:06
-Random Quote: Yes, it's you who ought to run, you and Lord Tywin and the Mountain and Set Addam and Set Amory and stupid Set Lyonel whoever he is, all of you better run or my brother will kill you, he's a Stark, he's more wolf than man, and so am I.  -  Arya Stark
+Last updated: 2024-06-20 07:08:41
+Random Quote: No.  You were the betrayer.  You turned against me, against your own blood.  They cheated me.  Your horsey husband and his stinking savages.  They were cheats and liars.  They promised me a golden crown and gave me this.  -  Viserys Targaryen
