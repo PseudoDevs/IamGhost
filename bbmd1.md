@@ -1,2 +1,2 @@
-Last updated: 2024-06-20 06:39:06
-Random Quote: We were king's men, knights, and heroes... but some knights are dark and full of terror, my lady.  War makes monsters of us all.  -  Thoros of Myr
+Last updated: 2024-06-20 06:39:41
+Random Quote: Well, maybe this isn't a breakup. Maybe this is two friends getting back together. - Robin Scherbatsky

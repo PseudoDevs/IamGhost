@@ -1,2 +1,3 @@
-Last updated: 2024-06-20 06:39:07
-Random Quote: You shouldn't like things because people tell you you're supposed to. - Jonathan Byers
+Last updated: 2024-06-20 06:39:41
+Random Quote: "Crutch down and bend over a little bit."
+Barney: "Wow, It took five shots of tequila to have you in that position." - Barney Stinson
