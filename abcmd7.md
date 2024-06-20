@@ -1,2 +1,2 @@
-Last updated: 2024-06-20 06:53:21
-Random Quote: Yes! Tonight is gonna be Legen... wait, are we sure it's a good idea to go to a strip club? Shut up, Lily! I'm in charge now... Dary! - Barney Stinson
+Last updated: 2024-06-20 06:57:21
+Random Quote: I have never liked you, Cersei, but you were my own sister, so I never did you harm.  You've ended that.  I will hurt you for this.  I don't know how yet, but give me time.  A day will come when you think yourself safe and happy, and suddenly your joy will turn to ashes in your mouth, and you'll know the debt is paid.  -  Tyrion Lannister
