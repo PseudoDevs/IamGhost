@@ -1,2 +1,4 @@
-Last updated: 2024-06-20 07:01:29
-Random Quote: I'm just saying, love is a million things. - Maddy Perez
+Last updated: 2024-06-20 07:02:02
+Random Quote: Rick: "Guests are fans, Morty, which we are not. We'd like professional badges."
+"Do you have a crew?"
+Rick: "Yes. He's a getaway driver with Asperger's and my butt is a demolitions expert." - Rick Sanchez
