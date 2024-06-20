@@ -1,2 +1,2 @@
-Last updated: 2024-06-20 07:01:54
-Random Quote: Knowledge is a weapon, Jon.  Arm yourself well before you ride forth to battle.  -  Maester Aemon
+Last updated: 2024-06-20 07:02:28
+Random Quote: Whoever the hell that is. But the Crystal Ship definitely travels. - Jesse Pinkman
