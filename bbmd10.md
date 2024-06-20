@@ -1,2 +1,2 @@
-Last updated: 2024-06-20 06:58:34
-Random Quote: Your innocence may be as plain as the scar on your face, but it will not save you.  No more than your father will.  But I might.  Not as your judge.  As your champion.  -  Oberyn Martell
+Last updated: 2024-06-20 06:59:41
+Random Quote: "Cap'n Cook?" That's not you? Like I said, no one is looking for you. - Walter White
