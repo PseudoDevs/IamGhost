@@ -1,2 +1,2 @@
-Last updated: 2024-06-20 06:47:47
-Random Quote: The end is the beginning, and the beginning is the end - 
+Last updated: 2024-06-20 06:48:20
+Random Quote: Mother of dragons.  Mother of monsters.  What have I unleashed upon the world?  A queen I am, but my throne is made of burned bones, and it rests on quicksand.  Without dragons, how could she hope to hold Mereen, much less win back Westeros?  I am the blood of the dragon.  If they are monsters, so am I.  -  Daenerys Targaryen
