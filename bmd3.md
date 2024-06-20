@@ -1,2 +1,2 @@
-Last updated: 2024-06-20 06:31:55
-Random Quote: Dear, in the end, love is what makes us see life in another color, and lately, you have only seen everything black. - Mariví Fuentes
+Last updated: 2024-06-20 06:32:27
+Random Quote: It all goes back and back.  To our mothers and fathers and theirs before them.  We are puppets dancing on the strings of those who came before us, and one day our own children will take up our strings and dance in our steads.  -  Tyrion Lannister
