@@ -1,2 +1,2 @@
-Last updated: 2024-06-20 06:38:56
-Random Quote: Grief never gets any smaller, so you have to make yourself bigger around it. The best way to do that is to open up. Let people in. - Rendell Locke
+Last updated: 2024-06-20 06:39:28
+Random Quote: Miss Garvey's parents may stay at our place as long as they like. Provided they each arrive in an urn. - Barney Stinson
