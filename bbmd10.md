@@ -1,2 +1,2 @@
-Last updated: 2024-06-20 06:53:07
-Random Quote: They're all weighing the beskar in their minds, but not me. No. I for one, I celebrate your success, because it is my success as well. Hell, even I'm rich. - Greef Karga
+Last updated: 2024-06-20 06:53:40
+Random Quote: Nuncle always had a fondness for freaks and fools.  My father used to fight with him about it.  Let the wizards call upon their gods.  The Damphair will call on ours, and drown them.  -  Asha Greyjoy
