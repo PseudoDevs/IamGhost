@@ -1,2 +1,2 @@
-Last updated: 2024-04-22 11:34:35
-Random Quote: Barney: "He's the awesomest, most best-lookingest, greatest guy ever!"Lily: "He's exactly like Barney."Barney: "That's what I just said." - Barney Stinson
+Last updated: 2024-06-20 06:31:44
+Random Quote: You were supposed to be my wife, to bear me children with silver hair and purple eyes, to keep the blood of the dragon pure.  I took care of you.  I taught you who you were.  I fed you.  I sold our mother's crown to keep you fed.  -  Viserys Targaryen
