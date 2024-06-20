@@ -1,2 +1,2 @@
-Last updated: 2024-06-20 07:04:00
-Random Quote: When dead men come hunting us in the night, do you think it matters who sits the Iron Throne?  -  Jeor Mormont
+Last updated: 2024-06-20 07:04:33
+Random Quote: There are no men like me.  There's only me.  -  Jaime Lannister
