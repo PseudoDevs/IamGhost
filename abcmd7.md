@@ -1,3 +1,2 @@
-Last updated: 2024-06-20 07:04:13
-Random Quote: Ellie: "There's not gonna be anything bad in here?"
-Joel: "Just you." - Joel Miller
+Last updated: 2024-06-20 07:04:45
+Random Quote: Someone has to protect this family from the man who protects this family. - Skyler White
