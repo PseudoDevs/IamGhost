@@ -1,2 +1,2 @@
-Last updated: 2024-06-20 07:00:50
-Random Quote: There is only one god, and his name is Death.  And there is only one thing we say to Death: not today.  -  Syrio Forel
+Last updated: 2024-06-20 07:01:24
+Random Quote: Pornstache: "You are not an agent of God, okay? God can do so much better than you. You must know that, right?"Pennsatucky: "Know what?"Pornstache: "Jesus Christ, how the fuck did you survive infancy?"Pennsatucky: "My auntie helped my momma..."Pornstache: "That's a rhetorical question! Do you not understand what a fucking rhetorical question is?" - George 'Pornstache' Mendez
