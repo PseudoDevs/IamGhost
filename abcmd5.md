@@ -1,2 +1,2 @@
-Last updated: 2024-06-20 07:03:02
-Random Quote: Knowledge is a weapon, Jon.  Arm yourself well before you ride forth to battle.  -  Maester Aemon
+Last updated: 2024-06-20 07:03:35
+Random Quote: I've only known one other being like this. A wise Jedi Master named Yoda. - Ahsoka Tano
