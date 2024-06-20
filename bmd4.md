@@ -1,2 +1,2 @@
-Last updated: 2024-06-20 06:50:00
-Random Quote: Do you remember that cave?  We should have stayed in that cave.  I told you so.  -  Ygritte
+Last updated: 2024-06-20 06:50:33
+Random Quote: I have served six kings, but here before us lies the greatest man I ever knew.  Lord Tywin wore no crown, yet he was all a king should be.  -  Grand Maester Pycelle
