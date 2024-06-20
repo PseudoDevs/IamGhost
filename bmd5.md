@@ -1,2 +1,2 @@
-Last updated: 2024-06-20 06:48:09
-Random Quote: I am IRONBORN!  I laugh at death.  -  Victarion Greyjoy
+Last updated: 2024-06-20 06:48:42
+Random Quote: When I have kids, and I tell them how I met their mother, I'm gonna tell them everything. The whole damn story. - Ted Mosby
