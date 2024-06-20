@@ -1,2 +1,2 @@
-Last updated: 2024-06-20 07:08:44
-Random Quote: The Burned Men fear nothing.  Timett, son of Timett will ride with the lions.  -  Timett, son of Timett
+Last updated: 2024-06-20 07:09:17
+Random Quote: My real father died in King's Landing.  I made a choice, and I chose wrong.  -  Theon Greyjoy
