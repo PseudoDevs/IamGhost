@@ -1,2 +1,2 @@
-Last updated: 2024-06-20 06:47:36
-Random Quote: I swear on my name. And the names of the Ancestors, that I shall walk the way of the Mand'alor and the words of the Creed shall be forever forged in my heart. - Din Djarin
+Last updated: 2024-06-20 06:49:16
+Random Quote: I am Pablo Emilio Escobar Gaviria. My eyes are everywhere. That means you guys can't move a finger in all of Antioquia without me knowing about it. Do you understand? Not a finger. One day, I'm going to be president of the Republic of Colombia. So look, I make deals for a living. Now, you can stay calm and accept my deal, or accept the consequences. - Pablo Escobar
