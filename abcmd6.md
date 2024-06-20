@@ -1,2 +1,2 @@
-Last updated: 2024-06-20 07:07:09
-Random Quote: A family is like a small business. And with a small business, at times, there comes a bit of transition. - Marty Byrde
+Last updated: 2024-06-20 07:08:17
+Random Quote: Think of me as Yoda - only, instead of being little and green, I wear suits and I'm awesome. I'm your bro. I'm Broda. - Barney Stinson
