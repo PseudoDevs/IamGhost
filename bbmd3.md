@@ -1,2 +1,2 @@
-Last updated: 2024-06-20 07:05:47
-Random Quote: Of course, nobody I knew in East-Texas in 1989 cared about Newtonian Physics. The only Newtons they cared about were Wayne and Fig. - Sheldon Cooper
+Last updated: 2024-06-20 07:06:19
+Random Quote: My lady, I have seen how you look at my brother.  Loras is valiant and handsome, and we all love him dearly... but your Imp will make a better husband.  He is a bigger man than he seems, I think.  -  Garlan Tyrell
