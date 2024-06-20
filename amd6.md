@@ -1,2 +1,2 @@
-Last updated: 2024-06-20 06:33:57
-Random Quote: You're a beautiful, sweet girl. Fuck this guy! - Nicky Nichols
+Last updated: 2024-06-20 06:34:30
+Random Quote: When dead men come hunting us in the night, do you think it matters who sits the Iron Throne?  -  Jeor Mormont
