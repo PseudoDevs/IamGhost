@@ -1,2 +1,2 @@
-Last updated: 2024-06-20 06:43:23
-Random Quote: There are moments when we must understand that the decisions we make influence more than just our own fates. - Claudia
+Last updated: 2024-06-20 06:43:56
+Random Quote: I have my voice, and the god is with me.  Mine is the strength of the sea, a strength the Crow's Eye cannot hope to withstand.  The waves may break upon the mountain, yet still they come, wave upon wave, and in the end only pebbles remain where once the mountain stood.  And soon even the pebbles are swept away, to be ground beneath the sea for all eternity.  -  Aeron Greyjoy
