@@ -1,2 +1,2 @@
-Last updated: 2024-06-20 06:38:40
-Random Quote: The universe is just out here giving like zero fs. - Maddy Perez
+Last updated: 2024-06-20 06:39:13
+Random Quote: The absolute worst part of depression is that even though you know you're depressed, You're unable to stop yourself from getting worse. - Rue Bennett
