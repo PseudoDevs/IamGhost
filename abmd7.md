@@ -1,2 +1,2 @@
-Last updated: 2024-06-20 07:01:55
-Random Quote: The Lord of Light cherishes the innocent.  There is no sacrifice more precious.  From his king's blood and his untainted fire, a dragon shall be born.  -  Melisandre
+Last updated: 2024-06-20 07:02:27
+Random Quote: Everyone sounds like Meryl Streep with a gun to their head. - Mike Ehrmantraut
