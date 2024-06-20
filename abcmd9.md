@@ -1,2 +1,2 @@
-Last updated: 2024-06-20 06:39:39
-Random Quote: He is strong with the Force, but talent without training is nothing. I will give my life to protect the child, but he will not be safe until he masters his abilities. - Luke Skywalker
+Last updated: 2024-06-20 06:40:11
+Random Quote: The Lion does not concern itself with the opinions of sheep.  -  Tywin Lannister
