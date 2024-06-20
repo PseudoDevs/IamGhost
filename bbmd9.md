@@ -1,2 +1,2 @@
-Last updated: 2024-06-20 06:46:27
-Random Quote: The Boltons have always been as cruel as they are cunning, but this one seems a beast in human skin.  -  Robett Glover
+Last updated: 2024-06-20 06:47:01
+Random Quote: No.  You were the betrayer.  You turned against me, against your own blood.  They cheated me.  Your horsey husband and his stinking savages.  They were cheats and liars.  They promised me a golden crown and gave me this.  -  Viserys Targaryen

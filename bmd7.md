@@ -1,2 +1,2 @@
-Last updated: 2024-06-20 06:46:27
-Random Quote: Foes and false friends are all around me, Lord Davos.  They infest my city like roaches, and at night I feel them crawling over me.  My son Wendel came to the Twins as a guest.  He ate Lord Walder's bread and salt, and hung his sword upon the wall to feast with his friends.  And they murdered him.  Murdered, I say, and may the Freys choke upon their fables.  I drink with Jared, jape with Symond, promise Rhaegar the hand of my own beloved granddaughter... but never think that means I have forgotten.  The North remembers, Lord Davos.  The North remembers, and the mummer's farce is almost done.  My son is home.  -  Wyman Manderly.
+Last updated: 2024-06-20 06:47:01
+Random Quote: When the truth offends me, we lie and we lie until we can no longer remember it is even there. Every lie we tell incurs a debt to the truth. Sooner or later, that debt is paid. - Valery Legasov
