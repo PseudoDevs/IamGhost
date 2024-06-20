@@ -1,2 +1,2 @@
-Last updated: 2024-06-20 06:48:23
-Random Quote: Ted: "She was 15?!"Barney: "No. A 15. Like in blackjack."Ted: "As in.. not sure whether you'd hit it?"Barney: "Exactly!" - Barney Stinson
+Last updated: 2024-06-20 06:48:55
+Random Quote: You don’t want a criminal lawyer. You want a criminal lawyer. - Jesse Pinkman
