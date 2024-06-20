@@ -1,2 +1,5 @@
-Last updated: 2024-06-20 06:34:31
-Random Quote: Tarly, when I was a lad half your age, my lady mother told me that if I stood about with my mouth open, a weasel was like to mistake it for his lair and run down my throat.  If you have something to say, say it.  Otherwise, beware of weasels.  -  Jeor Mormont
+Last updated: 2024-06-20 06:35:04
+Random Quote: Barney: "You can't spell 'game' without 'me' and 'me' has the best game."
+Ted: "Yeah well, I got so much game, I'm Cornish game hen."
+Barney: "Oh, yeah? I'm the New York State gaming commissioner."
+Ted: "Well, I'm The Game. Well-crafted, keep-you-guessing thriller starring Michael Douglas and Sean Penn." - Ted Mosby
