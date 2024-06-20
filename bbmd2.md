@@ -1,2 +1,2 @@
-Last updated: 2024-06-20 06:56:13
-Random Quote: He climbed onto his throne over the corpses of children, though I will grant you he was no Joffrey.  -  Arianne Martell
+Last updated: 2024-06-20 06:58:31
+Random Quote: I pray for a glimpse of Azor Ahai, and R'hllor shows me only Snow.  -  Melisandre

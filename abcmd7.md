@@ -1,2 +1,2 @@
-Last updated: 2024-06-20 06:57:57
-Random Quote: Will you explain to me how that was offside? No, I'm asking you, seriously. Explain offside to me! It makes no sense. - Rebecca Welton
+Last updated: 2024-06-20 06:58:31
+Random Quote: The Night's Watch is a sworn brotherhood.  We have no families.  None of us will ever father sons.  Our wife is duty.  Our mistress is honor.  -  Benjen Stark
