@@ -1,2 +1,2 @@
-Last updated: 2024-06-20 06:48:42
-Random Quote: I do have an angle, Craig. It's an angle called justice. - Saul Goodman
+Last updated: 2024-06-20 06:49:52
+Random Quote: Catelyn would sooner Lord Umber had seen fit to stay sober, but telling the Greatjon not to drink was like telling him not to breathe for a few hours.  -  Catelyn Stark
