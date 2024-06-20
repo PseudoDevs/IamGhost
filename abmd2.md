@@ -1,2 +1,2 @@
-Last updated: 2024-06-20 06:39:03
-Random Quote: If we're together long enough I hope that one day you see yourself like I do. - Kevin
+Last updated: 2024-06-20 06:40:08
+Random Quote: Lord Seaworth is a man of humble birth, but he reminded me of my duty, when all I could think of was my rights.  I had the cart before the horse, Davos said.  I was trying to win the throne to save the kingdom, when I should have been trying to save the kingdom to win the throne.  -  Stannis Baratheon
