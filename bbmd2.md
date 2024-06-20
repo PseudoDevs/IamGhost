@@ -1,2 +1,2 @@
-Last updated: 2024-06-20 06:43:38
-Random Quote: What if Einstein's parents had held him back? We wouldn't even have the... - I was gonna say atomic bomb, but there's probably a better example. - Meemaw
+Last updated: 2024-06-20 06:44:11
+Random Quote: I did it for me. I liked it. I was good at it. And I was really... I was alive. - Walter White
