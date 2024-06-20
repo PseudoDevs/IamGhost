@@ -1,2 +1,2 @@
-Last updated: 2024-06-20 06:35:15
-Random Quote: The stone is strong... the roots of the trees grow deep, and under the ground the Kings of Winter sit their thrones.  So long as those remained, Winterfell remained.  It was not dead, just broken.  Like me... I'm not dead either.  -  Bran Stark
+Last updated: 2024-06-20 06:35:48
+Random Quote: You want to be a bounty hunter? Make the best deal for yourself and survive! - Fennec Shand
