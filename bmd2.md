@@ -1,4 +1,2 @@
-Last updated: 2024-06-20 06:34:36
-Random Quote: Lorna Morello: "I need to start tightening up. You're making me feel like a cave."
-Nicky Nichols: "Baby, it's a c-nt, it stretches!"
-Lorna Morello: "Yeah, sometimes I feel like you're trying to climb inside my womb." - Lorna Morello
+Last updated: 2024-06-20 06:35:09
+Random Quote: That everything’s repeating That this has all happened before Like a massive déjĂ  Vu - 
