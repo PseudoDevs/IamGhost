@@ -1,2 +1,2 @@
-Last updated: 2024-06-20 06:57:22
-Random Quote: Baby, can we grow sandwiches behind the garage? - Marshall Eriksen
+Last updated: 2024-06-20 06:57:57
+Random Quote: Spare me your empty little compliments, girl... and your ser's.  I am no knight.  I spit on them and their vows.  My brother is a knight.  -  Sandor Clegane
