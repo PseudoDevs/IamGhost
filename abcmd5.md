@@ -1,2 +1,2 @@
-Last updated: 2024-06-20 07:05:14
-Random Quote: I just want to stand on top of the Wall and piss off the edge of the world.  -  Tyrion Lannister
+Last updated: 2024-06-20 07:05:47
+Random Quote: Foes and false friends are all around me, Lord Davos.  They infest my city like roaches, and at night I feel them crawling over me.  My son Wendel came to the Twins as a guest.  He ate Lord Walder's bread and salt, and hung his sword upon the wall to feast with his friends.  And they murdered him.  Murdered, I say, and may the Freys choke upon their fables.  I drink with Jared, jape with Symond, promise Rhaegar the hand of my own beloved granddaughter... but never think that means I have forgotten.  The North remembers, Lord Davos.  The North remembers, and the mummer's farce is almost done.  My son is home.  -  Wyman Manderly.

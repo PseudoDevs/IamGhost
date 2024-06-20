@@ -1,2 +1,2 @@
-Last updated: 2024-06-20 07:05:14
-Random Quote: You're a freak, but what? Do you wanna be normal? Do you wanna be just like everyone else? - Jonathan Byers
+Last updated: 2024-06-20 07:05:47
+Random Quote: Of course, nobody I knew in East-Texas in 1989 cared about Newtonian Physics. The only Newtons they cared about were Wayne and Fig. - Sheldon Cooper
