@@ -1,2 +1,2 @@
-Last updated: 2024-06-20 06:57:57
-Random Quote: Spare me your empty little compliments, girl... and your ser's.  I am no knight.  I spit on them and their vows.  My brother is a knight.  -  Sandor Clegane
+Last updated: 2024-06-20 06:59:06
+Random Quote: We're going to Buffalo... and I've seen women from there; the city's aptly named. - Barney Stinson
