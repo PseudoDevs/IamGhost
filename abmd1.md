@@ -1,2 +1,2 @@
-Last updated: 2024-06-20 06:45:01
-Random Quote: You're both young, you're both unsure about your place in the universe, and you both want to be Grandpa's favorite. I can fix this. Morty, sit here. Summer, you sit here. Now, listen - I know the two of you are very different from each other in a lot of ways, but you have to understand that as far as Grandpa's concerned, you're both pieces of sh-! Yeah, I can prove it mathematically. Actually, l-l-let me grab my whiteboard. This has been a long time coming, anyways. - Rick Sanchez
+Last updated: 2024-06-20 06:45:34
+Random Quote: Barney: "I met a girl last night. So perky and full of life and not at all fake."Ted: "You're talking about her boobs, right?"Barney: "Si. And that wasn't Spanish, that was cup size. What up?!" - Barney Stinson
