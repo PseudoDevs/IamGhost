@@ -1,2 +1,2 @@
-Last updated: 2024-06-20 06:41:05
-Random Quote: Tarly, when I was a lad half your age, my lady mother told me that if I stood about with my mouth open, a weasel was like to mistake it for his lair and run down my throat.  If you have something to say, say it.  Otherwise, beware of weasels.  -  Jeor Mormont
+Last updated: 2024-06-20 06:41:37
+Random Quote: Our brain isn't always entirely reliable. Everything that we see and feel and hear are the result of electrical impulses. And sometimes we misinterpret those impulses. It's what makes people go mad. - Maura Franklin
