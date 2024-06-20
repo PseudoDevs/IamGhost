@@ -1,2 +1,2 @@
-Last updated: 2024-06-20 06:40:48
-Random Quote: Name one thing in this world that is non negotiable. - Walter White
+Last updated: 2024-06-20 06:41:22
+Random Quote: Roose Bolton's cold and cunning, aye, but a man can deal with Roose.  We've all known worse.  But this bastard son of his... they say he's mad and cruel, a monster.  -  Locke
