@@ -1,2 +1,2 @@
-Last updated: 2024-06-20 06:56:46
-Random Quote: Those called "fools" are the only ones brave enough to see the truth. - Rick Sanchez
+Last updated: 2024-06-20 06:59:41
+Random Quote: My father won all the battles.  He killed Prince Rhaegar and took the crown, while your father was hiding under Casterly Rock.  A strong king acts boldly, he doesn't just talk.  -  Joffrey Baratheon
