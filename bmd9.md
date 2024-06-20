@@ -1,2 +1,2 @@
-Last updated: 2024-06-20 07:01:25
-Random Quote: I don't take nothin' a drug addict says personally. 'Cause I don't believe nothin' a drug addict say. - Fezco
+Last updated: 2024-06-20 07:01:59
+Random Quote: It's not like anyone's 100% straight or 100% gay. - Maddy Perez
