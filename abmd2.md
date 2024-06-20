@@ -1,2 +1,2 @@
-Last updated: 2024-06-20 06:49:26
-Random Quote: Ted: "You're like Mary Poppins, if her magic purse was also filled with drugs."Robin: "If? Ted, the kids in that movie jumped into a painting and spent 15 minutes chasing a cartoon fox. Spoonful of sugar? Grow Up!" - Robin Scherbatsky
+Last updated: 2024-06-20 06:49:59
+Random Quote: When I'm king in my own right, I'm going to outlaw beets.  -  Tommen Baratheon
