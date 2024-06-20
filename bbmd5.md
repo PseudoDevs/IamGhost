@@ -1,2 +1,2 @@
-Last updated: 2024-06-20 06:57:22
-Random Quote: Out there, I don't stand a chance. I do in here. - Jang Deok-su
+Last updated: 2024-06-20 06:57:57
+Random Quote: I never asked for this, no more than I asked to be king.  Yet dare I disregard her?  We do not choose our destinies.  Yet we must... we must do our duty, no?  Great or small, we must do our duty.  -  Stannis Baratheon
