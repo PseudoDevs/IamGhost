@@ -1,5 +1,2 @@
-Last updated: 2024-06-20 06:52:02
-Random Quote: John Flynn: "Rogers, get in there!"
-Peggy Carter: "He can't."
-John Flynn: "Stark, you go in!"
-Howard Stark: "What? Are you crazy? I push the buttons. I'm the buttons guy." - Howard Stark
+Last updated: 2024-06-20 06:52:35
+Random Quote: For a joke to work, it has to have part of truth and part of pain. - Berlin
