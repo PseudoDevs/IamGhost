@@ -1,2 +1,2 @@
-Last updated: 2024-06-20 07:06:24
-Random Quote: Ted: "Oh, screw 'The One'!"Barney: "What?"Ted: "Every date I've been on lately has been brutal. Last week, I went out with a girl whose favorite band was Glee. Plus, it's almost Valentine's Day and I'm alone without anything close to a girlfriend. So... all aboard!"Barney: "I have never been more proud of you." - Barney Stinson
+Last updated: 2024-06-20 07:06:56
+Random Quote: His blood ran black.  Made him my brother as much as yours.  -  Yoren of the Night's Watch
