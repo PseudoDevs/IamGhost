@@ -1,2 +1,2 @@
-Last updated: 2024-06-20 06:44:01
-Random Quote: Barney: "Ted what is my one rule?"Ted: "You can tell how old a girl is by her elbows?"Barney: "My other one rule."Ted: "Flax seed relieves upset stomach?"Barney: "My other one rule."Ted: "Always have a fake pair of concert tickets in your pocket in case Lily invites you to something stupid?"Barney: "My other one rule."Ted: "Labanese girls sprint to third base and then stay there."Barney: "My other one rule."Ted: "New is always better?"Barney: "New is always better!" - Barney Stinson
+Last updated: 2024-06-20 06:44:34
+Random Quote: Catelyn would sooner Lord Umber had seen fit to stay sober, but telling the Greatjon not to drink was like telling him not to breathe for a few hours.  -  Catelyn Stark
