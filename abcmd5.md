@@ -1,2 +1,2 @@
-Last updated: 2024-06-20 07:00:16
-Random Quote: People are oblivious to reality. They only see what they want to see, when all they have to do is shift their perspective to see the full scope of things. - Yuk Je
+Last updated: 2024-06-20 07:00:51
+Random Quote: Pictures can be twisted and used against you and haunt you forever. - Hannah Baker
