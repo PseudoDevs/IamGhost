@@ -1,2 +1,2 @@
-Last updated: 2024-06-20 06:46:27
-Random Quote: The more you move up in the world, the more enemies you make. - Rue Bennett
+Last updated: 2024-06-20 06:47:00
+Random Quote: Old stories are like old friends, Old Nan used to say.  You have to visit them from time to time.  -  Bran Stark

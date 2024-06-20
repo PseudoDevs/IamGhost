@@ -1,2 +1,2 @@
-Last updated: 2024-06-20 06:46:27
-Random Quote: I'm KFC baby - you don't mess with the Colonel's recipe! - Barney Stinson
+Last updated: 2024-06-20 06:47:00
+Random Quote: Wylla.  Did you see how brave she was.  Even when I threatened to have her tongue out, she reminded me of the debt White Harbor owes to the Starks of Winterfell, a debt that can never be repaid.  Wylla spoke from the heart... not every woman can be as brave as my Wylla.  -  Wyman Manderly
