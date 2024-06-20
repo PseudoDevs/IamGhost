@@ -1,3 +1,3 @@
-Last updated: 2024-06-20 06:37:24
-Random Quote: Weems: "No doubt you'll find something that tickles your fancy."
-Wednesday: "The last person who tickled me lost a finger." - Wednesday Addams
+Last updated: 2024-06-20 06:38:32
+Random Quote: "How do you take your tea?"
+Ted: "Well, normally right back to the counter because there's been a terrible mistake." - Jim Hopper
