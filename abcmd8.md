@@ -1,2 +1,2 @@
-Last updated: 2024-06-20 06:41:24
-Random Quote: The god took me deep beneath the waves and drowned the worthless thing I was.  When he cast me forth again he gave me eyes to see, ears to hear, and a voice to spread his word, that I might be his prophet and teach his truth to those who have forgotten.  I was not made to sit upon the Seastone Chair... no more than Euron Crow's Eye.  For I have heard the god, who says, no godless man may sit my Seastone Chair.  -  Aeron Greyjoy
+Last updated: 2024-06-20 06:42:31
+Random Quote: I have been a voice with no body. A body, but not human. And now, a memory made real. Who knows what I might be next? - Vision
