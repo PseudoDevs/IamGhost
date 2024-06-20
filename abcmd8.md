@@ -1,2 +1,2 @@
-Last updated: 2024-06-20 07:05:16
-Random Quote: Rick: "Hey Morty, quick favor."Morty: "What, cover me in gasoline and spiders? Fine, yeah, I'm in."Rick: "Wasn't my first pitch but hey, not gonna waste this opportunity." - Rick Sanchez
+Last updated: 2024-06-20 07:05:49
+Random Quote: Sometimes you gotta do bad things to catch bad people. - Javier Pe�a
