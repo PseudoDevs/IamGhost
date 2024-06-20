@@ -1,2 +1,2 @@
-Last updated: 2024-06-20 07:07:08
-Random Quote: The more you give a king, the more he wants.  We are walking on a bridge of ice with an abyss on either side.  Pleasing one king is difficult enough.  Pleasing two is hardly possible.  -  Jon Snow
+Last updated: 2024-06-20 07:07:43
+Random Quote: Rule Number One: Don't ever fall in love with a straight girl. - Alex Vause
