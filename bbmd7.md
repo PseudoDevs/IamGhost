@@ -1,2 +1,2 @@
-Last updated: 2024-06-20 06:57:57
-Random Quote: Robb, who had been more a brother to Theon than any son born of Balon Greyjoy's loins.  Murdered at the Red Wedding, butchered by the Freys.  I should have been with him.  Where was I?  I should have died with him.  -  Theon Greyjoy
+Last updated: 2024-06-20 06:59:06
+Random Quote: Ted: "Robin and I already had our backslide. Last Thanksgiving, not even that long ago."Stella: "Did you place a large bet against yourself?" - Stella Zinman
