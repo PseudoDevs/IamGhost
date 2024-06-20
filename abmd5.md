@@ -1,2 +1,2 @@
-Last updated: 2024-06-20 06:52:10
-Random Quote: I learned form Set Arthur Dayne, the Sword of the Morning, who could have slain all five of you with his left hand while he was taking a piss with the right.  -  Jaime Lannister
+Last updated: 2024-06-20 06:52:44
+Random Quote: Everyone sounds like Meryl Streep with a gun to their head. - Mike Ehrmantraut
