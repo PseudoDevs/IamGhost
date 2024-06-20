@@ -1,2 +1,2 @@
-Last updated: 2024-06-20 06:52:10
-Random Quote: My old septon used to say that books are dead men talking.  Dead men should keep quiet, is what I say.  No one wants to hear a dead man's yabber.  -  Dolorous Edd Tollett
+Last updated: 2024-06-20 06:52:45
+Random Quote: The past is always with us, Tyler. Now, you can try and run away but it's always there. - Rendell Locke
