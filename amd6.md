@@ -1,2 +1,2 @@
-Last updated: 2024-06-20 06:42:20
-Random Quote: Strip off their skins.  Lord Bolton, he used to say a naked man has few secrets, but a flayed man's got none.  -  Ramsay Bolton
+Last updated: 2024-06-20 06:42:52
+Random Quote: I hate kids. They don't drink, they haven't travelled... - Nicky Nichols
