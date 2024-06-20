@@ -1,2 +1,2 @@
-Last updated: 2024-06-20 06:47:35
-Random Quote: I will see, and hear, and learn, and when I have I will carry the word back to the Wall.  The wildlings had taken him for an oathbreaker, but in his heart he was still a man of the Night's Watch, doing the last duty that Qhorin Halfhand had laid on him.  Before I killed him.  -  Jon Snow
+Last updated: 2024-06-20 06:48:09
+Random Quote: I am IRONBORN!  I laugh at death.  -  Victarion Greyjoy

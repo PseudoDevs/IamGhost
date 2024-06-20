@@ -1,2 +1,2 @@
-Last updated: 2024-06-20 06:46:27
-Random Quote: I’m just a tiny section of a huge tumor that is much bigger than any of us can imagine. - 
+Last updated: 2024-06-20 06:48:09
+Random Quote: We all must choose.  Man or woman, young or old, lord or peasant, our choices are the same.  We choose light or we choose darkness.  -  Melisandre
