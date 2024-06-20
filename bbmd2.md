@@ -1,2 +1,2 @@
-Last updated: 2024-06-20 06:51:35
-Random Quote: Lily: "Ted, you did this all yourself?"Ted: "Just like Ryan Gosling in 'The Notebook'. It was pretty manly 'til I mentioned Ryan Gosling in 'The Notebook', huh?" - Ted Mosby
+Last updated: 2024-06-20 06:52:10
+Random Quote: Let's hit a motel, jam in a quickie and get you back to your wedding. - Ted Mosby
