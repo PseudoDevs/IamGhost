@@ -1,2 +1,2 @@
-Last updated: 2024-06-20 07:07:28
-Random Quote: The men of Westeros are ever rushing.  What good is this, I ask you?  He who hurries through life hurries to his grave.  -  Salladhor Saan
+Last updated: 2024-06-20 07:08:02
+Random Quote: We didn't choose this life, we're just living in it. - Number Five

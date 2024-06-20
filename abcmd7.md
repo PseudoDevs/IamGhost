@@ -1,2 +1,2 @@
-Last updated: 2024-06-20 07:07:28
-Random Quote: I only have one rule. For every three 10's you bang, throw a bone to a 5. They're grateful and hard working and let's face it, sometimes you just want to lay there. - Barney Stinson
+Last updated: 2024-06-20 07:08:02
+Random Quote: I did the world a favor. People like Dalton shouldn't be allowed to procreate. Getting expelled was just a bonus. - Wednesday Addams
