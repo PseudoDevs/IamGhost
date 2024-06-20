@@ -1,2 +1,2 @@
-Last updated: 2024-06-20 06:34:31
-Random Quote: Yes, I'm in a rotten mood. No, I don't want to talk about it. Yes, this has booze in it. No, it's not my first. - Lily Aldrin
+Last updated: 2024-06-20 06:35:04
+Random Quote: You grew up with actors.  You learned their craft and you learned it well.  I grew up with soldiers.  I learned how to die a long time ago.  -  Eddard Stark

@@ -1,2 +1,3 @@
-Last updated: 2024-06-20 06:34:30
-Random Quote: I don't know what kind of fed up sht you got going inside of your head. I don't know how to help, but I could tell you one thing: This drug sht - it's not the answer. - Fezco
+Last updated: 2024-06-20 06:35:04
+Random Quote: Kids, you can't talk yourself into falling in love. It doesn't take days of deliberation. When it's real, you know pretty quickly and with absolute certainty.
+I had forgotten that, but I was about to be reminded... - Ted Mosby
