@@ -1,2 +1,2 @@
-Last updated: 2024-06-20 06:58:31
-Random Quote: The Night's Watch is a sworn brotherhood.  We have no families.  None of us will ever father sons.  Our wife is duty.  Our mistress is honor.  -  Benjen Stark
+Last updated: 2024-06-20 06:59:06
+Random Quote: If ever a man deserved to die screaming, it was Gregor Clegane.  -  Doran Martell
