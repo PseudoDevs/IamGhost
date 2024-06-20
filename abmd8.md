@@ -1,2 +1,2 @@
-Last updated: 2024-06-20 07:04:50
-Random Quote: First times are special. Unique. But the last times are beyond comparison. They are priceless. But people don’t know it’s their last time. - Berlin
+Last updated: 2024-06-20 07:05:25
+Random Quote: If I'm always looking back, I'm never looking ahead. We are who we are because of consequences. You can't live without consequences. - Morty Smith
