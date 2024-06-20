@@ -1,2 +1,2 @@
-Last updated: 2024-06-20 06:52:12
-Random Quote: Get the keys and remove those chains from him, before you make me rue the day I raped your mother.  -  Roose Bolton
+Last updated: 2024-06-20 06:53:20
+Random Quote: Power resides where men believe it resides... It's a trick, a shadow on the wall.  -  Varys
