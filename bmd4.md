@@ -1,2 +1,2 @@
-Last updated: 2024-04-22 11:42:00
-Random Quote: Robin: "He has a book of plays he uses to trick women into sleeping with him."Patrice: "Oh, no way. Barney's my honey bear."Robin: "Actually, one of his plays is called 'The Honey Bear'. He dresses up like Winnie the Pooh, and the next thing you know, his hand's stuck in your pot." - Robin Scherbatsky
+Last updated: 2024-06-20 06:31:20
+Random Quote: I know about the promiese... Maester Theomore, tell them!  A thousand years before the Conquest, a promise was made, and oaths were sworn in the Wolf's Den before the Old Gods and the new.  When we were sore beset and friendless, hounded from our homes and in peril of our lives, the wolves took us in and nourished us and protected us against our enemies.  The city is built upon the land they gave us.  In return we swore that we should always be their men.  Stark men!  -  Wylla Manderly
