@@ -1,2 +1,5 @@
-Last updated: 2024-06-20 06:46:02
-Random Quote: Because they are the knights of summer, and winter is coming.  -  Catelyn Stark
+Last updated: 2024-06-20 06:47:08
+Random Quote: Marshall: "What the hell happened?"
+Barney: "I said no questions asked."
+Marshall: "Star, clover, horseshoe... Barney, did you swallow real versions of all the Lucky Charms items?"
+Barney: "No questions asked! Now come on. Let's hit the bar. I'm buying. I just won 50 bucks from a little Irish guy on a dare." - Barney Stinson
