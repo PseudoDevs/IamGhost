@@ -1,2 +1,2 @@
-Last updated: 2024-06-20 06:32:27
-Random Quote: More beast than boy, that one, puffed up with pride and bloodlust... Robb Stark betrayed us all.  He abandoned the north to the cruel mercies of the ironmen to carve out a fairer kingdom for himself along the Trident.  Then he abandoned the riverlords who had risked much and more for him, breaking his marriage pact with my grandfather to wed the first western wench who caught his eye.  The Young Wolf?  He was a vile dog and died like one.  -  Rhaegar Frey
+Last updated: 2024-06-20 06:33:00
+Random Quote: Ted: "In a city of eight million people, you happened to walk into the club where she works? Maybe it's destiny."Barney: "No, Destiny strips at 'The Melon Patch'. They're people, Ted. Try to keep them straight!" - Barney Stinson
