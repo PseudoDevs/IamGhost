@@ -1,2 +1,2 @@
-Last updated: 2024-06-20 06:57:40
-Random Quote: Enjoy your mai-tai, because soon you will be wearing my tie! - Marshall Eriksen
+Last updated: 2024-06-20 06:58:13
+Random Quote: It is R'hllor who brings you back, my lord.  The Lord of Light.  I am only his instrument.  -  Thoros of Myr
