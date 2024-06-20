@@ -1,2 +1,2 @@
-Last updated: 2024-06-20 06:46:42
-Random Quote: Forgotten? Oh, Wanda, I'm incapable of forgetfulness. I remember everything. That's not an exaggeration. In fact... I'm incapable of exaggeration. - Vision
+Last updated: 2024-06-20 06:47:15
+Random Quote: Do you think I can't tell Lord Stannis from Lord Tywin?  They're both bungholes who think they're too noble to shit, but never mind about that, I know the difference.  -  Walder Frey
