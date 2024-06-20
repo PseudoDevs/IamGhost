@@ -1,2 +1,2 @@
-Last updated: 2024-06-20 06:37:56
-Random Quote: You grew up with actors.  You learned their craft and you learned it well.  I grew up with soldiers.  I learned how to die a long time ago.  -  Eddard Stark
+Last updated: 2024-06-20 06:38:30
+Random Quote: To live is to risk it all. Otherwise you're just an inert chunk of randomly assembled molecules drifting wherever the universe blows you. - Rick Sanchez
