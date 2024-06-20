@@ -1,2 +1,9 @@
-Last updated: 2024-04-22 11:54:20
-Random Quote: Old gods or new, it makes no matter, no man is so accursed as the kinslayer.  -  Rickard Karstark
+Last updated: 2024-06-20 06:31:44
+Random Quote: If my love were an ocean,
+there would be no more land.
+If my love were a desert,
+you would see only sand.
+If my love were a star-
+late at night, only light.
+And if my love could grow wings,
+I'd be soaring in flight. - Jay Asher
