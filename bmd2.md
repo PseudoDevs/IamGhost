@@ -1,2 +1,2 @@
-Last updated: 2024-06-20 06:32:57
-Random Quote: Friendships are the foundation that we stand on. - Nina Locke
+Last updated: 2024-06-20 06:33:30
+Random Quote: Wylla.  Did you see how brave she was.  Even when I threatened to have her tongue out, she reminded me of the debt White Harbor owes to the Starks of Winterfell, a debt that can never be repaid.  Wylla spoke from the heart... not every woman can be as brave as my Wylla.  -  Wyman Manderly
