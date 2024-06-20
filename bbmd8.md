@@ -1,2 +1,2 @@
-Last updated: 2024-06-20 06:35:13
-Random Quote: I was a better smuggler than a knight, he had written to his wife, a better knight than a King's hand, a better King's hand than a husband.  I am so sorry Marya, I have loved you.  Please forgive the wrongs I did you.  -  Davos Seaworth
+Last updated: 2024-06-20 06:35:46
+Random Quote: I’m not saying it’s not bad. It’s bad. But it could be worse. - Saul Goodman

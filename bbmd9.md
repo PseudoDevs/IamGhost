@@ -1,2 +1,2 @@
-Last updated: 2024-06-20 06:35:13
-Random Quote: You grew up with actors.  You learned their craft and you learned it well.  I grew up with soldiers.  I learned how to die a long time ago.  -  Eddard Stark
+Last updated: 2024-06-20 06:35:46
+Random Quote: Bad guys don't play by the rules. That's what makes them bad. - Steve Murphy
