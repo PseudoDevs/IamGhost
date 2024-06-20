@@ -1,6 +1,2 @@
-Last updated: 2024-04-22 11:54:56
-Random Quote: Beth: "Do you want homeless people to have homes?"
-Jerry: "Yes."
-Beth: "Are you gonna build them?"
-Jerry: "No."
-Beth: "Then what good was the 'yes'?" - Beth Smith
+Last updated: 2024-06-20 06:31:10
+Random Quote: No matter how much we fight it we are connected by our blood. We can feel estranged from our families and not understand what they do. And still, in the end, we will do anything for them. - Adam
