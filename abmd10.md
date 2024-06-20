@@ -1,2 +1,2 @@
-Last updated: 2024-06-20 06:54:55
-Random Quote: If I could be a different person, I promise you, I would. Not 'cause I want it, but 'cause they do. - Rue Bennett
+Last updated: 2024-06-20 06:55:27
+Random Quote: The longer Cersei waits, the angrier she'll become, and anger makes her stupid.  I much prefer angry and stupid to composed and cunning.  -  Tyrion Lannister
