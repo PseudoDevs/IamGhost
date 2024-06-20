@@ -1,3 +1,2 @@
-Last updated: 2024-06-20 06:50:26
-Random Quote: Hey look, it's the New York City skyline.
-We built Chip City... we built Chip City on all your dough! - Ted Mosby
+Last updated: 2024-06-20 06:51:00
+Random Quote: We have to control this fing world, or it will control you. And if you don't protect yourself, it makes a mess and breaks you. - Miguel Angel Felix Gallardo
