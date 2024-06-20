@@ -1,2 +1,2 @@
-Last updated: 2024-06-20 06:43:38
-Random Quote: Mike Wheeler: "I'm not prostituting my sister."Lucas Sinclair: "But it's for a good cause." - Lucas Sinclair
+Last updated: 2024-06-20 06:44:46
+Random Quote: Why the oldest son, and not the best - fitted?  The crown will suit me, as it never suited Robert and would not suit Stannis. 
