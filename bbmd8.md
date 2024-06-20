@@ -1,3 +1,2 @@
-Last updated: 2024-06-20 06:42:31
-Random Quote: Morty: "You were a teenager when dad got you pregnant!"
-Beth: "I was 17. That's at least 26 in boy years." - Beth Smith
+Last updated: 2024-06-20 06:43:05
+Random Quote: This guy he's done everything right. He's been loving and devoted since he was 18 years old. There are only a few truly great people on this planet and he is one of them. - Barney Stinson

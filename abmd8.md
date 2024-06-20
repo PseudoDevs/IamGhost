@@ -1,2 +1,2 @@
-Last updated: 2024-06-20 06:42:32
-Random Quote: Ted: "As a kid, I was known as a bit of a detective. In fact, when my friend's retainer went missing, the Mosby Boys were put on the case, and it was..."Victoria: "The retainer was in the garbage. The Mosby Boys were you, your sister, and a neighborhood squirrel you thought you had tamed."Ted: "I can't believe Squirrel-lock Holmes turned on us like that, eight weeks of training down the drain." - Ted Mosby
+Last updated: 2024-06-20 06:43:05
+Random Quote: They are children, Sansa thought.  They are silly little girls, even Elinor.  They've never seen a battle, they've never seen a man die, they know nothing.  Their dreams were full of songs and stories, the way hers had been before Joffrey cut her father's head off.  Sansa pitied them.  Sansa envied them.  -  Sansa Stark
