@@ -1,2 +1,2 @@
-Last updated: 2024-06-20 07:04:46
-Random Quote: Lily: "Ted, you did this all yourself?"Ted: "Just like Ryan Gosling in 'The Notebook'. It was pretty manly 'til I mentioned Ryan Gosling in 'The Notebook', huh?" - Ted Mosby
+Last updated: 2024-06-20 07:05:19
+Random Quote: They'll bend the knee or I'll destroy them.  -  Stannis Baratheon
