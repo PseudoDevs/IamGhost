@@ -1,2 +1,2 @@
-Last updated: 2024-06-20 06:43:23
-Random Quote: (Love is) pain, horrible pain, that you want again and again. - Sophia Burset
+Last updated: 2024-06-20 06:43:56
+Random Quote: I dreamed of the man who came today, the one they call Reek.  You and your brother lay dead at his feet, and he was skinning off your faces with a long red blade.  -  Jojen Reed
