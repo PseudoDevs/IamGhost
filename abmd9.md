@@ -1,2 +1,2 @@
-Last updated: 2024-06-20 07:07:09
-Random Quote: Ted, your throwing your life away. This girl is blinding you with her shiny hair and her boob-shaped boobs! - Barney Stinson
+Last updated: 2024-06-20 07:07:43
+Random Quote: Why is it always the innocents who suffer most, when you high lords play your game of thrones?  -  Varys
