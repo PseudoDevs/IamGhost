@@ -1,2 +1,2 @@
-Last updated: 2024-06-20 06:39:42
-Random Quote: Ted: "Why wouldn't she just come right out and say what she wants?"Marshall: "Men. It's like, if there weren't pickle jars to open and spiders to kill and computers to back up, what would be their point?"Lily: "Mmh-hmm!"Ted: "Okay, when did Marshall become a slightly more feminine you?" - Ted Mosby
+Last updated: 2024-06-20 06:41:24
+Random Quote: Sex now, we'll do the foreplay after. - Lily Aldrin
