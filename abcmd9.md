@@ -1,2 +1,2 @@
-Last updated: 2024-06-20 07:06:32
-Random Quote: Lily: "I am gonna have to walk this earth, knowing Barney has touched my boobs."Robin: "Yeah it stays with ya. His e-mail reminders don't help." - Robin Scherbatsky
+Last updated: 2024-06-20 07:07:07
+Random Quote: I don't need to be good at Math, I have beautiful hair. - Missy
