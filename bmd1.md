@@ -1,4 +1,2 @@
-Last updated: 2024-06-20 06:52:45
-Random Quote: Morticia: "Please excuse Wednesday. She's allergic to color."
-Enid: "Wow, what happens to you?"
-Wednesday: "I break out into hives, and then the flesh peels off my bones." - Wednesday Addams
+Last updated: 2024-06-20 06:53:54
+Random Quote: We all face the same end. Those above have long forgotten us. They do not judge us. In death, I am all alone, and my only judge… is me. - Martha
