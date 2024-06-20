@@ -1,4 +1,2 @@
-Last updated: 2024-06-20 07:04:17
-Random Quote: Jimmy: "I can't believe Wanda and Vision are having a baby."
-Darcy Lewis: "You want any?"
-Jimmy: "Heck, I thought about it for sure. A little Jimmy Woo. Get him a tiny little FBI badge... oh, you... chip? Sure." - Jimmy Woo
+Last updated: 2024-06-20 07:04:50
+Random Quote: More beast than boy, that one, puffed up with pride and bloodlust... Robb Stark betrayed us all.  He abandoned the north to the cruel mercies of the ironmen to carve out a fairer kingdom for himself along the Trident.  Then he abandoned the riverlords who had risked much and more for him, breaking his marriage pact with my grandfather to wed the first western wench who caught his eye.  The Young Wolf?  He was a vile dog and died like one.  -  Rhaegar Frey
