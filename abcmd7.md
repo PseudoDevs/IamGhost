@@ -1,2 +1,2 @@
-Last updated: 2024-06-20 06:34:03
-Random Quote: The less talk, the better. - Mike Ehrmantraut
+Last updated: 2024-06-20 06:34:35
+Random Quote: In the game of thrones, even the humblest pieces have wills of their own.  Sometimes they refuse to make the moves you've planned for them.  Mark that well, Alayne.  It's a lesson that Cersei Lannister still has yet to learn.  -  Petyr Baelish
