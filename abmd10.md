@@ -1,2 +1,2 @@
-Last updated: 2024-06-20 06:31:47
-Random Quote: Desperation Day has come and gone and you have neither gone nor come. - Robin Scherbatsky
+Last updated: 2024-06-20 06:32:20
+Random Quote: You Westerosi are all the same.  You sew some beast upon a scrap of silk, and suddenly you are all lions or dragons or eagles.  -  Illyrio Mopatis
