@@ -1,2 +1,2 @@
-Last updated: 2024-06-20 06:33:23
-Random Quote: F*ck you! And your eyebrows! - Walter White
+Last updated: 2024-06-20 06:33:57
+Random Quote: The more you give a king, the more he wants.  We are walking on a bridge of ice with an abyss on either side.  Pleasing one king is difficult enough.  Pleasing two is hardly possible.  -  Jon Snow
