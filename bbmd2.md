@@ -1,2 +1,2 @@
-Last updated: 2024-06-20 06:52:10
-Random Quote: Let's hit a motel, jam in a quickie and get you back to your wedding. - Ted Mosby
+Last updated: 2024-06-20 06:52:45
+Random Quote: Did the boy charm you?  He has that gift.  He got it from his father, with the blood.  He knows he is a king's son, but chooses to forget that he is bastard - born. 
