@@ -1,3 +1,2 @@
-Last updated: 2024-06-20 06:35:38
-Random Quote: Larissa: "So you automatically assume a Nevermore student is the murderer, even though there's no evidence a crime was even committed."
-Donovan: "I'm sorry. I forgot, you only teach the good outcasts here, right?" - Donovan Galpin
+Last updated: 2024-06-20 06:37:21
+Random Quote: No man has ever died from bending his knee.  He who kneels may rise again, blade in hand.  He who will not kneel stays dead, stiff legs and all.  -  Balon Greyjoy

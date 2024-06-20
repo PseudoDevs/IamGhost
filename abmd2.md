@@ -1,2 +1,2 @@
-Last updated: 2024-06-20 06:36:47
-Random Quote: He made me kill a rabbit. I guess he thought it would make me into more of a man or something. I cried for a week. - Jonathan Byers
+Last updated: 2024-06-20 06:37:21
+Random Quote: I am Mr. Charity. I frequently sleep with sixes, chubsters, over thirty's. I am the Bill and Melinda Gates of the sympathy bang. - Barney Stinson
