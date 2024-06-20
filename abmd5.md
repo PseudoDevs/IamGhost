@@ -1,2 +1,2 @@
-Last updated: 2024-06-20 06:41:06
-Random Quote: Maybe people are nostalgic about high school 'cause it's, like, the last time in their life that they get to dream. - Cassie Howard
+Last updated: 2024-06-20 06:41:38
+Random Quote: Jaime and I are more than brother and sister.  We are one person in two bodies.  We shared a womb together.  He came into this world holding my foot, our old maester said.  When he is in me, I feel... whole.  -  Cersei Lannister
