@@ -1,2 +1,2 @@
-Last updated: 2024-06-20 06:49:16
-Random Quote: There was this sadness in his eyes. The kind you sometimes see in those who want to die, but life won’t let them - Noah
+Last updated: 2024-06-20 06:49:51
+Random Quote: He would see this country burn if he could be king of the ashes.  -  Varys
