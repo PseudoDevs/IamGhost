@@ -1,2 +1,2 @@
-Last updated: 2024-06-20 06:32:50
-Random Quote: The Citadel took my chain, but they could not take my knowledge.  -  Qyburn
+Last updated: 2024-06-20 06:33:24
+Random Quote: I want you to allow yourself to aknowledge the pain that you so clearly feel. - Fabiola Torres
