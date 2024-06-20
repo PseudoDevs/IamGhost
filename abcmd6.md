@@ -1,2 +1,2 @@
-Last updated: 2024-06-20 06:42:50
-Random Quote: Barney: "I scoured the dating sites, using my own personal logarithms, factoring in a broad spectrum of variables, filtering out undesirable high-risk negatives, guaranteeing a success-rate of eighty-thr..."Ted: "...you picked the girls that showed the most boob." - Ted Mosby
+Last updated: 2024-06-20 06:43:23
+Random Quote: Robb Stark won the war on the battlefield and lost it in a bedchamber.  -  Jaime Lannister

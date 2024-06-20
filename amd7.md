@@ -1,2 +1,2 @@
-Last updated: 2024-06-20 06:42:50
-Random Quote: The children are gone from the world, and their wisdom with them.  It had to do with the faces in the trees, we think.  The First Men believed that the greenseers could see through the eyes of the weirwoods.  That was why they cut down the trees whenever they warred upon the children.  Supposedly the greenseers also had the power over the beasts of the wood and the birds in the trees.  Even fish.  -  Maester Luwin
+Last updated: 2024-06-20 06:43:23
+Random Quote: There are moments when we must understand that the decisions we make influence more than just our own fates. - Claudia
