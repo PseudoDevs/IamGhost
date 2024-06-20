@@ -1,2 +1,2 @@
-Last updated: 2024-06-20 06:39:42
-Random Quote: New York! Home of the Mets, the Chrysler Building, those ladies from Sex and the City and now, the zombie apocalypse. If you can make it here, you can make it anywhere - but first, you have to not get eaten. - Spider-Man
+Last updated: 2024-06-20 06:40:50
+Random Quote: I just want to stand on top of the Wall and piss off the edge of the world.  -  Tyrion Lannister
