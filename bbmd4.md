@@ -1,2 +1,2 @@
-Last updated: 2024-06-20 07:05:25
-Random Quote: People are oblivious to reality. They only see what they want to see, when all they have to do is shift their perspective to see the full scope of things. - Yuk Je
+Last updated: 2024-06-20 07:05:59
+Random Quote: Barney: "Fine, we'll just have a nice, tasteful rehearsal dinner. Maybe at a French restaurant, I know just the place."Robin: "What's the name of the restaurant?"Barney: "La Sertag." - Barney Stinson
