@@ -1,2 +1,2 @@
-Last updated: 2024-06-20 06:31:44
-Random Quote: From this day forth, you will not call yourself a craven.  You've faced more things this past year than most men face in a lifetime.  You can face the Citadel, but you'll face it as a Sworn Brother of the Night's Watch.  I can't command you to be brave, but I can command you to hide your fears.  -  Jon Snow
+Last updated: 2024-06-20 06:32:17
+Random Quote: I needed to get on the shuttle so I could escape this ridiculous planetSpoiler alert, I'm still here. - Sheldon
