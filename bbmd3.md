@@ -1,2 +1,2 @@
-Last updated: 2024-06-20 06:59:05
-Random Quote: Marshall: "Yes, i want a ball-room and I want a band and I want shoes. I've been dreaming about this day since I was... like...Lily: "...a little girl?" - Lily Aldrin
+Last updated: 2024-06-20 06:59:40
+Random Quote: Eighty-six years. But with good behavior... who knows? - Saul Goodman
