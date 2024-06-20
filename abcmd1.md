@@ -1,2 +1,2 @@
-Last updated: 2024-06-20 06:51:30
-Random Quote: I have been called many things, my lord, byt kind is seldom one of them.  -  Maester Aemon
+Last updated: 2024-06-20 06:52:02
+Random Quote: I prefer my history dead.  Dead history is writ in ink, the living sort in blood.  -  Rodrik Harlaw
