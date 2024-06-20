@@ -1,2 +1,2 @@
-Last updated: 2024-06-20 06:56:35
-Random Quote: Nymeria was least dangerous when nearly naked.  Elsewise she was sure to have a dozen blades concealed about her person.  -  Areo Hotah
+Last updated: 2024-06-20 06:57:40
+Random Quote: Know the men who follow you and let them know you.  Don't ask your men to die for a stranger.  -  Eddard Stark
