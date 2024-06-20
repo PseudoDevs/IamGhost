@@ -1,2 +1,2 @@
-Last updated: 2024-06-20 06:54:30
-Random Quote: Barney: "How's the single life?"Ted: "I wouldn't know. After this whole Robin thing, I'm laying low."Barney: "Laying low as in sleeping with a really short chick? You guys doing thirty-nine?" - Barney Stinson
+Last updated: 2024-06-20 06:55:04
+Random Quote: Well, if there is something wrong with him, it ain't constipation. - Meemaw
