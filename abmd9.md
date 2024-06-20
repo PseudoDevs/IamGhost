@@ -1,2 +1,2 @@
-Last updated: 2024-06-20 06:35:04
-Random Quote: It was the white cloak that soiled me, not the other way around.  -  Jaime Lannister
+Last updated: 2024-06-20 06:35:38
+Random Quote: She had seen Bronn fight on the high road; it was no accident that he had survived the journey while other men had died.  He moved like a panther, and that ugly sword of his seemed a part of his arm.  -  Catelyn Stark
