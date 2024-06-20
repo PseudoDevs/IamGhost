@@ -1,2 +1,2 @@
-Last updated: 2024-06-20 06:44:31
-Random Quote: You guys can judge me if you want, but I do not care! I have never ever been happier! - Cassie Howard
+Last updated: 2024-06-20 06:45:03
+Random Quote: In King's Landing, there are two sorts of people.  The players and the pieces.  -  Petyr Baelish
