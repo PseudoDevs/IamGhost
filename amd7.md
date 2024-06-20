@@ -1,2 +1,2 @@
-Last updated: 2024-06-20 07:02:35
-Random Quote: Alex: "Luke got his head stuck in the banister again."Phil: "I got it. Where's the babyoil?"Claire: "It's on our bedside tip- I Don't know, find it!" - Claire Dunphy
+Last updated: 2024-06-20 07:03:08
+Random Quote: I knew Brienne when she was no more than a girl playing at her father's feet in Evenfall Hall, and I knew her still better when the Evenstar sent her here to Storm's End.  She loved Renly Baratheon from the first moment she laid eyes on him, a blind man could see it.  -  Cortnay Penrose
