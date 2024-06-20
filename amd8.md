@@ -1,2 +1,2 @@
-Last updated: 2024-06-20 06:46:07
-Random Quote: You came in the door like thunder, Then hit the floor like thunder, Laying me down you wonder, Shaking the walls like thunder - 
+Last updated: 2024-06-20 06:46:39
+Random Quote: We all have things we keep hidden. Sometimes, keeping secrets is how you survive. Because in High School, one rumor, one picture, one incident, can define you forever. - Hannah Baker
