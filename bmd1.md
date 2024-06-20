@@ -1,2 +1,2 @@
-Last updated: 2024-06-20 06:57:44
-Random Quote: My father never bellowed like the Greatjon, but he was no less dangerous in his wroth.  -  Alys Karstark
+Last updated: 2024-06-20 06:58:17
+Random Quote: You need to figure out what the fuck you want. - Nicky Nichols
