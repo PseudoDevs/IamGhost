@@ -1,2 +1,3 @@
-Last updated: 2024-06-20 06:38:25
-Random Quote: If you had to fall into a woman's arms, my son, why couldn't they have been Margaery Tyrell's?  -  Catelyn Stark
+Last updated: 2024-06-20 06:38:58
+Random Quote: Sam: "What's going on in that cyborg brain of yours?"
+Bucky: "You don't wanna know!" - Bucky Barnes
