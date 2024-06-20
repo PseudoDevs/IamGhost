@@ -1,2 +1,2 @@
-Last updated: 2024-06-20 06:47:01
-Random Quote: You ever touch me again, I will burn your eyes out! - Starlight
+Last updated: 2024-06-20 06:47:36
+Random Quote: I swear on my name. And the names of the Ancestors, that I shall walk the way of the Mand'alor and the words of the Creed shall be forever forged in my heart. - Din Djarin
