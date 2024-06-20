@@ -1,2 +1,2 @@
-Last updated: 2024-06-20 06:55:04
-Random Quote: Pornstache: "You are not an agent of God, okay? God can do so much better than you. You must know that, right?"Pennsatucky: "Know what?"Pornstache: "Jesus Christ, how the fuck did you survive infancy?"Pennsatucky: "My auntie helped my momma..."Pornstache: "That's a rhetorical question! Do you not understand what a fucking rhetorical question is?" - George 'Pornstache' Mendez
+Last updated: 2024-06-20 06:56:13
+Random Quote: The past is always with us, Tyler. Now, you can try and run away but it's always there. - Rendell Locke
