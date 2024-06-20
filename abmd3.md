@@ -1,2 +1,2 @@
-Last updated: 2024-06-20 07:04:50
-Random Quote: More beast than boy, that one, puffed up with pride and bloodlust... Robb Stark betrayed us all.  He abandoned the north to the cruel mercies of the ironmen to carve out a fairer kingdom for himself along the Trident.  Then he abandoned the riverlords who had risked much and more for him, breaking his marriage pact with my grandfather to wed the first western wench who caught his eye.  The Young Wolf?  He was a vile dog and died like one.  -  Rhaegar Frey
+Last updated: 2024-06-20 07:05:25
+Random Quote: Marshall: "It's kind of a big, professional meeting. You might want to trade out that lollipop for a shirt."Ted: "Yeah. I'll just give it to one of these kids."Marshall: "Oh, buddy. You're half naked, you're not a parent to any of these children. Don't offer 'em candy!" - Marshall Eriksen
