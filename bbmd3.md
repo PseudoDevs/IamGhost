@@ -1,2 +1,2 @@
-Last updated: 2024-06-20 06:43:38
-Random Quote: Dear Billy, I don't know if you can even hear this. Ever since you left, everything's been a total disaster. For a while, we tried to be happy... normal. I know that's impossible. - Max Mayfield
+Last updated: 2024-06-20 06:44:11
+Random Quote: Need found it hard to imagine what could frighten Stannis Baratheon, who had once held Storm's End through a year of siege, surviving on rats and boot leather while the Lords Tyrell and Redwyne sat outside with their hosts, banqueting in sight of his walls.  -  Eddard Stark
