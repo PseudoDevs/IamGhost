@@ -1,2 +1,2 @@
-Last updated: 2024-06-20 06:49:17
-Random Quote: Ted, you know who's a million times hotter than the hottest girl I've ever slept with? Her okay-looking friend I haven't seen naked. Why? Because new is always better. - Barney Stinson
+Last updated: 2024-06-20 06:52:10
+Random Quote: There is no creature on earth half so terrifying as a truly just man.  -  Varys
