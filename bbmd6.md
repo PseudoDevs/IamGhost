@@ -1,2 +1,2 @@
-Last updated: 2024-06-20 06:52:09
-Random Quote: Think about it, this is perfect.a) It'll make Robin insanly jealousb) You get to have sex with herc) Maybe by getting to know Mary, you'll come to see that cortisens are people tooand d) B! All night long! - Barney Stinson
+Last updated: 2024-06-20 06:52:44
+Random Quote: The Lion does not concern itself with the opinions of sheep.  -  Tywin Lannister
