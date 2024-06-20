@@ -1,2 +1,2 @@
-Last updated: 2024-06-20 06:58:46
-Random Quote: Being a Mandalorian is not just learning about how to fight. You also have to know how to navigate the Galaxy. That way you'll never be lost. - Din Djarin
+Last updated: 2024-06-20 06:59:19
+Random Quote: Sometimes, even when you know something's a mistake, you gotta make it anyway. - Ted Mosby
