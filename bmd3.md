@@ -1,2 +1,2 @@
-Last updated: 2024-06-20 06:39:40
-Random Quote: Marshall: "Lily dream-banged someone we know."Barney: "Okay, you caught me vermilion-handed. The truth is, I've spent the last five years trying to inception your wife."Marshall: "That movie only came out two years ago."Barney: "What movie?" - Barney Stinson
+Last updated: 2024-06-20 06:40:15
+Random Quote: That's not a law, just a sword.  Happens I got one too.  -  Yoren of the Night's Watch
