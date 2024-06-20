@@ -1,5 +1,2 @@
-Last updated: 2024-06-20 07:07:43
-Random Quote: Dina: "You're infuriating."
-Ellie: "Have you met you?"
-Dina: "You make me want to go back outside into that blizzard."
-Ellie: "No one is stopping you." - Joel Miller
+Last updated: 2024-06-20 07:08:52
+Random Quote: After all, what’s more human than the fight for survival? - Tokyo
