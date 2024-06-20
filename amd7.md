@@ -1,2 +1,2 @@
-Last updated: 2024-06-20 06:39:33
-Random Quote: Marshall: "I don't care if the dishes aren't done, okay? If you care, you do it."Lily: "Great, then I don't care if you have an orgasm. If you care, you do it." - Lily Aldrin
+Last updated: 2024-06-20 06:40:38
+Random Quote: I can bring you in warm, or I can bring you in cold. - Din Djarin
