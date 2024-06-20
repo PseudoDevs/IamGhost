@@ -1,2 +1,2 @@
-Last updated: 2024-06-20 06:39:03
-Random Quote: Ted: "It's the Drunk Train! You crossed out all the stops and wrote Vagina-Ville."Barney: "That's not true. That one says Boner Gardens." - Barney Stinson
+Last updated: 2024-06-20 06:39:35
+Random Quote: Barney: "The Disappearing Salami... Mr. Flanagan's wife shot him before he could ever tell me what the trick was."Quinn: "Yeah, that guy was banging your mom!" - Quinn Garvey
