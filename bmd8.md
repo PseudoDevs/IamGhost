@@ -1,2 +1,2 @@
-Last updated: 2024-06-20 07:07:52
-Random Quote: If you don't like where you're heading, there's no shame in going back and changing your path. - Chuck McGill
+Last updated: 2024-06-20 07:08:24
+Random Quote: The Empire improves every system it touches. Judge by any metric: safety, prosperity, trade, opportunity, peace. Compare Imperial rule to what is happening right now. Is the world more peaceful since the revolution? I see nothing but death and chaos. - The Client
