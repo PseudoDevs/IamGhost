@@ -1,2 +1,2 @@
-Last updated: 2024-06-20 06:33:59
-Random Quote: What I came to realise is that fear, that’s the worst of it. That’s the real enemy. So, get up, get out in the real world and you kick that bastard as hard you can right in the teeth. - Walter White
+Last updated: 2024-06-20 06:35:06
+Random Quote: Miss Addams, you sadly had a very interesting educational journey. Eight schools in five years. - Larissa Weems
