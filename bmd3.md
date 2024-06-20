@@ -1,2 +1,2 @@
-Last updated: 2024-06-20 07:02:33
-Random Quote: Yes, it's you who ought to run, you and Lord Tywin and the Mountain and Set Addam and Set Amory and stupid Set Lyonel whoever he is, all of you better run or my brother will kill you, he's a Stark, he's more wolf than man, and so am I.  -  Arya Stark
+Last updated: 2024-06-20 07:03:05
+Random Quote: Judging from how many clients that hooker has serviced, I'd say we've been here almost an hour. - Robin Scherbatsky
