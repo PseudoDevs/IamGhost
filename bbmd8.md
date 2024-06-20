@@ -1,5 +1,2 @@
-Last updated: 2024-06-20 06:44:12
-Random Quote: Barney: "You can't spell 'game' without 'me' and 'me' has the best game."
-Ted: "Yeah well, I got so much game, I'm Cornish game hen."
-Barney: "Oh, yeah? I'm the New York State gaming commissioner."
-Ted: "Well, I'm The Game. Well-crafted, keep-you-guessing thriller starring Michael Douglas and Sean Penn." - Ted Mosby
+Last updated: 2024-06-20 06:46:27
+Random Quote: The more you move up in the world, the more enemies you make. - Rue Bennett
