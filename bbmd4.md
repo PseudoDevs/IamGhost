@@ -1,2 +1,2 @@
-Last updated: 2024-06-20 06:32:28
-Random Quote: I swear to you, I was never so alive as when I was winning this throne, or so dead as now that I've won it.  -  Robert Baratheon
+Last updated: 2024-06-20 06:33:00
+Random Quote: What if God doesn’t know what he’s doing? If the plan is wrong? If God is wrong? - 
