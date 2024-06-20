@@ -1,2 +1,2 @@
-Last updated: 2024-06-20 06:41:24
-Random Quote: Sex now, we'll do the foreplay after. - Lily Aldrin
+Last updated: 2024-06-20 06:41:58
+Random Quote: Aye, and from what I saw of Joffrey, you are as unfit a mother as you are a ruler.  -  Kevan Lannister
