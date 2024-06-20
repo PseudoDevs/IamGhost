@@ -1,2 +1,2 @@
-Last updated: 2024-06-20 06:44:11
-Random Quote: Ted, your throwing your life away. This girl is blinding you with her shiny hair and her boob-shaped boobs! - Barney Stinson
+Last updated: 2024-06-20 06:44:45
+Random Quote: What you have to do is show these suckers what you’re capable of. Show them you’re not scared. - Nairobi
