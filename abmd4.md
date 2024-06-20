@@ -1,2 +1,2 @@
-Last updated: 2024-06-20 06:42:52
-Random Quote: The storms come and go, waves crash overhead, the big fish eat the little fish, and I keep on paddling.  -  Varys
+Last updated: 2024-06-20 06:43:25
+Random Quote: Why is it always the innocents who suffer most, when you high lords play your game of thrones?  -  Varys
