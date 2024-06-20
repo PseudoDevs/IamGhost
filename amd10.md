@@ -1,2 +1,2 @@
-Last updated: 2024-06-20 06:42:16
-Random Quote: The Wall can stop an army, but not a man alone.  -  Mance Rayder
+Last updated: 2024-06-20 06:42:50
+Random Quote: Let them keep believing I'm dead. So much the better. It was the chicken man. That coward sat up there in the north while his paramilitaries came into my home. - Lalo Salamanca
