@@ -1,2 +1,2 @@
-Last updated: 2024-06-20 06:48:53
-Random Quote: They shall come day and night to see the wonder that has been born again into the world, and when they see they shall lust.  For dragons are fire made flesh, and fire is power.  -  Quaithe
+Last updated: 2024-06-20 06:49:26
+Random Quote: Ted: "Every three years we sit down and Tril' it up big time, agreed?"Marshall: "Agreed-o!" - Marshall Eriksen
