@@ -1,2 +1,2 @@
-Last updated: 2024-06-20 07:01:26
-Random Quote: Mando: "I was not born on Mandalore."Greef Karga: "But you're Mandalorian?"Cara Dune: "Mandalorian isn't a race."Mando: "It's a Creed." - Din Djarin
+Last updated: 2024-06-20 07:02:01
+Random Quote: I just want to stand on top of the Wall and piss off the edge of the world.  -  Tyrion Lannister
