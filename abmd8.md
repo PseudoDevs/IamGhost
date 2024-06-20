@@ -1,2 +1,2 @@
-Last updated: 2024-06-20 06:31:14
-Random Quote: Some had been heroes, some weaklings, knaves, or cravens.  Most were only men, quicker and stronger than most, more skilled with sword and shield, but still prey to pride, ambition, lust, love, anger, jealousy, greed for gold, hunger for power, and all the other failings that afflicted lesser mortals.  The best of them overcame their flaws, did their duty, and died with their swords in their hands.  The worst... the worst were those who played the game of thrones.  -  Barristan Selmy
+Last updated: 2024-06-20 06:31:47
+Random Quote: Barney: "Canada sucks."Robin: "Okay, well, you're one-quarter Canadian, so by that logic you one-quarter suck!"Barney: "I'm 100% awesome and you know it!"Robin: "Yeah, I do." - Robin Scherbatsky
