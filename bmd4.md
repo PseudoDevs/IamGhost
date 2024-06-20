@@ -1,2 +1,2 @@
-Last updated: 2024-06-20 06:39:05
-Random Quote: Robert could piss in a cup and men would call it wine, but I offer them cold clear water and they squint in suspicion and mutter to each other about how queer it tastes.  -  Stannis Baratheon
+Last updated: 2024-06-20 06:39:39
+Random Quote: In my head, it's like If I can conquer men, then I can conquer femininity. - Jules Vaughn
