@@ -1,2 +1,2 @@
-Last updated: 2024-06-20 06:31:11
-Random Quote: Even if I meet the girl of my dreams right the second, I'm still one night and nine months away, from having a family on my own. And that's assuming the mother of my childern is just a huge slut. - Ted Mosby
+Last updated: 2024-06-20 06:31:45
+Random Quote: When the sun has set, no candle can replace it.  -  Loras Tyrell
