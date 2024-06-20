@@ -1,2 +1,2 @@
-Last updated: 2024-06-20 06:45:53
-Random Quote: Is it your fault that Bronn's an insolent black - hearted rogue?  He's always been an insolent black
+Last updated: 2024-06-20 06:46:27
+Random Quote: Just as long as you're lakeside cheering us to victory on race day... or you can just glare uncomfortably. Whatever works for you. - Enid Sinclair

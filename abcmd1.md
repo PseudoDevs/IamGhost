@@ -1,2 +1,2 @@
-Last updated: 2024-06-20 06:45:53
-Random Quote: You've been a hell of a wingman. And even though I think it's kind of gross when you pleasure yourself orally, don't ever think that means I'm not impressed. - Barney Stinson
+Last updated: 2024-06-20 06:46:27
+Random Quote: The Red God has his due, sweet girl, and only death may pay for life.  This girl took three that were his.  This girl must give three in their places.  Speak the names, and a man will do the rest.  -  Jaqen H'ghar

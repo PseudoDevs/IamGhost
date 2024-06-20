@@ -1,3 +1,2 @@
-Last updated: 2024-06-20 06:45:53
-Random Quote: Journalist: "Mr. Stark, were you injured in the attack?"
-Tony Stark: "No, but I did spill my drink, and it was a '26 Macallan, so I'm pretty sure that's a war crime." - Iron Man
+Last updated: 2024-06-20 06:46:27
+Random Quote: We were king's men, knights, and heroes... but some knights are dark and full of terror, my lady.  War makes monsters of us all.  -  Thoros of Myr
