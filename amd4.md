@@ -1,3 +1,2 @@
-Last updated: 2024-06-20 06:45:53
-Random Quote: Elliot: "I'm not sure it's a good thing we met."
-Rue: "What are you talking about? You're my new favorite person." - Rue Bennett
+Last updated: 2024-06-20 06:47:35
+Random Quote: The pain is his vessel, desire his compass. It is all that man is capable of. - 
