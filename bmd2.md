@@ -1,2 +1,2 @@
-Last updated: 2024-06-20 06:44:12
-Random Quote: I'm a genetic goldmine! No family history of diabetes or heart disease, everyone has non-porous teeth and perfect eyesight. I had one schizophrenic uncle, but even he had perfect vision. Which was unfortunate for the people around the bell tower he was in. - Robin Scherbatsky
+Last updated: 2024-06-20 06:44:45
+Random Quote: What is honor compared to a woman's love?  What is duty against the feel of a newborn son in your arms, or the memory of a brother's smile.  Wind and words.  Wind and words.  We are only human, and the gods have fashioned us for love.  That is our great glory and our great tragedy.  -  Aemon Targaryen
