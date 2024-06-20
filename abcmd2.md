@@ -1,2 +1,2 @@
-Last updated: 2024-06-20 06:48:20
-Random Quote: When it comes to locker rooms, I like 'em just like my mother's bathing suits: I only wanna see 'em in one piece. - Jim Hopper
+Last updated: 2024-06-20 06:48:52
+Random Quote: And Stannis has always felt he was cheated of Storm's End.  The ancestral seat of House Baratheon, his by rights... if you knew how many times he came to Robert singing that same dull song in that gloomy aggrieved tone he has.  When Robert gave the place to Renly, Stannis clenched his jaw so tight I thought his teeth would shatter.  -  Cersei Lannister
