@@ -1,2 +1,2 @@
-Last updated: 2024-06-20 06:43:25
-Random Quote: Why is it always the innocents who suffer most, when you high lords play your game of thrones?  -  Varys
+Last updated: 2024-06-20 06:43:58
+Random Quote: My lords, when Donal Noye was slain, it was this young man Jon Snow who took the Wall and held it, against all the fury of the north.  He has proved himself valiant, loyal, and resourceful.  Were it not for him, you would have found Mance Rayder sitting here when you arrived, Lord Slynt.  You are doing him a great wrong.  Jon Snow was Lord Mormont's own steward and squire.  He was chosen for that duty because the Lord Commander saw much promise in him.  As do I.  -  Maester Aemon
