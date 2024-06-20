@@ -1,2 +1,2 @@
-Last updated: 2024-06-20 06:51:29
-Random Quote: What I came to realise is that fear, that’s the worst of it. That’s the real enemy. So, get up, get out in the real world and you kick that bastard as hard you can right in the teeth. - Walter White
+Last updated: 2024-06-20 06:52:01
+Random Quote: Bronn was no knight, that was true.  Bronn was a battle - hardened killer. 
