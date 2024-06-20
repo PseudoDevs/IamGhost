@@ -1,2 +1,2 @@
-Last updated: 2024-06-20 06:58:17
-Random Quote: You need to figure out what the fuck you want. - Nicky Nichols
+Last updated: 2024-06-20 06:58:49
+Random Quote: It's okay to lose yourself in this, just as long as you can find yourself again. - Nina Locke
