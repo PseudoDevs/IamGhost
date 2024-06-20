@@ -1,5 +1,2 @@
-Last updated: 2024-06-20 06:42:43
-Random Quote: Abby: "Do we have to go back this way?"
-Owen: "Consider it an opportunity to work on your fears."
-Abby: "How about I work my foot up your ass?"
-Owen: "Abby, stop flirting!" - Joel Miller
+Last updated: 2024-06-20 06:43:15
+Random Quote: Set Ryam Redwyne was the greatest knight of his day, and one of the worst Hands ever to serve a king.  Septon Murmison's prayers worked miracles, but as Hand he soon had the whole realm praying for his death.  Lord Butterwell was renowned for with, Myles Smallwood for courage, Set Otto Hightower for learning, yet they failed as hands, every one.  As for birth, the dragonkings oft chose Hands from amongst their own blood, with results as various as Baelor Breakspear and Maegor the Cruel.  Against this, you have Septon Barth, the blacksmith's son the Old King plucked from the Red Keep's library, who gave the realm forty years of peace and plenty.  Read your history, Lord Davos, and you will see that your doubts are groundless.  -  Maester Pylos
