@@ -1,3 +1,2 @@
-Last updated: 2024-06-20 07:01:56
-Random Quote: Robin: "I'm drinking 'til I forget the 1999 NFC Championship?"
-Marshall: "The Vikings were two minutes away from going to the Super Bowl, when our kicker, who hadn't missed all year, shanked a field goal, and we lost in overtime. Damn!" - Marshall Eriksen
+Last updated: 2024-06-20 07:02:29
+Random Quote: Here are a few fun facts about Long Island... Number 1: It's Brooklyn's fart-trail. - Robin Scherbatsky
