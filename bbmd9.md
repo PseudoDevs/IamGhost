@@ -1,2 +1,2 @@
-Last updated: 2024-06-20 06:34:41
-Random Quote: And at some point you make a choice about who you are and what you want. - Rue Bennett
+Last updated: 2024-06-20 06:35:13
+Random Quote: You grew up with actors.  You learned their craft and you learned it well.  I grew up with soldiers.  I learned how to die a long time ago.  -  Eddard Stark
