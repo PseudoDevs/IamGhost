@@ -1,2 +1,3 @@
-Last updated: 2024-06-20 06:57:21
-Random Quote: Barney: "He's the awesomest, most best-lookingest, greatest guy ever!"Lily: "He's exactly like Barney."Barney: "That's what I just said." - Barney Stinson
+Last updated: 2024-06-20 06:57:56
+Random Quote: The boobs on the bus go up and down, up and down, up and down
+The boobs on the bus go up and down, all through the town - Barney Stinson
