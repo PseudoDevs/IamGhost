@@ -1,4 +1,2 @@
-Last updated: 2024-06-20 06:48:42
-Random Quote: Barney: "Ted, I'm gonna teach you how to live. Barney... we met at the urinal. Lesson 1: Loose the goatee it doesn't go with your suit!"
-Ted: "I'm not wearing a suit."
-Barney: "Lesson 2: Get a suit, suits are cool. Exhibit A. Lesson 3: "Don't even think about getting married until your 30." - Barney Stinson
+Last updated: 2024-06-20 06:49:15
+Random Quote: Have you been arrested in a mall?Dumped in a mall?Turned out you're Canadian in a mall? - Ted Mosby
