@@ -1,3 +1,2 @@
-Last updated: 2024-06-20 07:04:07
-Random Quote: Elliot: "I'm not sure it's a good thing we met."
-Rue: "What are you talking about? You're my new favorite person." - Rue Bennett
+Last updated: 2024-06-20 07:04:40
+Random Quote: No one had expected the broken boy to live.  The gods could not kill Bran, no more than I could.  It was a strange thought, and stranger still to remember that Bran might still be alive.  -  Theon Greyjoy
