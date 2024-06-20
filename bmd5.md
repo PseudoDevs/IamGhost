@@ -1,2 +1,2 @@
-Last updated: 2024-06-20 06:41:57
-Random Quote: Place was overrun with rats when we moved in.  The spearwives killed the nasty buggers.  Now the place is overrun with spearwives.  There's days I want the rats back.  -  Dolorous Edd Tollett
+Last updated: 2024-06-20 06:43:38
+Random Quote: But every now and then it’s good to question those who question things. - Noah
