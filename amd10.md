@@ -1,2 +1,2 @@
-Last updated: 2024-06-20 06:43:23
-Random Quote: Kuiil: "They really don't like you for some reason."Mandalorian: "Well, I did disintegrate a few of them." - Din Djarin
+Last updated: 2024-06-20 06:43:56
+Random Quote: Rhaegar fought valiantly, Rhaegar fought nobly, and Rhaegar died.  -  Jorah Mormont
