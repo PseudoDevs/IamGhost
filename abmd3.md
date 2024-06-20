@@ -1,2 +1,2 @@
-Last updated: 2024-06-20 06:46:31
-Random Quote: Every time I go after a busty dullard who can't tell time or thinks I'm the ghost of Leonardo DiCaprio, I'm shallow. But somehow it's okay for Robin to date a guy who can't be trusted around outlets. - Barney Stinson
+Last updated: 2024-06-20 06:47:04
+Random Quote: Smoking marijuana, eating cheetos, and masturbating do not constitute plans in my book. - Walter White
