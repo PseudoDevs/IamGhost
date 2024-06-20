@@ -1,2 +1,2 @@
-Last updated: 2024-06-20 06:43:23
-Random Quote: Robb Stark won the war on the battlefield and lost it in a bedchamber.  -  Jaime Lannister
+Last updated: 2024-06-20 06:43:56
+Random Quote: I did it for me. I liked it. I was good at it. And... I was really... I was alive. - Walter White
