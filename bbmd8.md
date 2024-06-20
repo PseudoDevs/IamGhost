@@ -1,2 +1,2 @@
-Last updated: 2024-06-20 07:01:50
-Random Quote: Early drinkin’ means quick drunken. - Jim Hopper
+Last updated: 2024-06-20 07:02:22
+Random Quote: Knights?  Dondarrion's a knight, but the rest of you are the sorriest lot of outlaws and broken men I've ever seen.  -  Sandor Clegane
