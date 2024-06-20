@@ -1,2 +1,2 @@
-Last updated: 2024-06-20 07:01:21
-Random Quote: Sam Healy: "It's popular fiction. It's like global warming or female ejaculation."Piper: "No! No. No, it's not. This is real."Sam Healy: "How is it real? Wait, which?"Piper: "The chicken. And the... the chicken." - Piper Chapman
+Last updated: 2024-06-20 07:01:54
+Random Quote: Knowledge is a weapon, Jon.  Arm yourself well before you ride forth to battle.  -  Maester Aemon
