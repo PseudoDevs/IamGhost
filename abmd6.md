@@ -1,2 +1,2 @@
-Last updated: 2024-06-20 06:56:13
-Random Quote: You could help a friend, but instead you're choosing the hot girl in the tight tank-top. Your training is complete, I'm so proud of this kid! - Barney Stinson
+Last updated: 2024-06-20 06:56:47
+Random Quote: Enjoy your mai-tai, because soon you will be wearing my tie! - Marshall Eriksen
