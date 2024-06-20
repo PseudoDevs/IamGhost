@@ -1,2 +1,2 @@
-Last updated: 2024-06-20 06:58:31
-Random Quote: When something seems too perfect, it's usually anything but. - Allison Hargreeves
+Last updated: 2024-06-20 06:59:05
+Random Quote: And Stannis has always felt he was cheated of Storm's End.  The ancestral seat of House Baratheon, his by rights... if you knew how many times he came to Robert singing that same dull song in that gloomy aggrieved tone he has.  When Robert gave the place to Renly, Stannis clenched his jaw so tight I thought his teeth would shatter.  -  Cersei Lannister
