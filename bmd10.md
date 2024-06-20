@@ -1,2 +1,2 @@
-Last updated: 2024-06-20 06:37:58
-Random Quote: You want to dismantle an empire? Divide it! - Guillermo Gonzalez Calderoni
+Last updated: 2024-06-20 06:39:06
+Random Quote: What do a bunch o' bloody peasants know about a lord's honor?  We know some about murder, though.  -  Lem Lemoncloak
