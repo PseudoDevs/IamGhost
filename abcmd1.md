@@ -1,2 +1,2 @@
-Last updated: 2024-06-20 06:35:06
-Random Quote: Miss Addams, you sadly had a very interesting educational journey. Eight schools in five years. - Larissa Weems
+Last updated: 2024-06-20 06:35:39
+Random Quote: All the tales agreed that the green men had strange magic powers.  Maybe they could help him walk again, even turn him into a knight.  They turned the little crannogman into a knight, even if it was only for a day, he thought.  A day would be enough.  -  Bran Stark
