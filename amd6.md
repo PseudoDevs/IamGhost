@@ -1,2 +1,2 @@
-Last updated: 2024-06-20 07:05:58
-Random Quote: And that, kids, is the kind of stupid thing you say, before you've met the person who hits the reset button on the world. Who makes everything new again. Who makes it seem ridiculous that you ever considered settling. - Ted Mosby
+Last updated: 2024-06-20 07:06:33
+Random Quote: Marshall: "During that time, I have been, how do I put this delicately, saving all my love for you."Lily: "I have read eleven books on conception, I have cut out alcohol, caffeine and sugar. I take my temperature every hour. But good for you for not playing with yourself!" - Lily Aldrin
