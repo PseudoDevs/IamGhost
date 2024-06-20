@@ -1,2 +1,2 @@
-Last updated: 2024-06-20 07:04:50
-Random Quote: Jesus! Just grow some fucking balls! - Walter White
+Last updated: 2024-06-20 07:05:25
+Random Quote: People are oblivious to reality. They only see what they want to see, when all they have to do is shift their perspective to see the full scope of things. - Yuk Je
