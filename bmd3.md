@@ -1,2 +1,2 @@
-Last updated: 2024-06-20 06:53:07
-Random Quote: I'm a genetic goldmine! No family history of diabetes or heart disease, everyone has non-porous teeth and perfect eyesight. I had one schizophrenic uncle, but even he had perfect vision. Which was unfortunate for the people around the bell tower he was in. - Robin Scherbatsky
+Last updated: 2024-06-20 06:53:39
+Random Quote: Good men and true will fight for Joffrey, wrongly believing him the true king.  A northman might even say the same of Robb Stark.  But these lords who flocked to my brother's banners knew him for an usurper.  They turned their backs on their rightful king for no better reason than dreams of power and glory, and I have marked them for what they are.  Pardoned them, yes.  Forgiven, but not forgotten.  -  Stannis Baratheon
