@@ -1,2 +1,4 @@
-Last updated: 2024-06-20 07:07:03
-Random Quote: Need found it hard to imagine what could frighten Stannis Baratheon, who had once held Storm's End through a year of siege, surviving on rats and boot leather while the Lords Tyrell and Redwyne sat outside with their hosts, banqueting in sight of his walls.  -  Eddard Stark
+Last updated: 2024-06-20 07:07:35
+Random Quote: It's going to be legen...
+wait for it - and I hope you're not lactose-intolerant cause the second half of that word is
+...dary! - Barney Stinson
